@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.
 
 **As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
 `Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
-https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-plays-down-chinas-actions-against-us-interests.html
+https://www.nytimes.com/2026/09/23/us/politics/trump-xi-china-visit.html
 
 **Bond Yields Soar as Investors Foresee Another Fed Interest Rate Increase**\
 `The 10-year Treasury yield on Wednesday rose to around 5.1 percent, as investors grew more convinced the Fed Reserve will raise interest rates again.`\
