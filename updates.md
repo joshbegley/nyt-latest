@@ -1,3 +1,7 @@
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`The New York Times’ annual Climate Forward event will include interviews with Energy Secretary Chris Wright, Jane Fonda and industry figures grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **‘Screamplay’: A Hollywood Horror Comedy**\
 `This 1980s black-and-white film by Rufus Butler Seder shows for a week in a new digital restoration at Anthology Film Archives.`\
 https://www.nytimes.com/2026/09/23/movies/screamplay-anthology-film-archives.html

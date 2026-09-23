@@ -1,3 +1,7 @@
+**Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
+`The New York Times’ annual Climate Forward event will include interviews with Energy Secretary Chris Wright, Jane Fonda and industry figures grappling with a consequential moment.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **‘Screamplay’: A Hollywood Horror Comedy**\
 `This 1980s black-and-white film by Rufus Butler Seder shows for a week in a new digital restoration at Anthology Film Archives.`\
 https://www.nytimes.com/2026/09/23/movies/screamplay-anthology-film-archives.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/09/23/us/billion-dollar-donation-university-oregon-
 **Chris Wright Sells Trump’s ‘Energy Dominance’ Vision**\
 `Energy Secretary Chris Wright is pitching a future of fossil fuel abundance. It’s not always an easy sell while war drags on and oil prices surge.`\
 https://www.nytimes.com/2026/09/23/climate/the-former-fracking-executive-selling-trumps-energy-dominance-vision.html
-
-**Bravo’s ‘Next Gen NYC’ Combines Nepo Babies and Good Drama**\
-`“Next Gen NYC” is breaking Bravo records with its cast full of the children of reality TV stars and its relatively low-stakes tiffs.`\
-https://www.nytimes.com/2026/09/23/style/bravo-next-gen-nyc.html
-
-**At 98, the Composer Thea Musgrave Is Still Learning**\
-`Musgrave, whose 1977 opera “Mary, Queen of Scots” is opening at the San Francisco Opera, has spent a long career searching for the “dramatic abstract.”`\
-https://www.nytimes.com/2026/09/23/arts/music/thea-musgrave-mary-queen-of-scots-san-francisco-opera.html
 
