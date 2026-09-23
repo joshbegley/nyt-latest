@@ -1,3 +1,11 @@
+**The Democrats’ Policy on Palestine Is Detached From Reality**\
+`The party needs more than a stance on Israel.`\
+https://www.nytimes.com/2026/09/23/opinion/democrats-palestine-policy.html
+
+**Trump and Xi Have to Find a Way to Coexist**\
+`Neither the United States nor China can bend the other to its will, and it’s time for them to settle for a durable détente.`\
+https://www.nytimes.com/2026/09/23/opinion/trump-xi-meeting-us-china.html
+
 **Outside the ‘Worried West,’ Many Feel Good About A.I.**\
 `A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
 https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html

@@ -1,3 +1,11 @@
+**The Democrats’ Policy on Palestine Is Detached From Reality**\
+`The party needs more than a stance on Israel.`\
+https://www.nytimes.com/2026/09/23/opinion/democrats-palestine-policy.html
+
+**Trump and Xi Have to Find a Way to Coexist**\
+`Neither the United States nor China can bend the other to its will, and it’s time for them to settle for a durable détente.`\
+https://www.nytimes.com/2026/09/23/opinion/trump-xi-meeting-us-china.html
+
 **White House Defends Trump’s Ban on CNN, MS NOW and Politico in Court Filing**\
 `President Trump determined that CNN, MS NOW and Politico were in  ‘violation of the standards of professionalism and decorum’ expected at the White House.`\
 https://www.nytimes.com/2026/09/23/business/trump-cnn-politico-ms-now-ban.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/22/us/venezuelan-shot-austin-judge-order-deport.
 **A Nor’easter Could Slam the East Coast This Week (or Not)**\
 `A nor’easter in September is unusual. As its forecast took shape on Tuesday, there was still uncertainty over what it would do.`\
 https://www.nytimes.com/2026/09/22/weather/noreaster-storm-flooding-virginia-new-york.html
-
-**Camp Mystic Owners Face Criminal Inquiry Over Deadly Flood, Warrants Show**\
-`The warrants provided the clearest window into the possible charges the Texas police are investigating against the camp, including manslaughter,  after 28 people died in the flood last year.`\
-https://www.nytimes.com/2026/09/22/us/camp-mystic-flood-investigation.html
-
-**Texas Halts Data Center Permits, Expanding Environmental Scrutiny**\
-`Less than a year ago, Gov. Greg Abbott welcomed data centers. Now he is confronting concerns about the projects even among fellow Republicans.`\
-https://www.nytimes.com/2026/09/22/climate/texas-halts-data-center-permits.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
