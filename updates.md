@@ -1,3 +1,19 @@
+**Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
+`The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
+https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
+
+**Major TV Networks Won’t Film Xi’s Arrival**\
+`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the China leader’s arrival on Wednesday.`\
+https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
+
+**Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
+`The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
+https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
+
+**Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
+`Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
+https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
+
 **Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
 `During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
 https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html

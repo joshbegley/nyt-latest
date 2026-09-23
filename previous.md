@@ -1,3 +1,15 @@
+**Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
+`The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
+https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
+
+**Major TV Networks Won’t Film Xi’s Arrival**\
+`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House. The suspension was not expected to change before the China leader’s arrival on Wednesday.`\
+https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
+
+**Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
+`The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
+https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
+
 **Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
 `During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
 https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
@@ -154,19 +166,7 @@ https://www.nytimes.com/2026/09/23/style/carol-gilligan-novel-listening.html
 `President Masoud Pezeshkian said his country would not give up its civilian nuclear program, but left the door opened for diplomacy with the United States.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/iran-president-un-speech.html
 
-**Trump’s Threat to ‘Annihilate’ Iran**\
-`Readers react to President Trump’s speech to the United Nations General Assembly. Also: Immigrants’ fears; better eating habits.`\
-https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
-
-**How El Niño Fueled Hurricane Polo’s Explosive Growth**\
-`The storm is one of the strongest ever in this part of the world.`\
-https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
-
-**Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
-`Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
-https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
-
-**Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
+**Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
