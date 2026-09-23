@@ -1,3 +1,7 @@
+**Gerard Barron Makes the Case for Mining the Ocean Floor**\
+`The head of the company hoping to become the first to conduct commercial deep-sea mining said mines on land had a much larger environmental footprint.`\
+https://www.nytimes.com/2026/09/23/climate/gerard-barron-metals-company-ocean-floor-mining.html
+
 **Fox News Finds Itself at Odds With Trump on Press Ban**\
 `The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
 https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/podcasts/the-headlines/trump-greenland-texas-
 **Health Trackers Are Everywhere. Do Babies Need Them, Too?**\
 `Parents are increasingly willing to embrace tracking and analytics for their children — part of a broader cultural obsession with health data and optimization.`\
 https://www.nytimes.com/2026/09/23/podcasts/the-daily/health-trackers-babies.html
-
-**NYT Connections Answers for September 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
-https://www.nytimes.com/2026/09/23/crosswords/connections-companion-1201.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\

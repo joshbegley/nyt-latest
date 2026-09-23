@@ -1,3 +1,7 @@
+**Gerard Barron Makes the Case for Mining the Ocean Floor**\
+`The head of the company hoping to become the first to conduct commercial deep-sea mining said mines on land had a much larger environmental footprint.`\
+https://www.nytimes.com/2026/09/23/climate/gerard-barron-metals-company-ocean-floor-mining.html
+
 **Fox News Finds Itself at Odds With Trump on Press Ban**\
 `The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
 https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
