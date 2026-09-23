@@ -1,3 +1,23 @@
+**Trump’s Major Retreat on Greenland, and Why Texas Hit Pause on New Data Centers**\
+`Plus, El Niño is scrambling hurricane season.`\
+https://www.nytimes.com/2026/09/23/podcasts/the-headlines/trump-greenland-texas-data-centers.html
+
+**Health Trackers Are Everywhere. Do Babies Need Them, Too?**\
+`Parents are increasingly willing to embrace tracking and analytics for their children — part of a broader cultural obsession with health data and optimization.`\
+https://www.nytimes.com/2026/09/23/podcasts/the-daily/health-trackers-babies.html
+
+**NYT Connections Answers for September 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
+https://www.nytimes.com/2026/09/23/crosswords/connections-companion-1201.html
+
+**Today’s Wordle Hints for September 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
+https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
+
+**NYT Strands Hints for September 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
+https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
+
 **U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
 `Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic republic.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
