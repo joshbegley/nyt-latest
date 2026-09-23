@@ -1,3 +1,7 @@
+**Police Step Up U.N. Security After 3 People Emerge From Manhole**\
+`The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
+https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html
+
 **As Xi Visits Washington, Trump Plays Down China’s Actions Against U.S. Interests**\
 `Despite the rivalry between the United States and China, President Trump has repeatedly found ways to give President Xi Jinping of China a pass, portraying him more as a personal friend than a competitor.`\
 https://www.nytimes.com/2026/09/23/us/politics/as-xi-visits-washington-trump-plays-down-chinas-actions-against-us-interests.html

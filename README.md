@@ -1,3 +1,7 @@
+**Florida Files Lawsuit Against The New York Times**\
+`The state’s attorney general demanded access to company records to examine how the newspaper’s board oversees editorial standards amid claims of anti-Israel bias.`\
+https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit.html
+
 **Police Step Up U.N. Security After 3 People Emerge From Manhole**\
 `The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/09/23/us/politics/ai-us-china-trump-xi-economy.html
 https://www.nytimes.com/video/climate/100000011170592/abigail-spanberger-virginia-data-center.html
 
 **Man Guilty of Conspiracy for Running Drug Ring in Washington Square Park**\
-`A jury convicted the man, John Livigni, whom prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
+`A jury convicted the man, John Livigni, who prosecutors said was a leader of a narcotics operation that resulted in two deaths and involved millions of sales around the Greenwich Village park.`\
 https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.html
 
 **Officials Investigating Mississippi Student Deaths Issue Warning About Kratom**\
@@ -165,14 +169,6 @@ https://www.nytimes.com/2026/09/23/world/un-general-assembly-walkout.html
 **A.I. Assistant**\
 `Plus, it’s Fat Bear Week.`\
 https://www.nytimes.com/2026/09/23/briefing/ai-assistant.html
-
-**Museum Regrets Hosting 9/11 Event Airing Conspiracy Theories**\
-`As New York commemorated the 25th anniversary of the attacks, El Museo del Barrio rented space to a group skeptical of the explanation of what caused the twin towers to come down.`\
-https://www.nytimes.com/2026/09/23/arts/design/el-museo-del-barrio-9-11-conspiracy-theories.html
-
-**New Study Illuminates Bats’ Murky Origins**\
-`The largest analysis of bat genomes and fossils suggests that the first bats emerged in Europe roughly 65 million years ago and that echolocation evolved early.`\
-https://www.nytimes.com/2026/09/23/science/evolution-genetics-bats.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
