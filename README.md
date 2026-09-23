@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/09/23/opinion/trump-iran-united-nations.html
 `The storm is one of the strongest ever in this part of the world.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-el-nino-strongest.html
 
-**Abigail Spanberger, Virginia Governor, Calls for Data Center Rules**\
+**Abigail Spanberger, Virginia Governor, Calls for A.I. Data Center Rules**\
 `Abigail Spanberger, who announced a set of policies on data centers last week, said states should do more to reduce their pollution.`\
 https://www.nytimes.com/2026/09/23/climate/abigail-spanberger-climate-change.html
 
