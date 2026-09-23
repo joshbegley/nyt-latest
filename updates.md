@@ -1,3 +1,11 @@
+**Zelensky Is Expected to Warn Russia’s Aggression Won’t Stop at Ukraine’s Borders**\
+`President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
+https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
+
+**Russia Strikes Kyiv Hours Before Zelensky Addresses United Nations**\
+`Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
+https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
+
 **Bessent Failed to Report Holdings of JP Morgan Stock**\
 `Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
 https://www.nytimes.com/2026/09/23/business/bessent-failed-to-report-holdings-of-jp-morgan-stock.html
