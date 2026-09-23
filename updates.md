@@ -1,3 +1,19 @@
+**Jensen Huang Thinks A.I. Job Loss Is a ‘Fallacy’**\
+`The idea that A.I. will destroy jobs is “fundamentally wrong,” says Jensen Huang, Nvidia’s chief executive. He explains why he thinks the job loss conversation is unproductive on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011170490/jensen-huang-thinks-ai-job-loss-is-a-fallacy.html
+
+**Why Taylor Tomlinson Called Off Her Engagement**\
+`The comedian Taylor Tomlinson tells Anna Martin, the host of the “Modern Love” podcast, why breaking off her engagement to a man she loved deeply was ultimately the right decision.`\
+https://www.nytimes.com/video/podcasts/100000011171522/taylor-tomlinson-engagement-mental-health.html
+
+**Jensen Huang: A.I. Alarmists Are ‘Irresponsible’**\
+`Employees of OpenAI and Anthropic have been sounding the alarm on the dangers of the systems their companies are developing. But Jensen Huang, the chief executive of Nvidia, argues on “The Ezra Klein Show” that some alarmists have gone too far.`\
+https://www.nytimes.com/video/opinion/100000011159768/jensen-huang-ai-alarmists-are-irresponsible.html
+
+**Data Center Is Fined $1.1 Million for Operating 62 Power Generators**\
+`New Jersey officials said that the natural gas-powered generators, each the size of a tractor-trailer, were operating without permits.`\
+https://www.nytimes.com/2026/09/23/nyregion/data-center-pollution-new-jersey.html
+
 **Trouble in the Heartland**\
 `The G.O.P. is on defense in the so-called “blue wall” states and beyond as gas prices remain high.`\
 https://www.nytimes.com/2026/09/23/us/politics/midwest-republican-candidates-trump.html

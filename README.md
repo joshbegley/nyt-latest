@@ -1,3 +1,7 @@
+**F.D.A. Advisory Panel Endorses Controversial Cancer Blood Test**\
+`The panelists expressed reservations about the evidence supporting Grail’s Galleri test, which is designed to detect cancers early.`\
+https://www.nytimes.com/2026/09/23/well/fda-cancer-blood-test-galleri-grail.html
+
 **Jensen Huang Thinks A.I. Job Loss Is a ‘Fallacy’**\
 `The idea that A.I. will destroy jobs is “fundamentally wrong,” says Jensen Huang, Nvidia’s chief executive. He explains why he thinks the job loss conversation is unproductive on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011170490/jensen-huang-thinks-ai-job-loss-is-a-fallacy.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/09/23/business/bonds-interest-rates.html
 **How Trump’s Iran War May Sink Republican Midterm Chances**\
 `The president might be supercharging what already looked like a blue wave.`\
 https://www.nytimes.com/2026/09/23/opinion/iran-war-midterms-trump-republicans.html
-
-**Where Is the U.S. Beating China on A.I., and Where Is It Lagging?**\
-`As Xi Jinping visits President Trump in Washington, his country lags behind the United States on A.I. development in key areas — but Beijing has advantages elsewhere.`\
-https://www.nytimes.com/2026/09/23/us/politics/ai-us-china-trump-xi-economy.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
