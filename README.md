@@ -1,5 +1,9 @@
+**Fox News Finds Itself at Odds With Trump on Press Ban**\
+`The home of Sean Hannity and Laura Ingraham has joined rival networks in suspending its coverage of pooled presidential events.`\
+https://www.nytimes.com/2026/09/23/business/media/fox-trump-press-pool-ban.html
+
 **Tigrayan Forces Mobilize Against the Central Government in Ethiopia**\
-`Tigray People’s Liberation Forces seized a key airport in the city of Mekelle, as fears grow of a possible return to a full-scale war.`\
+`Tigray People’s Liberation Front seized a key airport in the city of Mekelle, as fears grow of a possible return to a full-scale war.`\
 https://www.nytimes.com/2026/09/23/world/africa/ethiopia-tigray-airport.html
 
 **Ancient Wall Found in Paris Provides Clues to City’s Origins**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/podcasts/the-daily/health-trackers-babies.htm
 **NYT Connections Answers for September 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/23/crosswords/connections-companion-1201.html
-
-**Today’s Wordle Hints for September 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 24, 2026.`\
-https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 
 **U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks in a Defiant Address**\
 `Masoud Pezeshkian said Iran was open to diplomacy but would never accept limits on its civilian nuclear program. Before his speech later today, President Volodymyr Zelensky of Ukraine called on allies to apply more pressure on Russia.`\
