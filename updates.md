@@ -1,3 +1,7 @@
+**Trump’s Diesel Dilemma**\
+`Calls to ban U.S. exports of the fuel are dividing Republicans. The energy crisis is also dominating discussions at the United Nations.`\
+https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html
+
 **At U.N. Meeting, Syria’s Leader Is Strengthened, but Faces a Difficult Test**\
 `President Ahmed al-Sharaa has improved his diplomatic standing since he last addressed the U.N. General Assembly but faces mounting domestic economic and security challenges.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/syria-un-general-assembly-al-sharaa.html
