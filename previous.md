@@ -1,3 +1,23 @@
+**Quote of the Day: Keeping Truce With the U.S. Is Xi’s Mission**\
+`Quotation of the Day for Wednesday, September 23, 2026.`\
+https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html
+
+**Many Countries Are Optimistic About A.I., Poll Finds**\
+`A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
+https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html
+
+**Suicide Rate Dropped Slightly in 2024, C.D.C. Finds**\
+`Suicide deaths have often fluctuated over the years but a sustained downward trend remains elusive.`\
+https://www.nytimes.com/2026/09/23/well/mind/suicide-rate-2024-cdc.html
+
+**On This Day | Sept. 23**\
+`In 1952, the Republican vice-presidential candidate Richard M. Nixon delivered his nationally televised “Checkers” speech, denying that he had improperly used campaign funds. The address was an early example of television reshaping U.S. politics.`\
+https://www.nytimes.com/2026/09/23/learning/on-this-day-sept-23.html
+
+**Dispute Over Missouri’s Congressional Map Again Returns to Supreme Court**\
+`A federal appeals court sided with Republicans seeking to use district boundaries redrawn last year to give the G.O.P. an advantage in the upcoming midterms.`\
+https://www.nytimes.com/2026/09/22/us/politics/supreme-court-missouri-congressional-map.html
+
 **NYT Crossword Answers for Sept. 23, 2026**\
 `How to solve Dana Edwards’s crossword puzzle? Just play.`\
 https://www.nytimes.com/2026/09/22/crosswords/daily-puzzle-2026-09-23.html
@@ -165,26 +185,6 @@ https://www.nytimes.com/2026/09/22/us/stanford-photo-swap-black-hispanic-student
 **Booker Prize 2026: Six Novels Make Shortlist**\
 `If James wins for “The Disappearers” or Stuart for “John of John,” it would be a rare second win for an author in the history of the prestigious literary award.`\
 https://www.nytimes.com/2026/09/22/books/booker-prize-shortlist.html
-
-**Shooting Near High School in Turkey Injures 11**\
-`A shooting near a high school in Turkey injured 11 people on Tuesday, officials said. Authorities are investigating how the suspect obtained the weapon, which officials said belonged to the attacker’s grandfather.`\
-https://www.nytimes.com/video/world/asia/100000011167727/shooting-turkey-11-injured.html
-
-**$345 Million Verdict Against Greenpeace Should Be Overturned, Lawyers Say**\
-`A group of civil-rights and free-speech lawyers accused the judge of bias and “general incompetence.”`\
-https://www.nytimes.com/2026/09/22/climate/greenpeace-energy-transfer-verdict.html
-
-**Hispanic Voters, Abandoning Trump, Are Transforming the Midterm Map**\
-`Texas and even Florida are the places to watch in November if a polling pattern holds.`\
-https://www.nytimes.com/2026/09/22/upshot/hispanic-voters-midterm-elections.html
-
-**A Back-to-School Playlist**\
-`Let tracks from the White Stripes, Madonna, Beyoncé and more transport you to the classroom.`\
-https://www.nytimes.com/2026/09/22/arts/music/amplifier-newsletter-white-stripes-beyonce-madonna.html
-
-**U.N. Searches for Its Next Leader**\
-`António Guterres is stepping down in December after two terms as secretary general. No front-runner to succeed him has emerged so far.`\
-https://www.nytimes.com/2026/09/22/world/next-un-leader-guterres.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\

@@ -1,3 +1,23 @@
+**Quote of the Day: Keeping Truce With the U.S. Is Xi’s Mission**\
+`Quotation of the Day for Wednesday, September 23, 2026.`\
+https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html
+
+**Many Countries Are Optimistic About A.I., Poll Finds**\
+`A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
+https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html
+
+**Suicide Rate Dropped Slightly in 2024, C.D.C. Finds**\
+`Suicide deaths have often fluctuated over the years but a sustained downward trend remains elusive.`\
+https://www.nytimes.com/2026/09/23/well/mind/suicide-rate-2024-cdc.html
+
+**On This Day | Sept. 23**\
+`In 1952, the Republican vice-presidential candidate Richard M. Nixon delivered his nationally televised “Checkers” speech, denying that he had improperly used campaign funds. The address was an early example of television reshaping U.S. politics.`\
+https://www.nytimes.com/2026/09/23/learning/on-this-day-sept-23.html
+
+**Dispute Over Missouri’s Congressional Map Again Returns to Supreme Court**\
+`A federal appeals court sided with Republicans seeking to use district boundaries redrawn last year to give the G.O.P. an advantage in the upcoming midterms.`\
+https://www.nytimes.com/2026/09/22/us/politics/supreme-court-missouri-congressional-map.html
+
 **Dolly Parton’s Estate in Turmoil After Extortion Accusations**\
 `Ms. Parton’s manager requested a restraining order against the singer’s nephew and former security provider, accusing him of threats and intimidation.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
