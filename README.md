@@ -1,3 +1,7 @@
+**Mark Carney Interview: Canada’s Leader Lays Out Vision for Breaking Reliance on U.S.**\
+`In a wide-ranging interview, the Canadian leader laid out a detailed vision for breaking his country’s dependency on the United States.`\
+https://www.nytimes.com/2026/09/23/world/canada/mark-carney-canada-us-trump-tariffs.html
+
 **Iowa Judge Dismisses Trump’s Lawsuit Against The Des Moines Register**\
 `The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 campaign. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
 https://www.nytimes.com/2026/09/23/us/politics/des-moines-register-trump-lawsuit.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/23/briefing/23-the-good-list-fat-bear.html
 **Florida Files Lawsuit Against The New York Times**\
 `The state’s attorney general demanded access to company records to examine how the newspaper’s board oversees editorial standards amid claims of anti-Israel bias.`\
 https://www.nytimes.com/2026/09/23/business/media/florida-new-york-times-lawsuit.html
-
-**Police Step Up U.N. Security After 3 People Emerge From Manhole**\
-`The latest sighting of people going in or out of the sewer system occurred on the Upper East Side, where many leaders and diplomats are staying during the United Nations General Assembly.`\
-https://www.nytimes.com/2026/09/23/nyregion/un-general-assembly-security-sewers.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
