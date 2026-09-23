@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/09/23/style/met-opera-opening-night-macbeth.html
 `Making a meal of outerwear.`\
 https://www.nytimes.com/2026/09/23/style/london-fashion-week-street-style.html
 
-**The Lucas Museum’s Architect Wants to Help You Escape from Reality**\
+**The Lucas Museum’s Architect Wants to Help You Escape From Reality**\
 `Ma Yansong, China’s reigning starchitect, lets his buildings wrapped in nature do the shouting.`\
 https://www.nytimes.com/2026/09/23/arts/design/lucas-museum-architect-ma-yansong-mad.html
 
