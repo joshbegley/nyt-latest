@@ -1,3 +1,7 @@
+**Trump Officials May Undo Nursing Home Mandates for Reporting Covid**\
+`The agency led by Dr. Mehmet Oz is proposing an end to weekly tracking of respiratory infections at the facilities where thousands of elderly residents died in the pandemic.`\
+https://www.nytimes.com/2026/09/23/business/covid-nursing-homes-trump.html
+
 **He Changed the World of Organ Transplants. Would He Die Waiting for His Own?**\
 `A New York transplant surgeon’s experience waiting for a heart transplant laid bare the challenges of a system he had spent decades trying to fix.`\
 https://www.nytimes.com/2026/09/23/well/heart-transplant-surgeon-pig-kidney.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/23/learning/word-of-the-day-moot.html
 **‘It’s Very Simple’: 50 Years of Making Avant-Garde Music Sound Effortless**\
 `Founded by Pierre Boulez to treat new compositions with orchestral rigor, Ensemble Intercontemporain has honed the art of turning forbidding scores into expressive sound.`\
 https://www.nytimes.com/2026/09/23/arts/music/ensemble-intercontemporain-50th-anniversary.html
-
-**Adam Pendleton Is Painting the White Cube Black**\
-`On Oct. 10, the artist’s exhibition, “Some Wild Kind of Language,” opens at the Stedelijk Museum Amsterdam. It will upend expectations.`\
-https://www.nytimes.com/2026/09/23/arts/design/adam-pendleton-amsterdam-artist.html
 

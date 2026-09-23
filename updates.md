@@ -1,3 +1,7 @@
+**U.N. Live Updates: Iran’s President Accuses U.S. and Israel of Lawless Attacks on Nonmilitary Targets**\
+`Masoud Pezeshkian became the first leader whose country is at war with the United States to address the General Assembly in New York. He said Iran was open to diplomacy but would never accept limits on its civilian nuclear program.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
 `Energy Secretary Chris Wright and Gov. Abigail Spanberger of Virginia will be among the speakers at The New York Times’ annual Climate Forward event, in a wide-ranging discussion coming at a consequential moment.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
