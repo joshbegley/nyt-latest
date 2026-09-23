@@ -1,3 +1,11 @@
+**Trump Invites Putin to Attend Group of 20 Summit in Miami**\
+`Many leaders are unlikely to welcome the Russian leader’s presence at the event because of his country’s war against Ukraine.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-putin-g20-summit.html
+
+**Zelensky Warns Russia’s War Will Expand if It Is Not Ended Soon**\
+`The Ukrainian president called for measures to disrupt “Russia’s finances and Russia’s production” before another deadly winter of war.`\
+https://www.nytimes.com/2026/09/23/world/europe/zelensky-speech-russia-war.html
+
 **Live Updates: Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
