@@ -1,3 +1,7 @@
+**Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\
+`President Trump signed a Greenland security deal that falls well short of his demands to turn the island into a U.S. territory.`\
+https://www.nytimes.com/2026/09/22/us/politics/trump-greenland-denmark-agreement.html
+
 **Mamdani Aides Give City Council Little Insight Into Influencer Effort**\
 `At a New York City Council hearing, frustration grew as Mayor Zohran Mamdani’s representatives were unable to answer questions about the mayor’s use of influencers.`\
 https://www.nytimes.com/2026/09/22/nyregion/mamdani-council-influencers-hearing.html
