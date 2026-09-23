@@ -1,3 +1,11 @@
+**F.D.A. Advisory Panel Endorses Controversial Cancer Blood Test**\
+`The panelists expressed reservations about the evidence supporting Grail’s Galleri test, which is designed to detect cancers early.`\
+https://www.nytimes.com/2026/09/23/well/fda-cancer-blood-test-galleri-grail.html
+
+**NBC, CBS and More TV Networks Didn’t Film Xi’s Arrival Amid Trump’s Press Ban**\
+`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House.`\
+https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
+
 **Jensen Huang Thinks A.I. Job Loss Is a ‘Fallacy’**\
 `The idea that A.I. will destroy jobs is “fundamentally wrong,” says Jensen Huang, Nvidia’s chief executive. He explains why he thinks the job loss conversation is unproductive on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011170490/jensen-huang-thinks-ai-job-loss-is-a-fallacy.html
