@@ -1,3 +1,11 @@
+**Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
+`A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
+https://www.nytimes.com/2026/09/23/us/politics/kennedy-book-advances.html
+
+**Disney’s Fired C.E.O. Bob Chapek Settles Scores With Bob Iger in New Book**\
+`In a new memoir, Bob Chapek publicly addresses his 2022 ouster for the first time. He blames it on Mr. Iger, who both preceded and succeeded him at Disney.`\
+https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.html
+
 **Maps: Tracking a Potential Hurricane Near Hawaii**\
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/09/23/world/asia/unga-myanmar-united-nations-ambass
 **Ralph Ellison Trust Donates Rights to Bard College**\
 `The liberal arts college announced a center dedicated to the “Invisible Man” author, who taught classes there.`\
 https://www.nytimes.com/2026/09/23/arts/ralph-ellison-bard-archive.html
-
-**I Don’t Want to Bring a New Baby Into My In-Laws’ Filthy Home. Help!**\
-`An expectant mother dreads the thought of visiting her husband’s parents with a newborn, as her in-laws’ housekeeping has lately taken a sharp turn for the worse.`\
-https://www.nytimes.com/2026/09/23/style/newborn-visiting-dirty-house.html
 
 **Climate Forward Live Updates: Leaders Confront a Data Center Backlash and Rising Energy Prices**\
 `Energy Secretary Chris Wright is speaking now at The New York Times’ annual Climate Forward event, where industry figures are discussing how they are grappling with a consequential moment.`\
