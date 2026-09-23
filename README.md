@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california
 https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
 
 **Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
-`Ms. Parton’s estate filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
+`Ms. Parton’s manager filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
 https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
 
 **Trump Once Vowed to ‘Own’ Greenland. He Settled for Something Much Less.**\

@@ -1,3 +1,19 @@
+**Tropical Sea Turtle Lays Eggs on Southern California Beach**\
+`It’s the first time in recorded history that a sea turtle has nested on the West Coast. Scientists say it is the latest sign of warming ocean waters.`\
+https://www.nytimes.com/2026/09/22/us/olive-ridley-sea-turtle-climate-california.html
+
+**Endangered Sea Turtle Lays Eggs on Southern California Beach**\
+`For the first time ever, scientists recorded a sea turtle laying eggs on a beach on the U.S. West Coast. A fence was erected around the eggs of the olive ridley turtle.`\
+https://www.nytimes.com/video/science/earth/100000011167855/endangered-sea-turtle-california-beach.html
+
+**Dolly Parton’s Nephew Is Accused of Threatening Her Estate**\
+`Ms. Parton’s estate filed a request for a restraining order against Bryan Seaver, accusing her former security provider of intimidation and extortion.`\
+https://www.nytimes.com/2026/09/22/arts/music/dolly-parton-restraining-order-bryan-seaver.html
+
+**Hurricane Polo Just Keeps Getting Stronger**\
+`The storm is expected to stay mainly offshore as it moves north along the western coast of Mexico this week. It’s one of the strongest ever in the region.`\
+https://www.nytimes.com/live/2026/09/22/weather/hurricane-polo-mexico
+
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
 https://www.nytimes.com/live/2026/09/22/world/un-general-assembly-trump-speech-news
