@@ -1,3 +1,11 @@
+**Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
+`Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
+https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
+
+**As Trump Welcomes Xi, More Americans Have a Positive View of China**\
+`Experts attribute the changing mood to fading memories of the coronavirus pandemic, awareness of China’s tech innovations and disaffection with President Trump’s trade wars.`\
+https://www.nytimes.com/2026/09/23/us/politics/polls-us-china-trump-xi.html
+
 **Trump’s Energy Secretary Dismisses Reports of Diesel Export Ban, Criticizes Solar Power**\
 `Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
 https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
@@ -54,7 +62,7 @@ https://www.nytimes.com/2026/09/23/business/media/disney-bob-chapek-bob-iger.htm
 `See the likely path and wind arrival times for Fifteen-E`\
 https://www.nytimes.com/interactive/2026/09/23/weather/hawaii-storm-map-path.html
 
-**Live Updates: Judge to Hear Arguments From News Outlets and White House Over Ban**\
+**Live Updates: Judge Hears Arguments From News Outlets and White House Over Ban**\
 `CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
 https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 
@@ -162,19 +170,11 @@ https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-envir
 `President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
 https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
 
-**Russia Strikes Kyiv Hours Before Zelensky Addresses United Nations**\
-`Russia launched daytime strikes on Kyiv on Wednesday, hours before President Volodymyr Zelensky of Ukraine was set to address the United Nations General Assembly. The day before, Ukraine said it had struck two Russian oil refineries.`\
-https://www.nytimes.com/video/world/europe/100000011169657/russia-strikes-ukraine-zelensky-un-general-assembly.html
-
-**Bessent ‘Inadvertently’ Failed to Report Holdings of JPMorgan Stock**\
-`Treasury Secretary Scott Bessent’s finances were reviewed by the inspector general after Mr. Bessent incorrectly listed at least $100,000 of the stock, which was owned by his husband, as cash.`\
-https://www.nytimes.com/2026/09/23/business/bessent-jp-morgan-stock.html
-
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
 **U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
-`Ukraine’s president said grain shortages, rising fuel prices and deadlier drone technology showed that the fighting had spilled beyond his country’s borders. He called for an end to the war before winter.`\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 

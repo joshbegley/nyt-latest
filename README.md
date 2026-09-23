@@ -1,3 +1,7 @@
+**At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
+`Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
+https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
+
 **Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
 `Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
 https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/09/23/nyregion/nyc-washington-square-park-drugs.htm
 `The herbal substance Kratom was found during inquiries into the recent deaths of two University of Mississippi students. Their causes of death have not been determined.`\
 https://www.nytimes.com/2026/09/23/us/kratom-ole-miss-students-dead.html
 
-**Kennedy Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
+**RFK Jr. Drew $4 Million in Book Advances From Publisher Who Also Monetized MAHA**\
 `A new disclosure also shows $210,000 in consulting fees paid to Cheryl Hines, the health secretary’s wife, by one of several MAHA-affiliated groups capitalizing from his agenda.`\
 https://www.nytimes.com/2026/09/23/us/politics/rfk-jr-book-advances-maha.html
 
@@ -161,14 +165,6 @@ https://www.nytimes.com/video/climate/100000011169968/brockovich-pearson-against
 **Stanislas Hutin, Who Denounced Torture in France’s Algerian War, Dies at 95**\
 `He was among the first to chronicle the French force’s systematic abuse of Algerians, brutal encounters that he documented in his journal and with his photography.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/stanislas-hutin-dead.html
-
-**Jane Fonda Criticizes Both U.S. Political Parties for Climate Inaction**\
-`The actor and activist Jane Fonda said the U.S. is facing “two existential crises — climate and democracy.”`\
-https://www.nytimes.com/video/climate/100000011169969/climate-nyt-activism-environment-jane-fonda.html
-
-**In U.N. Speech, Zelensky Is Expected to Warn Russia’s War Won’t Stop at Ukraine’s Borders**\
-`President Volodymyr Zelensky is seeking to convey the critical urgency of his nation’s plight to world leaders increasingly distracted by competing global crises and domestic political pressures.`\
-https://www.nytimes.com/2026/09/23/world/europe/ukraine-russia-zelensky-unga.html
 
 **Climate Forward Live Updates: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

@@ -1,3 +1,19 @@
+**Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
+`Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
+https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
+
+**As Trump Welcomes Xi, More Americans Have a Positive View of China**\
+`Experts attribute the changing mood to fading memories of the coronavirus pandemic, awareness of China’s tech innovations and disaffection with President Trump’s trade wars.`\
+https://www.nytimes.com/2026/09/23/us/politics/polls-us-china-trump-xi.html
+
+**Live Updates: Judge Hears Arguments From News Outlets and White House Over Ban**\
+`CNN, MS NOW and Politico are challenging President Trump’s attempt to block their access to the White House, saying it violates the First Amendment. The administration has argued that such access is not a right.`\
+https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
+
+**U.N. Live Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that years of fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Trump’s Energy Secretary Dismisses Reports of Diesel Export Ban, Criticizes Solar Power**\
 `Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
 https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
