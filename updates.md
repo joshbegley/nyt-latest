@@ -1,3 +1,7 @@
+**U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
+`Among those scheduled to speak on Wednesday was Masoud Pezeshkian, the first leader whose country is at war with the United States to address the General Assembly in New York. On Tuesday, President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **3 Riders Sue Six Flags, Saying California Roller Coaster Caused Brain Injuries**\
 `The lawsuits accuse the company of failing to adequately warn passengers about the risks to riders of the X2 coaster at Six Flags Magic Mountain.`\
 https://www.nytimes.com/2026/09/23/us/six-flags-x2-roller-coaster-injuries.html

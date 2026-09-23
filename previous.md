@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/09/23/crosswords/wordle-review-1923.html
 https://www.nytimes.com/2026/09/23/crosswords/strands-sidekick-935.html
 
 **U.N. Live Updates: Iran’s President to Address World Leaders After Trump Threat**\
-`Masoud Pezeshkian is the first leader whose country is at war with the United States to travel to New York to address the General Assembly. President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
+`Among those scheduled to speak on Wednesday was Masoud Pezeshkian, the first leader whose country is at war with the United States to address the General Assembly in New York. On Tuesday, President Trump said he faced a choice over whether to “annihilate” the Islamic Republic.`\
 https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 
 **It’s Not the Oscars: U.N. Speakers Love to Ignore Its 15-Minute Rule**\
