@@ -1,3 +1,7 @@
+**Prada Says All You Really Need Is a Knee-Length Skirt**\
+`Milan Fashion Week began with a show devoted to a single garment.`\
+https://www.nytimes.com/2026/09/23/style/prada-skirts.html
+
 **Harvey Weinstein Will Be Sentenced in New York Sex Crime Case**\
 `Prosecutors have asked for a 20-year sentence, but Harvey Weinstein still faces a lawsuit in New York and a resentencing in a separate case in California.`\
 https://www.nytimes.com/2026/09/23/nyregion/nyc-harvey-weinstein-rape-sentencing.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/22/world/africa/ethiopia-rebel-alliance.html
 **Rosie O’Donnell Says ABC Delayed a Skit as It Readied Trump Suit**\
 `The network asked the comedian to hold off on the sketch, which mocked the president, when she filled in as host of “Jimmy Kimmel Live!”`\
 https://www.nytimes.com/2026/09/22/business/rosie-odonnell-abc-trump-skit.html
-
-**UNGA Brings Traffic and a Little Chaos to New York City**\
-`Big names flood New York City each year for the United Nations General Assembly. But that also means traffic (oh, the traffic!), closed streets and a little more chaos than usual.`\
-https://www.nytimes.com/2026/09/22/nyregion/un-general-assembly-traffic-nyc.html
 
 **U.N. Updates: As Trump Threatens Iran, Other Leaders Warn of Deep Divisions**\
 `President Trump said he must decide whether to make a deal or “annihilate” Iran, in a gathering where world leaders typically focus on declarations of global harmony.`\
