@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/09/23/world/un-speeches-15-minutes.html
 `An already busy Pacific hurricane season got a lot busier this week.`\
 https://www.nytimes.com/2026/09/23/weather/pacific-hurricanes-hawaii-polo.html
 
-**Kennedy’s Anti-Vaccine Legacy Will Outlast This Administration**\
+**Kennedy Keeps Finding New Ways to Undermine Trust in Vaccines**\
 `Four are dead in Pennsylvania’s measles outbreak. But the C.D.C. isn’t yet convinced.`\
 https://www.nytimes.com/2026/09/23/opinion/kennedy-measles-deaths-pennsylvania.html
 
