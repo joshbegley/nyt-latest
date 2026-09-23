@@ -1,3 +1,7 @@
+**Trump’s Diesel Dilemma**\
+`Calls to ban U.S. exports of the fuel are dividing Republicans. The energy crisis is also dominating discussions at the United Nations.`\
+https://www.nytimes.com/2026/09/23/business/dealbook/trump-diesel-dilemma.html
+
 **At U.N. Meeting, Syria’s Leader Is Strengthened, but Faces a Difficult Test**\
 `President Ahmed al-Sharaa has improved his diplomatic standing since he last addressed the U.N. General Assembly but faces mounting domestic economic and security challenges.`\
 https://www.nytimes.com/2026/09/23/world/middleeast/syria-un-general-assembly-al-sharaa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/arts/music/thea-musgrave-mary-queen-of-scots-
 **Thrilling Mystery Books for Fans of Agatha Christie**\
 `If you’ve devoured all of the Queen of Crime’s whodunits, here are more twisty mysteries that may satisfy your craving.`\
 https://www.nytimes.com/2026/09/23/books/agatha-christie-mystery-books.html
-
-**How China’s Leader Plans to Win the Future With A.I.**\
-`A decade ago, Xi Jinping asked if China could master A.I. His push is remaking the economy, challenging the United States and keeping society under control.`\
-https://www.nytimes.com/2026/09/23/world/asia/china-ai-economy-xi-jinping.html
 
