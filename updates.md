@@ -1,3 +1,7 @@
+**Outside the ‘Worried West,’ Many Feel Good About A.I.**\
+`A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
+https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html
+
 **White House Defends Trump’s Ban on CNN, MS NOW and Politico in Court Filing**\
 `President Trump determined that CNN, MS NOW and Politico were in  ‘violation of the standards of professionalism and decorum’ expected at the White House.`\
 https://www.nytimes.com/2026/09/23/business/trump-cnn-politico-ms-now-ban.html

@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/09/23/us/politics/cnn-msnow-politico-la
 `Quotation of the Day for Wednesday, September 23, 2026.`\
 https://www.nytimes.com/2026/09/23/pageoneplus/quote-of-the-day-keeping-truce-with-the-us-is-xis-mission.html
 
-**Many Countries Are Optimistic About A.I., Poll Finds**\
+**Outside the ‘Worried West,’ Many Feel Good About A.I.**\
 `A Gallup poll found that a majority of people surveyed across 37 countries said they were curious or excited about artificial intelligence, more than scared or worried.`\
 https://www.nytimes.com/2026/09/23/world/ai-gallup-poll.html
 
