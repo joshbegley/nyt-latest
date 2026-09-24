@@ -1,3 +1,7 @@
+**CNN, MS NOW and Politico Return to White House**\
+`A federal judge issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets. Even so, reporters were initially denied entry to the White House grounds on Thursday.`\
+https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-press-cnn-ms-now-politico.html
+
 **Carney Says He Would Consider a Second Term, Depending on State of U.S.-Canada Relations**\
 `As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
 https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html

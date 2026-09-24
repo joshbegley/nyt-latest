@@ -1,3 +1,7 @@
+**CNN, MS NOW and Politico Return to White House**\
+`A federal judge issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets. Even so, reporters were initially denied entry to the White House grounds on Thursday.`\
+https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-press-cnn-ms-now-politico.html
+
 **Stream These 5 Movies and Shows Before They Leave Netflix in October**\
 `Tom Hanks, Tim Robinson and Paul Schrader are among some of the big names on titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collins
 **Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
 `Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
 https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-protests.html
-
-**5 Looks to Understand a Fashion Show**\
-`Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
-https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
 

@@ -1,3 +1,7 @@
+**Are Lynchings Really Happening?**\
+`Some suggest that recent hangings are evidence of racial terrorism.`\
+https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
+
 **CNN, MS NOW and Politico Return to White House**\
 `A federal judge issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets. Even so, reporters were initially denied entry to the White House grounds on Thursday.`\
 https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-press-cnn-ms-now-politico.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.
 **Weeks Before the Election, Susan Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
 `Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
 https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
-
-**Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
-`Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
-https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-protests.html
 
