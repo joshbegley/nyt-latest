@@ -1,3 +1,7 @@
+**Man Who Called Himself ‘King of New York’ Convicted in Abductions**\
+`Abu Chowdhury, a Queens supermarket owner, believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
+https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
+
 **Tech Titans Will Mingle With Trump and Xi at State Dinner**\
 `Prominent executives are expected to attend a dinner at the White House Thursday night, as the countries wrangle over tariffs, trade and potential A.I. regulation.`\
 https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/dining/a-veggie-dining-dispatch-from-book-tou
 **Ex-Tradwives Are Rejecting the Movement**\
 `What happens when tradwife influencers become unhappy with the movement? Our writer at large Amanda Hess reports on life-after-tradwife content creation.`\
 https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-the-movement.html
-
-**Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
-`It’s a question that has divided the internet.`\
-https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
 

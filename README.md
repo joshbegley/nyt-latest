@@ -1,3 +1,7 @@
+**Trump Hosts China’s Leader for a State Visit**\
+`Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
+
 **Man Who Called Himself ‘King of New York’ Convicted in Abductions**\
 `Abu Chowdhury, a Queens supermarket owner, believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
 https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
 **A Veggie Dining Dispatch From Book Tour**\
 `A window into what I’m eating on the road — and what I’m cooking at home in my few moments of repose.`\
 https://www.nytimes.com/2026/09/24/dining/a-veggie-dining-dispatch-from-book-tour.html
-
-**Ex-Tradwives Are Rejecting the Movement**\
-`What happens when tradwife influencers become unhappy with the movement? Our writer at large Amanda Hess reports on life-after-tradwife content creation.`\
-https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-the-movement.html
 

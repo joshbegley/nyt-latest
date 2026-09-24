@@ -1,3 +1,7 @@
+**Man Who Called Himself ‘King of New York’ Convicted in Abductions**\
+`Abu Chowdhury, a Queens supermarket owner, believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
+https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
+
 **Tech Titans Will Mingle With Trump and Xi at State Dinner**\
 `Prominent executives are expected to attend a dinner at the White House Thursday night, as the countries wrangle over tariffs, trade and potential A.I. regulation.`\
 https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
