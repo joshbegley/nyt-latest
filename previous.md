@@ -1,3 +1,23 @@
+**Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
+`Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused of her trying to appease anti-immigrant sentiment.`\
+https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html
+
+**Millions in Indonesia Breathe In Toxic Haze From Months of Wildfires**\
+`For months, millions of people have been living under a stifling blanket of toxic haze, fueled by a punishing drought brought on by the El Niño weather pattern.`\
+https://www.nytimes.com/2026/09/24/world/asia/indonesia-borneo-wildfires-haze-health-el-nino.html
+
+**Why the U.N. Still Matters**\
+`A year ago, the United Nations appeared to be sidelined. But this week has reminded the world that it’s still useful.`\
+https://www.nytimes.com/2026/09/24/world/un-iran-ai-trump.html
+
+**Indonesia Records 175,000 Respiratory Cases as Wildfires Rage**\
+`For months, millions of people in Indonesia have been dealing with toxic smoke caused by wildfires. Health officials said they recorded nearly 175,000 cases of respiratory infections in one month.`\
+https://www.nytimes.com/video/world/asia/100000011171954/indonesia-wildfires-haze.html
+
+**In Alaska, Rowdy Members of Congress Are a Tradition**\
+`Revelations about the conduct of former Representative Mary Peltola may not faze voters who have long elected abrasive and sometimes violent figures to represent them.`\
+https://www.nytimes.com/2026/09/24/us/politics/mary-peltola-alaska-congress.html
+
 **Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
 `In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
 https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
@@ -23,7 +43,7 @@ https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-pres
 https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html
 
 **Is Adéla, an Ex-Ballerina From Slovakia, the Next Pop Sensation?**\
-`Adéla was cut in the first round of a reality show looking to create the girl group Katseye. But when judges said, “We see Adéla as a solo artist,” she agreed.`\
+`Adéla was cut in the first round of a reality show looking to create the girl group Katseye. Judges said they saw her “as a solo artist.” She agreed.`\
 https://www.nytimes.com/2026/09/24/style/adela-prima-red-bottoms-tour.html
 
 **And to Think That I Ate It on Mulberry Street**\
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
 **Complaints About Meta’s ‘Pervert Glasses’ Won’t Slow Tech’s Wearable Gadgets Drive**\
 `Meta’s smart glasses are the latest in a line of products to raise eyebrows over privacy. That’s not stopping other companies from creating similar devices.`\
 https://www.nytimes.com/2026/09/24/technology/personaltech/meta-glasses-wearables.html
-
-**Trump Struggles to Find Leverage With Xi Over Chinese Exports**\
-`The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
-https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
-
-**Man Killed in Michigan Car Crash Was Not the Target of ICE Search**\
-`A Guatemalan immigrant who died after fleeing an attempted arrest was driving a car registered to the suspect who was sought by agents, officials said.`\
-https://www.nytimes.com/2026/09/24/us/michigan-car-crash-ice-immigration-grand-rapids.html
-
-**Letterboxd Sees Acquisition Interest From A24, Sony and the New York Times**\
-`A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
-https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
-
-**Macklemore Announces ‘Free Palestine’ Concerts After Exiting Ed Sheeran Tour**\
-`The rapper, who was pulled from Ed Sheeran’s tour last week over his support for Palestinians, announced plans for three European dates.`\
-https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.html
-
-**Hit Songs and Vibe Shifts in America**\
-`Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
-https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
 

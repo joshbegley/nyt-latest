@@ -1,3 +1,27 @@
+**Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
+`Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused of her trying to appease anti-immigrant sentiment.`\
+https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html
+
+**Millions in Indonesia Breathe In Toxic Haze From Months of Wildfires**\
+`For months, millions of people have been living under a stifling blanket of toxic haze, fueled by a punishing drought brought on by the El Niño weather pattern.`\
+https://www.nytimes.com/2026/09/24/world/asia/indonesia-borneo-wildfires-haze-health-el-nino.html
+
+**Why the U.N. Still Matters**\
+`A year ago, the United Nations appeared to be sidelined. But this week has reminded the world that it’s still useful.`\
+https://www.nytimes.com/2026/09/24/world/un-iran-ai-trump.html
+
+**Indonesia Records 175,000 Respiratory Cases as Wildfires Rage**\
+`For months, millions of people in Indonesia have been dealing with toxic smoke caused by wildfires. Health officials said they recorded nearly 175,000 cases of respiratory infections in one month.`\
+https://www.nytimes.com/video/world/asia/100000011171954/indonesia-wildfires-haze.html
+
+**In Alaska, Rowdy Members of Congress Are a Tradition**\
+`Revelations about the conduct of former Representative Mary Peltola may not faze voters who have long elected abrasive and sometimes violent figures to represent them.`\
+https://www.nytimes.com/2026/09/24/us/politics/mary-peltola-alaska-congress.html
+
+**Is Adéla, an Ex-Ballerina From Slovakia, the Next Pop Sensation?**\
+`Adéla was cut in the first round of a reality show looking to create the girl group Katseye. Judges said they saw her “as a solo artist.” She agreed.`\
+https://www.nytimes.com/2026/09/24/style/adela-prima-red-bottoms-tour.html
+
 **Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
 `In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
 https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
