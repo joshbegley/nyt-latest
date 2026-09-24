@@ -1,3 +1,15 @@
+**‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
+`When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
+https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
+
+**Netanyahu Attacks Mamdani in Heated U.N. Speech**\
+`The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. Mr. Mamdani said Mr. Netanyahu was repeating “baseless lies.”`\
+https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
+
+**Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
+`The vote came as a growing number of Republicans has broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
+https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
+
 **Palestinian Leader Calls for Two-State Solution in a Videotaped Address**\
 `The Palestinian leader Mahmoud Abbas renewed his call for a two-state solution in a videotaped address to the General Assembly on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011172941/palestinian-leader-calls-for-two-state-solution-in-a-videotaped-address.html

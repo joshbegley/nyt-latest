@@ -1,3 +1,15 @@
+**‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
+`When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
+https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
+
+**Netanyahu Attacks Mamdani in Heated U.N. Speech**\
+`The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. Mr. Mamdani said Mr. Netanyahu was repeating “baseless lies.”`\
+https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
+
+**Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
+`The vote came as a growing number of Republicans has broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
+https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
+
 **Palestinian Leader Calls for Two-State Solution in a Videotaped Address**\
 `The Palestinian leader Mahmoud Abbas renewed his call for a two-state solution in a videotaped address to the General Assembly on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011172941/palestinian-leader-calls-for-two-state-solution-in-a-videotaped-address.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-pales
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
-
-**Mortgage Rates Hit 7% as Iran War Fallout Crushes a Weak Housing Market**\
-`The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
-https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
-
-**12 Artists On the Rise at The Armory Show**\
-`Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
-https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
-
-**Live Updates: CNN, MS NOW and Politico Return to White House After Fight Over Access**\
-`A federal court ordered the Trump administration to reverse its ban on the outlets, but reporters were initially denied entry to the White House grounds on Thursday.`\
-https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
 
