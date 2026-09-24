@@ -1,3 +1,23 @@
+**Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
+`Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
+https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
+
+**What’s Going On in This Graph? | Sept. 30, 2026**\
+`Which emojis do you find yourself using most often? Are they the same as the emojis you used last year?`\
+https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-graph-sept-30-2026.html
+
+**What’s Going On in This Picture? | Sept. 28, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-picture-sept-28-2026.html
+
+**The Wild West of A.I. Needs to End. Here’s How.**\
+`It’s time to give the public what it wants: A.I. regulation.`\
+https://www.nytimes.com/2026/09/24/opinion/ai-regulation-government-tech-industry.html
+
+**MOCA Appoints Former Public Media Leader as Its New Director**\
+`Jonathan Abbott, who oversaw the network that produces PBS programs like “Masterpiece,” is the Museum of Contemporary Art, Los Angeles’s sixth director in 18 years.`\
+https://www.nytimes.com/2026/09/24/arts/design/moca-new-director-jonathan-abbott.html
+
 **Haiti Turns to Roger Stone To Lobby Trump Administration**\
 `The Haitian government hired Mr. Stone, a confidant of President Trump, weeks after hundreds of thousands of Haitians lost deportation protection. The contract is worth nearly $800,000, a document shows.`\
 https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.html

@@ -1,3 +1,11 @@
+**An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
+`A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
+https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
+
+**Conservative Outlets Offer Trump Feed While White House TV Pool Is Suspended**\
+`Real America’s Voice and LindellTV have teamed up to provide a feed of daily presidential events.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv-pool-conservative-news.html
+
 **Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
 `Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
 https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/24/dining/oh-something-smells-good-its-this-dinn
 **Trump’s Failure to Lead Is Costing America and the World**\
 `Trump’s flailing presidency leaves Americans with the thinnest of hopes for this week’s summit: that he does not further damage the national interest.`\
 https://www.nytimes.com/2026/09/24/opinion/trump-xi-washington-summit.html
-
-**What to Know About a Federal Film Tax Credit**\
-`There is bipartisan support behind a bill that is meant to lure movie and TV production back to the United States.`\
-https://www.nytimes.com/2026/09/24/movies/film-tax-credits.html
-
-**A Weary Hollywood Celebrates the Prospect of Federal Funding**\
-`In response to an exodus of movie and TV production, a bill is being introduced in Congress that would use tax credits to subsidize filming in the United States.`\
-https://www.nytimes.com/2026/09/24/movies/film-tax-credit-congress-bill.html
 
