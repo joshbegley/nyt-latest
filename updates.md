@@ -1,3 +1,7 @@
+**Meta Unveils 3 Smart Glasses With Built-In A.I.**\
+`Artificial intelligence again dominated the company’s annual developer conference, as Mark Zuckerberg doubled down on how the technology can empower people.`\
+https://www.nytimes.com/2026/09/23/technology/meta-ai-smart-glasses-conference.html
+
 **New Details Emerge About ICE Officer Who Shot Man in Austin**\
 `The officer was hired last year and was not wearing a body camera when he shot the delivery driver, according to current and former officials.`\
 https://www.nytimes.com/2026/09/23/us/ice-officer-texas-shooting.html

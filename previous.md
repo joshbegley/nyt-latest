@@ -1,3 +1,7 @@
+**Meta Unveils 3 Smart Glasses With Built-In A.I.**\
+`Artificial intelligence again dominated the company’s annual developer conference, as Mark Zuckerberg doubled down on how the technology can empower people.`\
+https://www.nytimes.com/2026/09/23/technology/meta-ai-smart-glasses-conference.html
+
 **New Details Emerge About ICE Officer Who Shot Man in Austin**\
 `The officer was hired last year and was not wearing a body camera when he shot the delivery driver, according to current and former officials.`\
 https://www.nytimes.com/2026/09/23/us/ice-officer-texas-shooting.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainabili
 **As Trump Welcomes Xi, More Americans Have a Positive View of China**\
 `Experts attribute the changing mood to fading memories of the coronavirus pandemic, awareness of China’s tech innovations and disaffection with President Trump’s trade wars.`\
 https://www.nytimes.com/2026/09/23/us/politics/polls-us-china-trump-xi.html
-
-**Trump’s Energy Secretary Dismisses Reports of Diesel Export Ban, Criticizes Solar Power**\
-`Chris Wright also doubled down on his criticism of renewable energy sources like solar power.`\
-https://www.nytimes.com/2026/09/23/climate/chris-wright-trump-energy-secretary-fracking.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
