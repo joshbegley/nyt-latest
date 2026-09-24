@@ -1,3 +1,7 @@
+**Timothy Mellon, a G.O.P. Billionaire, Pulls Back His Money From Senate Republicans**\
+`Timothy Mellon, one of the party’s biggest donors in 2024, has so far withheld his midterm donations for Republican senators because he is unhappy about the failure to pass a key Trump priority.`\
+https://www.nytimes.com/2026/09/23/us/politics/timothy-mellon-republicans-midterms.html
+
 **Epstein’s Accountant and Lawyer Are Said to Be Under Federal Investigation**\
 `Lawyers for Darren Indyke and Richard Kahn said their clients were “confident that any investigation will reveal that they were not involved in any of Epstein’s crimes.”`\
 https://www.nytimes.com/2026/09/23/business/jeffrey-epstein-darren-indyke-richard-kahn-investigation.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/23/us/grand-rapids-michigan-ice-car-crash.html
 **Hayden Panettiere Was Found Surrounded by Drugs, Report Details**\
 `The actress had completed a stint in rehab before she died last month from an overdose, the coroner’s office said. Her death was ruled an accident.`\
 https://www.nytimes.com/2026/09/23/arts/television/hayden-panettiere-death-cause-fentanyl-overdose.html
-
-**Paul LePage, a Trump Ally, Says a Family Member Is Being Deported**\
-`The former Maine governor, a Republican running for Congress, said the Trump administration is seeking to wrongly deport his son’s father-in-law, who has a work permit.`\
-https://www.nytimes.com/2026/09/23/us/politics/paul-lepage-maine-ice-family-member-deported.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

@@ -1,3 +1,7 @@
+**Timothy Mellon, a G.O.P. Billionaire, Pulls Back His Money From Senate Republicans**\
+`Timothy Mellon, one of the party’s biggest donors in 2024, has so far withheld his midterm donations for Republican senators because he is unhappy about the failure to pass a key Trump priority.`\
+https://www.nytimes.com/2026/09/23/us/politics/timothy-mellon-republicans-midterms.html
+
 **Epstein’s Accountant and Lawyer Are Said to Be Under Federal Investigation**\
 `Lawyers for Darren Indyke and Richard Kahn said their clients were “confident that any investigation will reveal that they were not involved in any of Epstein’s crimes.”`\
 https://www.nytimes.com/2026/09/23/business/jeffrey-epstein-darren-indyke-richard-kahn-investigation.html
