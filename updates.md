@@ -1,3 +1,11 @@
+**On This Day | Sept. 24**\
+`In 1996, the United States and other nations signed the Comprehensive Nuclear-Test-Ban Treaty, which sought to ban all nuclear test explosions.`\
+https://www.nytimes.com/2026/09/24/learning/on-this-day-sept-24.html
+
+**Elizabeth Holmes to Transfer to Halfway House in August 2027**\
+`The founder of the blood-testing start-up Theranos was sentenced to 11 years in prison for fraud and had been serving time at a minimum-security federal prison in Texas.`\
+https://www.nytimes.com/2026/09/23/technology/elizabeth-holmes-theranos-halfway-house.html
+
 **​Ukraine Sent Two North Korean P.O.W.s to South Korea, Zelensky Says**\
 `President Volodymyr Zelensky of Ukraine said one soldier tried to kill himself when he was captured. “This is how they raise people in the North,” he said.`\
 https://www.nytimes.com/2026/09/23/world/asia/ukraine-north-south-korea-pow-zelensky.html
