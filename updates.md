@@ -1,3 +1,11 @@
+**An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
+`A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
+https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
+
+**Conservative Outlets Offer Trump Feed While White House TV Pool Is Suspended**\
+`Real America’s Voice and LindellTV have teamed up to provide a feed of daily presidential events.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv-pool-conservative-news.html
+
 **Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
 `Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
 https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
