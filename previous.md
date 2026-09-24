@@ -1,3 +1,7 @@
+**Read Senator Maggie Hassan’s Letter to the White House**\
+`Hassan, Democrat of New Hampshire, sent a letter demanding that the White House chief of staff, Susie Wiles, divulge who produced a commercial urging Republicans to vote.`\
+https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wiles.html
+
 **‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
 `When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
 https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 **Abbas Presses Case for Palestinian State in Taped General Assembly Address**\
 `The Palestinian leader renewed his call for a two-state solution on Thursday, as he accused Israel of prosecuting “a genocidal war” against Palestinians.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-palestinians.html
-
-**Trump’s Retribution Campaign May Face Supreme Court Test**\
-`The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
-https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
 

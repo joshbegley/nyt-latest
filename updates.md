@@ -1,3 +1,7 @@
+**Read Senator Maggie Hassan’s Letter to the White House**\
+`Hassan, Democrat of New Hampshire, sent a letter demanding that the White House chief of staff, Susie Wiles, divulge who produced a commercial urging Republicans to vote.`\
+https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wiles.html
+
 **‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
 `When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
 https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
