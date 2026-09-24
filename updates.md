@@ -1,3 +1,7 @@
+**U.N. Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
+`Ukraine’s president said rising fuel prices and deadlier drone technology showed that the fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
+https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
+
 **Interim Leader of Venezuela Promises Elections and ‘Orderly Legal Transition’**\
 `Delcy Rodríguez did not set a timeline for a vote in a speech at the United Nations.`\
 https://www.nytimes.com/2026/09/23/world/americas/venezuela-delcy-rodriguez-unga.html
