@@ -1,3 +1,7 @@
+**Oil Prices Rise and Bond Markets Remain on Edge**\
+`The rise came a day after a sharp sell-off in government debt.`\
+https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
+
 **Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
 `The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
 https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/realestate/housing-market-near-nyc.html
 **Why Miami-Dade Is Eager to Promote ‘Grand Theft Auto VI’**\
 `Some argue that the county can afford to embrace its fictional twin in the game, “Vice City,” because the real place has experienced a striking drop in violence over time.`\
 https://www.nytimes.com/2026/09/24/us/miami-grand-theft-auto-vice-city.html
-
-**Should I Reveal That My Partner Died by Suicide?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who believes her partner’s family secrets may have contributed to his death.`\
-https://www.nytimes.com/2026/09/24/well/mind/suicide-secrecy-partner-loss.html
 

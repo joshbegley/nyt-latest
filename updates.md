@@ -1,3 +1,7 @@
+**Oil Prices Rise and Bond Markets Remain on Edge**\
+`The rise came a day after a sharp sell-off in government debt.`\
+https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
+
 **Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
 `The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
 https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html

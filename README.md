@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-wa
 `The Morris-Jumel Mansion in Upper Manhattan served as a command post for George Washington. It had become shabby in recent years.`\
 https://www.nytimes.com/2026/09/24/nyregion/morris-jumel-mansion-renovation.html
 
-**For Sale: A Mid-Century Gem Restored by Benedikt Taschen**\
+**For Sale: A Midcentury Gem Restored by Benedikt Taschen**\
 `The founder of Taschen Books is selling his meticulously restored Beverly Hills house, the Adelman Residence, for $25 million.`\
 https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restored-by-benedikt-taschen.html
 
