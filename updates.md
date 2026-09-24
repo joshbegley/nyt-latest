@@ -1,3 +1,7 @@
+**Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
+`A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
+https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
+
 **Professor Sues New School, Claiming Tenure Has Been Dismantled**\
 `The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
 https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html

@@ -1,3 +1,7 @@
+**Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
+`A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
+https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
+
 **Professor Sues New School, Claiming Tenure Has Been Dismantled**\
 `The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
 https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-ra
 **In Trumpeting His Ballroom Project, Trump Has Used China as an Example**\
 `President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
-
-**Republican Sheriff Illegally Seized California Ballots, Court Rules**\
-`The California Supreme Court ordered Sheriff Chad Bianco of Riverside County to return ballots to election officials after he confiscated them for an investigation.`\
-https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized-ballots.html
 

@@ -1,3 +1,7 @@
+**U.S. Intercedes for Elon Musk’s X Over European Fine**\
+`Federal officials asked to intervene in a case that accused the social media platform of allowing deceptive behavior on its site and resulted in a $140 million penalty.`\
+https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html
+
 **Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
 `A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
 https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/books/review/new-recommended-books.html
 **Nor’easter Could Bring Heavy Rain, Winds, and Flooding to East Coast**\
 `Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
 https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html
-
-**In Trumpeting His Ballroom Project, Trump Has Used China as an Example**\
-`President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
 
