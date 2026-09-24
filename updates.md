@@ -1,3 +1,7 @@
+**From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
+`It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
+https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
+
 **Collins Leads Jackson in Maine Senate Race: 7 Takeaways From a New Poll**\
 `Voters in the battleground state favored Senator Susan Collins, the Republican incumbent, over Troy Jackson, a Democrat, in several important areas, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/maine-senate-poll-collins-jackson-midterms.html
