@@ -1,4 +1,4 @@
-**Trump Struggles to Find Leverage with Xi Over Chinese Exports**\
+**Trump Struggles to Find Leverage With Xi Over Chinese Exports**\
 `The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
 https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
 
@@ -146,8 +146,8 @@ https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-globa
 `The Palestinian leader, Mahmoud Abbas, condemned settler violence in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
-**In San Francisco, It’s a Good Time to Be a Satirist**\
-`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds them ripe for mocking.`\
+**San Francisco Is Making News on Many Fronts. It’s Also Ripe for Mocking.**\
+`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds this is a good time for a little satire.`\
 https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
 
 **Maps: Tracking Tropical Storm Surigae**\
