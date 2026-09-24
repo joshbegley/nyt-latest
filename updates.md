@@ -1,3 +1,7 @@
+**The Big Show**\
+`We look at the United Nations General Assembly.`\
+https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
+
 **For Sale: A Midcentury Gem Restored by Benedikt Taschen**\
 `The founder of Taschen Books is selling his meticulously restored Beverly Hills house, the Adelman Residence, for $25 million.`\
 https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restored-by-benedikt-taschen.html
