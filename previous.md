@@ -1,3 +1,11 @@
+**What to Know About a Federal Film Tax Credit**\
+`There is bipartisan support behind a bill that is meant to lure movie and TV production back to the United States.`\
+https://www.nytimes.com/2026/09/24/movies/film-tax-credits.html
+
+**A Weary Hollywood Celebrates the Prospect of Federal Funding**\
+`In response to an exodus of movie and TV production, a bill is being introduced in Congress that would use tax credits to subsidize filming in the United States.`\
+https://www.nytimes.com/2026/09/24/movies/film-tax-credit-congress-bill.html
+
 **Forced Eviction of 87-Year-Old Woman Spurs Outrage in Spain**\
 `Demonstrations broke out across the country over the woman’s eviction in Madrid, putting rising rents and affordability at the top of the political conversation.`\
 https://www.nytimes.com/2026/09/24/world/europe/spain-eviction-sanchez.html
@@ -54,8 +62,8 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas Criticizes Israeli War and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, condemned settler attacks in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
+**U.N. Live Updates: Abbas Criticizes Israeli Attacks and Failure of Gaza Peace Plan**\
+`The Palestinian leader, Mahmoud Abbas, condemned settler violence in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/magazine/whimsy-magic-optimization.html
 **Paxton, Talarico and the Senate Race in Texas: 12 Voters Discuss**\
 `The group discusses the economy, the president and the U.S. Senate race in Texas.`\
 https://www.nytimes.com/interactive/2026/09/24/opinion/focus-group-texas-voters-midterms.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Midtown East, the Upper East Side and Bushwick.`\
-https://www.nytimes.com/2026/09/24/realestate/housing-market-nyc.html
-
-**Europe Warns of Russia’s Hybrid Attacks but Struggles to Counter Them**\
-`If President Vladimir V. Putin was hoping to get Europeans’ attention, he’s succeeded with a series of close-call incursions. The question now is what they will do about it.`\
-https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-war.html
 

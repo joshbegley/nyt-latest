@@ -1,3 +1,15 @@
+**Restaurant Theft**\
+`Plus, an artsy side hustle.`\
+https://www.nytimes.com/2026/09/24/briefing/restaurant-theft.html
+
+**Oh, Something Smells Good (It’s This Dinner)**\
+`Chicken thighs sizzled in schmaltz pair up with a salted cucumber yogurt in this delightful new recipe.`\
+https://www.nytimes.com/2026/09/24/dining/oh-something-smells-good-its-this-dinner.html
+
+**Don’t Give Trump the Benefit of Low Expectations**\
+`Trump’s flailing presidency leaves Americans with the thinnest of hopes for this week’s summit: that he does not further damage the national interest.`\
+https://www.nytimes.com/2026/09/24/opinion/trump-xi-washington-summit.html
+
 **What to Know About a Federal Film Tax Credit**\
 `There is bipartisan support behind a bill that is meant to lure movie and TV production back to the United States.`\
 https://www.nytimes.com/2026/09/24/movies/film-tax-credits.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/24/opinion/trump-arch-macklemore-israel.html
 **Why Do the Trade Wars Keep Coming for Your Whiskey?**\
 `As the U.S. prepares to ban imports of Canadian spirits, it’s worth examining the reasons a relatively minor commodity looms so large.`\
 https://www.nytimes.com/2026/09/24/dining/drinks/trump-canada-tariffs-trade-wars-whiskey.html
-
-**Dear Congress: Here’s What to Ask A.I. Leaders**\
-`This is what Congress needs to do to reign in frontier A.I. development.`\
-https://www.nytimes.com/2026/09/24/opinion/congress-ai-sam-altman.html
-
-**Has a Dash of ‘Whimsy’ Become Less Whimsical?**\
-`The push to optimize the magic in our lives is starting to feel like a trick for consumers.`\
-https://www.nytimes.com/2026/09/24/magazine/whimsy-magic-optimization.html
-
-**Paxton, Talarico and the Senate Race in Texas: 12 Voters Discuss**\
-`The group discusses the economy, the president and the U.S. Senate race in Texas.`\
-https://www.nytimes.com/interactive/2026/09/24/opinion/focus-group-texas-voters-midterms.html
 
