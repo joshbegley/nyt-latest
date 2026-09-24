@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bak
 `Pablo and Mother Jones look into Life Surge and its celebrity face.`\
 https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
 
-**What Pete Hegseth Is Hiding**\
+**What Hegseth Is Hiding**\
 `Soldiers want to tell their stories, and we need to hear them.`\
 https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
 
