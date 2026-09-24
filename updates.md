@@ -1,3 +1,7 @@
+**OpenAI’s A.I. Tried Breaching Four Other Targets, With No Prompting**\
+`In each incident, the technology appeared to be conducting mundane data collection and resorted to hacking techniques to get it, researchers said.`\
+https://www.nytimes.com/2026/09/23/technology/openai-ai-breach-australia.html
+
 **Jeff Probst Reveals the Secrets Behind 26 Years of ‘Survivor’**\
 `Watch the full Popcast conversation with Jeff Probst here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011166295/jeff-probst-reveals-the-secrets-behind-26-years-of-survivor.html
