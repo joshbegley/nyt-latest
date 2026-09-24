@@ -1,3 +1,11 @@
+**​Ukraine Sent Two North Korean P.O.W.s to South Korea, Zelensky Says**\
+`President Volodymyr Zelensky of Ukraine said one soldier tried to kill himself when he was captured. “This is how they raise people in the North,” he said.`\
+https://www.nytimes.com/2026/09/23/world/asia/ukraine-north-south-korea-pow-zelensky.html
+
+**Videos Show ICE Agents Mistakenly Detaining U.S. Citizen**\
+`Federal immigration agents in Evanston, Ill., mistakenly detained a U.S. citizen, who was later released after he identified himself.`\
+https://www.nytimes.com/video/us/100000011171285/evanston-ice-incident-citizen.html
+
 **Australia Says OpenAI ‘Infiltrated’ Public Health Care Portal**\
 `Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
 https://www.nytimes.com/2026/09/23/world/asia/australia-openai-agent-infiltration.html

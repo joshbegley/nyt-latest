@@ -1,3 +1,11 @@
+**​Ukraine Sent Two North Korean P.O.W.s to South Korea, Zelensky Says**\
+`President Volodymyr Zelensky of Ukraine said one soldier tried to kill himself when he was captured. “This is how they raise people in the North,” he said.`\
+https://www.nytimes.com/2026/09/23/world/asia/ukraine-north-south-korea-pow-zelensky.html
+
+**Videos Show ICE Agents Mistakenly Detaining U.S. Citizen**\
+`Federal immigration agents in Evanston, Ill., mistakenly detained a U.S. citizen, who was later released after he identified himself.`\
+https://www.nytimes.com/video/us/100000011171285/evanston-ice-incident-citizen.html
+
 **Australia Says OpenAI ‘Infiltrated’ Public Health Care Portal**\
 `Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
 https://www.nytimes.com/2026/09/23/world/asia/australia-openai-agent-infiltration.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/09/23/us/politics/trump-putin-g20-summit.html
 `The Ukrainian president called for measures to disrupt “Russia’s finances and Russia’s production” before another deadly winter of war.`\
 https://www.nytimes.com/2026/09/23/world/europe/zelensky-speech-russia-war.html
 
-**U.S. Energy Secretary Defends War on Iran Despite Increased Fuel Costs**\
-`U.S. Energy Secretary Chris Wright defended the country’s war on Iran despite increased fuel costs and political ramifications.`\
-https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-iran-war.html
-
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
 https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
-
-**U.N. Updates: Zelensky Warns of Growing Global Cost of Russia’s War in Ukraine**\
-`Ukraine’s president said rising fuel prices and deadlier drone technology showed that the fighting have spilled beyond his country’s borders. He called for steps to end to the war before winter.`\
-https://www.nytimes.com/live/2026/09/23/world/un-general-assembly-iran-ukraine
 

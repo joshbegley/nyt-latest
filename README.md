@@ -1,3 +1,7 @@
+**Elizabeth Holmes to Transfer to Halfway House in August 2027**\
+`The founder of the blood-testing start-up Theranos was sentenced to 11 years in prison for fraud and had been serving time at a minimum-security federal prison in Texas.`\
+https://www.nytimes.com/2026/09/23/technology/elizabeth-holmes-theranos-halfway-house.html
+
 **​Ukraine Sent Two North Korean P.O.W.s to South Korea, Zelensky Says**\
 `President Volodymyr Zelensky of Ukraine said one soldier tried to kill himself when he was captured. “This is how they raise people in the North,” he said.`\
 https://www.nytimes.com/2026/09/23/world/asia/ukraine-north-south-korea-pow-zelensky.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000011159994/trump-and-xi-face-the-ai-race.h
 **Trump Invites Putin to Attend Group of 20 Summit in Miami**\
 `Many leaders are unlikely to welcome the Russian leader’s presence at the event because of his country’s war against Ukraine.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-putin-g20-summit.html
-
-**Zelensky Warns Russia’s War Will Expand if It Is Not Ended Soon**\
-`The Ukrainian president called for measures to disrupt “Russia’s finances and Russia’s production” before another deadly winter of war.`\
-https://www.nytimes.com/2026/09/23/world/europe/zelensky-speech-russia-war.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
