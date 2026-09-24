@@ -1,9 +1,13 @@
+**Tech Titans Will Mingle With Trump and Xi at State Dinner**\
+`Prominent executives are expected to attend a dinner at the White House Thursday night, as the countries wrangle over tariffs, trade and potential A.I. regulation.`\
+https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
+
 **Trump Administration Asks Supreme Court to Allow Deportations to Third Countries**\
 `A lower federal court on Wednesday imposed restrictions on deporting migrants to countries other than their own.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-supreme-court-third-country-deportations.html
 
 **Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
-`Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused of her trying to appease anti-immigrant sentiment.`\
+`Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused her of trying to appease anti-immigrant sentiment.`\
 https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html
 
 **Millions in Indonesia Breathe In Toxic Haze From Months of Wildfires**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-t
 **Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
 `It’s a question that has divided the internet.`\
 https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
-
-**Carney Says He Would Consider a Second Term, Depending on State of U.S.-Canada Relations**\
-`As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
-https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
 
