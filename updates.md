@@ -1,3 +1,11 @@
+**Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
+`“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
+https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html
+
+**As Trump Hosts State Dinner Honoring Xi, See the Menu**\
+`The White House said that the three-course menu, including sea bass and bok choy, featured American ingredients with a “subtle Chinese influence.”`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-state-dinner-menu.html
+
 **Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
 `In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
 https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
