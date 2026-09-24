@@ -1,3 +1,7 @@
+**Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
+`In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
+https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
+
 **Letterboxd Sees Acquisition Interest From A24, Sony and the New York Times**\
 `A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
 https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html

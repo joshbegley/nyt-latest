@@ -1,3 +1,7 @@
+**Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
+`In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
+https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
+
 **El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
 `Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.h
 **Son of Israel’s Ambassador Injured In West Bank Attack**\
 `Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
 https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
-
-**Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
-`The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
-https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
