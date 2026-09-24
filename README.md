@@ -1,3 +1,7 @@
+**The U.S. and China Are Far Apart on A.I. Safety**\
+`Beijing and Washington may use the same language of A.I. safety, but they are trying to protect very different things.`\
+https://www.nytimes.com/2026/09/24/opinion/us-china-summit-ai.html
+
 **Inside France’s Push to Stop Migrant Boats to the U.K.**\
 `Thousands of migrants cross the sea between France and England each year, though numbers have fallen amid increased policing.`\
 https://www.nytimes.com/2026/09/24/world/europe/france-britain-migrant-boats-police.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
 **Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
 `During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
 https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
-
-**Trump Greets Xi for State Visit Amid Tensions**\
-`The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
-https://www.nytimes.com/live/2026/09/23/us/trump-xi
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
