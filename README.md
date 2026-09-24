@@ -1,3 +1,7 @@
+**Trump Is Hosting Xi for a State Dinner. It’s a Rarity for the U.S. President.**\
+`The state dinner for President Xi on Thursday will be only the fourth hosted by President Trump, far fewer than past U.S. presidents.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-state-dinners-history-xi.html
+
 **U.S. Intercedes for Elon Musk’s X Over European Fine**\
 `Federal officials asked to intervene in a case that accused the social media platform of allowing deceptive behavior on its site and resulted in a $140 million penalty.`\
 https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rog
 `How much does it still matter? Nearly 400 teenagers weighed in.`\
 https://www.nytimes.com/2026/09/24/learning/what-students-are-saying-about-writing-in-the-age-of-ai.html
 
-**6 New Books We Recommend This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/09/24/books/review/new-recommended-books.html
-
-**Nor’easter Could Bring Heavy Rain, Winds, and Flooding to East Coast**\
-`Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
-https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html
+**U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
+`In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
