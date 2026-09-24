@@ -1,3 +1,7 @@
+**For Sale: A Midcentury Gem Restored by Benedikt Taschen**\
+`The founder of Taschen Books is selling his meticulously restored Beverly Hills house, the Adelman Residence, for $25 million.`\
+https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restored-by-benedikt-taschen.html
+
 **Oil Prices Rise and Bond Markets Remain on Edge**\
 `The rise came a day after a sharp sell-off in government debt.`\
 https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
