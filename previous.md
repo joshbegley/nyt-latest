@@ -1,3 +1,7 @@
+**In a New Anthropic Lab, A.I. Turns to Biology**\
+`Scientists at the company announced their first finding: a group of enzymes whose function is unknown.`\
+https://www.nytimes.com/2026/09/24/science/anthropic-biology-lab-enzyme.html
+
 **Trump and Xi Are Expected to Discuss Accusations of Copying American A.I. Tech**\
 `American artificial intelligence companies have accused their Chinese counterparts of using a technique called distillation to enhance their own systems.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/world/middleeast/israel-ambassador-leiter-son
 **Who Is Ahead in Oklahoma's 5th Congressional District?**\
 `Track the latest polls in Oklahoma's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
-
-**In a Race With China, German Robots Are Outnumbered 14 to 1**\
-`A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
-https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\

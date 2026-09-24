@@ -1,3 +1,7 @@
+**In a New Anthropic Lab, A.I. Turns to Biology**\
+`Scientists at the company announced their first finding: a group of enzymes whose function is unknown.`\
+https://www.nytimes.com/2026/09/24/science/anthropic-biology-lab-enzyme.html
+
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
 `The Iran-backed militia in Yemen fired six ballistic missiles at Saudi cities, a military spokesman said. It was a major cross-border attack.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
