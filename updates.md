@@ -1,3 +1,11 @@
+**White House Still Bars CNN, MS NOW and Politico Despite Court Ruling**\
+`A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
+
+**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
+`The Iran-backed militia in Yemen fired six ballistic missiles at cities in Saudi Arabia, a military spokesman said. There was no immediate comment from the Houthis.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
+
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Officials Say**\
 `The Iran-backed militia in Yemen fired six ballistic missiles at cities deep in Saudi Arabia, the authorities said, in what appeared to be a sharp escalation in fighting between the two sides.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
