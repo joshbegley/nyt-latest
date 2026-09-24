@@ -1,3 +1,7 @@
+**Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
+`It’s a question that has divided the internet.`\
+https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
+
 **Carney’s Big Challenge: Time**\
 `As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
 https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
 **Bond Markets Are on Edge and Oil Prices Rise**\
 `The rise came a day after a sharp sell-off in government debt.`\
 https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
-
-**Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
-`The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
-https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
