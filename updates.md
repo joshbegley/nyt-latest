@@ -1,3 +1,7 @@
+**Are Lynchings Really Happening?**\
+`Some suggest that recent hangings are evidence of racial terrorism.`\
+https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
+
 **CNN, MS NOW and Politico Return to White House**\
 `A federal judge issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets. Even so, reporters were initially denied entry to the White House grounds on Thursday.`\
 https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-press-cnn-ms-now-politico.html
