@@ -1,6 +1,10 @@
+**Palestinian Leader Calls for Two-State Solution in a Videotaped Address**\
+`The Palestinian leader Mahmoud Abbas renewed his call for a two-state solution in a videotaped address to the General Assembly on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011172941/palestinian-leader-calls-for-two-state-solution-in-a-videotaped-address.html
+
 **‘Love Me’ Ad Promotes Trump With Public Money Ahead of the Midterms**\
 `A disclaimer says the ad was paid for by the U.S. government, which could violate federal law.`\
-https://www.nytimes.com/2026/09/24/us/love-me-ad-promotes-trump-with-public-money-ahead-of-the-midterms.html
+https://www.nytimes.com/2026/09/24/us/trump-midterm-election-ad-government-funding.html
 
 **Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
 `Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
 **Live Updates: CNN, MS NOW and Politico Return to White House After Fight Over Access**\
 `A federal court ordered the Trump administration to reverse its ban on the outlets, but reporters were initially denied entry to the White House grounds on Thursday.`\
 https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
-
-**From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
-`It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
-https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
 

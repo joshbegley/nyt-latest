@@ -1,3 +1,7 @@
+**‘Love Me’ Ad Promotes Trump With Public Money Ahead of the Midterms**\
+`A disclaimer says the ad was paid for by the U.S. government, which could violate federal law.`\
+https://www.nytimes.com/2026/09/24/us/love-me-ad-promotes-trump-with-public-money-ahead-of-the-midterms.html
+
 **Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
 `Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
 https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
