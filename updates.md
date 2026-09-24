@@ -1,3 +1,23 @@
+**Trump Struggles to Find Leverage With Xi Over Chinese Exports**\
+`The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
+https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
+
+**Man Killed in Michigan Car Crash Was Not the Target of ICE Search**\
+`A Guatemalan immigrant who died after fleeing an attempted arrest was driving a car registered to the suspect who was sought by agents, officials said.`\
+https://www.nytimes.com/2026/09/24/us/michigan-car-crash-ice-immigration-grand-rapids.html
+
+**Live Updates: CNN, MS NOW and Politico Return to White House After Fight Over Access**\
+`A federal court ordered the Trump administration to reverse its ban on the outlets, but reporters were initially denied entry to the White House grounds on Thursday.`\
+https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
+
+**San Francisco Is Making News on Many Fronts. It’s Also Ripe for Mocking.**\
+`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds this is a good time for a little satire.`\
+https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
+
+**Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
+`President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
+https://www.nytimes.com/live/2026/09/24/us/trump-xi-summit-meeting-us-china
+
 **Sony, A24 and the New York Times Company Circle Letterboxd**\
 `A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
 https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
