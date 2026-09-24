@@ -1,3 +1,11 @@
+**Epstein’s Accountant and Lawyer Are Said to Be Under Federal Investigation**\
+`Lawyers for Darren Indyke and Richard Kahn said their clients were “confident that any investigation will reveal that they were not involved in any of Epstein’s crimes.”`\
+https://www.nytimes.com/2026/09/23/business/jeffrey-epstein-darren-indyke-richard-kahn-investigation.html
+
+**Mary Peltola’s Campaign in Alaska Senate Race Is Rocked by Tumult, With Angry Outbursts and Slurs**\
+`Democrats hope that Mary Peltola can flip a Republican Senate seat in Alaska. Former aides describe a campaign and congressional office marked by chaos.`\
+https://www.nytimes.com/2026/09/23/us/politics/mary-peltola-alaska-senate-race.html
+
 **Newly Public Documents Shed New Light on Trump Investigations**\
 `Records unsealed on Wednesday include a 2023 appeals court opinion rejecting Donald J. Trump’s attempt to block Mike Pence’s grand jury testimony.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-mike-pence-testimony.html
