@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
 **U.N. Live Updates: Abbas Criticizes Ongoing Israeli Attacks and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly in a prerecorded video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
