@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
 **U.N. Live Updates: Abbas Criticizes Ongoing Israeli Attacks and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly in a prerecorded video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+`The Palestinian leader, Mahmoud Abbas, addressed the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
@@ -64,7 +64,7 @@ https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.
 
 **Son of Israeli Ambassador to U.S. Critically Hurt in West Bank Attack, Officials Say**\
 `Neria Leiter, a reserve soldier, sustained life-threatening injuries after a Palestinian man drove into a military checkpoint in the West Bank, the Israeli military said.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/son-of-israeli-ambassador-to-us-critically-hurt-in-west-bank-attack-officials-say.html
+https://www.nytimes.com/2026/09/24/world/middleeast/israel-ambassador-leiter-son-west-bank-attack.html
 
 **Who Is Ahead in Oklahoma's 5th Congressional District?**\
 `Track the latest polls in Oklahoma's 5th Congressional District.`\

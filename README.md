@@ -1,3 +1,7 @@
+**Forced Eviction of 87-Year-Old Woman Spurs Outrage in Spain**\
+`Demonstrations broke out across the country over the woman’s eviction in Madrid, putting rising rents and affordability at the top of the political conversation.`\
+https://www.nytimes.com/2026/09/24/world/europe/spain-eviction-sanchez.html
+
 **A New Advocate for Opera Takes the Met Stage: Mayor Mamdani**\
 `The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
 https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas Criticizes Ongoing Israeli Attacks and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, addressed the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+**U.N. Live Updates: Abbas Criticizes ‘Genocidal’ Israeli War and Failure of Gaza Peace Plan**\
+`The Palestinian leader, Mahmoud Abbas, condemned settler attacks in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/realestate/housing-market-nyc.html
 **Europe Warns of Russia’s Hybrid Attacks but Struggles to Counter Them**\
 `If President Vladimir V. Putin was hoping to get Europeans’ attention, he’s succeeded with a series of close-call incursions. The question now is what they will do about it.`\
 https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-war.html
-
-**Renovating Manhattan’s Oldest Residence**\
-`The Morris-Jumel Mansion in Upper Manhattan served as a command post for George Washington. It had become shabby in recent years.`\
-https://www.nytimes.com/2026/09/24/nyregion/morris-jumel-mansion-renovation.html
 
