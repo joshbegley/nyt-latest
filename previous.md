@@ -1,3 +1,7 @@
+**Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\
+`The British food writer — who brought the world the most creative possible pronunciation of “microwave” — has joined the show. By all accounts, she’s on fire. (In a good way.)`\
+https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bake-off-uk.html
+
 **The Christian ‘Scam’ Fronted by Tim Tebow**\
 `Pablo and Mother Jones look into Life Surge and its celebrity face.`\
 https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/t-magazine/duran-lantink-jean-paul-gaultier.h
 **Keep the Spirit of Summer Alive With Floral Shoes and Bags**\
 `Adorned with sculptural blooms, fall’s freshest accessories are anything but garden-variety.`\
 https://www.nytimes.com/2026/09/24/t-magazine/floral-shoes-bags.html
-
-**Book Review: ‘Natural Intelligence & the Logic of Consciousness,’ by Antonio Damasio**\
-`In his new book, the neuroscientist Antonio Damasio argues that without feelings, true intelligence cannot exist.`\
-https://www.nytimes.com/2026/09/24/books/review/antonio-damasio-natural-intelligence-and-the-logic-of-consciousness.html
 

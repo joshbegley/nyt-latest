@@ -1,3 +1,7 @@
+**Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\
+`The British food writer — who brought the world the most creative possible pronunciation of “microwave” — has joined the show. By all accounts, she’s on fire. (In a good way.)`\
+https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bake-off-uk.html
+
 **The Christian ‘Scam’ Fronted by Tim Tebow**\
 `Pablo and Mother Jones look into Life Surge and its celebrity face.`\
 https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
