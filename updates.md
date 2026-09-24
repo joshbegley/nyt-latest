@@ -1,3 +1,7 @@
+**8 Sailors in U.S.S. Lincoln Strike Group Attempted Suicide, Navy Says**\
+`The aircraft carrier with its crew of about 5,000 sailors has spent more than 300 days at sea.`\
+https://www.nytimes.com/2026/09/23/us/politics/uss-lincoln-attempted-suicides.html
+
 **Trump Aides Seek to Jump Start Diplomacy With Iran as Crisis Widens**\
 `Secretary of State Marco Rubio said that U.S. negotiators had restarted conversations about Iran’s nuclear program, but that there were no breakthroughs.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-aides-iran-talks.html
