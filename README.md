@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-
 `Ottawa’s City Council decided that the street should no longer be named for President Trump, who recently signed an executive order changing Lake Ontario to Lake America.`\
 https://www.nytimes.com/2026/09/23/us/ottawa-canada-renaming-trump-avenue.html
 
-**A Teacher and Activist Admits to Lying About Her Palestinian Background**\
+**A Teacher and Activist Admits to Making Up Palestinian Background**\
 `Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that she is “a white woman of significant privilege.”`\
 https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
 
