@@ -1,3 +1,7 @@
+**In Alaska, Rowdy Members of Congress Are a Tradition**\
+`Revelations about the conduct of former Representative Mary Peltola may not faze voters who have long elected abrasive and sometimes violent figures to represent them.`\
+https://www.nytimes.com/2026/09/24/us/politics/mary-peltola-alaska-congress.html
+
 **Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
 `In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
 https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.h
 **Macklemore Announces ‘Free Palestine’ Concerts After Exiting Ed Sheeran Tour**\
 `The rapper, who was pulled from Ed Sheeran’s tour last week over his support for Palestinians, announced plans for three European dates.`\
 https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.html
-
-**Hit Songs and Vibe Shifts in America**\
-`Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
-https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
 

@@ -1,3 +1,15 @@
+**Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
+`In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
+https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
+
+**Netanyahu, Addressing U.N., Denounces Israel’s Critics as ‘Moral Cowards’**\
+`Prime Minister Benjamin Netanyahu also reserved some of his ire for the mayor of the city hosting him, Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-israel-un.html
+
+**Netanyahu Lashes Out at Foes in U.N. Speech, Including Mamdani**\
+`Prime Minister Benjamin Netanyahu of Israel lashed out at a litany of enemies but took particular verbal aim at Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-speech-un-general-assembly.html
+
 **Are Lynchings Really Happening?**\
 `Some suggest that recent hangings are evidence of racial terrorism.`\
 https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
@@ -31,7 +43,7 @@ https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
 https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
 
 **Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
-`The vote came as a growing number of Republicans has broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
+`The vote came as a growing number of Republicans have broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
 https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
 
 **Palestinian Leader Calls for Two-State Solution in a Videotaped Address**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.htm
 **Hit Songs and Vibe Shifts in America**\
 `Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
 https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
-
-**Starbucks to Close 250 Stores in the US**\
-`The company said the affected cafes did not meet financial or customer service expectations.`\
-https://www.nytimes.com/2026/09/24/business/starbucks-store-closures.html
-
-**Trump Administration Scrambles to Stop Third-Country Deportations After Court Ruling**\
-`The decision adds a new burden for the government as it attempts to rapidly remove migrants from the United States without interference from their lawyers.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.html
-
-**Weeks Before the Election, Susan Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
-`Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
-https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
 

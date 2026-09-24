@@ -1,3 +1,19 @@
+**Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
+`In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
+https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
+
+**Netanyahu, Addressing U.N., Denounces Israel’s Critics as ‘Moral Cowards’**\
+`Prime Minister Benjamin Netanyahu also reserved some of his ire for the mayor of the city hosting him, Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-israel-un.html
+
+**Netanyahu Lashes Out at Foes in U.N. Speech, Including Mamdani**\
+`Prime Minister Benjamin Netanyahu of Israel lashed out at a litany of enemies but took particular verbal aim at Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-speech-un-general-assembly.html
+
+**Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
+`The vote came as a growing number of Republicans have broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
+https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
+
 **Are Lynchings Really Happening?**\
 `Some suggest that recent hangings are evidence of racial terrorism.`\
 https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
