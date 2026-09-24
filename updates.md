@@ -1,3 +1,11 @@
+**Newly Public Documents Shed New Light on Trump Investigations**\
+`Records unsealed on Wednesday include a 2023 appeals court opinion rejecting Donald J. Trump’s attempt to block Mike Pence’s grand jury testimony.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-mike-pence-testimony.html
+
+**U.S. and China Agree to Extend Trade Truce by 2 Months, Bessent Says**\
+`The Treasury secretary, who is leading talks with China, said the countries had agreed to extend a trade truce until January.`\
+https://www.nytimes.com/2026/09/23/us/politics/china-trade-truce-tariffs.html
+
 **8 Sailors in U.S.S. Lincoln Strike Group Attempted Suicide, Navy Says**\
 `The aircraft carrier with its crew of about 5,000 sailors has spent more than 300 days at sea.`\
 https://www.nytimes.com/2026/09/23/us/politics/uss-lincoln-attempted-suicides.html
