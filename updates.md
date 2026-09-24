@@ -1,3 +1,7 @@
+**How the Supreme Court Saved the Midterms**\
+`President Trump has made multiple attempts to restrict voting access ahead of the midterms, but the courts keep getting in his way. The Law experts Sarah Isgur and Rick Pildes talk about why the president’s attempts have failed.`\
+https://www.nytimes.com/video/opinion/100000011159531/how-the-supreme-court-saved-the-midterms.html
+
 **Man Wounded in Trump Assassination Attempt Dies 2 Years Later**\
 `James Copenhaver, 76, was struck in the arm and abdomen in the shooting in Butler, Pa.`\
 https://www.nytimes.com/2026/09/24/us/trump-butler-assassination-attempt-victim-dies.html
