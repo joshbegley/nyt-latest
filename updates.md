@@ -1,3 +1,11 @@
+**In a Race With China, German Robots Are Outnumbered 14 to 1**\
+`A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
+https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
+
+**Investors Are Betting On Devices That Connect the Brain to Computers**\
+`By backing Precision Neuroscience, the billionaire Bill Ackman joins Elon Musk and Jeff Bezos in diving into an emerging industry.`\
+https://www.nytimes.com/2026/09/24/business/dealbook/precision-neuroscience-brain-bill-ackman.html
+
 **The Big Show**\
 `We look at the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html

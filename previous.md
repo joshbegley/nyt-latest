@@ -1,3 +1,11 @@
+**In a Race With China, German Robots Are Outnumbered 14 to 1**\
+`A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
+https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
+
+**Investors Are Betting On Devices That Connect the Brain to Computers**\
+`By backing Precision Neuroscience, the billionaire Bill Ackman joins Elon Musk and Jeff Bezos in diving into an emerging industry.`\
+https://www.nytimes.com/2026/09/24/business/dealbook/precision-neuroscience-brain-bill-ackman.html
+
 **The Big Show**\
 `We look at the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/movies/charlie-harper-review.html
 **A Corruption Scandal Is Reshaping Brazil’s Presidential Election**\
 `Explosive allegations of corruption are embroiling a Brazilian Supreme Court justice, Alexandre de Moraes, and reshaping the country’s high-stakes presidential election.`\
 https://www.nytimes.com/2026/09/24/world/americas/brazil-supreme-court-justice-moraes-vorcaro-trump.html
-
-**Salmon Are Thriving After Klamath Dam Removals, Study Finds**\
-`The first fall runs of chinook salmon since the project in California and Oregon was completed have surpassed researchers’ expectations.`\
-https://www.nytimes.com/2026/09/24/climate/klamath-salmon-recovery-dam-removal.html
-
-**Homes for Sale Connecticut and Long Island**\
-`This week’s properties are four-bedrooms in Darien, Conn., and Atlantic Beach, N.Y.`\
-https://www.nytimes.com/2026/09/24/realestate/housing-market-near-nyc.html
 
