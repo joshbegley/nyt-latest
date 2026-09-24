@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/09/24/us/politics/south-asian-indian-american-racis
 https://www.nytimes.com/2026/09/24/movies/charlie-harper-review.html
 
 **A Corruption Scandal Is Reshaping Brazil’s Presidential Election**\
-`Explosive allegations of corruption are embroiling a Brazilian Supreme Court justice, Alexandre de Moraes, and reshaping the country’s high-stakes presidential election.`\
+`Explosive allegations of corruption are embroiling a Supreme Court justice, Alexandre de Moraes, and reshaping the presidential election.`\
 https://www.nytimes.com/2026/09/24/world/americas/brazil-supreme-court-justice-moraes-vorcaro-trump.html
 
