@@ -1,3 +1,15 @@
+**Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
+`Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
+https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
+
+**About 100 Are Arrested in Protests Against Netanyahu**\
+`Large groups gathered in Midtown Manhattan to demonstrate as the Israeli prime minister spoke to the General Assembly.`\
+https://www.nytimes.com/2026/09/24/nyregion/un-protest-netanyahu-israel-gaza.html
+
+**The Missing Filter on Our Election Process**\
+`Election reforms in the 1970s made voting much more populist, but at what cost? The shift away from the convention system drastically changed the kind of people who get elected, favoring those with celebrity status and name recognition.`\
+https://www.nytimes.com/video/opinion/100000011159540/the-missing-filter-on-our-election-process.html
+
 **How the Supreme Court Saved the Midterms**\
 `President Trump has made multiple attempts to restrict voting access ahead of the midterms, but the courts keep getting in his way. The Law experts Sarah Isgur and Rick Pildes talk about why the president’s attempts have failed.`\
 https://www.nytimes.com/video/opinion/100000011159531/how-the-supreme-court-saved-the-midterms.html

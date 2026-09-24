@@ -1,3 +1,15 @@
+**Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
+`Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
+https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
+
+**About 100 Are Arrested in Protests Against Netanyahu**\
+`Large groups gathered in Midtown Manhattan to demonstrate as the Israeli prime minister spoke to the General Assembly.`\
+https://www.nytimes.com/2026/09/24/nyregion/un-protest-netanyahu-israel-gaza.html
+
+**The Missing Filter on Our Election Process**\
+`Election reforms in the 1970s made voting much more populist, but at what cost? The shift away from the convention system drastically changed the kind of people who get elected, favoring those with celebrity status and name recognition.`\
+https://www.nytimes.com/video/opinion/100000011159540/the-missing-filter-on-our-election-process.html
+
 **How the Supreme Court Saved the Midterms**\
 `President Trump has made multiple attempts to restrict voting access ahead of the midterms, but the courts keep getting in his way. The Law experts Sarah Isgur and Rick Pildes talk about why the president’s attempts have failed.`\
 https://www.nytimes.com/video/opinion/100000011159531/how-the-supreme-court-saved-the-midterms.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.ht
 **Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
 `Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
 https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
-
-**Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
-`“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
-https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html
-
-**As Trump Hosts State Dinner Honoring Xi, See the Menu**\
-`The White House said that the three-course menu, including sea bass and bok choy, featured American ingredients with a “subtle Chinese influence.”`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-xi-state-dinner-menu.html
-
-**Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
-`In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
-https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
