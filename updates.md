@@ -1,3 +1,19 @@
+**Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
+`Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
+https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
+
+**A Spirited Battle Over Data Centers**\
+`At the Climate Forward live event, policymakers, executives and activists debated the boom in data centers, the growing backlash and its environmental effects.`\
+https://www.nytimes.com/2026/09/24/climate/a-spirited-battle-over-data-centers.html
+
+**Hiker Is Found Dead on Washington Trail After Fall**\
+`The death came two days after another hiker died on the same mountain trail in northwestern Washington, officials said.`\
+https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
+
+**In Trumpeting His Ballroom Project, Trump Has Used China as an Example**\
+`President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
+
 **An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
 `A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
 https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html

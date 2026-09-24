@@ -1,3 +1,15 @@
+**Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
+`Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
+https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
+
+**A Spirited Battle Over Data Centers**\
+`At the Climate Forward live event, policymakers, executives and activists debated the boom in data centers, the growing backlash and its environmental effects.`\
+https://www.nytimes.com/2026/09/24/climate/a-spirited-battle-over-data-centers.html
+
+**Hiker Is Found Dead on Washington Trail After Fall**\
+`The death came two days after another hiker died on the same mountain trail in northwestern Washington, officials said.`\
+https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
+
 **An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
 `A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
 https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
@@ -62,7 +74,7 @@ https://www.nytimes.com/2026/09/24/books/review/new-recommended-books.html
 `Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
 https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html
 
-**For His Ballroom, Trump Has Pointed to the Great Hall of the People in Beijing**\
+**In Trumpeting His Ballroom Project, Trump Has Used China as an Example**\
 `President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-t
 **Collins Leads Jackson in Maine Senate Race: 7 Takeaways From a New Poll**\
 `Voters in the battleground state favored Senator Susan Collins, the Republican incumbent, over Troy Jackson, a Democrat, in several important areas, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/maine-senate-poll-collins-jackson-midterms.html
-
-**Restaurant Theft**\
-`Plus, an artsy side hustle.`\
-https://www.nytimes.com/2026/09/24/briefing/restaurant-theft.html
-
-**Oh, Something Smells Good (It’s This Dinner)**\
-`Chicken thighs sizzled in schmaltz pair up with a salted cucumber yogurt in this delightful new recipe.`\
-https://www.nytimes.com/2026/09/24/dining/oh-something-smells-good-its-this-dinner.html
-
-**Trump’s Failure to Lead Is Costing America and the World**\
-`Trump’s flailing presidency leaves Americans with the thinnest of hopes for this week’s summit: that he does not further damage the national interest.`\
-https://www.nytimes.com/2026/09/24/opinion/trump-xi-washington-summit.html
 

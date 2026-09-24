@@ -1,3 +1,7 @@
+**‘Love Me’ Ad Promotes Trump With Public Money Ahead of the Midterms**\
+`A disclaimer says the ad was paid for by the U.S. government, which could violate federal law.`\
+https://www.nytimes.com/2026/09/24/us/love-me-ad-promotes-trump-with-public-money-ahead-of-the-midterms.html
+
 **Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
 `Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
 https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
 `It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
 https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
-
-**Collins Leads Jackson in Maine Senate Race: 7 Takeaways From a New Poll**\
-`Voters in the battleground state favored Senator Susan Collins, the Republican incumbent, over Troy Jackson, a Democrat, in several important areas, according to a New York Times/Siena poll.`\
-https://www.nytimes.com/2026/09/24/us/politics/maine-senate-poll-collins-jackson-midterms.html
 
