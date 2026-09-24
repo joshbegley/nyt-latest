@@ -1,3 +1,15 @@
+**Live Updates: White House Continues to Bar News Outlets Despite Court Ruling**\
+`A federal court ordered President Trump to reverse his ban on CNN, Politico and MS NOW, but reporters were denied access on Thursday. The judge ordered the administration to respond by 12:30 p.m.`\
+https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
+
+**Trump’s Failure to Lead Is Costing America and the World**\
+`Trump’s flailing presidency leaves Americans with the thinnest of hopes for this week’s summit: that he does not further damage the national interest.`\
+https://www.nytimes.com/2026/09/24/opinion/trump-xi-washington-summit.html
+
+**Mayor Mamdani Becomes a New Advocate for Access to the Met Opera**\
+`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
+https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
+
 **12 Artists On the Rise at The Armory Show**\
 `Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
 https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
