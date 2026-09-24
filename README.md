@@ -7,7 +7,7 @@ https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-
 https://www.nytimes.com/video/podcasts/the-daily/100000011174035/netanyahu-goes-on-the-attack-on-the-world-stage.html
 
 **Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
-`Lawyers hired by Gov. Mikie Sherrill found Dale Caldwell sought to win a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
+`Lawyers hired by Gov. Mikie Sherrill found Dale Caldwell sought promotion for his girlfriend and made a sexually charged comment to a staff member. Ms. Sherrill has called for his resignation.`\
 https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
 
 **Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
