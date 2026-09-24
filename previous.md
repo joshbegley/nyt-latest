@@ -1,3 +1,7 @@
+**2026 Midterm Elections: When to Register, Vote Early or Vote by Mail in Your State**\
+`See the important deadlines for registering to vote, mailing ballots and voting early in person.`\
+https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-voting-ballots-mail-early-state.html
+
 **Interim Leader of Venezuela Promises Elections and ‘Orderly Legal Transition’**\
 `Delcy Rodríguez did not set a timeline for a vote in a speech at the United Nations.`\
 https://www.nytimes.com/2026/09/23/world/americas/venezuela-delcy-rodriguez-unga.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011168755/big-jam-danish.html
 **Chickpea Salad With Fresh Herbs and Scallions**\
 `A lighter, easier take on classic American potato salad, this version uses canned chickpeas in place of potatoes and favors Greek yogurt over mayonnaise.`\
 https://www.nytimes.com/video/dining/100000011168672/chickpea-salad-with-fresh-herbs-and-scallions.html
-
-**Michigan Governor Orders Inquiry After ICE Pursuit Ends in Fatal Crash**\
-`A Guatemalan immigrant died after being chased by agents in Grand Rapids, the latest death stemming from immigration enforcement around the country.`\
-https://www.nytimes.com/2026/09/23/us/grand-rapids-michigan-ice-car-crash.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
