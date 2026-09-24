@@ -1,3 +1,19 @@
+**Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
+`Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
+https://www.nytimes.com/video/world/europe/100000011172190/protests-flare-in-spain-after-eviction-of-87-year-old-woman.html
+
+**5 Looks to Understand a Fashion Show**\
+`Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
+https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
+
+**5 Takeaways From a New Poll on the New Hampshire Senate Race**\
+`Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
+https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
+
+**More Than 167,000 Pounds of Meat Are Recalled Across U.S.**\
+`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina used a false inspection mark.`\
+https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
+
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
@@ -10,8 +26,8 @@ https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
 `Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
 https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
 
-**Live Updates: White House Continues to Bar News Outlets Despite Court Ruling**\
-`A federal court ordered President Trump to reverse his ban on CNN, Politico and MS NOW, but reporters were denied access on Thursday. The judge ordered the administration to respond by 12:30 p.m.`\
+**Live Updates: CNN and MS NOW Return to White House After Fight Over Access**\
+`A federal court ordered the Trump administration to reverse its ban on CNN, Politico and MS NOW, but reporters were initially denied entry to the White House grounds on Thursday.`\
 https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
 
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
 **Collins Leads in Maine in Our New Poll. Is That an Outlier or an Omen?**\
 `There’s nothing more uncomfortable for a pollster than a result that stands out from the pack, but it doesn’t mean it should be dismissed.`\
 https://www.nytimes.com/2026/09/24/upshot/maine-poll-times-siena.html
-
-**Jewelry Inspired by Bats and Spider Webs**\
-`Plus: Pierre Soulages’s works on paper, modular lighting and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/09/24/t-magazine/colleen-allen-alice-waese-jewelry.html
-
-**American Bar Association Fights to Keep Power to Vet Law Schools**\
-`Losing its accreditation ability would be a blow to the nation’s largest association of lawyers and another example of how the Trump administration is reshaping higher education.`\
-https://www.nytimes.com/2026/09/24/us/politics/aba-law-schools-dei-trump.html
-
-**Corrections: Sept. 24, 2026**\
-`Corrections that appeared in print on Thursday, Sept. 24, 2026.`\
-https://www.nytimes.com/2026/09/24/pageoneplus/corrections-sept-24-2026.html
-
-**Republicans Accelerate Their Break With Trump Ahead of Midterms**\
-`The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
 
