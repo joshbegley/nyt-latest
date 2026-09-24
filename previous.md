@@ -1,3 +1,7 @@
+**Haiti Turns to Roger Stone To Lobby Trump Administration**\
+`The Haitian government hired Mr. Stone, a confidant of President Trump, weeks after hundreds of thousands of Haitians lost deportation protection. The contract is worth nearly $800,000, a document shows.`\
+https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.html
+
 **Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
 `Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
 https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
 **Police in Poland Arrest Ukrainian Citizen Over Fatal Stabbing**\
 `The police arrested a Ukrainian citizen on suspicion of carrying out the knife attack, which came as the two countries are trying to steady relations soured by old antagonisms.`\
 https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attacker.html
-
-**Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
-`What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
-https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
-
-**Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
-`President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
-https://www.nytimes.com/live/2026/09/24/us/trump-xi-summit-meeting-us-china
 

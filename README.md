@@ -1,3 +1,23 @@
+**Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
+`Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
+https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
+
+**What’s Going On in This Graph? | Sept. 30, 2026**\
+`Which emojis do you find yourself using most often? Are they the same as the emojis you used last year?`\
+https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-graph-sept-30-2026.html
+
+**What’s Going On in This Picture? | Sept. 28, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-picture-sept-28-2026.html
+
+**The Wild West of A.I. Needs to End. Here’s How.**\
+`It’s time to give the public what it wants: A.I. regulation.`\
+https://www.nytimes.com/2026/09/24/opinion/ai-regulation-government-tech-industry.html
+
+**MOCA Appoints Former Public Media Leader as Its New Director**\
+`Jonathan Abbott, who oversaw the network that produces PBS programs like “Masterpiece,” is the Museum of Contemporary Art, Los Angeles’s sixth director in 18 years.`\
+https://www.nytimes.com/2026/09/24/arts/design/moca-new-director-jonathan-abbott.html
+
 **Haiti Turns to Roger Stone To Lobby Trump Administration**\
 `The Haitian government hired Mr. Stone, a confidant of President Trump, weeks after hundreds of thousands of Haitians lost deportation protection. The contract is worth nearly $800,000, a document shows.`\
 https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/09/24/movies/film-tax-credits.html
 **A Weary Hollywood Celebrates the Prospect of Federal Funding**\
 `In response to an exodus of movie and TV production, a bill is being introduced in Congress that would use tax credits to subsidize filming in the United States.`\
 https://www.nytimes.com/2026/09/24/movies/film-tax-credit-congress-bill.html
-
-**Forced Eviction of 87-Year-Old Woman Spurs Outrage in Spain**\
-`Demonstrations broke out across the country over the woman’s eviction in Madrid, putting rising rents and affordability at the top of the political conversation.`\
-https://www.nytimes.com/2026/09/24/world/europe/spain-eviction-sanchez.html
-
-**Mayor Mamdani Becomes a New Advocate for Access to the Met Opera**\
-`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to distribute free tickets`\
-https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
-
-**Far-Right Activist Danny Tommo Arrested After Slashing Dinghy in English Channel**\
-`The man, Daniel Thomas, was following migrants traveling to England when he filmed himself slashing an inflatable boat that had an emergency responder on board.`\
-https://www.nytimes.com/2026/09/24/world/europe/danny-tommo-arrested-uk-migrants-far-right.html
-
-**A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
-`A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
-https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
-
-**Police in Poland Arrest Ukrainian Citizen Over Fatal Stabbing**\
-`The police arrested a Ukrainian citizen on suspicion of carrying out the knife attack, which came as the two countries are trying to steady relations soured by old antagonisms.`\
-https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attacker.html
 

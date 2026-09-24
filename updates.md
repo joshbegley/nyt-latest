@@ -1,3 +1,7 @@
+**Haiti Turns to Roger Stone To Lobby Trump Administration**\
+`The Haitian government hired Mr. Stone, a confidant of President Trump, weeks after hundreds of thousands of Haitians lost deportation protection. The contract is worth nearly $800,000, a document shows.`\
+https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.html
+
 **Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
 `Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
 https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
