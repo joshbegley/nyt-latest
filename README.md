@@ -1,3 +1,15 @@
+**Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
+`The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
+https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html
+
+**Google Is Sending an A.I. Data Center to Outer Space**\
+`Next Thursday, Google is sending an experimental satellite into orbit that will have enough computing power to answer simple A.I. queries from space.`\
+https://www.nytimes.com/2026/09/24/technology/google-suncatcher-ai-data-center-space.html
+
+**Can Tech Companies Like Google Really Put Data Centers in Space?**\
+`Google is preparing to launch a satellite that can run its A.I. technologies from the heavens. But this is just a first step.`\
+https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
+
 **A.I. Safety Concerns Go Global**\
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/24/opinion/interesting-times-sarah-isgur-rick-pi
 **‘The Stunt Driver’ Review: A Leap to Glory**\
 `A mild charmer of a comedy remembers a Canadian daredevil’s dream of jumping over the St. Lawrence River in a rocket-powered car.`\
 https://www.nytimes.com/2026/09/24/movies/the-stunt-driver-review.html
-
-**Review: An Unhinged Robert Pattinson Is Ready for ‘Primetime’**\
-`The actor delivers an unnerving performance as Chris Hansen, the host of “To Catch a Predator,” in a movie that doesn’t bother to delve too deep.`\
-https://www.nytimes.com/2026/09/24/movies/primetime-review-review-robert-pattinson.html
-
-**‘The Scout’ Review: Location, Location, Location**\
-`This quietly observational film mirrors its protagonist’s perspective in wide shots that witness life unfolding in real time.`\
-https://www.nytimes.com/2026/09/24/movies/the-scout-review.html
-
-**‘The Incomer’ Review: A Remote Assignment**\
-`Domhnall Gleeson gets more than he bargained for when he tries to evict two siblings in this quirky Scottish comedy.`\
-https://www.nytimes.com/2026/09/24/movies/the-incomer-review.html
 
