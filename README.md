@@ -1,3 +1,147 @@
+**What Pete Hegseth Is Hiding**\
+`Soldiers want to tell their stories, and we need to hear them.`\
+https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
+
+**Collins Leads in Maine in Our New Poll. Is That an Outlier or an Omen?**\
+`There’s nothing more uncomfortable for a pollster than a result that stands out from the pack, but it doesn’t mean it should be dismissed.`\
+https://www.nytimes.com/2026/09/24/upshot/maine-poll-times-siena.html
+
+**Jewelry Inspired by Bats and Spider Webs**\
+`Plus: Pierre Soulages’s works on paper, modular lighting and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/09/24/t-magazine/colleen-allen-alice-waese-jewelry.html
+
+**American Bar Association Fights to Keep Power to Vet Law Schools**\
+`Losing its accreditation ability would be a blow to the nation’s largest association of lawyers and another example of how the Trump administration is reshaping higher education.`\
+https://www.nytimes.com/2026/09/24/us/politics/aba-law-schools-dei-trump.html
+
+**Corrections: Sept. 24, 2026**\
+`Corrections that appeared in print on Thursday, Sept. 24, 2026.`\
+https://www.nytimes.com/2026/09/24/pageoneplus/corrections-sept-24-2026.html
+
+**‘Survival Mode Time’: Republicans Accelerate Their Break With Trump**\
+`The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
+
+**The Independent 20th Century Grapples With Heritage**\
+`The art fair takes up residence at the Breuer building on its 60 birthday, with works by both blue-chip artists and lesser-known names.`\
+https://www.nytimes.com/2026/09/24/arts/design/the-independent-20th-century-grapples-with-heritage.html
+
+**What Are Your Favorite TV Shows?**\
+`This week, The Times is announcing its top 100 television shows of the 21st century. Do you agree with its rankings?  Make a case for your top picks.`\
+https://www.nytimes.com/2026/09/24/learning/what-are-your-favorite-tv-shows.html
+
+**Abortion Pills, Vaccines and Food Safety: F.D.A. Nominee Heidi Overton Faces Senate Confirmation Hearing**\
+`Dr. Heidi Overton has called mifepristone “dangerous to women.” As a White House aide, she worked to reduce the number of vaccines recommended for children.`\
+https://www.nytimes.com/2026/09/24/us/heidi-overton-fda.html
+
+**Democrats Show Strength in Michigan Senate Race but Trail in Maine, Polls Find**\
+`The party’s nominees lead in Michigan and New Hampshire but the Republican incumbent is ahead in Maine, according to New York Times/Siena polls of the three battlegrounds.`\
+https://www.nytimes.com/2026/09/24/us/politics/democrats-show-strength-in-michigan-senate-race-but-trail-in-maine-polls-find.html
+
+**How Three Times Tech Journalists Make Sense of A.I.’s Promise and Peril**\
+`Artificial intelligence is advancing so fast that tech leaders say better safety controls are needed. Here’s how our reporters keep up.`\
+https://www.nytimes.com/2026/09/24/insider/nyt-journalists-artificial-intelligence.html
+
+**Trump the Destroyer**\
+`The president has an edifice complex.`\
+https://www.nytimes.com/2026/09/24/opinion/trump-arch-macklemore-israel.html
+
+**Why Do the Trade Wars Keep Coming for Your Whiskey?**\
+`As the U.S. prepares to ban imports of Canadian spirits, it’s worth examining the reasons a relatively minor commodity looms so large.`\
+https://www.nytimes.com/2026/09/24/dining/drinks/trump-canada-tariffs-trade-wars-whiskey.html
+
+**Dear Congress: Here’s What to Ask A.I. Leaders**\
+`This is what Congress needs to do to reign in frontier A.I. development.`\
+https://www.nytimes.com/2026/09/24/opinion/congress-ai-sam-altman.html
+
+**Has a Dash of ‘Whimsy’ Become Less Whimsical?**\
+`The push to optimize the magic in our lives is starting to feel like a trick for consumers.`\
+https://www.nytimes.com/2026/09/24/magazine/whimsy-magic-optimization.html
+
+**Paxton, Talarico and the Senate Race in Texas: 12 Voters Discuss**\
+`The group discusses the economy, the president and the U.S. Senate race in Texas.`\
+https://www.nytimes.com/interactive/2026/09/24/opinion/focus-group-texas-voters-midterms.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Midtown East, the Upper East Side and Bushwick.`\
+https://www.nytimes.com/2026/09/24/realestate/housing-market-nyc.html
+
+**Europe warns of Russia’s hybrid attacks but struggles to counter them**\
+`If President Vladimir V. Putin was hoping to get Europeans’ attention, he’s succeeded with a series of close-call incursions. The question now is what they will do about it.`\
+https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-war.html
+
+**Renovating Manhattan’s Oldest Residence**\
+`The Morris-Jumel Mansion in Upper Manhattan served as a command post for George Washington. It had become shabby in recent years.`\
+https://www.nytimes.com/2026/09/24/nyregion/morris-jumel-mansion-renovation.html
+
+**For Sale: A Mid-Century Gem Restored by Benedikt Taschen**\
+`The founder of Taschen Books is selling his meticulously restored Beverly Hills house, the Adelman Residence, for $25 million.`\
+https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restored-by-benedikt-taschen.html
+
+**Devery Jacobs on Her Favorite TV Shows**\
+`The actor Devery Jacobs is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
+https://www.nytimes.com/video/arts/100000011161527/devery-jacobs-on-her-favorite-tv-shows.html
+
+**36 Hours in New Orleans: Things to Do and See**\
+`The Big Easy has never been more appealing, thanks to an increasingly global food scene, a sparkling new riverfront park and plenty of that good time spirit.`\
+https://www.nytimes.com/interactive/2026/09/24/travel/things-to-do-new-orleans.html
+
+**Joel Kim Booster on His Favorite TV Shows**\
+`The actor Joel Kim Booster is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
+https://www.nytimes.com/video/arts/100000011161520/joel-kim-booster-on-his-favorite-tv-shows.html
+
+**Have GLP-1 Drugs Changed How You Travel? Tell Us About It.**\
+`The New York Times wants to know how a GLP-1 medication may have affected how readers plan vacations.`\
+https://www.nytimes.com/2026/09/24/travel/glp1-drugs-travel.html
+
+**What Our Michigan and Maine Polls Reveal**\
+`Our polling reporter Ruth Igielnik walks through the latest Times/Siena Poll findings on two critical states in the Democrats’ push to regain control of the Senate: Michigan and Maine.`\
+https://www.nytimes.com/video/polls/100000011158869/what-our-michigan-and-maine-polls-reveal.html
+
+**Jeff Probst Made ‘Survivor’ His Life’s Work. He’s Not Done Yet.**\
+`As the show’s 51st season begins, the host and showrunner discussed its future, sharing contestants with other shows and prediction market spoilers.`\
+https://www.nytimes.com/2026/09/24/arts/television/jeff-probst-survivor-popcast-interview.html
+
+**How Worried Should We Be About the Midterm Elections?**\
+`And how we learn to trust elections again.`\
+https://www.nytimes.com/2026/09/24/opinion/interesting-times-sarah-isgur-rick-pildes.html
+
+**‘The Stunt Driver’ Review: A Leap to Glory**\
+`A mild charmer of a comedy remembers a Canadian daredevil’s dream of jumping over the St. Lawrence River in a rocket-powered car.`\
+https://www.nytimes.com/2026/09/24/movies/the-stunt-driver-review.html
+
+**Review: An Unhinged Robert Pattinson Is Ready for ‘Primetime’**\
+`The actor delivers an unnerving performance as Chris Hansen, the host of “To Catch a Predator,” in a movie that doesn’t bother to delve too deep.`\
+https://www.nytimes.com/2026/09/24/movies/primetime-review-review-robert-pattinson.html
+
+**‘The Scout’ Review: Location, Location, Location**\
+`This quietly observational film mirrors its protagonist’s perspective in wide shots that witness life unfolding in real time.`\
+https://www.nytimes.com/2026/09/24/movies/the-scout-review.html
+
+**‘The Incomer’ Review: A Remote Assignment**\
+`Domhnall Gleeson gets more than he bargained for when he tries to evict two siblings in this quirky Scottish comedy.`\
+https://www.nytimes.com/2026/09/24/movies/the-incomer-review.html
+
+**‘Never After Dark’ Review: Ghostbusting in Japan**\
+`A traveling psychic comes up against a formidable new adversary in this gruesomely sinister ghost story starring the “Shogun” actress Moeka Hoshi.`\
+https://www.nytimes.com/2026/09/24/movies/never-after-dark-review.html
+
+**‘Heart of the Beast’ Review: Brad Pitt Goes Into the Wild**\
+`Starring as a veteran venturing into Alaska with his trusty dog by his side, Pitt manages to elevate this dude-canine tale.`\
+https://www.nytimes.com/2026/09/24/movies/heart-of-the-beast-review.html
+
+**‘Forgotten Island’ Review: A Supernatural Filipino Adventure**\
+`In this animated film, two friends in the Philippines discover a portal to a place with magical creatures. But there’s one problem: How do they get back home?`\
+https://www.nytimes.com/2026/09/24/movies/forgotten-island-review.html
+
+**‘Out in Public View’: Indian Americans Say Racism Is Front and Center**\
+`Social media posts, including from the Department of Homeland Security and a Texas Republican candidate, have helped stir fear among people of South Asian heritage.`\
+https://www.nytimes.com/2026/09/24/us/politics/south-asian-indian-american-racism.html
+
+**‘Charlie Harper’ Review: A Nonlinear Romantic Drama**\
+`Emilia Jones and Nick Robinson play lovers recounting the joys and sorrows of their relationship in this melancholic movie.`\
+https://www.nytimes.com/2026/09/24/movies/charlie-harper-review.html
+
 **A Corruption Scandal Is Reshaping Brazil’s Presidential Election**\
 `Explosive allegations of corruption are embroiling a Brazilian Supreme Court justice, Alexandre de Moraes, and reshaping the country’s high-stakes presidential election.`\
 https://www.nytimes.com/2026/09/24/world/americas/brazil-supreme-court-justice-moraes-vorcaro-trump.html
@@ -53,148 +197,4 @@ https://www.nytimes.com/2026/09/24/books/review/antonio-damasio-natural-intellig
 **10 Fall Fruits and Vegetables Nutrition Experts Love**\
 `Apples may be the star of the season. But have you ever delighted in a crisp Jerusalem artichoke?`\
 https://www.nytimes.com/2026/09/24/well/eat/healthy-fall-fruits-and-vegetables.html
-
-**When the World Saw van Gogh as ‘a Madman,’ She Saw His Genius**\
-`Helene Kröller-Müller assembled the world’s second-largest collection of van Gogh paintings. Now, for the first time in decades, they are on show together in a Dutch forest.`\
-https://www.nytimes.com/2026/09/24/arts/design/van-gogh-kroeller-mueller-museum.html
-
-**As Trump Hosts Xi at Summit, Pomp May Paper Over U.S.-China Tensions**\
-`President Xi Jinping’s first visit to the White House in a decade comes as President Trump continues his unexpected turn from a hard line on China.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-xi-summit-china.html
-
-**Indoor Cats Are Getting Outside, Thanks to ‘Catios’**\
-`The global “catio” industry could grow by roughly $1 billion in the next decade.`\
-https://www.nytimes.com/2026/09/24/realestate/catio-cat-patio-industry-popularity.html
-
-**Violinist Jennifer Koh on Her Decade-Long Struggle With a Rare Neurological Disorder**\
-`For 10 years Jennifer Koh struggled to understand and treat a rare neurological disorder, while trying to maintain a full calendar onstage.`\
-https://www.nytimes.com/2026/09/24/arts/music/jennifer-koh-violin.html
-
-**How Russia Evades Sanctions**\
-`Our business data correspondent Aaron Krolik describes Russia’s vast effort to evade global sanctions and get drone parts for its war in Ukraine — and explains how we traced those efforts.`\
-https://www.nytimes.com/video/world/europe/100000011077984/how-russia-evades-sanctions.html
-
-**The ‘Monster’ Behind Russia’s Global Effort to Evade Western Sanctions**\
-`A Moscow firm uses shell companies and cryptocurrency to launder money, and a custom app to forge trade records, to help Russia bypass sweeping financial restrictions.`\
-https://www.nytimes.com/2026/09/24/business/russia-sanctions-evasion-a7.html
-
-**Which Resting Place in the English Countryside Would These Musicians Choose?**\
-`Molly Quinn and Ben Sheen settled in Cambridge, England, after meeting in New York but wanted a second home for a break from the “hustle and bustle.”`\
-https://www.nytimes.com/quiz/2026/09/24/realestate/peak-district-homes-for-sale.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Battleground Senate Races**\
-`Results of a New York Times/Siena poll conducted among 1,837 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-toplines.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Battleground Senate Races**\
-`Results of a New York Times/Siena poll conducted among 1,837 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-crosstabs.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in New Hampshire**\
-`Results of a New York Times/Siena poll conducted among 613 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-nh-crosstabs.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in New Hampshire**\
-`Results of a New York Times/Siena poll conducted among 613 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-nh-toplines.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
-`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-mi-crosstabs.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
-`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-mi-toplines.html
-
-**Toplines: September 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Portland Press Herald/Siena poll conducted among 619 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-me-toplines.html
-
-**Cross-Tabs: September 2026 Times/Press Herald/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Portland Press Herald/Siena poll conducted among 619 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-siena-poll-me-crosstabs.html
-
-**Toplines: September 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 615 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-inquirer-siena-pa-poll-toplines.html
-
-**Cross-Tabs: September 2026 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 615 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-inquirer-siena-pa-poll-rv-crosstabs.html
-
-**Cross-Tabs: September 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 615 voters from Sept. 15 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/09/24/polls/times-inquirer-siena-pa-poll-lv-crosstabs.html
-
-**How Worried Should We Be About the Midterm Elections?**\
-`And how we learn to trust elections again.`\
-https://www.nytimes.com/video/opinion/100000011157888/how-worried-should-we-be-about-the-midterm-elections.html
-
-**Beleaguered at Home, a Bellicose Netanyahu Heads to the U.N.**\
-`Prime Minister Benjamin Netanyahu of Israel will take to the world stage while fighting for his political future in a critical national election.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-unga-israel-election.html
-
-**Bayeux Tapestry Lesson Plan**\
-`Why has “Beayeux fever” swept England? What is important about this work of art?`\
-https://www.nytimes.com/2026/09/24/learning/15-minute-lesson-plan-the-bayeux-tapestry.html
-
-**Glenn Martens’ Final Diesel Show: Hot Pants and Hedonism**\
-`Glenn Martens goes out with a metaphoric bang at Diesel. But he leaves behind something even more attention-worthy.`\
-https://www.nytimes.com/2026/09/24/style/diesel-hot-pants-glenn-martens.html
-
-**This Zoo Helps Protect Baby Turtles, Then Sends Them on Their Way**\
-`Foxes like to raid the nests of diamondback terrapins on Staten Island. But a “turtle garden” and incubators at the local zoo are giving the creatures a chance.`\
-https://www.nytimes.com/2026/09/24/nyregion/diamondback-terrapin-turtles-staten-island.html
-
-**When U.N. Protesters Denounce Netanyahu, Mamdani Won’t Be Among Them**\
-`Mayor Zohran Mamdani of New York continues to call the Israeli prime minister a war criminal. But Mr. Mamdani won’t join demonstrations against the prime minister on Thursday.`\
-https://www.nytimes.com/2026/09/24/nyregion/mamdani-netanyahu-un-general-assembly.html
-
-**How a Labor Union Bested the Political Establishment in New York**\
-`The United Auto Workers has grown in size by opening its tent to workers in white-collar professions, and by adopting democratic socialist stances. But its growth has also led to political friction.`\
-https://www.nytimes.com/2026/09/24/nyregion/uaw-union-labor-nyc.html
-
-**NYT Spelling Bee Answers for September 24, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/24/crosswords/spelling-bee-forum.html
-
-**The Wild West of A.I. Needs to End. Here’s How.**\
-`It’s time to give the public what it wants: A.I. regulation.`\
-https://www.nytimes.com/video/opinion/100000011166035/the-wild-west-of-ai-needs-to-end-heres-how.html
-
-**Families Urge Trump to Press Xi to Free Americans Detained in China**\
-`The Americans being held in China are U Min Zin, a scholar who studied Myanmar, and Youlin Chen, a seismologist who researched North Korean nuclear tests.`\
-https://www.nytimes.com/2026/09/24/world/asia/china-xi-trump-detained-americans.html
-
-**Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
-`“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
-https://www.nytimes.com/2026/09/24/arts/television/desi-lydic-doesnt-think-we-need-any-more-melania.html
-
-**Read the Court Order Blocking Trump’s White House Ban on CNN, MS NOW and Politico**\
-`A federal judge has issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets.`\
-https://www.nytimes.com/interactive/2026/09/24/us/politics/cnn-msnow-politico-trump-restraining-order.html
-
-**The U.S. and China Are Far Apart on A.I. Safety**\
-`Beijing and Washington may use the same language of A.I. safety, but they are trying to protect very different things.`\
-https://www.nytimes.com/2026/09/24/opinion/us-china-summit-ai.html
-
-**Inside France’s Push to Stop Migrant Boats to the U.K.**\
-`Thousands of migrants cross the sea between France and England each year, though numbers have fallen amid increased policing.`\
-https://www.nytimes.com/2026/09/24/world/europe/france-britain-migrant-boats-police.html
-
-**Quote of the Day: A Missile of a Memoir From Diana’s Brother**\
-`Quotation of the Day for Thursday, September 24, 2026.`\
-https://www.nytimes.com/2026/09/24/pageoneplus/quote-of-the-day-a-missile-of-a-memoir-from-dianas-brother.html
-
-**From a Nepal in Pain, a Young Leader Makes a Case for Climate Reparations**\
-`Balendra Shah, 36, comes to the U.N. as a sun-glassed symbol of Gen Z political power. But concerns about his style are growing at home after devastating floods left thousands dead or missing.`\
-https://www.nytimes.com/2026/09/24/world/asia/un-general-assembly-nepal-balen-shah.html
-
-**On This Day | Sept. 24**\
-`In 1996, the United States and other nations signed the Comprehensive Nuclear-Test-Ban Treaty, which sought to ban all nuclear test explosions.`\
-https://www.nytimes.com/2026/09/24/learning/on-this-day-sept-24.html
-
-**Elizabeth Holmes to Transfer to Halfway House in August 2027**\
-`The founder of the blood-testing start-up Theranos was sentenced to 11 years in prison for fraud and had been serving time at a minimum-security federal prison in Texas.`\
-https://www.nytimes.com/2026/09/23/technology/elizabeth-holmes-theranos-halfway-house.html
 
