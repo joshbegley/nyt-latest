@@ -1,3 +1,11 @@
+**Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
+`“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
+https://www.nytimes.com/2026/09/24/arts/television/desi-lydic-doesnt-think-we-need-any-more-melania.html
+
+**Read the Court Order Blocking Trump’s White House Ban on CNN, MS NOW and Politico**\
+`A federal judge has issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets.`\
+https://www.nytimes.com/interactive/2026/09/24/us/politics/cnn-msnow-politico-trump-restraining-order.html
+
 **Australia Investigates OpenAI Hack on Public Health Care Site**\
 `Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
 https://www.nytimes.com/2026/09/23/world/asia/australia-investigates-openai-hack-on-public-health-care-site.html
