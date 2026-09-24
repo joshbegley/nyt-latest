@@ -1,3 +1,15 @@
+**A New Advocate for Opera Takes the Met Stage: Mayor Mamdani**\
+`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
+https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
+
+**Far-Right Activist Danny Tommo Arrested After Slashing Dinghy in English Channel**\
+`The man, Daniel Thomas, was following migrants traveling to England when he filmed himself slashing an inflatable boat that had an emergency responder on board.`\
+https://www.nytimes.com/2026/09/24/world/europe/danny-tommo-arrested-uk-migrants-far-right.html
+
+**U.N. Live Updates: Abbas Criticizes Ongoing Israeli Attacks and Failure of Gaza Peace Plan**\
+`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly in a prerecorded video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
 **A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
 `A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
 https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
