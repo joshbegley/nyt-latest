@@ -1,3 +1,11 @@
+**7 Takeaways From a New Poll on the Michigan Senate Race**\
+`Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
+https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
+
+**What Students Are Saying About Writing in the Age of A.I.**\
+`How much does it still matter? Nearly 400 teenagers weighed in.`\
+https://www.nytimes.com/2026/09/24/learning/what-students-are-saying-about-writing-in-the-age-of-ai.html
+
 **6 New Books We Recommend This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/09/24/books/review/new-recommended-books.html
@@ -98,6 +106,10 @@ https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-
 `The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
 https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 
+**Abbas presses the case for a Palestinian state in a videotaped address.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/24/world/middleeast/abbas-presses-the-case-for-a-palestinian-state-in-a-prerecorded-video-address.html
+
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-am
 **Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
 `The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
 https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html
-
-**Google Is Sending an A.I. Data Center to Outer Space**\
-`Next Thursday, Google is sending an experimental satellite into orbit that will have enough computing power to answer simple A.I. queries from space.`\
-https://www.nytimes.com/2026/09/24/technology/google-suncatcher-ai-data-center-space.html
-
-**Can Tech Companies Like Google Really Put Data Centers in Space?**\
-`Google is preparing to launch a satellite that can run its A.I. technologies from the heavens. But this is just a first step.`\
-https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
-
-**U.N. Live Updates: Netanyahu, Under Scrutiny at Home and Abroad, to Speak to General Assembly**\
-`The Israeli prime minister will take the podium after the Palestinian leader, Mahmoud Abbas, called for a two-state solution and accused Israel of trying to drive Palestinians out of the West Bank and Gaza.`\
-https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
