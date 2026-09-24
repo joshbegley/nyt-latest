@@ -1,3 +1,7 @@
+**Man Wounded in Trump Assassination Attempt Dies 2 Years Later**\
+`James Copenhaver, 76, was struck in the arm and abdomen in the shooting in Butler, Pa.`\
+https://www.nytimes.com/2026/09/24/us/trump-butler-assassination-attempt-victim-dies.html
+
 **Trump Is Hosting Xi for a State Dinner. It’s a Rarity for the U.S. President.**\
 `The state dinner for President Xi on Thursday will be only the fourth hosted by President Trump, far fewer than past U.S. presidents.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-state-dinners-history-xi.html
