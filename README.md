@@ -2,6 +2,10 @@
 `Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
 https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
 
+**Live Updates: White House Continues to Bar News Outlets Despite Court Ruling**\
+`A federal court ordered President Trump to reverse his ban on CNN, Politico and MS NOW, but reporters were denied access on Thursday. The judge ordered the administration to respond by 12:30 p.m.`\
+https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
+
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
 `It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
 https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/09/24/movies/film-tax-credit-congress-bill.html
 `Demonstrations broke out across the country over the woman’s eviction in Madrid, putting rising rents and affordability at the top of the political conversation.`\
 https://www.nytimes.com/2026/09/24/world/europe/spain-eviction-sanchez.html
 
-**A New Advocate for Opera Takes the Met Stage: Mayor Mamdani**\
+**Mayor Mamdani Becomes a New Advocate for Access to the Met Opera**\
 `The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
 https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/learning/what-are-your-favorite-tv-shows.html
 **Abortion Pills, Vaccines and Food Safety: F.D.A. Nominee Heidi Overton Faces Senate Confirmation Hearing**\
 `Dr. Heidi Overton has called mifepristone “dangerous to women.” As a White House aide, she worked to reduce the number of vaccines recommended for children.`\
 https://www.nytimes.com/2026/09/24/us/heidi-overton-fda.html
-
-**Democrats Show Strength in Michigan Senate Race but Trail in Maine, Polls Find**\
-`The party’s nominees lead in Michigan and New Hampshire but the Republican incumbent is ahead in Maine, according to New York Times/Siena polls of the three battlegrounds.`\
-https://www.nytimes.com/2026/09/24/us/politics/democrats-show-strength-in-michigan-senate-race-but-trail-in-maine-polls-find.html
 

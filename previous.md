@@ -1,3 +1,7 @@
+**12 Artists On the Rise at The Armory Show**\
+`Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
+https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
+
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
 `It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
 https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/us/heidi-overton-fda.html
 **Democrats Show Strength in Michigan Senate Race but Trail in Maine, Polls Find**\
 `The party’s nominees lead in Michigan and New Hampshire but the Republican incumbent is ahead in Maine, according to New York Times/Siena polls of the three battlegrounds.`\
 https://www.nytimes.com/2026/09/24/us/politics/democrats-show-strength-in-michigan-senate-race-but-trail-in-maine-polls-find.html
-
-**How Three Times Tech Journalists Make Sense of A.I.’s Promise and Peril**\
-`Artificial intelligence is advancing so fast that tech leaders say better safety controls are needed. Here’s how our reporters keep up.`\
-https://www.nytimes.com/2026/09/24/insider/nyt-journalists-artificial-intelligence.html
 

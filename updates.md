@@ -1,3 +1,7 @@
+**12 Artists On the Rise at The Armory Show**\
+`Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
+https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
+
 **Kylian Mbappé, One of the World’s Greatest Soccer Players, Wants to Talk**\
 `Kylian Mbappé sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
 https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
