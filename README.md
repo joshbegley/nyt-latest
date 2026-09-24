@@ -1,3 +1,7 @@
+**8 Sailors in U.S.S. Lincoln Strike Group Attempted Suicide, Navy Says**\
+`The aircraft carrier with its crew of about 5,000 sailors has spent more than 300 days at sea.`\
+https://www.nytimes.com/2026/09/23/us/politics/uss-lincoln-attempted-suicides.html
+
 **Trump Aides Seek to Jump Start Diplomacy With Iran as Crisis Widens**\
 `Secretary of State Marco Rubio said that U.S. negotiators had restarted conversations about Iran’s nuclear program, but that there were no breakthroughs.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-aides-iran-talks.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
 **At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
 `Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
 https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
-
-**Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
-`CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
-https://www.nytimes.com/live/2026/09/23/business/trump-cnn-politico-msnow-ban-hearing
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

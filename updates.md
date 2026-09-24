@@ -1,3 +1,7 @@
+**Trump Aides Seek to Jump Start Diplomacy With Iran as Crisis Widens**\
+`Secretary of State Marco Rubio said that U.S. negotiators had restarted conversations about Iran’s nuclear program, but that there were no breakthroughs.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-aides-iran-talks.html
+
 **The Local: A.I. Looms Over the North Star**\
 `The speakers at The Minnesota Star Tribune’s festival of ideas kept returning to one concern: how to manage a future dominated by A.I.`\
 https://www.nytimes.com/2026/09/23/briefing/ai-minnesota-north-star-summit.html

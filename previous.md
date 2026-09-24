@@ -1,3 +1,7 @@
+**Trump Aides Seek to Jump Start Diplomacy With Iran as Crisis Widens**\
+`Secretary of State Marco Rubio said that U.S. negotiators had restarted conversations about Iran’s nuclear program, but that there were no breakthroughs.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-aides-iran-talks.html
+
 **The Local: A.I. Looms Over the North Star**\
 `The speakers at The Minnesota Star Tribune’s festival of ideas kept returning to one concern: how to manage a future dominated by A.I.`\
 https://www.nytimes.com/2026/09/23/briefing/ai-minnesota-north-star-summit.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
 **At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
 `Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
 https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
-
-**Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
-`Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
-https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
