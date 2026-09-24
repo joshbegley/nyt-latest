@@ -1,3 +1,11 @@
+**Trump Is Hosting Xi for a State Dinner. It’s a Rarity for the U.S. President.**\
+`The state dinner for President Xi on Thursday will be only the fourth hosted by President Trump, far fewer than past U.S. presidents.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-state-dinners-history-xi.html
+
+**U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
+`In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
 **U.S. Intercedes for Elon Musk’s X Over European Fine**\
 `Federal officials asked to intervene in a case that accused the social media platform of allowing deceptive behavior on its site and resulted in a $140 million penalty.`\
 https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html

@@ -1,3 +1,7 @@
+**Man Wounded in Trump Assassination Attempt Dies 2 Years Later**\
+`James Copenhaver, 76, was struck in the arm and abdomen in the shooting in Butler, Pa.`\
+https://www.nytimes.com/2026/09/24/us/trump-butler-assassination-attempt-victim-dies.html
+
 **Trump Is Hosting Xi for a State Dinner. It’s a Rarity for the U.S. President.**\
 `The state dinner for President Xi on Thursday will be only the fourth hosted by President Trump, far fewer than past U.S. presidents.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-state-dinners-history-xi.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-american
 **El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
 `Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
-
-**What Students Are Saying About Writing in the Age of A.I.**\
-`How much does it still matter? Nearly 400 teenagers weighed in.`\
-https://www.nytimes.com/2026/09/24/learning/what-students-are-saying-about-writing-in-the-age-of-ai.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
