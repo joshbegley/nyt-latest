@@ -1,3 +1,7 @@
+**A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
+`A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
+https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
+
 **Police in Poland Arrest Ukrainian Citizen Over Fatal Stabbing**\
 `The police arrested a Ukrainian citizen on suspicion of carrying out the knife attack, which came as the two countries are trying to steady relations soured by old antagonisms.`\
 https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attacker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restore
 **Devery Jacobs on Her Favorite TV Shows**\
 `The actor Devery Jacobs is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161527/devery-jacobs-on-her-favorite-tv-shows.html
-
-**36 Hours in New Orleans: Things to Do and See**\
-`The Big Easy has never been more appealing, thanks to an increasingly global food scene, a sparkling new riverfront park and plenty of that good time spirit.`\
-https://www.nytimes.com/interactive/2026/09/24/travel/things-to-do-new-orleans.html
 
