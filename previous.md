@@ -1,3 +1,15 @@
+**Delegates Walk Out in Protest as Netanyahu Speaks**\
+`On Thursday, hundreds of people in New York City protested Prime Minister Benjamin Netanyahu of Israel, who spoke at the U.N. General Assembly.`\
+https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-unga-protests.html
+
+**Netanyahu Goes on the Attack on the World Stage**\
+`Natalie Kitroeff calls Isabel Kershner in Jerusalem to hear how Prime Minister Benjamin Netanyahu’s fierce speech at the U.N. is landing with Israelis.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011174035/netanyahu-goes-on-the-attack-on-the-world-stage.html
+
+**Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
+`Lawyers hired by Gov. Mikie Sherrill found Dale Caldwell sought to win a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
+https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
+
 **Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
 `Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
 https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
@@ -181,14 +193,6 @@ https://www.nytimes.com/2026/09/24/opinion/ai-regulation-government-tech-industr
 **MOCA Appoints Former Public Media Leader as Its New Director**\
 `Jonathan Abbott, who oversaw the network that produces PBS programs like “Masterpiece,” is the Museum of Contemporary Art, Los Angeles’s sixth director in 18 years.`\
 https://www.nytimes.com/2026/09/24/arts/design/moca-new-director-jonathan-abbott.html
-
-**Haiti Turns to Roger Stone To Lobby Trump Administration**\
-`The Haitian government hired Mr. Stone, a confidant of President Trump, weeks after hundreds of thousands of Haitians lost deportation protection. The contract is worth nearly $800,000, a document shows.`\
-https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.html
-
-**Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
-`Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
-https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

@@ -1,3 +1,15 @@
+**Delegates Walk Out in Protest as Netanyahu Speaks**\
+`On Thursday, hundreds of people in New York City protested Prime Minister Benjamin Netanyahu of Israel, who spoke at the U.N. General Assembly.`\
+https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-unga-protests.html
+
+**Netanyahu Goes on the Attack on the World Stage**\
+`Natalie Kitroeff calls Isabel Kershner in Jerusalem to hear how Prime Minister Benjamin Netanyahu’s fierce speech at the U.N. is landing with Israelis.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011174035/netanyahu-goes-on-the-attack-on-the-world-stage.html
+
+**Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
+`Lawyers hired by Gov. Mikie Sherrill found Dale Caldwell sought to win a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
+https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
+
 **Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
 `Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
 https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
