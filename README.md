@@ -1,3 +1,7 @@
+**Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
+`“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
+https://www.nytimes.com/2026/09/24/arts/television/desi-lydic-doesnt-think-we-need-any-more-melania.html
+
 **Read the Court Order Blocking Trump’s White House Ban on CNN, MS NOW and Politico**\
 `A federal judge has issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets.`\
 https://www.nytimes.com/interactive/2026/09/24/us/politics/cnn-msnow-politico-trump-restraining-order.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
 **Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
 `The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
-
-**Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
-`Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
-https://www.nytimes.com/live/2026/09/23/climate/climate-forward-conference
 
