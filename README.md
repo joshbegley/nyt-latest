@@ -1,3 +1,11 @@
+**Ex-F.B.I. Agents Crucial to ‘Grand Conspiracy’ Case Suggest Testimony Won’t Help**\
+`Lawyers for the agents said that their clients would testify about “a properly predicated allegation that then-citizen Trump had unlawfully retained hundreds of highly classified documents.”`\
+https://www.nytimes.com/2026/09/24/us/politics/ex-fbi-agents-grand-conspiracy-case.html
+
+**Kitty Lunn, Who Expanded the Boundaries of Dance, Dies at 76**\
+`After breaking her back in a fall, she helped start Infinity Dance Theater, and found that her wheelchair was a tool, not a hindrance.`\
+https://www.nytimes.com/2026/09/24/us/kitty-lunn-dead.html
+
 **Republicans in Red-State Races Are Starting to Break From Trump**\
 `Our national political correspondent, Shane Goldmacher, explains how a growing number of Republican candidates in key battleground states are making calculated decisions to distance themselves from President Trump and his policies.`\
 https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-state-races-are-starting-to-break-from-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
 **Sway Dasafo, Rapper Who Opened New Doors for Global Artists, Dies at 44**\
 `He won widespread acclaim as an unsigned artist, then used his fame to help other musicians in Britain and in Ghana break into the industry.`\
 https://www.nytimes.com/2026/09/24/arts/music/derek-safo-sway-dead.html
-
-**In a New Anthropic Lab, A.I. Turns to Biology**\
-`Scientists at the company announced their first finding: a group of enzymes whose function is unknown.`\
-https://www.nytimes.com/2026/09/24/science/anthropic-biology-lab-enzyme.html
-
-**Trump and Xi Are Expected to Discuss Accusations of Copying American A.I. Tech**\
-`American artificial intelligence companies have accused their Chinese counterparts of using a technique called distillation to enhance their own systems.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
 
