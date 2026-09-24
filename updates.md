@@ -1,3 +1,11 @@
+**The Wild West of A.I. Needs to End. Here’s How.**\
+`It’s time to give the public what it wants: A.I. regulation.`\
+https://www.nytimes.com/video/opinion/100000011166035/the-wild-west-of-ai-needs-to-end-heres-how.html
+
+**Families Urge Trump to Press Xi to Free Americans Detained in China**\
+`The Americans being held in China are U Min Zin, a scholar who studied Myanmar, and Youlin Chen, a seismologist who researched North Korean nuclear tests.`\
+https://www.nytimes.com/2026/09/24/world/asia/china-xi-trump-detained-americans.html
+
 **Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
 `“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
 https://www.nytimes.com/2026/09/24/arts/television/desi-lydic-doesnt-think-we-need-any-more-melania.html
