@@ -1,3 +1,7 @@
+**Who Is Ahead in Oklahoma's 5th Congressional District?**\
+`Track the latest polls in Oklahoma's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
+
 **In a Race With China, German Robots Are Outnumbered 14 to 1**\
 `A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
 https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
