@@ -1,3 +1,7 @@
+**Macklemore Announces ‘Free Palestine’ Concerts After Exiting Ed Sheeran Tour**\
+`The rapper, who was pulled from Ed Sheeran’s tour last week over his support for Palestinians, announced plans for three European dates.`\
+https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.html
+
 **Hit Songs and Vibe Shifts in America**\
 `Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
 https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
 **Today’s Wordle Hints September 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
 https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
-
-**Kylian Mbappé, One of the World’s Greatest Soccer Players, Wants to Talk**\
-`Kylian Mbappé sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
-https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
 

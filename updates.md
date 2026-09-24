@@ -1,3 +1,35 @@
+**Hit Songs and Vibe Shifts in America**\
+`Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
+https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
+
+**Starbucks to Close 250 Stores in the US**\
+`The company said the affected cafes did not meet financial or customer service expectations.`\
+https://www.nytimes.com/2026/09/24/business/starbucks-store-closures.html
+
+**Trump Administration Scrambles to Stop Third-Country Deportations After Court Ruling**\
+`The decision adds a new burden for the government as it attempts to rapidly remove migrants from the United States without interference from their lawyers.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.html
+
+**Weeks Before the Election, Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
+`Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
+https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
+
+**Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
+`Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
+https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-protests.html
+
+**More Than 167,000 Pounds of Meat With False Inspection Mark Are Recalled**\
+`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
+https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
+
+**Mortgage Rates Hit 7% as Iran War Fallout Crushes a Weak Housing Market**\
+`The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
+https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
+
+**White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
+`CNN and MS NOW said their correspondents have been allowed back onto the White House grounds after they were denied access. A federal court ordered President Trump to reverse his ban on the three news outlets.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
+
 **Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
 `Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
 https://www.nytimes.com/video/world/europe/100000011172190/protests-flare-in-spain-after-eviction-of-87-year-old-woman.html
