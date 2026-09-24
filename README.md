@@ -1,3 +1,7 @@
+**The Christian ‘Scam’ Fronted by Tim Tebow**\
+`Pablo and Mother Jones look into Life Surge and its celebrity face.`\
+https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
+
 **What Pete Hegseth Is Hiding**\
 `Soldiers want to tell their stories, and we need to hear them.`\
 https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/t-magazine/floral-shoes-bags.html
 **Book Review: ‘Natural Intelligence & the Logic of Consciousness,’ by Antonio Damasio**\
 `In his new book, the neuroscientist Antonio Damasio argues that without feelings, true intelligence cannot exist.`\
 https://www.nytimes.com/2026/09/24/books/review/antonio-damasio-natural-intelligence-and-the-logic-of-consciousness.html
-
-**10 Fall Fruits and Vegetables Nutrition Experts Love**\
-`Apples may be the star of the season. But have you ever delighted in a crisp Jerusalem artichoke?`\
-https://www.nytimes.com/2026/09/24/well/eat/healthy-fall-fruits-and-vegetables.html
 
