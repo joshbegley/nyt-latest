@@ -1,3 +1,11 @@
+**Letterboxd Sees Acquisition Interest From A24, Sony and the New York Times**\
+`A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
+https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
+
+**New Hampshire Senate Race: 5 Takeaways From a New Poll**\
+`Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
+https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
+
 **El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
 `Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html

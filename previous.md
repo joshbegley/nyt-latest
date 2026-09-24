@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
 `A Guatemalan immigrant who died after fleeing an attempted arrest was driving a car registered to the suspect who was sought by agents, officials said.`\
 https://www.nytimes.com/2026/09/24/us/michigan-car-crash-ice-immigration-grand-rapids.html
 
-**Sony, A24 and the New York Times Company Circle Letterboxd**\
+**Letterboxd Sees Acquisition Interest From A24, Sony and the New York Times**\
 `A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
 https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
 
@@ -98,7 +98,7 @@ https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-prot
 `Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
 https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
 
-**5 Takeaways From a New Poll on the New Hampshire Senate Race**\
+**New Hampshire Senate Race: 5 Takeaways From a New Poll**\
 `Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
 https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
 
