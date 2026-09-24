@@ -1,3 +1,7 @@
+**Interim Leader of Venezuela Promises Elections and ‘Orderly Legal Transition’**\
+`Delcy Rodríguez did not set a timeline for a vote in a speech at the United Nations.`\
+https://www.nytimes.com/2026/09/23/world/americas/venezuela-delcy-rodriguez-unga.html
+
 **Actors Can’t Stop Watching These TV Shows That Mirror Real Life**\
 `Actors and creators share the TV shows that turn real life into compelling television and explain why these stories hit so close to home.`\
 https://www.nytimes.com/video/arts/100000011159828/best-100-tv.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011168672/chickpea-salad-with-fresh-h
 **Michigan Governor Orders Inquiry After ICE Pursuit Ends in Fatal Crash**\
 `A Guatemalan immigrant died after being chased by agents in Grand Rapids, the latest death stemming from immigration enforcement around the country.`\
 https://www.nytimes.com/2026/09/23/us/grand-rapids-michigan-ice-car-crash.html
-
-**Hayden Panettiere Was Found Surrounded by Drugs, Report Details**\
-`The actress had completed a stint in rehab before she died last month from an overdose, the coroner’s office said. Her death was ruled an accident.`\
-https://www.nytimes.com/2026/09/23/arts/television/hayden-panettiere-death-cause-fentanyl-overdose.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
