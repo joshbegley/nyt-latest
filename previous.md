@@ -1,3 +1,19 @@
+**This Zoo Helps Protect Baby Turtles, Then Sends Them on Their Way**\
+`Foxes like to raid the nests of diamondback terrapins on Staten Island. But a “turtle garden” and incubators at the local zoo are giving the creatures a chance.`\
+https://www.nytimes.com/2026/09/24/nyregion/diamondback-terrapin-turtles-staten-island.html
+
+**When U.N. Protesters Denounce Netanyahu, Mamdani Won’t Be Among Them**\
+`Mayor Zohran Mamdani of New York continues to call the Israeli prime minister a war criminal. But Mr. Mamdani won’t join demonstrations against the prime minister on Thursday.`\
+https://www.nytimes.com/2026/09/24/nyregion/mamdani-netanyahu-un-general-assembly.html
+
+**How a Labor Union Bested the Political Establishment in New York**\
+`The United Auto Workers has grown in size by opening its tent to workers in white-collar professions, and by adopting democratic socialist stances. But its growth has also led to political friction.`\
+https://www.nytimes.com/2026/09/24/nyregion/uaw-union-labor-nyc.html
+
+**NYT Spelling Bee Answers for September 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/24/crosswords/spelling-bee-forum.html
+
 **The Wild West of A.I. Needs to End. Here’s How.**\
 `It’s time to give the public what it wants: A.I. regulation.`\
 https://www.nytimes.com/video/opinion/100000011166035/the-wild-west-of-ai-needs-to-end-heres-how.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give
 **Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
 `In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
 https://www.nytimes.com/2026/09/23/us/politics/melania-trump-documentary-schedule.html
-
-**Tropical Storm Nolo Forms Near Hawaii**\
-`Nolo, still a tropical storm for now, formed on Wednesday south of the state.`\
-https://www.nytimes.com/2026/09/23/weather/tropical-storm-nolo-hurricane-hawaii.html
-
-**Xi’s Visit Will Fuel More Scrutiny Over His Health**\
-`Discussion about the Chinese leader’s health is heavily censored in China even as the 73-year-old is expected to remain in power.`\
-https://www.nytimes.com/2026/09/23/us/politics/china-xi-health.html
-
-**After Warm Meeting With Trump, Venezuela’s Leader Is Set to Address U.N.**\
-`She will be the first head of state from her country in eight years to make a speech to the body in person, and she is likely to sound radically different from her recent predecessors.`\
-https://www.nytimes.com/2026/09/23/world/americas/trump-venezuela-delcy-rodriguez.html
-
-**Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
-`The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
-https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
 
