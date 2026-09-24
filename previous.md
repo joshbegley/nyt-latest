@@ -1,3 +1,7 @@
+**And to Think That I Ate It on Mulberry Street**\
+`The annual Feast of San Gennaro gave me heartburn, a tummy ache and a great time`\
+https://www.nytimes.com/2026/09/24/dining/san-gennaro.html
+
 **Read Senator Maggie Hassan’s Letter to the White House**\
 `Hassan, Democrat of New Hampshire, sent a letter demanding that the White House chief of staff, Susie Wiles, divulge who produced a commercial urging Republicans to vote.`\
 https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wiles.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-
 **More Than 167,000 Pounds of Meat With False Inspection Mark Are Recalled**\
 `The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
 https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
-
-**Abbas Presses Case for Palestinian State in Taped General Assembly Address**\
-`The Palestinian leader renewed his call for a two-state solution on Thursday, as he accused Israel of prosecuting “a genocidal war” against Palestinians.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-palestinians.html
 

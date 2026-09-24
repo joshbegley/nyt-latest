@@ -1,3 +1,7 @@
+**And to Think That I Ate It on Mulberry Street**\
+`The annual Feast of San Gennaro gave me heartburn, a tummy ache and a great time`\
+https://www.nytimes.com/2026/09/24/dining/san-gennaro.html
+
 **Read Senator Maggie Hassan’s Letter to the White House**\
 `Hassan, Democrat of New Hampshire, sent a letter demanding that the White House chief of staff, Susie Wiles, divulge who produced a commercial urging Republicans to vote.`\
 https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wiles.html
