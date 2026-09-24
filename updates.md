@@ -1,3 +1,15 @@
+**Tech Titans Will Mingle With Trump and Xi at State Dinner**\
+`Prominent executives are expected to attend a dinner at the White House Thursday night, as the countries wrangle over tariffs, trade and potential A.I. regulation.`\
+https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
+
+**Trump Administration Asks Supreme Court to Allow Deportations to Third Countries**\
+`A lower federal court on Wednesday imposed restrictions on deporting migrants to countries other than their own.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-supreme-court-third-country-deportations.html
+
+**Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
+`Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused her of trying to appease anti-immigrant sentiment.`\
+https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html
+
 **Mamdani Accuses Netanyahu of Spreading ‘Baseless Lies’ After U.N. Speech**\
 `The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. The mayor has become a political foil for the prime minister.`\
 https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
