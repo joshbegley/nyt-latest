@@ -1,3 +1,7 @@
+**Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
+`Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
+https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
+
 **Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
 `“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
 https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html

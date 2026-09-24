@@ -1,3 +1,7 @@
+**Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
+`Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
+https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
+
 **Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
 `“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
 https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 **Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
 `What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
-
-**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
-`The Iran-backed militia in Yemen fired six ballistic missiles at Saudi cities, a military spokesman said. It was a major cross-border attack.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
