@@ -30,9 +30,9 @@ https://www.nytimes.com/2026/09/23/world/asia/ukraine-north-south-korea-pow-zele
 `Federal immigration agents in Evanston, Ill., mistakenly detained a U.S. citizen, who was later released after he identified himself.`\
 https://www.nytimes.com/video/us/100000011171285/evanston-ice-incident-citizen.html
 
-**Australia Says OpenAI ‘Infiltrated’ Public Health Care Portal**\
+**Australia Investigates OpenAI Hack on Public Health Care Site**\
 `Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
-https://www.nytimes.com/2026/09/23/world/asia/australia-openai-agent-infiltration.html
+https://www.nytimes.com/2026/09/23/world/asia/australia-investigates-openai-hack-on-public-health-care-site.html
 
 **OpenAI’s A.I. Tried Breaching Four Other Targets, With No Prompting**\
 `In each incident, the technology appeared to be conducting mundane data collection and resorted to hacking techniques to get it, researchers said.`\
