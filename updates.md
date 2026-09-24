@@ -1,3 +1,7 @@
+**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
+`The Iran-backed militia in Yemen fired six ballistic missiles at Saudi cities, a military spokesman said. It was a major cross-border attack.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
+
 **Trump and Xi Are Expected to Discuss Accusations of Copying American A.I. Tech**\
 `American artificial intelligence companies have accused their Chinese counterparts of using a technique called distillation to enhance their own systems.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
