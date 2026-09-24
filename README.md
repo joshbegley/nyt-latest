@@ -1,3 +1,7 @@
+**How the Supreme Court Saved the Midterms**\
+`President Trump has made multiple attempts to restrict voting access ahead of the midterms, but the courts keep getting in his way. The Law experts Sarah Isgur and Rick Pildes talk about why the president’s attempts have failed.`\
+https://www.nytimes.com/video/opinion/100000011159531/how-the-supreme-court-saved-the-midterms.html
+
 **Man Wounded in Trump Assassination Attempt Dies 2 Years Later**\
 `James Copenhaver, 76, was struck in the arm and abdomen in the shooting in Butler, Pa.`\
 https://www.nytimes.com/2026/09/24/us/trump-butler-assassination-attempt-victim-dies.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/us/politics/trump-xi-state-dinner-menu.html
 **Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
 `In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
 https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
-
-**El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
-`Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
-https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
