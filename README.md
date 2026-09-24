@@ -1,3 +1,7 @@
+**Collins Leads Jackson in Maine Senate Race: 7 Takeaways From a New Poll**\
+`Voters in the battleground state favored Senator Susan Collins, the Republican incumbent, over Troy Jackson, a Democrat, in several important areas, according to a New York Times/Siena poll.`\
+https://www.nytimes.com/2026/09/24/us/politics/maine-senate-poll-collins-jackson-midterms.html
+
 **Restaurant Theft**\
 `Plus, an artsy side hustle.`\
 https://www.nytimes.com/2026/09/24/briefing/restaurant-theft.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/insider/nyt-journalists-artificial-intelligen
 **Trump the Destroyer**\
 `The president has an edifice complex.`\
 https://www.nytimes.com/2026/09/24/opinion/trump-arch-macklemore-israel.html
-
-**Why Do the Trade Wars Keep Coming for Your Whiskey?**\
-`As the U.S. prepares to ban imports of Canadian spirits, it’s worth examining the reasons a relatively minor commodity looms so large.`\
-https://www.nytimes.com/2026/09/24/dining/drinks/trump-canada-tariffs-trade-wars-whiskey.html
 
