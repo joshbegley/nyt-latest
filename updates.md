@@ -1,3 +1,15 @@
+**A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
+`A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
+https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
+
+**Police in Poland Arrest Ukrainian Citizen Over Fatal Stabbing**\
+`The police arrested a Ukrainian citizen on suspicion of carrying out the knife attack, which came as the two countries are trying to steady relations soured by old antagonisms.`\
+https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attacker.html
+
+**U.N. Live Updates: Abbas and Netanyahu Offer Dueling Speeches**\
+`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
 **Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
 `What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html

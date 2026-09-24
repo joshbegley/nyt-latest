@@ -1,3 +1,11 @@
+**A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
+`A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
+https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
+
+**Police in Poland Arrest Ukrainian Citizen Over Fatal Stabbing**\
+`The police arrested a Ukrainian citizen on suspicion of carrying out the knife attack, which came as the two countries are trying to steady relations soured by old antagonisms.`\
+https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attacker.html
+
 **Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
 `What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
@@ -34,8 +42,8 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas and Netanyahu to Deliver Dueling Speeches**\
-`Prime Minister Benjamin Netanyahu of Israel and the Palestinian leader, Mahmoud Abbas, are set to deliver separate addresses to the United Nations General Assembly amid criticism of Israel’s conduct in Gaza.`\
+**U.N. Live Updates: Abbas and Netanyahu Offer Dueling Speeches**\
+`The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restore
 **Devery Jacobs on Her Favorite TV Shows**\
 `The actor Devery Jacobs is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161527/devery-jacobs-on-her-favorite-tv-shows.html
-
-**36 Hours in New Orleans: Things to Do and See**\
-`The Big Easy has never been more appealing, thanks to an increasingly global food scene, a sparkling new riverfront park and plenty of that good time spirit.`\
-https://www.nytimes.com/interactive/2026/09/24/travel/things-to-do-new-orleans.html
-
-**Joel Kim Booster on His Favorite TV Shows**\
-`The actor Joel Kim Booster is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161520/joel-kim-booster-on-his-favorite-tv-shows.html
 
