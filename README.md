@@ -1,3 +1,7 @@
+**Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
+`Early results in legislative elections showed the lowest voter turnout in nearly two decades. Economic frustrations have grown as Morocco is set to co-host the 2030 soccer World Cup.`\
+https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.html
+
 **Son of Israel’s Ambassador Injured In West Bank Attack**\
 `Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
 https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/polls/100000011158869/what-our-michigan-and-maine-
 **Jeff Probst Made ‘Survivor’ His Life’s Work. He’s Not Done Yet.**\
 `As the show’s 51st season begins, the host and showrunner discussed its future, sharing contestants with other shows and prediction market spoilers.`\
 https://www.nytimes.com/2026/09/24/arts/television/jeff-probst-survivor-popcast-interview.html
-
-**How Worried Should We Be About the Midterm Elections?**\
-`And how we learn to trust elections again.`\
-https://www.nytimes.com/2026/09/24/opinion/interesting-times-sarah-isgur-rick-pildes.html
 

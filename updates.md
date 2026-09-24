@@ -1,3 +1,7 @@
+**Son of Israel’s Ambassador Injured In West Bank Attack**\
+`Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
+https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
+
 **Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
 `The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
 https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html

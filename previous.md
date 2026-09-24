@@ -1,3 +1,7 @@
+**Son of Israel’s Ambassador Injured In West Bank Attack**\
+`Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
+https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
+
 **Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
 `The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
 https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/arts/television/jeff-probst-survivor-popcast-
 **How Worried Should We Be About the Midterm Elections?**\
 `And how we learn to trust elections again.`\
 https://www.nytimes.com/2026/09/24/opinion/interesting-times-sarah-isgur-rick-pildes.html
-
-**‘The Stunt Driver’ Review: A Leap to Glory**\
-`A mild charmer of a comedy remembers a Canadian daredevil’s dream of jumping over the St. Lawrence River in a rocket-powered car.`\
-https://www.nytimes.com/2026/09/24/movies/the-stunt-driver-review.html
 
