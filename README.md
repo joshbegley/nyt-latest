@@ -1,3 +1,7 @@
+**Read the Court Order Blocking Trump’s White House Ban on CNN, MS NOW and Politico**\
+`A federal judge has issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets.`\
+https://www.nytimes.com/interactive/2026/09/24/us/politics/cnn-msnow-politico-trump-restraining-order.html
+
 **The U.S. and China Are Far Apart on A.I. Safety**\
 `Beijing and Washington may use the same language of A.I. safety, but they are trying to protect very different things.`\
 https://www.nytimes.com/2026/09/24/opinion/us-china-summit-ai.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
 **Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
 `The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
 https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
-
-**Zelensky Warns That Russia’s War in Ukraine Is Spreading**\
-`During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
-https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
