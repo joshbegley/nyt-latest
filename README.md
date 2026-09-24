@@ -1,3 +1,7 @@
+**Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
+`Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
+https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
+
 **About 100 Are Arrested in Protests Against Netanyahu**\
 `Large groups gathered in Midtown Manhattan to demonstrate as the Israeli prime minister spoke to the General Assembly.`\
 https://www.nytimes.com/2026/09/24/nyregion/un-protest-netanyahu-israel-gaza.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/world/americas/haiti-roger-stone-migration.ht
 **Texas Court Rejects Innocence Finding for Death Row Inmate Melissa Lucio**\
 `Melissa Lucio’s execution was halted in 2022, but Thursday’s ruling dealt a setback in her effort to prove that she did not kill her 2-year-old daughter.`\
 https://www.nytimes.com/2026/09/24/us/texas-appeals-court-melissa-lucio.html
-
-**Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
-`“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
-https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
