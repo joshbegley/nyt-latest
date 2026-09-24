@@ -1,3 +1,7 @@
+**Carney Says He Would Consider a Second Term, Depending on State of U.S.-Canada Relations**\
+`As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
+https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
+
 **Stream These 5 Movies and Shows Before They Leave Netflix in October**\
 `Tom Hanks, Tim Robinson and Paul Schrader are among some of the big names on titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html

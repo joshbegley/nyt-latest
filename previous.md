@@ -146,7 +146,7 @@ https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-t
 `It’s a question that has divided the internet.`\
 https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
 
-**Carney’s Big Challenge: Time**\
+**Carney Says He Would Consider a Second Term, Depending on State of U.S.-Canada Relations**\
 `As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
 https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
 
