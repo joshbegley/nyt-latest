@@ -1,3 +1,7 @@
+**The U.S. and China Are Far Apart on A.I. Safety**\
+`Beijing and Washington may use the same language of A.I. safety, but they are trying to protect very different things.`\
+https://www.nytimes.com/2026/09/24/opinion/us-china-summit-ai.html
+
 **Inside France’s Push to Stop Migrant Boats to the U.K.**\
 `Thousands of migrants cross the sea between France and England each year, though numbers have fallen amid increased policing.`\
 https://www.nytimes.com/2026/09/24/world/europe/france-britain-migrant-boats-police.html
