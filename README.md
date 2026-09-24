@@ -1,3 +1,7 @@
+**Massachusetts Is Investigating Gambling Companies’ Use of A.I.**\
+`In response to a New York Times report on DraftKings, the state’s gaming commission said it would evaluate how each company deployed the technology.`\
+https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling.html
+
 **Netanyahu, Addressing U.N., Denounces Israel’s Critics as ‘Moral Cowards’**\
 `Prime Minister Benjamin Netanyahu also reserved some of his ire for the mayor of the city hosting him, Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-israel-un.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.htm
 **Hit Songs and Vibe Shifts in America**\
 `Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
 https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
-
-**Starbucks to Close 250 Stores in the US**\
-`The company said the affected cafes did not meet financial or customer service expectations.`\
-https://www.nytimes.com/2026/09/24/business/starbucks-store-closures.html
 
