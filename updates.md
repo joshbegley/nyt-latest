@@ -1,3 +1,11 @@
+**Sony, A24 and the New York Times Company Circle Letterboxd**\
+`A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
+https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
+
+**Macklemore Announces ‘Free Palestine’ Concerts After Exiting Ed Sheeran Tour**\
+`The rapper, who was pulled from Ed Sheeran’s tour last week over his support for Palestinians, announced plans for three European dates.`\
+https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.html
+
 **Hit Songs and Vibe Shifts in America**\
 `Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
 https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html

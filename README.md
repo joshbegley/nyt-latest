@@ -1,3 +1,11 @@
+**Trump Struggles to Find Leverage with Xi Over Chinese Exports**\
+`The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
+https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
+
+**Man Killed in Michigan Car Crash Was Not the Target of ICE Search**\
+`A Guatemalan immigrant who died after fleeing an attempted arrest was driving a car registered to the suspect who was sought by agents, officials said.`\
+https://www.nytimes.com/2026/09/24/us/michigan-car-crash-ice-immigration-grand-rapids.html
+
 **Sony, A24 and the New York Times Company Circle Letterboxd**\
 `A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
 https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
@@ -50,8 +58,8 @@ https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
 `Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
 https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
 
-**Live Updates: CNN and MS NOW Return to White House After Fight Over Access**\
-`A federal court ordered the Trump administration to reverse its ban on CNN, Politico and MS NOW, but reporters were initially denied entry to the White House grounds on Thursday.`\
+**Live Updates: CNN, MS NOW and Politico Return to White House After Fight Over Access**\
+`A federal court ordered the Trump administration to reverse its ban on the outlets, but reporters were initially denied entry to the White House grounds on Thursday.`\
 https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
 
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
@@ -105,10 +113,6 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 **Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
 `What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
-
-**White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
-`CNN and MS NOW said their correspondents have been allowed back onto the White House grounds after they were denied access. A federal court ordered President Trump to reverse his ban on the three news outlets.`\
-https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
 
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
 `The Iran-backed militia in Yemen fired six ballistic missiles at cities in Saudi Arabia, a military spokesman said. There was no immediate comment from the Houthis.`\
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/09/24/podcasts/the-headlines/trump-ban-press-ai-hea
 `With artificial intelligence on the agenda for talks between President Trump and Xi Jinping of China, our reporter looks at lessons from the nuclear arms race.`\
 https://www.nytimes.com/2026/09/24/podcasts/the-daily/what-safeguarding-nukes-can-teach-us-about-safeguarding-ai.html
 
-**NYT Connections Answers for September 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
-https://www.nytimes.com/2026/09/24/crosswords/connections-companion-1202.html
-
-**NYT Strands Hints for September 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026`\
-https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
+**Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
+`President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
+https://www.nytimes.com/live/2026/09/24/us/trump-xi-summit-meeting-us-china
 
