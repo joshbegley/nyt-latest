@@ -1,3 +1,7 @@
+**Kylian Mbappe, One of the World’s Greatest Soccer Players, Wants to Talk**\
+`Kylian Mbappe sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
+https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
+
 **Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\
 `The British food writer — who brought the world the most creative possible pronunciation of “microwave” — has joined the show. By all accounts, she’s on fire. (In a good way.)`\
 https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bake-off-uk.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/interactive/2026/09/24/opinion/focus-group-texas-voters-
 `This week’s properties are in Midtown East, the Upper East Side and Bushwick.`\
 https://www.nytimes.com/2026/09/24/realestate/housing-market-nyc.html
 
-**Europe warns of Russia’s hybrid attacks but struggles to counter them**\
+**Europe Warns of Russia’s Hybrid Attacks but Struggles to Counter Them**\
 `If President Vladimir V. Putin was hoping to get Europeans’ attention, he’s succeeded with a series of close-call incursions. The question now is what they will do about it.`\
 https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-war.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/movies/ha-chan-shake-your-booty-review-ballro
 **Jean Paul Gaultier’s Duran Lantink Shares His Tastes and Inspirations**\
 `Duran Lantink, the Jean Paul Gaultier creative director, talks about his tastes and process.`\
 https://www.nytimes.com/2026/09/24/t-magazine/duran-lantink-jean-paul-gaultier.html
-
-**Keep the Spirit of Summer Alive With Floral Shoes and Bags**\
-`Adorned with sculptural blooms, fall’s freshest accessories are anything but garden-variety.`\
-https://www.nytimes.com/2026/09/24/t-magazine/floral-shoes-bags.html
 
