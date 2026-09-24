@@ -1,3 +1,7 @@
+**U.S. Intercedes for Elon Musk’s X Over European Fine**\
+`Federal officials asked to intervene in a case that accused the social media platform of allowing deceptive behavior on its site and resulted in a $140 million penalty.`\
+https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html
+
 **Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
 `A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
 https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
