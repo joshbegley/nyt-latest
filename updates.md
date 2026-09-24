@@ -1,3 +1,23 @@
+**Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
+`Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
+https://www.nytimes.com/video/world/europe/100000011172190/protests-flare-in-spain-after-eviction-of-87-year-old-woman.html
+
+**5 Looks to Understand a Fashion Show**\
+`Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
+https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
+
+**5 Takeaways From a New Poll on the New Hampshire Senate Race**\
+`Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
+https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
+
+**More Than 167,000 Pounds of Meat Are Recalled Across U.S.**\
+`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina used a false inspection mark.`\
+https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
+
+**Live Updates: CNN and MS NOW Return to White House After Fight Over Access**\
+`A federal court ordered the Trump administration to reverse its ban on CNN, Politico and MS NOW, but reporters were initially denied entry to the White House grounds on Thursday.`\
+https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house
+
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html

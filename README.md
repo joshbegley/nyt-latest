@@ -1,6 +1,14 @@
+**Trump Administration Scrambles to Stop Third-Country Deportations After Court Ruling**\
+`The decision adds a new burden for the government as it attempts to rapidly remove migrants from the United States without interference from their lawyers.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.html
+
+**Weeks Before the Election, Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
+`Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
+https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
+
 **Protests Flare in Spain After Eviction of 87-Year-Old Woman**\
 `Thousands of people protested in Madrid on Wednesday night, after an 87-year-old woman was forcefully evicted from her apartment. The case reveals the anger over Spain’s housing problem, which has reached the highest levels of government.`\
-https://www.nytimes.com/video/world/europe/100000011172190/protests-flare-in-spain-after-eviction-of-87-year-old-woman.html
+https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-protests.html
 
 **5 Looks to Understand a Fashion Show**\
 `Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
@@ -10,8 +18,8 @@ https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
 `Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
 https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
 
-**More Than 167,000 Pounds of Meat Are Recalled Across U.S.**\
-`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina used a false inspection mark.`\
+**More Than 167,000 Pounds of Meat With False Inspection Mark Are Recalled**\
+`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
 https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
@@ -83,7 +91,7 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
 
 **White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
-`A federal court ordered President Trump to reverse his ban on the three news outlets, but reporters were denied access on Thursday. Their lawyers asked the judge to intervene; he ordered the administration to respond by 12:30 p.m.`\
+`CNN and MS NOW said their correspondents have been allowed back onto the White House grounds after they were denied access. A federal court ordered President Trump to reverse his ban on the three news outlets. .`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
 
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bak
 **The Christian ‘Scam’ Fronted by Tim Tebow**\
 `Pablo and Mother Jones look into Life Surge and its celebrity face.`\
 https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
-
-**What Hegseth Is Hiding**\
-`Soldiers want to tell their stories, and we need to hear them.`\
-https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
-
-**Collins Leads in Maine in Our New Poll. Is That an Outlier or an Omen?**\
-`There’s nothing more uncomfortable for a pollster than a result that stands out from the pack, but it doesn’t mean it should be dismissed.`\
-https://www.nytimes.com/2026/09/24/upshot/maine-poll-times-siena.html
 
