@@ -1,3 +1,7 @@
+**For His Ballroom, Trump Has Pointed to the Great Hall of the People in Beijing**\
+`President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
+
 **Republican Sheriff Illegally Seized California Ballots, Court Rules**\
 `The California Supreme Court ordered Sheriff Chad Bianco of Riverside County to return ballots to election officials after he confiscated them for an investigation.`\
 https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized-ballots.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-globa
 **U.N. Live Updates: Abbas Criticizes Israeli Attacks and Failure of Gaza Peace Plan**\
 `The Palestinian leader, Mahmoud Abbas, condemned settler violence in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
-
-**San Francisco Is Making News on Many Fronts. It’s Also Ripe for Mocking.**\
-`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds this is a good time for a little satire.`\
-https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
