@@ -1,3 +1,7 @@
+**OpenAI’s A.I. Tried Breaching Four Other Targets, With No Prompting**\
+`In each incident, the technology appeared to be conducting mundane data collection and resorted to hacking techniques to get it, researchers said.`\
+https://www.nytimes.com/2026/09/23/technology/openai-ai-breach-australia.html
+
 **Jeff Probst Reveals the Secrets Behind 26 Years of ‘Survivor’**\
 `Watch the full Popcast conversation with Jeff Probst here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011166295/jeff-probst-reveals-the-secrets-behind-26-years-of-survivor.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/climate/100000011171022/energy-secretary-defends-i
 **Iced Einspänner**\
 `Einspänner, in German, is either a one-horse carriage or a hot espresso topped with cool whipped cream. It’s sweet, bitter and a little savory all at once, like a tiramisù in beverage form.`\
 https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
-
-**Cottage Cheese Pancakes**\
-`When done properly, these protein-packed cottage cheese pancakes are worth the hype.`\
-https://www.nytimes.com/video/dining/100000011170482/cottage-cheese-pancakes.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
