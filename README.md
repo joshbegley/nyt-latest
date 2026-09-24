@@ -1,3 +1,7 @@
+**Professor Sues New School, Claiming Tenure Has Been Dismantled**\
+`The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
+https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html
+
 **Florida Charges 20 People with Voter Fraud**\
 `Most cases involved noncitizens who registered to vote, attesting that they were U.S. citizens, state officials said.`\
 https://www.nytimes.com/2026/09/24/us/florida-illegal-voting-charges-noncitizens-election.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-b
 **Republican Sheriff Illegally Seized California Ballots, Court Rules**\
 `The California Supreme Court ordered Sheriff Chad Bianco of Riverside County to return ballots to election officials after he confiscated them for an investigation.`\
 https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized-ballots.html
-
-**China to Send Pandas to Zoo Atlanta, Xi Says**\
-`Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
-https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
 
