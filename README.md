@@ -1,6 +1,10 @@
-**Families Urge Trump to Press Xi to Free Detained Americans**\
+**The Wild West of A.I. Needs to End. Here’s How.**\
+`It’s time to give the public what it wants: A.I. regulation.`\
+https://www.nytimes.com/video/opinion/100000011166035/the-wild-west-of-ai-needs-to-end-heres-how.html
+
+**Families Urge Trump to Press Xi to Free Americans Detained in China**\
 `The Americans being held in China are U Min Zin, a scholar who studied Myanmar, and Youlin Chen, a seismologist who researched North Korean nuclear tests.`\
-https://www.nytimes.com/2026/09/24/world/asia/trump-xi-detained-americans.html
+https://www.nytimes.com/2026/09/24/world/asia/china-xi-trump-detained-americans.html
 
 **Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
 `“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/world/americas/trump-venezuela-delcy-rodrigue
 **Trump’s Board of Peace Lays Out 6-Month Plan for Gaza That Faces Roadblocks**\
 `The board briefed donors on the sidelines of the U.N. General Assembly, where some world leaders have criticized Israel’s continued attacks and restrictions on humanitarian access in the Palestinian enclave.`\
 https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
-
-**NBC, CBS and More TV Networks Didn’t Film Xi’s Arrival Amid Trump’s Press Ban**\
-`The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House.`\
-https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
 
