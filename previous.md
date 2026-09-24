@@ -1,3 +1,15 @@
+**Inside France’s Push to Stop Migrant Boats to the U.K.**\
+`Thousands of migrants cross the sea between France and England each year, though numbers have fallen amid increased policing.`\
+https://www.nytimes.com/2026/09/24/world/europe/france-britain-migrant-boats-police.html
+
+**Quote of the Day: A Missile of a Memoir From Diana’s Brother**\
+`Quotation of the Day for Thursday, September 24, 2026.`\
+https://www.nytimes.com/2026/09/24/pageoneplus/quote-of-the-day-a-missile-of-a-memoir-from-dianas-brother.html
+
+**From a Nepal in Pain, a Young Leader Makes a Case for Climate Reparations**\
+`Balendra Shah, 36, comes to the U.N. as a sun-glassed symbol of Gen Z political power. But concerns about his style are growing at home after devastating floods left thousands dead or missing.`\
+https://www.nytimes.com/2026/09/24/world/asia/un-general-assembly-nepal-balen-shah.html
+
 **On This Day | Sept. 24**\
 `In 1996, the United States and other nations signed the Comprehensive Nuclear-Test-Ban Treaty, which sought to ban all nuclear test explosions.`\
 https://www.nytimes.com/2026/09/24/learning/on-this-day-sept-24.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-d
 **Trump Greets Xi for State Visit Amid Tensions**\
 `The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
 https://www.nytimes.com/live/2026/09/23/us/trump-xi
-
-**Decoding Trump-Xi**\
-`The Chinese leader seems to have the upper hand heading into a state visit to Washington and talks on trade, A.I. and Taiwan.`\
-https://www.nytimes.com/2026/09/23/world/trump-xi-ai-meeting-iran-un.html
-
-**Judge Holds Off on Immediate Ruling on White House’s Media Ban**\
-`Judge Timothy J. Kelly heard arguments about President Trump’s recent decision to bar CNN, MS NOW and Politico from the White House grounds. He said he would issue a decision about it “as soon as possible.”`\
-https://www.nytimes.com/2026/09/23/business/media/cnn-ms-now-politico-white-house-ban-ruling.html
-
-**Trump and Xi Face the A.I. Race**\
-`Can the U.S. and China contain their A.I. race? Our White House and national security correspondent, David E. Sanger, explains how the problems of regulating A.I. echo the nuclear arms race of the Cold War, but the solutions seem different.`\
-https://www.nytimes.com/video/us/100000011159994/trump-and-xi-face-the-ai-race.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

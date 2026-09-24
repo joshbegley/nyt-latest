@@ -1,3 +1,15 @@
+**Inside France’s Push to Stop Migrant Boats to the U.K.**\
+`Thousands of migrants cross the sea between France and England each year, though numbers have fallen amid increased policing.`\
+https://www.nytimes.com/2026/09/24/world/europe/france-britain-migrant-boats-police.html
+
+**Quote of the Day: A Missile of a Memoir From Diana’s Brother**\
+`Quotation of the Day for Thursday, September 24, 2026.`\
+https://www.nytimes.com/2026/09/24/pageoneplus/quote-of-the-day-a-missile-of-a-memoir-from-dianas-brother.html
+
+**From a Nepal in Pain, a Young Leader Makes a Case for Climate Reparations**\
+`Balendra Shah, 36, comes to the U.N. as a sun-glassed symbol of Gen Z political power. But concerns about his style are growing at home after devastating floods left thousands dead or missing.`\
+https://www.nytimes.com/2026/09/24/world/asia/un-general-assembly-nepal-balen-shah.html
+
 **On This Day | Sept. 24**\
 `In 1996, the United States and other nations signed the Comprehensive Nuclear-Test-Ban Treaty, which sought to ban all nuclear test explosions.`\
 https://www.nytimes.com/2026/09/24/learning/on-this-day-sept-24.html
