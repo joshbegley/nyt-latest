@@ -1,3 +1,7 @@
+**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Officials Say**\
+`The Iran-backed militia in Yemen fired six ballistic missiles at cities deep in Saudi Arabia, the authorities said, in what appeared to be a sharp escalation in fighting between the two sides.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
+
 **Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
 `Early results in legislative elections showed the lowest voter turnout in nearly two decades. Economic frustrations have grown as Morocco is set to co-host the 2030 soccer World Cup.`\
 https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/travel/glp1-drugs-travel.html
 **What Our Michigan and Maine Polls Reveal**\
 `Our polling reporter Ruth Igielnik walks through the latest Times/Siena Poll findings on two critical states in the Democrats’ push to regain control of the Senate: Michigan and Maine.`\
 https://www.nytimes.com/video/polls/100000011158869/what-our-michigan-and-maine-polls-reveal.html
-
-**Jeff Probst Made ‘Survivor’ His Life’s Work. He’s Not Done Yet.**\
-`As the show’s 51st season begins, the host and showrunner discussed its future, sharing contestants with other shows and prediction market spoilers.`\
-https://www.nytimes.com/2026/09/24/arts/television/jeff-probst-survivor-popcast-interview.html
 
