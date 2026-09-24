@@ -1,3 +1,11 @@
+**Ex-F.B.I. Agents Crucial to ‘Grand Conspiracy’ Case Suggest Testimony Won’t Help**\
+`Lawyers for the agents said that their clients would testify about “a properly predicated allegation that then-citizen Trump had unlawfully retained hundreds of highly classified documents.”`\
+https://www.nytimes.com/2026/09/24/us/politics/ex-fbi-agents-grand-conspiracy-case.html
+
+**Kitty Lunn, Who Expanded the Boundaries of Dance, Dies at 76**\
+`After breaking her back in a fall, she helped start Infinity Dance Theater, and found that her wheelchair was a tool, not a hindrance.`\
+https://www.nytimes.com/2026/09/24/us/kitty-lunn-dead.html
+
 **Republicans in Red-State Races Are Starting to Break From Trump**\
 `Our national political correspondent, Shane Goldmacher, explains how a growing number of Republican candidates in key battleground states are making calculated decisions to distance themselves from President Trump and his policies.`\
 https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-state-races-are-starting-to-break-from-trump.html
