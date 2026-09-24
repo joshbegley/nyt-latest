@@ -1,3 +1,11 @@
+**Taylor Swift Named Her New Song ‘Patient Zero.’ Where Does the Term Originate?**\
+`“Patient zero” has long been associated with virus outbreaks and fictional health investigations. It was coined in the 1980s, by accident.`\
+https://www.nytimes.com/2026/09/24/arts/music/taylor-swift-patient-zero-origin.html
+
+**As Trump Hosts State Dinner Honoring Xi, See the Menu**\
+`The White House said that the three-course menu, including sea bass and bok choy, featured American ingredients with a “subtle Chinese influence.”`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-state-dinner-menu.html
+
 **Iranian American Group Files Suit Alleging Iran War Is Unconstitutional**\
 `In a federal lawsuit filed on Thursday, an advocacy group asked a federal judge to declare that the seven-month war in Iran was never declared or authorized by Congress.`\
 https://www.nytimes.com/2026/09/24/us/politics/iran-war-lawsuit-iranian-americans.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntl
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
 `The Iran-backed militia in Yemen fired six ballistic missiles at Saudi cities, a military spokesman said. It was a major cross-border attack.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
-
-**Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
-`Early results in legislative elections showed the lowest voter turnout in nearly two decades. Economic frustrations have grown as Morocco is set to co-host the 2030 soccer World Cup.`\
-https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.html
-
-**Son of Israel’s Ambassador Injured In West Bank Attack**\
-`Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
-https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
