@@ -1,3 +1,11 @@
+**Collins Leads Jackson in Maine Senate Race: 7 Takeaways From a New Poll**\
+`Voters in the battleground state favored Senator Susan Collins, the Republican incumbent, over Troy Jackson, a Democrat, in several important areas, according to a New York Times/Siena poll.`\
+https://www.nytimes.com/2026/09/24/us/politics/maine-senate-poll-collins-jackson-midterms.html
+
+**White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
+`A federal court ordered President Trump to reverse his ban on the three news outlets, but reporters were denied access on Thursday. Their lawyers asked the judge to intervene; he ordered the administration to respond by 12:30 p.m.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
+
 **Restaurant Theft**\
 `Plus, an artsy side hustle.`\
 https://www.nytimes.com/2026/09/24/briefing/restaurant-theft.html
