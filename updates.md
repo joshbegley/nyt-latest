@@ -1,3 +1,7 @@
+**Trump Hosts China’s Leader for a State Visit**\
+`Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
+
 **Man Who Called Himself ‘King of New York’ Convicted in Abductions**\
 `Abu Chowdhury, a Queens supermarket owner, believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
 https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
