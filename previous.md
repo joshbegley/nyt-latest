@@ -1,3 +1,7 @@
+**Florida Charges 20 People with Voter Fraud**\
+`Most cases involved noncitizens who registered to vote, attesting that they were U.S. citizens, state officials said.`\
+https://www.nytimes.com/2026/09/24/us/florida-illegal-voting-charges-noncitizens-election.html
+
 **Ex-F.B.I. Agents Crucial to ‘Grand Conspiracy’ Case Suggest Testimony Won’t Help**\
 `Lawyers for the agents said that their clients would testify about “a properly predicated allegation that then-citizen Trump had unlawfully retained hundreds of highly classified documents.”`\
 https://www.nytimes.com/2026/09/24/us/politics/ex-fbi-agents-grand-conspiracy-case.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized
 **China to Send Pandas to Zoo Atlanta, Xi Says**\
 `Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
 https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
-
-**Sway Dasafo, Rapper Who Opened New Doors for Global Artists, Dies at 44**\
-`He won widespread acclaim as an unsigned artist, then used his fame to help other musicians in Britain and in Ghana break into the industry.`\
-https://www.nytimes.com/2026/09/24/arts/music/derek-safo-sway-dead.html
 
