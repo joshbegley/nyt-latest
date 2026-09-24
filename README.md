@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/24/pageoneplus/corrections-sept-24-2026.html
 `The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
 
-**The Independent 20th Century Grapples With Heritage**\
-`The art fair takes up residence at the Breuer building on its 60 birthday, with works by both blue-chip artists and lesser-known names.`\
-https://www.nytimes.com/2026/09/24/arts/design/the-independent-20th-century-grapples-with-heritage.html
-

@@ -1,3 +1,11 @@
+**Trump’s Retribution Campaign May Face Supreme Court Test**\
+`The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
+https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
+
+**Mortgage Rates Hit 7% as Iran War Crushes a Weak Housing Market**\
+`The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
+https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
+
 **Republicans Accelerate Their Break With Trump Ahead of Midterms**\
 `The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
