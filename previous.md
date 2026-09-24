@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
 https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
 
-**Kylian Mbappe, One of the World’s Greatest Soccer Players, Wants to Talk**\
-`Kylian Mbappe sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
+**Kylian Mbappé, One of the World’s Greatest Soccer Players, Wants to Talk**\
+`Kylian Mbappé sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
 https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
 
 **Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\

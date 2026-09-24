@@ -1,3 +1,7 @@
+**Kylian Mbappé, One of the World’s Greatest Soccer Players, Wants to Talk**\
+`Kylian Mbappé sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
+https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
+
 **From 15,000 to 185 to Zero: Trump’s Claims of Illegal Voting in Nevada Fizzle**\
 `It was the Trump administration’s latest stumble in its effort to find proof of widespread noncitizen voting, despite decades of evidence that it is extremely rare.`\
 https://www.nytimes.com/2026/09/24/us/politics/nevada-voters-homeland-security-trump.html
