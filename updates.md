@@ -1,3 +1,7 @@
+**Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
+`What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
+https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
+
 **White House Still Bars CNN, MS NOW and Politico Despite Court Ruling**\
 `A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html

@@ -1,3 +1,7 @@
+**Bernadine Bluntly’s Brand Was Tradwife. Then She Got Divorced.**\
+`What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
+https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
+
 **White House Still Bars CNN, MS NOW and Politico Despite Court Ruling**\
 `A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/24/travel/things-to-do-new-orleans.h
 **Joel Kim Booster on His Favorite TV Shows**\
 `The actor Joel Kim Booster is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161520/joel-kim-booster-on-his-favorite-tv-shows.html
-
-**Have GLP-1 Drugs Changed How You Travel? Tell Us About It.**\
-`The New York Times wants to know how a GLP-1 medication may have affected how readers plan vacations.`\
-https://www.nytimes.com/2026/09/24/travel/glp1-drugs-travel.html
 
