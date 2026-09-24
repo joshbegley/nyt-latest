@@ -1,3 +1,7 @@
+**Who Is Ahead in Oklahoma's 5th Congressional District?**\
+`Track the latest polls in Oklahoma's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
+
 **In a Race With China, German Robots Are Outnumbered 14 to 1**\
 `A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
 https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/us/politics/south-asian-indian-american-racis
 **‘Charlie Harper’ Review: A Nonlinear Romantic Drama**\
 `Emilia Jones and Nick Robinson play lovers recounting the joys and sorrows of their relationship in this melancholic movie.`\
 https://www.nytimes.com/2026/09/24/movies/charlie-harper-review.html
-
-**A Corruption Scandal Is Reshaping Brazil’s Presidential Election**\
-`Explosive allegations of corruption are embroiling a Supreme Court justice, Alexandre de Moraes, and reshaping the presidential election.`\
-https://www.nytimes.com/2026/09/24/world/americas/brazil-supreme-court-justice-moraes-vorcaro-trump.html
 
