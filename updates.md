@@ -1,3 +1,7 @@
+**Professor Sues New School, Claiming Tenure Has Been Dismantled**\
+`The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
+https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html
+
 **Florida Charges 20 People with Voter Fraud**\
 `Most cases involved noncitizens who registered to vote, attesting that they were U.S. citizens, state officials said.`\
 https://www.nytimes.com/2026/09/24/us/florida-illegal-voting-charges-noncitizens-election.html
