@@ -1,3 +1,7 @@
+**Jeff Probst Reveals the Secrets Behind 26 Years of ‘Survivor’**\
+`Watch the full Popcast conversation with Jeff Probst here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011166295/jeff-probst-reveals-the-secrets-behind-26-years-of-survivor.html
+
 **NYT Crossword Answers for Sept. 24, 2026**\
 `Rack your brain: Jeff Stillman’s puzzle is playing games with us.`\
 https://www.nytimes.com/2026/09/23/crosswords/daily-puzzle-2026-09-24.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011170828/iced-einspanner.html
 **Cottage Cheese Pancakes**\
 `When done properly, these protein-packed cottage cheese pancakes are worth the hype.`\
 https://www.nytimes.com/video/dining/100000011170482/cottage-cheese-pancakes.html
-
-**Big Jam Danish**\
-`With only six ingredients, this recipe promises a delicate, show-stopping centerpiece: an oversized jam and cheese Danish to slice, serve and enjoy with your guests.`\
-https://www.nytimes.com/video/dining/100000011168755/big-jam-danish.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\

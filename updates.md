@@ -1,3 +1,7 @@
+**Jeff Probst Reveals the Secrets Behind 26 Years of ‘Survivor’**\
+`Watch the full Popcast conversation with Jeff Probst here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011166295/jeff-probst-reveals-the-secrets-behind-26-years-of-survivor.html
+
 **NYT Crossword Answers for Sept. 24, 2026**\
 `Rack your brain: Jeff Stillman’s puzzle is playing games with us.`\
 https://www.nytimes.com/2026/09/23/crosswords/daily-puzzle-2026-09-24.html
