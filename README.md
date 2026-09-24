@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/23/nyregion/data-center-pollution-new-jersey.htm
 `The G.O.P. is on defense in the so-called “blue wall” states and beyond as gas prices remain high.`\
 https://www.nytimes.com/2026/09/23/us/politics/midwest-republican-candidates-trump.html
 
-**Taylor Tomlinson is Done Feeling Shame About Sex**\
+**Taylor Tomlinson Is Done Feeling Shame About Sex**\
 `When the comedian Taylor Tomlinson began exploring her attraction to women, she first had to overcome the judgment and guilt she’d internalized growing up in a conservative family. On the “Modern Love” podcast, Tomlinson tells the host, Anna Martin, how it felt to finally break free of shame.`\
 https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-women.html
 
