@@ -1,3 +1,15 @@
+**Trump and Xi Are Expected to Discuss Accusations of Copying American A.I. Tech**\
+`American artificial intelligence companies have accused their Chinese counterparts of using a technique called distillation to enhance their own systems.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
+
+**A Veggie Dining Dispatch From Book Tour**\
+`A window into what I’m eating on the road — and what I’m cooking at home in my few moments of repose.`\
+https://www.nytimes.com/2026/09/24/dining/a-veggie-dining-dispatch-from-book-tour.html
+
+**Ex-Tradwives Are Rejecting the Movement**\
+`What happens when tradwife influencers become unhappy with the movement? Our writer at large Amanda Hess reports on life-after-tradwife content creation.`\
+https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-the-movement.html
+
 **Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
 `It’s a question that has divided the internet.`\
 https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
 **In a Race With China, German Robots Are Outnumbered 14 to 1**\
 `A decade after the sale of Germany’s Kuka, Europe is seeking to shift into a higher gear to unlock the potential in robotics and artificial intelligence.`\
 https://www.nytimes.com/2026/09/24/business/robots-china-germany-factories.html
-
-**Investors Are Betting On Devices That Connect the Brain to Computers**\
-`By backing Precision Neuroscience, the billionaire Bill Ackman joins Elon Musk and Jeff Bezos in diving into an emerging industry.`\
-https://www.nytimes.com/2026/09/24/business/dealbook/precision-neuroscience-brain-bill-ackman.html
-
-**The Big Show**\
-`We look at the United Nations General Assembly.`\
-https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
-
-**Bond Markets Are on Edge and Oil Prices Rise**\
-`The rise came a day after a sharp sell-off in government debt.`\
-https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\

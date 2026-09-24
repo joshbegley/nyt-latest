@@ -1,3 +1,15 @@
+**Trump and Xi Are Expected to Discuss Accusations of Copying American A.I. Tech**\
+`American artificial intelligence companies have accused their Chinese counterparts of using a technique called distillation to enhance their own systems.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-ai-copying-china.html
+
+**A Veggie Dining Dispatch From Book Tour**\
+`A window into what I’m eating on the road — and what I’m cooking at home in my few moments of repose.`\
+https://www.nytimes.com/2026/09/24/dining/a-veggie-dining-dispatch-from-book-tour.html
+
+**Ex-Tradwives Are Rejecting the Movement**\
+`What happens when tradwife influencers become unhappy with the movement? Our writer at large Amanda Hess reports on life-after-tradwife content creation.`\
+https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-the-movement.html
+
 **Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
 `It’s a question that has divided the internet.`\
 https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
