@@ -1,3 +1,7 @@
+**Bayeux Tapestry Lesson Plan**\
+`Why has “Beayeux fever” swept England? What is important about this work of art?`\
+https://www.nytimes.com/2026/09/24/learning/15-minute-lesson-plan-the-bayeux-tapestry.html
+
 **Glenn Martens’ Final Diesel Show: Hot Pants and Hedonism**\
 `Glenn Martens goes out with a metaphoric bang at Diesel. But he leaves behind something even more attention-worthy.`\
 https://www.nytimes.com/2026/09/24/style/diesel-hot-pants-glenn-martens.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-w
 **At a Times Event, Dueling Visions on Climate Change and A.I.**\
 `Energy Secretary Chris Wright said the Trump administration does not want to ban U.S. diesel exports to curb high prices.`\
 https://www.nytimes.com/2026/09/23/climate/climate-forward-chris-wright.html
-
-**At the U.N., Iran Says It Will Not Give Up Its Nuclear Program**\
-`Also, hackers say they stole thousands of sensitive F.B.I. records. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give-up-its-nuclear-program.html
 

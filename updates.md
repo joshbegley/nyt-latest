@@ -1,3 +1,7 @@
+**Bayeux Tapestry Lesson Plan**\
+`Why has “Beayeux fever” swept England? What is important about this work of art?`\
+https://www.nytimes.com/2026/09/24/learning/15-minute-lesson-plan-the-bayeux-tapestry.html
+
 **Glenn Martens’ Final Diesel Show: Hot Pants and Hedonism**\
 `Glenn Martens goes out with a metaphoric bang at Diesel. But he leaves behind something even more attention-worthy.`\
 https://www.nytimes.com/2026/09/24/style/diesel-hot-pants-glenn-martens.html
