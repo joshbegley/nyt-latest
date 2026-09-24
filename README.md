@@ -1,3 +1,7 @@
+**In San Francisco, It’s a Good Time to Be a Satirist**\
+`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds them ripe for mocking.`\
+https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
+
 **Maps: Tracking Tropical Storm Surigae**\
 `See the likely path and wind arrival times for Surigae`\
 https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/24/movies/never-after-dark-review.html
 **‘Heart of the Beast’ Review: Brad Pitt Goes Into the Wild**\
 `Starring as a veteran venturing into Alaska with his trusty dog by his side, Pitt manages to elevate this dude-canine tale.`\
 https://www.nytimes.com/2026/09/24/movies/heart-of-the-beast-review.html
-
-**‘Forgotten Island’ Review: A Supernatural Filipino Adventure**\
-`In this animated film, two friends in the Philippines discover a portal to a place with magical creatures. But there’s one problem: How do they get back home?`\
-https://www.nytimes.com/2026/09/24/movies/forgotten-island-review.html
 
