@@ -1,3 +1,19 @@
+**Canada Goose Is Ensnared in Trump’s Tariff War With Canada**\
+`The United States is a key market for brands that manufacture jackets and parkas in Canada, such as Canada Goose and Moose Knuckles.`\
+https://www.nytimes.com/2026/09/24/business/canada-goose-tariffs-trade-war.html
+
+**Google Is Sending an A.I. Data Center to Outer Space**\
+`Next Thursday, Google is sending an experimental satellite into orbit that will have enough computing power to answer simple A.I. queries from space.`\
+https://www.nytimes.com/2026/09/24/technology/google-suncatcher-ai-data-center-space.html
+
+**Can Tech Companies Like Google Really Put Data Centers in Space?**\
+`Google is preparing to launch a satellite that can run its A.I. technologies from the heavens. But this is just a first step.`\
+https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
+
+**What Hegseth Is Hiding**\
+`Soldiers want to tell their stories, and we need to hear them.`\
+https://www.nytimes.com/2026/09/24/opinion/hegseth-iran-war-soldiers.html
+
 **A.I. Safety Concerns Go Global**\
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
