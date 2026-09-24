@@ -1,3 +1,7 @@
+**Sony, A24 and the New York Times Company Circle Letterboxd**\
+`A24, Sony and The New York Times Company all registered their interest in acquiring the cinephile’s paradise.`\
+https://www.nytimes.com/2026/09/24/business/media/letterboxd-sale-sony-a24-nyt.html
+
 **Macklemore Announces ‘Free Palestine’ Concerts After Exiting Ed Sheeran Tour**\
 `The rapper, who was pulled from Ed Sheeran’s tour last week over his support for Palestinians, announced plans for three European dates.`\
 https://www.nytimes.com/2026/09/24/arts/music/macklemore-free-palestine-tour.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/crosswords/connections-companion-1202.html
 **NYT Strands Hints for September 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026`\
 https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
-
-**Today’s Wordle Hints September 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
-https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
 
