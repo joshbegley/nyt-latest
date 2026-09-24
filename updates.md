@@ -1,3 +1,7 @@
+**Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
+`Early results in legislative elections showed the lowest voter turnout in nearly two decades. Economic frustrations have grown as Morocco is set to co-host the 2030 soccer World Cup.`\
+https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.html
+
 **Son of Israel’s Ambassador Injured In West Bank Attack**\
 `Neria Leiter, the son of Israel’s ambassador to the United States, was critically injured in a car-ramming attack on Wednesday, the Israeli military said. Hospital officials said Mr. Leiter, a reserve soldier, underwent brain surgery and was in stable condition.`\
 https://www.nytimes.com/video/world/middleeast/100000011172161/son-of-israels-ambassador-injured-in-west-bank-attack.html
