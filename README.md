@@ -1,3 +1,7 @@
+**Families Urge Trump to Press Xi to Free Detained Americans**\
+`The Americans being held in China are U Min Zin, a scholar who studied Myanmar, and Youlin Chen, a seismologist who researched North Korean nuclear tests.`\
+https://www.nytimes.com/2026/09/24/world/asia/trump-xi-detained-americans.html
+
 **Desi Lydic Doesn’t Think We Need Any More ‘Melania’**\
 `“Another Melania documentary?” Lydic said. “Melania, I love you, but unless you’re living with Nathan Fielder in this thing, no one is asking for this.”`\
 https://www.nytimes.com/2026/09/24/arts/television/desi-lydic-doesnt-think-we-need-any-more-melania.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/world/board-of-peace-gaza-6-month-plan.html
 **NBC, CBS and More TV Networks Didn’t Film Xi’s Arrival Amid Trump’s Press Ban**\
 `The White House TV pool has suspended its coverage of President Trump since he banned CNN, MS NOW and Politico from the White House.`\
 https://www.nytimes.com/2026/09/23/business/media/tv-networks-xi-arrival.html
-
-**Could Hurricane Polo Bring Rain to Southern California? Probably Not.**\
-`The storms won’t make landfall there, but even from a distance they could affect the state’s coastline.`\
-https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
 
