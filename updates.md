@@ -1,3 +1,11 @@
+**Kylian Mbappe, One of the World’s Greatest Soccer Players, Wants to Talk**\
+`Kylian Mbappe sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
+https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
+
+**Europe Warns of Russia’s Hybrid Attacks but Struggles to Counter Them**\
+`If President Vladimir V. Putin was hoping to get Europeans’ attention, he’s succeeded with a series of close-call incursions. The question now is what they will do about it.`\
+https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-war.html
+
 **Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\
 `The British food writer — who brought the world the most creative possible pronunciation of “microwave” — has joined the show. By all accounts, she’s on fire. (In a good way.)`\
 https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bake-off-uk.html
