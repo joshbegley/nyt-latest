@@ -1,3 +1,27 @@
+**Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
+`The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
+https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html
+
+**Judge Blocks Trump’s Ban on Reporters, and How A.I. Is Driving Up Health Care Costs**\
+`Plus, the undamming of U.S. rivers.`\
+https://www.nytimes.com/2026/09/24/podcasts/the-headlines/trump-ban-press-ai-health-care-costs.html
+
+**What Safeguarding Nukes Can Teach Us About Safeguarding A.I.**\
+`With artificial intelligence on the agenda for talks between President Trump and Xi Jinping of China, our reporter looks at lessons from the nuclear arms race.`\
+https://www.nytimes.com/2026/09/24/podcasts/the-daily/what-safeguarding-nukes-can-teach-us-about-safeguarding-ai.html
+
+**NYT Connections Answers for September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
+https://www.nytimes.com/2026/09/24/crosswords/connections-companion-1202.html
+
+**NYT Strands Hints for September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026`\
+https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
+
+**Today’s Wordle Hints September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
+https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
+
 **Kylian Mbappe, One of the World’s Greatest Soccer Players, Wants to Talk**\
 `Kylian Mbappe sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
 https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/24/us/miami-grand-theft-auto-vice-city.html
 **Should I Reveal That My Partner Died by Suicide?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who believes her partner’s family secrets may have contributed to his death.`\
 https://www.nytimes.com/2026/09/24/well/mind/suicide-secrecy-partner-loss.html
-
-**After a Summer of Disruptions, Here Are the 7 New Rules for Air Travel**\
-`Flight delays and cancellations brought on by weather, technology glitches and other issues offer a lesson: Be prepared and be flexible.`\
-https://www.nytimes.com/2026/09/24/travel/the-7-new-rules-for-air-travel.html
-
-**Word of the Day: concentric**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/24/learning/word-of-the-day-concentric.html
-
-**‘Your Mother Your Mother Your Mother’ Review: Faith and Fighting**\
-`Mahershala Ali stars as a deeply religious hit man seeking redemption.`\
-https://www.nytimes.com/2026/09/24/movies/your-mother-your-mother-your-mother-review.html
-
-**School Children Take Shelter in Kyiv**\
-`Our Ukraine correspondent Siobhán O’Grady visits a school in Kyiv where air raid sirens interrupt classes all day and children must take shelter.`\
-https://www.nytimes.com/video/world/europe/100000011139361/school-children-take-shelter-in-kyiv.html
-
-**‘Ha-Chan, Shake Your Booty!’ Review: Ballroom, Not Simply**\
-`A Japanese widow looks for consolation in ballroom dance in a sweet but uneven drama.`\
-https://www.nytimes.com/2026/09/24/movies/ha-chan-shake-your-booty-review-ballroom-not-simply.html
-
-**Jean Paul Gaultier’s Duran Lantink Shares His Tastes and Inspirations**\
-`Duran Lantink, the Jean Paul Gaultier creative director, talks about his tastes and process.`\
-https://www.nytimes.com/2026/09/24/t-magazine/duran-lantink-jean-paul-gaultier.html
 

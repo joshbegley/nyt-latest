@@ -1,3 +1,27 @@
+**Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
+`The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
+https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html
+
+**Judge Blocks Trump’s Ban on Reporters, and How A.I. Is Driving Up Health Care Costs**\
+`Plus, the undamming of U.S. rivers.`\
+https://www.nytimes.com/2026/09/24/podcasts/the-headlines/trump-ban-press-ai-health-care-costs.html
+
+**What Safeguarding Nukes Can Teach Us About Safeguarding A.I.**\
+`With artificial intelligence on the agenda for talks between President Trump and Xi Jinping of China, our reporter looks at lessons from the nuclear arms race.`\
+https://www.nytimes.com/2026/09/24/podcasts/the-daily/what-safeguarding-nukes-can-teach-us-about-safeguarding-ai.html
+
+**NYT Connections Answers for September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
+https://www.nytimes.com/2026/09/24/crosswords/connections-companion-1202.html
+
+**NYT Strands Hints for September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026`\
+https://www.nytimes.com/2026/09/24/crosswords/strands-sidekick-936.html
+
+**Today’s Wordle Hints September 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 25, 2026.`\
+https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
+
 **Kylian Mbappe, One of the World’s Greatest Soccer Players, Wants to Talk**\
 `Kylian Mbappe sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
 https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
