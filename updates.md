@@ -1,3 +1,15 @@
+**Stream These 5 Movies and Shows Before They Leave Netflix in October**\
+`Tom Hanks, Tim Robinson and Paul Schrader are among some of the big names on titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html
+
+**Is Adéla, an Ex-Ballerina From Slovakia, the Next Pop Sensation?**\
+`Adéla was cut in the first round of a reality show looking to create the girl group Katseye. But when judges said, “We see Adéla as a solo artist,” she agreed.`\
+https://www.nytimes.com/2026/09/24/style/adela-prima-red-bottoms-tour.html
+
+**Weeks Before the Election, Susan Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
+`Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
+https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
+
 **And to Think That I Ate It on Mulberry Street**\
 `The annual Feast of San Gennaro gave me heartburn, a tummy ache and a great time`\
 https://www.nytimes.com/2026/09/24/dining/san-gennaro.html

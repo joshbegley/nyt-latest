@@ -1,3 +1,11 @@
+**Stream These 5 Movies and Shows Before They Leave Netflix in October**\
+`Tom Hanks, Tim Robinson and Paul Schrader are among some of the big names on titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html
+
+**Is Adéla, an Ex-Ballerina From Slovakia, the Next Pop Sensation?**\
+`Adéla was cut in the first round of a reality show looking to create the girl group Katseye. But when judges said, “We see Adéla as a solo artist,” she agreed.`\
+https://www.nytimes.com/2026/09/24/style/adela-prima-red-bottoms-tour.html
+
 **And to Think That I Ate It on Mulberry Street**\
 `The annual Feast of San Gennaro gave me heartburn, a tummy ache and a great time`\
 https://www.nytimes.com/2026/09/24/dining/san-gennaro.html
@@ -174,7 +182,7 @@ https://www.nytimes.com/2026/09/24/business/starbucks-store-closures.html
 `The decision adds a new burden for the government as it attempts to rapidly remove migrants from the United States without interference from their lawyers.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.html
 
-**Weeks Before the Election, Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
+**Weeks Before the Election, Susan Collins’s Ties to a Fund-Raiser Are Under Scrutiny**\
 `Scott Reed, a longtime Washington lobbyist who has a close relationship with Senator Susan Collins of Maine, leads a super PAC backing her campaign.`\
 https://www.nytimes.com/2026/09/24/us/politics/weeks-before-the-election-collinss-ties-to-a-fund-raiser-are-under-scrutiny.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/europe/spain-eviction-87-year-old-woman-prot
 **5 Looks to Understand a Fashion Show**\
 `Plus: P.D.A. at Diesel, and a study in skirts at Prada.`\
 https://www.nytimes.com/2026/09/24/style/fashion-week-jil-sander.html
-
-**New Hampshire Senate Race: 5 Takeaways From a New Poll**\
-`Representative Chris Pappas, a Democrat, leads by five percentage points, according to a New York Times/Siena poll. Voters say they are more interested in a check on President Trump than in a candidate who supports him.`\
-https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-sununu.html
-
-**More Than 167,000 Pounds of Meat With False Inspection Mark Are Recalled**\
-`The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
-https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 
