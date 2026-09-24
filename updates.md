@@ -1,3 +1,19 @@
+**7 Takeaways From a New Poll on the Michigan Senate Race**\
+`Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
+https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
+
+**What Students Are Saying About Writing in the Age of A.I.**\
+`How much does it still matter? Nearly 400 teenagers weighed in.`\
+https://www.nytimes.com/2026/09/24/learning/what-students-are-saying-about-writing-in-the-age-of-ai.html
+
+**6 New Books We Recommend This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/09/24/books/review/new-recommended-books.html
+
+**Abbas presses the case for a Palestinian state in a videotaped address.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/24/world/middleeast/abbas-presses-the-case-for-a-palestinian-state-in-a-prerecorded-video-address.html
+
 **Nor’easter Could Bring Heavy Rain, Winds, and Flooding to East Coast**\
 `Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
 https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html

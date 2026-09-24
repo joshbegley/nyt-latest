@@ -106,9 +106,9 @@ https://www.nytimes.com/2026/09/24/us/politics/new-hampshire-senate-poll-pappas-
 `The raw pork, beef and goat products from Star Meat Delivery Inc. of North Carolina were distributed across the United States.`\
 https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 
-**Abbas presses the case for a Palestinian state in a videotaped address.**\
-`(No description)`\
-https://www.nytimes.com/2026/09/24/world/middleeast/abbas-presses-the-case-for-a-palestinian-state-in-a-prerecorded-video-address.html
+**Abbas Presses Case for Palestinian State in Taped General Assembly Address**\
+`The Palestinian leader renewed his call for a two-state solution on Thursday, as he accused Israel of prosecuting “a genocidal war” against Palestinians.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-palestinians.html
 
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
