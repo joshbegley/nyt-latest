@@ -1,3 +1,7 @@
+**Australia Investigates OpenAI Hack on Public Health Care Site**\
+`Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
+https://www.nytimes.com/2026/09/23/world/asia/australia-investigates-openai-hack-on-public-health-care-site.html
+
 **The U.S. and China Are Far Apart on A.I. Safety**\
 `Beijing and Washington may use the same language of A.I. safety, but they are trying to protect very different things.`\
 https://www.nytimes.com/2026/09/24/opinion/us-china-summit-ai.html
