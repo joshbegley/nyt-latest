@@ -1,3 +1,7 @@
+**Glenn Martens’ Final Diesel Show: Hot Pants and Hedonism**\
+`Glenn Martens goes out with a metaphoric bang at Diesel. But he leaves behind something even more attention-worthy.`\
+https://www.nytimes.com/2026/09/24/style/diesel-hot-pants-glenn-martens.html
+
 **This Zoo Helps Protect Baby Turtles, Then Sends Them on Their Way**\
 `Foxes like to raid the nests of diamondback terrapins on Staten Island. But a “turtle garden” and incubators at the local zoo are giving the creatures a chance.`\
 https://www.nytimes.com/2026/09/24/nyregion/diamondback-terrapin-turtles-staten-island.html

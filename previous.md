@@ -1,3 +1,7 @@
+**Glenn Martens’ Final Diesel Show: Hot Pants and Hedonism**\
+`Glenn Martens goes out with a metaphoric bang at Diesel. But he leaves behind something even more attention-worthy.`\
+https://www.nytimes.com/2026/09/24/style/diesel-hot-pants-glenn-martens.html
+
 **This Zoo Helps Protect Baby Turtles, Then Sends Them on Their Way**\
 `Foxes like to raid the nests of diamondback terrapins on Staten Island. But a “turtle garden” and incubators at the local zoo are giving the creatures a chance.`\
 https://www.nytimes.com/2026/09/24/nyregion/diamondback-terrapin-turtles-staten-island.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/climate/climate-forward-chris-wright.html
 **At the U.N., Iran Says It Will Not Give Up Its Nuclear Program**\
 `Also, hackers say they stole thousands of sensitive F.B.I. records. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/09/23/briefing/at-the-un-iran-says-it-will-not-give-up-its-nuclear-program.html
-
-**Melania Trump’s Busy Schedule: A New Show, a Foster-Care Bill and Reading Executive Orders**\
-`In a burst of activity this week, the enigmatic first lady told Americans what she has been up to after a quiet summer. Her activities have included filming a new documentary series about her life.`\
-https://www.nytimes.com/2026/09/23/us/politics/melania-trump-documentary-schedule.html
 
