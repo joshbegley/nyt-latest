@@ -1,3 +1,7 @@
+**Republicans in Red-State Races Are Starting to Break From Trump**\
+`Our national political correspondent, Shane Goldmacher, explains how a growing number of Republican candidates in key battleground states are making calculated decisions to distance themselves from President Trump and his policies.`\
+https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-state-races-are-starting-to-break-from-trump.html
+
 **Trump Hosts China’s Leader for a State Visit**\
 `Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
