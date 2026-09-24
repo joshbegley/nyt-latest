@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
 
 **White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
-`A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
+`A federal court ordered President Trump to reverse his ban on the three news outlets, but reporters were denied access on Thursday. Their lawyers asked the judge to intervene; he ordered the administration to respond by 12:30 p.m.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
 
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
