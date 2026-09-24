@@ -1,9 +1,13 @@
+**‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
+`When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
+https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
+
 **Netanyahu Attacks Mamdani in Heated U.N. Speech**\
 `The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. Mr. Mamdani said Mr. Netanyahu was repeating “baseless lies.”`\
 https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
 
 **Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
-`The vote came as a growing number of Republicans have broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
+`The vote came as a growing number of Republicans has broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
 https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
 
 **Palestinian Leader Calls for Two-State Solution in a Videotaped Address**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-pales
 **Trump’s Retribution Campaign May Face Supreme Court Test**\
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
-
-**Mortgage Rates Hit 7% as Iran War Fallout Crushes a Weak Housing Market**\
-`The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
-https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
 
