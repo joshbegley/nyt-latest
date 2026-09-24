@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas Criticizes Israeli Attacks and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, condemned settler violence in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
+**U.N. Live Updates: Netanyahu, Under Scrutiny at Home and Abroad, to Speak to General Assembly**\
+`The Israeli prime minister will take the podium after the Palestinian leader, Mahmoud Abbas, called for a two-state solution and accused Israel of trying to drive Palestinians out of the West Bank and Gaza.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\

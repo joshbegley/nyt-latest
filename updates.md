@@ -1,3 +1,7 @@
+**U.N. Live Updates: Netanyahu, Under Scrutiny at Home and Abroad, to Speak to General Assembly**\
+`The Israeli prime minister will take the podium after the Palestinian leader, Mahmoud Abbas, called for a two-state solution and accused Israel of trying to drive Palestinians out of the West Bank and Gaza.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
 **For His Ballroom, Trump Has Pointed to the Great Hall of the People in Beijing**\
 `President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
