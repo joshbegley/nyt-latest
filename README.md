@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/24/briefing/restaurant-theft.html
 `Chicken thighs sizzled in schmaltz pair up with a salted cucumber yogurt in this delightful new recipe.`\
 https://www.nytimes.com/2026/09/24/dining/oh-something-smells-good-its-this-dinner.html
 
-**Don’t Give Trump the Benefit of Low Expectations**\
+**Trump’s Failure to Lead Is Costing America and the World**\
 `Trump’s flailing presidency leaves Americans with the thinnest of hopes for this week’s summit: that he does not further damage the national interest.`\
 https://www.nytimes.com/2026/09/24/opinion/trump-xi-washington-summit.html
 
