@@ -1,3 +1,11 @@
+**Newly Public Documents Shed New Light on Trump Investigations**\
+`Records unsealed on Wednesday include a 2023 appeals court opinion rejecting Donald J. Trump’s attempt to block Mike Pence’s grand jury testimony.`\
+https://www.nytimes.com/2026/09/23/us/politics/trump-mike-pence-testimony.html
+
+**U.S. and China Agree to Extend Trade Truce by 2 Months, Bessent Says**\
+`The Treasury secretary, who is leading talks with China, said the countries had agreed to extend a trade truce until January.`\
+https://www.nytimes.com/2026/09/23/us/politics/china-trade-truce-tariffs.html
+
 **8 Sailors in U.S.S. Lincoln Strike Group Attempted Suicide, Navy Says**\
 `The aircraft carrier with its crew of about 5,000 sailors has spent more than 300 days at sea.`\
 https://www.nytimes.com/2026/09/23/us/politics/uss-lincoln-attempted-suicides.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/world/100000011170066/iran-president-un-general-as
 **Trump Backtracks on Plan for New Controls on N.I.H. Grants**\
 `Democrats and Republicans in Congress opposed the creation of a commission with the power to veto federal research awards.`\
 https://www.nytimes.com/2026/09/23/us/politics/trump-nih-science-grants.html
-
-**St. Paul Police Chief Sues Mayor, Accusing Her of Sexual Harassment**\
-`The lawsuit comes days after an independent review found that Mayor Kaohly Her had treated employees in an “offensive and inappropriate way” and created an “uncomfortable work environment.”`\
-https://www.nytimes.com/2026/09/23/us/st-paul-mayor-sexual-harassment-suit.html
-
-**At Trump’s Request, Nations Are Designating Crime Groups as Terrorists**\
-`Secretary of State Marco Rubio said leaders of countries across Latin America and the Caribbean had begun making the designations. The actions could help provide a public rationale for military strikes.`\
-https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
