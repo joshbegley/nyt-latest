@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 24, 2026**\
+`Rack your brain: Jeff Stillman’s puzzle is playing games with us.`\
+https://www.nytimes.com/2026/09/23/crosswords/daily-puzzle-2026-09-24.html
+
 **2026 Midterm Elections: When to Register, Vote Early or Vote by Mail in Your State**\
 `See the important deadlines for registering to vote, mailing ballots and voting early in person.`\
 https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-voting-ballots-mail-early-state.html
@@ -146,7 +150,7 @@ https://www.nytimes.com/2026/09/23/weather/hurricane-polo-los-angeles.html
 `During a speech at the United Nations General Assembly, President Volodymyr Zelensky of Ukraine spoke of North Korea’s assistance to Russia in the war.`\
 https://www.nytimes.com/video/world/europe/100000011171078/zelensky-russia-oil-drones.html
 
-**Live Updates: Trump Greets Xi for State Visit Amid Tensions**\
+**Trump Greets Xi for State Visit Amid Tensions**\
 `The two-day visit comes as the United States and China jostle over trade and artificial intelligence.`\
 https://www.nytimes.com/live/2026/09/23/us/trump-xi
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011170482/cottage-cheese-pancakes.htm
 **Big Jam Danish**\
 `With only six ingredients, this recipe promises a delicate, show-stopping centerpiece: an oversized jam and cheese Danish to slice, serve and enjoy with your guests.`\
 https://www.nytimes.com/video/dining/100000011168755/big-jam-danish.html
-
-**Chickpea Salad With Fresh Herbs and Scallions**\
-`A lighter, easier take on classic American potato salad, this version uses canned chickpeas in place of potatoes and favors Greek yogurt over mayonnaise.`\
-https://www.nytimes.com/video/dining/100000011168672/chickpea-salad-with-fresh-herbs-and-scallions.html
 
 **Climate Forward Highlights: Energy Secretary Dismisses Idea of Diesel Export Ban**\
 `Energy Secretary Chris Wright, speaking at The New York Times’ annual Climate Forward event, dismissed reports that President Trump was preparing to ban U.S. exports of diesel in a bid to lower energy prices.`\
