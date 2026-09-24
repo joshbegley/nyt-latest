@@ -1,3 +1,11 @@
+**For His Ballroom, Trump Has Pointed to the Great Hall of the People in Beijing**\
+`President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html
+
+**Republican Sheriff Illegally Seized California Ballots, Court Rules**\
+`The California Supreme Court ordered Sheriff Chad Bianco of Riverside County to return ballots to election officials after he confiscated them for an investigation.`\
+https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized-ballots.html
+
 **China to Send Pandas to Zoo Atlanta, Xi Says**\
 `Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
 https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
