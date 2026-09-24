@@ -1,5 +1,9 @@
-**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Officials Say**\
-`The Iran-backed militia in Yemen fired six ballistic missiles at cities deep in Saudi Arabia, the authorities said, in what appeared to be a sharp escalation in fighting between the two sides.`\
+**White House Still Bars CNN, MS NOW and Politico Despite Court Ruling**\
+`A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
+https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
+
+**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
+`The Iran-backed militia in Yemen fired six ballistic missiles at cities in Saudi Arabia, a military spokesman said. There was no immediate comment from the Houthis.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
 
 **Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/100000011161520/joel-kim-booster-on-his-favor
 **Have GLP-1 Drugs Changed How You Travel? Tell Us About It.**\
 `The New York Times wants to know how a GLP-1 medication may have affected how readers plan vacations.`\
 https://www.nytimes.com/2026/09/24/travel/glp1-drugs-travel.html
-
-**What Our Michigan and Maine Polls Reveal**\
-`Our polling reporter Ruth Igielnik walks through the latest Times/Siena Poll findings on two critical states in the Democrats’ push to regain control of the Senate: Michigan and Maine.`\
-https://www.nytimes.com/video/polls/100000011158869/what-our-michigan-and-maine-polls-reveal.html
 

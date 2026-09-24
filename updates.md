@@ -1,3 +1,7 @@
+**Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Officials Say**\
+`The Iran-backed militia in Yemen fired six ballistic missiles at cities deep in Saudi Arabia, the authorities said, in what appeared to be a sharp escalation in fighting between the two sides.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/saudi-arabia-houthi-missile-attack-yemen-war.html
+
 **Party Close to King Leads in Morocco’s Election as Young Voters Stay Away**\
 `Early results in legislative elections showed the lowest voter turnout in nearly two decades. Economic frustrations have grown as Morocco is set to co-host the 2030 soccer World Cup.`\
 https://www.nytimes.com/2026/09/24/world/africa/morocco-election-results-youth.html
