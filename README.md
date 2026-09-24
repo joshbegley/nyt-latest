@@ -1,3 +1,7 @@
+**China to Send Pandas to Zoo Atlanta, Xi Says**\
+`Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
+https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
+
 **Sway Dasafo, Rapper Who Opened New Doors for Global Artists, Dies at 44**\
 `He won widespread acclaim as an unsigned artist, then used his fame to help other musicians in Britain and in Ghana break into the industry.`\
 https://www.nytimes.com/2026/09/24/arts/music/derek-safo-sway-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelli
 **Maps: Tracking Tropical Storm Surigae**\
 `See the likely path and wind arrival times for Surigae`\
 https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.html
-
-**Son of Israeli Ambassador to U.S. Critically Hurt in West Bank Attack, Officials Say**\
-`Neria Leiter, a reserve soldier, sustained life-threatening injuries after a Palestinian man drove into a military checkpoint in the West Bank, the Israeli military said.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/israel-ambassador-leiter-son-west-bank-attack.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
