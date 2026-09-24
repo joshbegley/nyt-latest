@@ -1,3 +1,7 @@
+**Republican Sheriff Illegally Seized California Ballots, Court Rules**\
+`The California Supreme Court ordered Sheriff Chad Bianco of Riverside County to return ballots to election officials after he confiscated them for an investigation.`\
+https://www.nytimes.com/2026/09/24/us/riverside-county-california-sheriff-seized-ballots.html
+
 **China to Send Pandas to Zoo Atlanta, Xi Says**\
 `Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
 https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 **San Francisco Is Making News on Many Fronts. It’s Also Ripe for Mocking.**\
 `Artificial intelligence companies are becoming pervasive in the city, and a humorist finds this is a good time for a little satire.`\
 https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
-
-**Maps: Tracking Tropical Storm Surigae**\
-`See the likely path and wind arrival times for Surigae`\
-https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\

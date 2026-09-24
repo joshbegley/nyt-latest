@@ -1,3 +1,11 @@
+**China to Send Pandas to Zoo Atlanta, Xi Says**\
+`Xi Jinping, China’s leader, said two pandas would arrive soon at Zoo Atlanta. Panda diplomacy has been a cornerstone of U.S.-China relations.`\
+https://www.nytimes.com/2026/09/24/us/politics/xi-summit-pandas-atlanta-zoo.html
+
+**Sway Dasafo, Rapper Who Opened New Doors for Global Artists, Dies at 44**\
+`He won widespread acclaim as an unsigned artist, then used his fame to help other musicians in Britain and in Ghana break into the industry.`\
+https://www.nytimes.com/2026/09/24/arts/music/derek-safo-sway-dead.html
+
 **In a New Anthropic Lab, A.I. Turns to Biology**\
 `Scientists at the company announced their first finding: a group of enzymes whose function is unknown.`\
 https://www.nytimes.com/2026/09/24/science/anthropic-biology-lab-enzyme.html
