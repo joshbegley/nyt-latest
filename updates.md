@@ -1,3 +1,15 @@
+**El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
+`Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
+https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
+
+**Abbas Presses Case for Palestinian State in Taped General Assembly Address**\
+`The Palestinian leader renewed his call for a two-state solution on Thursday, as he accused Israel of prosecuting “a genocidal war” against Palestinians.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/abbas-general-assembly-palestinians.html
+
+**Mayor Mamdani Becomes a New Advocate for Access to the Met Opera**\
+`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to distribute free tickets`\
+https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
+
 **7 Takeaways From a New Poll on the Michigan Senate Race**\
 `Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
