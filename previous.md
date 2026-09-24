@@ -1,3 +1,11 @@
+**A.I. Safety Concerns Go Global**\
+`The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
+https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
+
+**U.N. Live Updates: Abbas and Netanyahu to Deliver Dueling Speeches**\
+`Prime Minister Benjamin Netanyahu of Israel and the Palestinian leader, Mahmoud Abbas, are set to deliver separate addresses to the United Nations General Assembly amid criticism of Israel’s conduct in Gaza.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
 **In San Francisco, It’s a Good Time to Be a Satirist**\
 `Artificial intelligence companies are becoming pervasive in the city, and a humorist finds them ripe for mocking.`\
 https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/09/24/business/dealbook/precision-neuroscience-brai
 `We look at the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
 
-**Oil Prices Rise and Bond Markets Remain on Edge**\
+**Bond Markets Are on Edge and Oil Prices Rise**\
 `The rise came a day after a sharp sell-off in government debt.`\
 https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/movies/the-scout-review.html
 **‘The Incomer’ Review: A Remote Assignment**\
 `Domhnall Gleeson gets more than he bargained for when he tries to evict two siblings in this quirky Scottish comedy.`\
 https://www.nytimes.com/2026/09/24/movies/the-incomer-review.html
-
-**‘Never After Dark’ Review: Ghostbusting in Japan**\
-`A traveling psychic comes up against a formidable new adversary in this gruesomely sinister ghost story starring the “Shogun” actress Moeka Hoshi.`\
-https://www.nytimes.com/2026/09/24/movies/never-after-dark-review.html
-
-**‘Heart of the Beast’ Review: Brad Pitt Goes Into the Wild**\
-`Starring as a veteran venturing into Alaska with his trusty dog by his side, Pitt manages to elevate this dude-canine tale.`\
-https://www.nytimes.com/2026/09/24/movies/heart-of-the-beast-review.html
 
