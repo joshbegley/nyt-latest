@@ -1,4 +1,4 @@
-**7 Takeaways From a New Poll on the Michigan Senate Race**\
+**El-Sayed Holds a Narrow Lead Over Rogers in New Michigan Senate Polls: 7 Takeaways**\
 `Dr. Abdul El-Sayed holds a modest lead over Mike Rogers in part because of a strong advantage with younger voters, according to a New York Times/Siena poll.`\
 https://www.nytimes.com/2026/09/24/us/politics/michigan-senate-poll-el-sayed-rogers.html
 
@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/09/24/movies/film-tax-credit-congress-bill.html
 https://www.nytimes.com/2026/09/24/world/europe/spain-eviction-sanchez.html
 
 **Mayor Mamdani Becomes a New Advocate for Access to the Met Opera**\
-`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
+`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to distribute free tickets`\
 https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
 
 **Far-Right Activist Danny Tommo Arrested After Slashing Dinghy in English Channel**\
