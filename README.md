@@ -1,3 +1,11 @@
+**A New Advocate for Opera Takes the Met Stage: Mayor Mamdani**\
+`The mayor, with a video filmed at the Metropolitan Opera House, joins the Met in announcing a program to give away 70,000 tickets a year.`\
+https://www.nytimes.com/2026/09/24/arts/music/mamdani-met-opera-free-tickets.html
+
+**Far-Right Activist Danny Tommo Arrested After Slashing Dinghy in English Channel**\
+`The man, Daniel Thomas, was following migrants traveling to England when he filmed himself slashing an inflatable boat that had an emergency responder on board.`\
+https://www.nytimes.com/2026/09/24/world/europe/danny-tommo-arrested-uk-migrants-far-right.html
+
 **A Second Judge Strikes Down New York’s Climate ‘Superfund’ Law**\
 `A federal judge ruled that the new law, which would force fossil fuel companies to pay $75 billion to help cover the costs of climate change, was unconstitutional.`\
 https://www.nytimes.com/2026/09/24/climate/new-york-climate-superfund-law.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas and Netanyahu Offer Dueling Speeches**\
+**U.N. Live Updates: Abbas Criticizes Ongoing Israeli Attacks and Failure of Gaza Peace Plan**\
 `The Palestinian leader, Mahmoud Abbas, is addressing the United Nations General Assembly on video after he was denied a U.S. visa. Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/world/europe/russia-europe-warning-ukraine-wa
 **Renovating Manhattan’s Oldest Residence**\
 `The Morris-Jumel Mansion in Upper Manhattan served as a command post for George Washington. It had become shabby in recent years.`\
 https://www.nytimes.com/2026/09/24/nyregion/morris-jumel-mansion-renovation.html
-
-**For Sale: A Midcentury Gem Restored by Benedikt Taschen**\
-`The founder of Taschen Books is selling his meticulously restored Beverly Hills house, the Adelman Residence, for $25 million.`\
-https://www.nytimes.com/2026/09/24/realestate/for-sale-a-mid-century-gem-restored-by-benedikt-taschen.html
-
-**Devery Jacobs on Her Favorite TV Shows**\
-`The actor Devery Jacobs is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161527/devery-jacobs-on-her-favorite-tv-shows.html
 
