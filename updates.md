@@ -1,3 +1,7 @@
+**Interim Leader of Venezuela Promises Elections and ‘Orderly Legal Transition’**\
+`Delcy Rodríguez did not set a timeline for a vote in a speech at the United Nations.`\
+https://www.nytimes.com/2026/09/23/world/americas/venezuela-delcy-rodriguez-unga.html
+
 **Actors Can’t Stop Watching These TV Shows That Mirror Real Life**\
 `Actors and creators share the TV shows that turn real life into compelling television and explain why these stories hit so close to home.`\
 https://www.nytimes.com/video/arts/100000011159828/best-100-tv.html
