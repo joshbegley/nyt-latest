@@ -1,3 +1,7 @@
+**Republicans Accelerate Their Break With Trump Ahead of Midterms**\
+`The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
+
 **Live Updates: White House Continues to Bar News Outlets Despite Court Ruling**\
 `A federal court ordered President Trump to reverse his ban on CNN, Politico and MS NOW, but reporters were denied access on Thursday. The judge ordered the administration to respond by 12:30 p.m.`\
 https://www.nytimes.com/live/2026/09/24/business/trump-cnn-politico-msnow-white-house

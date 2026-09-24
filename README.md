@@ -1,3 +1,11 @@
+**Trump’s Retribution Campaign May Face Supreme Court Test**\
+`The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
+https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
+
+**Mortgage Rates Hit 7% as Iran War Crushes a Weak Housing Market**\
+`The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
+https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
+
 **12 Artists On the Rise at The Armory Show**\
 `Anchoring the city’s fall Art Week, the behemoth Armory Show at the Javits Center has nearly 250 contemporary art galleries, and a focus on the Caribbean.`\
 https://www.nytimes.com/2026/09/24/arts/design/armory-show-artists-to-watch.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.
 **The Independent 20th Century Grapples With Heritage**\
 `The art fair takes up residence at the Breuer building on its 60 birthday, with works by both blue-chip artists and lesser-known names.`\
 https://www.nytimes.com/2026/09/24/arts/design/the-independent-20th-century-grapples-with-heritage.html
-
-**What Are Your Favorite TV Shows?**\
-`This week, The Times is announcing its top 100 television shows of the 21st century. Do you agree with its rankings?  Make a case for your top picks.`\
-https://www.nytimes.com/2026/09/24/learning/what-are-your-favorite-tv-shows.html
-
-**Abortion Pills, Vaccines and Food Safety: F.D.A. Nominee Heidi Overton Faces Senate Confirmation Hearing**\
-`Dr. Heidi Overton has called mifepristone “dangerous to women.” As a White House aide, she worked to reduce the number of vaccines recommended for children.`\
-https://www.nytimes.com/2026/09/24/us/heidi-overton-fda.html
 

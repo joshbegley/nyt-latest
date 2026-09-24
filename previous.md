@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/09/24/us/politics/aba-law-schools-dei-trump.html
 `Corrections that appeared in print on Thursday, Sept. 24, 2026.`\
 https://www.nytimes.com/2026/09/24/pageoneplus/corrections-sept-24-2026.html
 
-**‘Survival Mode Time’: Republicans Accelerate Their Break With Trump**\
+**Republicans Accelerate Their Break With Trump Ahead of Midterms**\
 `The dissent reflects growing unease about the party’s prospects in November, as the G.O.P. struggles to overcome the president’s unpopularity.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-republicans-midterms-break.html
 
