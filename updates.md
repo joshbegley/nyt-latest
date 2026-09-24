@@ -1,3 +1,7 @@
+**Mamdani Accuses Netanyahu of Spreading ‘Baseless Lies’ After U.N. Speech**\
+`The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. The mayor has become a political foil for the prime minister.`\
+https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
+
 **Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
 `Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused of her trying to appease anti-immigrant sentiment.`\
 https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html

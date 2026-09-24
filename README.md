@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Allow Deportations to Third Countries**\
+`A lower federal court on Wednesday imposed restrictions on deporting migrants to countries other than their own.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-supreme-court-third-country-deportations.html
+
 **Italy Moves to Cap Number of Foreign Students in Its Classrooms**\
 `Prime Minister Giorgia Meloni said the goal was to better integrate non-Italian speaking children, but critics accused of her trying to appease anti-immigrant sentiment.`\
 https://www.nytimes.com/2026/09/24/world/europe/italy-schools-migrants.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessiona
 **Carney Says He Would Consider a Second Term, Depending on State of U.S.-Canada Relations**\
 `As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
 https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
-
-**Complaints About Meta’s ‘Pervert Glasses’ Won’t Slow Tech’s Wearable Gadgets Drive**\
-`Meta’s smart glasses are the latest in a line of products to raise eyebrows over privacy. That’s not stopping other companies from creating similar devices.`\
-https://www.nytimes.com/2026/09/24/technology/personaltech/meta-glasses-wearables.html
 
