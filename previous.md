@@ -1,3 +1,7 @@
+**Beleaguered at Home, a Bellicose Netanyahu Heads to the U.N.**\
+`Prime Minister Benjamin Netanyahu of Israel will take to the world stage while fighting for his political future in a critical national election.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-unga-israel-election.html
+
 **Bayeux Tapestry Lesson Plan**\
 `Why has “Beayeux fever” swept England? What is important about this work of art?`\
 https://www.nytimes.com/2026/09/24/learning/15-minute-lesson-plan-the-bayeux-tapestry.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/23/us/politics/midwest-republican-candidates-tru
 **Taylor Tomlinson is Done Feeling Shame About Sex**\
 `When the comedian Taylor Tomlinson began exploring her attraction to women, she first had to overcome the judgment and guilt she’d internalized growing up in a conservative family. On the “Modern Love” podcast, Tomlinson tells the host, Anna Martin, how it felt to finally break free of shame.`\
 https://www.nytimes.com/video/podcasts/100000011171388/taylor-tomlinson-dating-women.html
-
-**At a Times Event, Dueling Visions on Climate Change and A.I.**\
-`Energy Secretary Chris Wright said the Trump administration does not want to ban U.S. diesel exports to curb high prices.`\
-https://www.nytimes.com/2026/09/23/climate/climate-forward-chris-wright.html
 
