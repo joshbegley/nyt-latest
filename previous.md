@@ -1,3 +1,15 @@
+**Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
+`It’s a question that has divided the internet.`\
+https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
+
+**Carney’s Big Challenge: Time**\
+`As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
+https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
+
+**Complaints About Meta’s ‘Pervert Glasses’ Won’t Slow Tech’s Wearable Gadgets Drive**\
+`Meta’s smart glasses are the latest in a line of products to raise eyebrows over privacy. That’s not stopping other companies from creating similar devices.`\
+https://www.nytimes.com/2026/09/24/technology/personaltech/meta-glasses-wearables.html
+
 **Trump Struggles to Find Leverage With Xi Over Chinese Exports**\
 `The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
 https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
 **Bond Markets Are on Edge and Oil Prices Rise**\
 `The rise came a day after a sharp sell-off in government debt.`\
 https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
-
-**Battle of Hospital A.I. vs. Insurer A.I. Is Pushing Medical Costs Higher**\
-`The use of artificial intelligence by hospitals and health insurers is escalating their longstanding feud over paying for medical care.`\
-https://www.nytimes.com/2026/09/24/business/ai-hospitals-insurers-health-care-costs.html
-
-**Judge Blocks Trump’s Ban on Reporters, and How A.I. Is Driving Up Health Care Costs**\
-`Plus, the undamming of U.S. rivers.`\
-https://www.nytimes.com/2026/09/24/podcasts/the-headlines/trump-ban-press-ai-health-care-costs.html
-
-**What Safeguarding Nukes Can Teach Us About Safeguarding A.I.**\
-`With artificial intelligence on the agenda for talks between President Trump and Xi Jinping of China, our reporter looks at lessons from the nuclear arms race.`\
-https://www.nytimes.com/2026/09/24/podcasts/the-daily/what-safeguarding-nukes-can-teach-us-about-safeguarding-ai.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\

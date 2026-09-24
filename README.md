@@ -1,3 +1,7 @@
+**Ex-Tradwives Are Rejecting the Movement**\
+`What happens when tradwife influencers become unhappy with the movement? Our writer at large Amanda Hess reports on life-after-tradwife content creation.`\
+https://www.nytimes.com/video/style/100000011152101/ex-tradwives-are-rejecting-the-movement.html
+
 **Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
 `It’s a question that has divided the internet.`\
 https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/24/business/dealbook/precision-neuroscience-brai
 **The Big Show**\
 `We look at the United Nations General Assembly.`\
 https://www.nytimes.com/2026/09/24/briefing/united-nations-general-assembly.html
-
-**Bond Markets Are on Edge and Oil Prices Rise**\
-`The rise came a day after a sharp sell-off in government debt.`\
-https://www.nytimes.com/2026/09/24/business/oil-bonds-stocks-prices.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\

@@ -1,3 +1,15 @@
+**Is It Unprofessional to Bring Iced Coffee to a Job Interview?**\
+`It’s a question that has divided the internet.`\
+https://www.nytimes.com/2026/09/24/style/iced-coffee-job-interview-unprofessional.html
+
+**Carney’s Big Challenge: Time**\
+`As he tries to break Canada’s dependence on the United States, Prime Minister Mark Carney said he knows Canadians will feel pain from the trade war.`\
+https://www.nytimes.com/2026/09/24/world/canada/carney-economy-trade-war.html
+
+**Complaints About Meta’s ‘Pervert Glasses’ Won’t Slow Tech’s Wearable Gadgets Drive**\
+`Meta’s smart glasses are the latest in a line of products to raise eyebrows over privacy. That’s not stopping other companies from creating similar devices.`\
+https://www.nytimes.com/2026/09/24/technology/personaltech/meta-glasses-wearables.html
+
 **Trump Struggles to Find Leverage With Xi Over Chinese Exports**\
 `The Trump administration, like its predecessors, has struggled to deal with China’s excess industrial capacity.`\
 https://www.nytimes.com/2026/09/24/business/trump-xi-china-exports.html
