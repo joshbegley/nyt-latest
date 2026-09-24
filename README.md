@@ -1,3 +1,11 @@
+**Hit Songs and Vibe Shifts in America**\
+`Readers respond to a guest essay about cultural shifts in rural America. Also: A class warrior in the White House; East and West on elusive happiness.`\
+https://www.nytimes.com/2026/09/24/opinion/rural-america-music.html
+
+**Starbucks to Close 250 Stores in the US**\
+`The company said the affected cafes did not meet financial or customer service expectations.`\
+https://www.nytimes.com/2026/09/24/business/starbucks-store-closures.html
+
 **Trump Administration Scrambles to Stop Third-Country Deportations After Court Ruling**\
 `The decision adds a new burden for the government as it attempts to rapidly remove migrants from the United States without interference from their lawyers.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-third-country-deportations.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/09/24/business/meat-recall-usda-star-ad-foods.html
 `The justices have been asked to rule on whether the president can appoint allies as top prosecutors.`\
 https://www.nytimes.com/2026/09/24/us/politics/the-docket-trump-vacancy-act.html
 
-**Mortgage Rates Hit 7% as Iran War Crushes a Weak Housing Market**\
+**Mortgage Rates Hit 7% as Iran War Fallout Crushes a Weak Housing Market**\
 `The average rate on a 30-year mortgage in the United States jumped to 7.03 percent, putting pressure on housing affordability.`\
 https://www.nytimes.com/2026/09/24/business/mortgage-rates-7-percent.html
 
@@ -91,7 +99,7 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
 
 **White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
-`CNN and MS NOW said their correspondents have been allowed back onto the White House grounds after they were denied access. A federal court ordered President Trump to reverse his ban on the three news outlets. .`\
+`CNN and MS NOW said their correspondents have been allowed back onto the White House grounds after they were denied access. A federal court ordered President Trump to reverse his ban on the three news outlets.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
 
 **Saudi Arabia Downs Houthi Missiles Targeting Kingdom, Official Says**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/24/crosswords/wordle-review-1924.html
 **Kylian Mbappé, One of the World’s Greatest Soccer Players, Wants to Talk**\
 `Kylian Mbappé sits down with The Athletic to talk World Cup regrets and using his voice as a power.`\
 https://www.nytimes.com/2026/09/24/podcasts/kylian-mbappe-interview.html
-
-**Nigella Lawson and ‘The Great British Bake Off’ Is a Winning Recipe**\
-`The British food writer — who brought the world the most creative possible pronunciation of “microwave” — has joined the show. By all accounts, she’s on fire. (In a good way.)`\
-https://www.nytimes.com/2026/09/24/world/europe/nigella-lawson-great-british-bake-off-uk.html
-
-**The Christian ‘Scam’ Fronted by Tim Tebow**\
-`Pablo and Mother Jones look into Life Surge and its celebrity face.`\
-https://www.nytimes.com/2026/09/24/podcasts/the-christian-scam-fronted-by-tim-tebow.html
 
