@@ -1,3 +1,7 @@
+**Nor’easter Could Bring Heavy Rain, Winds, and Flooding to East Coast**\
+`Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
+https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html
+
 **For His Ballroom, Trump Has Pointed to the Great Hall of the People in Beijing**\
 `President Trump has repeatedly cited the Great Hall of the People in Beijing as inspiration and competition with his own design.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-ballroom-china-great-hall-beijing.html

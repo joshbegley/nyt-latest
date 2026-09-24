@@ -1,3 +1,7 @@
+**Nor’easter Could Bring Heavy Rain, Winds, and Flooding to East Coast**\
+`Rain, flooding and gusty winds are all in the forecast for the Northeast this weekend, but just how much is still a little uncertain.`\
+https://www.nytimes.com/2026/09/24/weather/noreaster-weekend-storm-nyc-boston-rain.html
+
 **U.N. Live Updates: Netanyahu, Under Scrutiny at Home and Abroad, to Speak to General Assembly**\
 `The Israeli prime minister will take the podium after the Palestinian leader, Mahmoud Abbas, called for a two-state solution and accused Israel of trying to drive Palestinians out of the West Bank and Gaza.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
