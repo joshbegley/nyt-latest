@@ -1,3 +1,15 @@
+**In San Francisco, It’s a Good Time to Be a Satirist**\
+`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds them ripe for mocking.`\
+https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
+
+**Maps: Tracking Tropical Storm Surigae**\
+`See the likely path and wind arrival times for Surigae`\
+https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.html
+
+**Son of Israeli Ambassador to U.S. Critically Hurt in West Bank Attack, Officials Say**\
+`Neria Leiter, a reserve soldier, sustained life-threatening injuries after a Palestinian man drove into a military checkpoint in the West Bank, the Israeli military said.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/son-of-israeli-ambassador-to-us-critically-hurt-in-west-bank-attack-officials-say.html
+
 **Who Is Ahead in Oklahoma's 5th Congressional District?**\
 `Track the latest polls in Oklahoma's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/24/movies/never-after-dark-review.html
 **‘Heart of the Beast’ Review: Brad Pitt Goes Into the Wild**\
 `Starring as a veteran venturing into Alaska with his trusty dog by his side, Pitt manages to elevate this dude-canine tale.`\
 https://www.nytimes.com/2026/09/24/movies/heart-of-the-beast-review.html
-
-**‘Forgotten Island’ Review: A Supernatural Filipino Adventure**\
-`In this animated film, two friends in the Philippines discover a portal to a place with magical creatures. But there’s one problem: How do they get back home?`\
-https://www.nytimes.com/2026/09/24/movies/forgotten-island-review.html
-
-**‘Out in Public View’: Indian Americans Say Racism Is Front and Center**\
-`Social media posts, including from the Department of Homeland Security and a Texas Republican candidate, have helped stir fear among people of South Asian heritage.`\
-https://www.nytimes.com/2026/09/24/us/politics/south-asian-indian-american-racism.html
-
-**‘Charlie Harper’ Review: A Nonlinear Romantic Drama**\
-`Emilia Jones and Nick Robinson play lovers recounting the joys and sorrows of their relationship in this melancholic movie.`\
-https://www.nytimes.com/2026/09/24/movies/charlie-harper-review.html
 

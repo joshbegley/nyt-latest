@@ -1,3 +1,15 @@
+**In San Francisco, It’s a Good Time to Be a Satirist**\
+`Artificial intelligence companies are becoming pervasive in the city, and a humorist finds them ripe for mocking.`\
+https://www.nytimes.com/2026/09/24/us/san-francisco-ai-satire-artificial-intelligence.html
+
+**Maps: Tracking Tropical Storm Surigae**\
+`See the likely path and wind arrival times for Surigae`\
+https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.html
+
+**Son of Israeli Ambassador to U.S. Critically Hurt in West Bank Attack, Officials Say**\
+`Neria Leiter, a reserve soldier, sustained life-threatening injuries after a Palestinian man drove into a military checkpoint in the West Bank, the Israeli military said.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/son-of-israeli-ambassador-to-us-critically-hurt-in-west-bank-attack-officials-say.html
+
 **Who Is Ahead in Oklahoma's 5th Congressional District?**\
 `Track the latest polls in Oklahoma's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
