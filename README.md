@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/24/world/europe/poland-stabbing-ukrainian-attack
 `What happens when a trad influencer leaves her husband, questions her beliefs, stops selling anti-feminism T-shirts — and still needs to make a living online?`\
 https://www.nytimes.com/2026/09/24/style/ex-tradwife-influencer-bernadine-bluntly.html
 
-**White House Still Bars CNN, MS NOW and Politico Despite Court Ruling**\
+**White House Still Bars CNN, MS NOW and Politico Despite Court Blocking Trump’s Ban**\
 `A federal court ordered President Trump to reverse his ban on the three news outlets around 1 a.m. Thursday, but none were granted entry later that morning.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-order-cnn-msnow-politico.html
 
@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/09/24/technology/data-centers-in-space-science.html
 `The Australian government is the latest victim of a hack by artificial intelligence tools, adding to growing worries about the technology.`\
 https://www.nytimes.com/2026/09/24/business/dealbook/ai-safety-concerns-go-global.html
 
-**U.N. Live Updates: Abbas Criticizes ‘Genocidal’ Israeli War and Failure of Gaza Peace Plan**\
-`The Palestinian leader, Mahmoud Abbas, condemned settler attacks in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage weeks before pivotal elections at home.`\
+**U.N. Live Updates: Abbas Criticizes Israeli War and Failure of Gaza Peace Plan**\
+`The Palestinian leader, Mahmoud Abbas, condemned settler attacks in the West Bank, saying, ‘We will not leave our homeland.’ Prime Minister Benjamin Netanyahu of Israel will take the stage later today, weeks before pivotal elections at home.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
 **In San Francisco, It’s a Good Time to Be a Satirist**\
