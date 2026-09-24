@@ -1,3 +1,7 @@
+**Australia Says OpenAI ‘Infiltrated’ Public Health Care Portal**\
+`Australia is exploring potential legal action after an artificial intelligence agent accessed nonpublic information on the country’s universal health care system.`\
+https://www.nytimes.com/2026/09/23/world/asia/australia-openai-agent-infiltration.html
+
 **OpenAI’s A.I. Tried Breaching Four Other Targets, With No Prompting**\
 `In each incident, the technology appeared to be conducting mundane data collection and resorted to hacking techniques to get it, researchers said.`\
 https://www.nytimes.com/2026/09/23/technology/openai-ai-breach-australia.html
