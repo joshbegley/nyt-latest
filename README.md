@@ -1,3 +1,7 @@
+**Sway Dasafo, Rapper Who Opened New Doors for Global Artists, Dies at 44**\
+`He won widespread acclaim as an unsigned artist, then used his fame to help other musicians in Britain and in Ghana break into the industry.`\
+https://www.nytimes.com/2026/09/24/arts/music/derek-safo-sway-dead.html
+
 **In a New Anthropic Lab, A.I. Turns to Biology**\
 `Scientists at the company announced their first finding: a group of enzymes whose function is unknown.`\
 https://www.nytimes.com/2026/09/24/science/anthropic-biology-lab-enzyme.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/09/24/weather/surigae-map-path-tracker.
 **Son of Israeli Ambassador to U.S. Critically Hurt in West Bank Attack, Officials Say**\
 `Neria Leiter, a reserve soldier, sustained life-threatening injuries after a Palestinian man drove into a military checkpoint in the West Bank, the Israeli military said.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/israel-ambassador-leiter-son-west-bank-attack.html
-
-**Who Is Ahead in Oklahoma's 5th Congressional District?**\
-`Track the latest polls in Oklahoma's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/oklahoma-us-house-5-polls-2026.html
 
 **Live Updates: Trump Greets Xi at White House, Where Pomp May Mask Tensions**\
 `President Xi Jinping, on his first visit to Washington in a decade, struck a businesslike tone at the start of a summit that may produce little progress on issues dividing the powers. President Trump emphasized their personal relationship.`\
