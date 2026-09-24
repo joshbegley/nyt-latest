@@ -1,3 +1,15 @@
+**The Local: A.I. Looms Over the North Star**\
+`The speakers at The Minnesota Star Tribune’s festival of ideas kept returning to one concern: how to manage a future dominated by A.I.`\
+https://www.nytimes.com/2026/09/23/briefing/ai-minnesota-north-star-summit.html
+
+**Iowa Judge Dismisses Trump’s Lawsuit Against The Des Moines Register**\
+`The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 race. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
+https://www.nytimes.com/2026/09/23/us/politics/des-moines-register-trump-lawsuit.html
+
+**A Teacher and Activist Admits to Making Up Palestinian Background**\
+`Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that she is “a white woman of significant privilege.”`\
+https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
+
 **Meta Unveils 3 Smart Glasses With Built-In A.I.**\
 `Artificial intelligence again dominated the company’s annual developer conference, as Mark Zuckerberg doubled down on how the technology can empower people.`\
 https://www.nytimes.com/2026/09/23/technology/meta-ai-smart-glasses-conference.html

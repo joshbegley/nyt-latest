@@ -1,3 +1,7 @@
+**The Local: A.I. Looms Over the North Star**\
+`The speakers at The Minnesota Star Tribune’s festival of ideas kept returning to one concern: how to manage a future dominated by A.I.`\
+https://www.nytimes.com/2026/09/23/briefing/ai-minnesota-north-star-summit.html
+
 **Meta Unveils 3 Smart Glasses With Built-In A.I.**\
 `Artificial intelligence again dominated the company’s annual developer conference, as Mark Zuckerberg doubled down on how the technology can empower people.`\
 https://www.nytimes.com/2026/09/23/technology/meta-ai-smart-glasses-conference.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/09/23/arts/music/cheetah-chrome-dead.html
 https://www.nytimes.com/2026/09/23/world/canada/mark-carney-canada-us-trump-tariffs.html
 
 **Iowa Judge Dismisses Trump’s Lawsuit Against The Des Moines Register**\
-`The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 campaign. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
+`The suit challenged a poll that showed Trump trailing Kamala Harris in the final weeks of the 2024 race. A judge warned that similar legal challenges could have a chilling effect on news reporting.`\
 https://www.nytimes.com/2026/09/23/us/politics/des-moines-register-trump-lawsuit.html
 
 **America’s A.I. Leaders Warn U.N. of Possible Peril Absent a Global Response**\
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/09/23/us/politics/ai-leaders-united-nations-global-
 `Ottawa’s City Council decided that the street should no longer be named for President Trump, who recently signed an executive order changing Lake Ontario to Lake America.`\
 https://www.nytimes.com/2026/09/23/us/ottawa-canada-renaming-trump-avenue.html
 
-**A Teacher and Activist Admits to Lying About Her Palestinian Background**\
+**A Teacher and Activist Admits to Making Up Palestinian Background**\
 `Hannah Gann, who teaches at a Philadelphia high school, said that she had misled people for years and that she is “a white woman of significant privilege.”`\
 https://www.nytimes.com/2026/09/23/us/philadelphia-teacher-palestinian-background.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/23/world/americas/trump-shield-of-the-americas.h
 **Nvidia Executive Argues A.I. Can Help Climate, Despite Current Emissions**\
 `Josh Parker, the head of sustainability for the chipmaker and world’s most valuable company, emphasized future — mostly theoretical — energy savings the technology could offer.`\
 https://www.nytimes.com/2026/09/23/climate/nvidia-ai-climate-change-sustainability-data-centers.html
-
-**As Trump Welcomes Xi, More Americans Have a Positive View of China**\
-`Experts attribute the changing mood to fading memories of the coronavirus pandemic, awareness of China’s tech innovations and disaffection with President Trump’s trade wars.`\
-https://www.nytimes.com/2026/09/23/us/politics/polls-us-china-trump-xi.html
 
 **Judge Appears Skeptical of Trump’s Ban on 3 Media Outlets**\
 `CNN, MS NOW and Politico argued in court that the president’s effort to block them from the White House complex violated their First Amendment rights. The judge promised to rule soon.`\
