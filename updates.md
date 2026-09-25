@@ -1,3 +1,11 @@
+**The Drake-Texas Alliance Grows Stronger**\
+`During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
+https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
+
+**The Best TV of This Century?**\
+`With so many options (and opinions), what makes something great?`\
+https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
+
 **Iced Coffee Debate**\
 `Plus, the 100 best TV shows of the 21st century.`\
 https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
