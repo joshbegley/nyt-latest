@@ -1,3 +1,7 @@
+**The Ezra Klein Show: Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
+`Ezra Klein interviews the Nvidia chief executive Jensen Huang.`\
+https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.html
+
 **Xi Jinping Didn’t Bring a CEO Entourage. What That Says About China-US Relations.**\
 `American chief executives turned out in force to see Xi Jinping, while their Chinese counterparts were absent, a sign of how drastically business ties have changed.`\
 https://www.nytimes.com/2026/09/25/business/trump-xi-jinping-chinese-executives.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/movies/new-york-film-festival-pedro-pascal-el
 **Book Review: ‘Building 903,’ by Lois Lowry**\
 `Lois Lowry pioneered dystopian fiction for young readers. “Building 903” adds to her legacy.`\
 https://www.nytimes.com/2026/09/25/books/review/lois-lowry-building-903.html
-
-**Word of the Day: adjourn**\
-`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/25/learning/word-of-the-day-adjourn.html
 

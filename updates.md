@@ -1,3 +1,7 @@
+**The Ezra Klein Show: Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
+`Ezra Klein interviews the Nvidia chief executive Jensen Huang.`\
+https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.html
+
 **Xi Jinping Didn’t Bring a CEO Entourage. What That Says About China-US Relations.**\
 `American chief executives turned out in force to see Xi Jinping, while their Chinese counterparts were absent, a sign of how drastically business ties have changed.`\
 https://www.nytimes.com/2026/09/25/business/trump-xi-jinping-chinese-executives.html
