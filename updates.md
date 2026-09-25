@@ -1,3 +1,7 @@
+**CNN and CBS Will Resume White House Coverage After Standoff**\
+`Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
 **The Drake-Texas Alliance Grows Stronger**\
 `During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
 https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
