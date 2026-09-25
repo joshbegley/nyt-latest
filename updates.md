@@ -1,3 +1,11 @@
+**Sunkist Fruit Gems, Staple Candy of Bar Mitzvah Tradition, Are Discontinued**\
+`The jelly candies were a staple at bar and bat mitzvahs and other Jewish celebrations for generations.`\
+https://www.nytimes.com/2026/09/25/business/sunkist-fruit-gems-candy-discontinued.html
+
+**The Local: Chickenpox is back**\
+`Plus, questions on the investigation into Mayor Kaohly Her that the city won’t answer.`\
+https://www.nytimes.com/2026/09/25/briefing/minnesota-chickenpox.html
+
 **Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
 `The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
 https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
