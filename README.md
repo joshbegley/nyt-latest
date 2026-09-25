@@ -1,3 +1,11 @@
+**Supreme Court Allows Tool to Screen Voters**\
+`Also, the East Coast braces for a powerful storm. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-storm.html
+
+**Sylvester Stallone on the Toll of Steroids and His Eating Disorder**\
+`Sylvester Stallone opened up about developing an eating disorder and taking steroids when he was younger. His appearance “became an obsession, really bad,” he said on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011166196/sylvester-stallone-on-the-toll-of-steroids-and-his-eating-disorder.html
+
 **Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
 `Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
 https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
@@ -169,12 +177,4 @@ https://www.nytimes.com/2026/09/25/insider/mark-zuckerberg-fashion-style.html
 **African Presidents Call for Permanent African Seats on U.N. Security Council**\
 `A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the change while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
 https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
-
-**At State Dinner for China’s Leader, Melania Trump Wears the Pants**\
-`And possibly makes history while doing so.`\
-https://www.nytimes.com/2026/09/25/style/china-state-dinner-melania-trump-pants.html
-
-**Where to Eat, Sleep and Shop in the Greek Island of Crete**\
-`The Mediterranean destination offers remote beaches, charming tavernas and mountain retreats. Here, four locals share their favorite spots.`\
-https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-beaches.html
 
