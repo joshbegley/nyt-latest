@@ -2,9 +2,9 @@
 `Crews from CBS and CNN were planning to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
 
-**Adding a Child to Your Car Insurance? Here Are Way to Hold Down the Costs.**\
+**Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
 `Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
-https://www.nytimes.com/2026/09/25/your-money/adding-a-child-to-your-car-insurance-here-are-way-to-hold-down-the-costs.html
+https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
 
 **Trump Plans to Visit Tennessee, Oklahoma and Alabama**\
 `The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
