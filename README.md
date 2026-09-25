@@ -194,7 +194,3 @@ https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
 `The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
 
-**China’s Truce With Trump Buys It Valuable Time**\
-`Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
-https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
-
