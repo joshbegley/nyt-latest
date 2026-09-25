@@ -1,3 +1,7 @@
+**Trump and Xi Exchange Symbolic Gifts Ahead of a State Dinner**\
+`President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html
+
 **‘The Sopranos’ Is Nowhere on This List. Also, It’s Everywhere.**\
 `Our poll of the best shows of the 21st century explores how TV built on, and moved on from, one of the last great shows of the 20th.`\
 https://www.nytimes.com/2026/09/24/arts/television/the-sopranos-tv-21st-century.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
 **Mamdani Accuses Netanyahu of Spreading ‘Baseless Lies’ After U.N. Speech**\
 `The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. The mayor has become a political foil for the prime minister.`\
 https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
-
-**Senate Defeats Bid to Direct Trump to End Iran War or Seek Approval**\
-`The vote came as a growing number of Republicans have broken from President Trump on the conflict, reflecting voters’ concerns ahead of midterm elections.`\
-https://www.nytimes.com/2026/09/24/us/politics/senate-iran-war-powers-trump.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
