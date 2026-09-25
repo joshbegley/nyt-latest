@@ -1,3 +1,7 @@
+**30 College Students Splattered With Condiments and Liquids in Hazing, Police Say**\
+`Two University of Wisconsin-Madison students face charges of suspicion of hazing in the episode, which happened on Wednesday in a sweltering basement, officials said.`\
+https://www.nytimes.com/2026/09/25/us/hazing-madison-wisconsin-fraternity.html
+
 **Supreme Court Ruling Could Have Limited Impact on Voter Screening in Midterms**\
 `Federal law requires a 90-day “quiet period” before elections, likely restricting the immediate scope of a decision that allows the use of a citizenship database to examine voter rolls.`\
 https://www.nytimes.com/2026/09/25/us/politics/supreme-court-voter-fraud-midterms-impact.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.
 **Live Updates: East Coast Braces as Powerful Nor’easter Approaches**\
 `Rain, flooding and gusty winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
-
-**Sunkist Fruit Gems, Staple Candy of Bar Mitzvah Tradition, Are Discontinued**\
-`The jelly candies were a staple at bar and bat mitzvahs and other Jewish celebrations for generations.`\
-https://www.nytimes.com/2026/09/25/business/sunkist-fruit-gems-candy-discontinued.html
 
