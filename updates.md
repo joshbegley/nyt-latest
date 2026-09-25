@@ -1,3 +1,15 @@
+**Who Polishes the Brass at Grand Central?**\
+`The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
+https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
+
+**You Get an Eagle, and You Get an Eagle: Xi Gets Trump’s Go-To Gift**\
+`The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
+https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
+
+**Live Updates: Trump-Xi Summit Ends With Tea and Tour but Little Visible Policy Progress**\
+`The presidents visited the National Archives to cap a trip full of ceremony and symbolism but no major announcements on artificial intelligence, trade or Taiwan.`\
+https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
+
 **Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
 `The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
 https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
