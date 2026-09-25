@@ -1,3 +1,15 @@
+**The Graffiti Artist Top Brands Call on for That ‘New York’ Look**\
+`If the city had a font, would his lettering be it?`\
+https://www.nytimes.com/2026/09/25/nyregion/new-york-graffiti-artist-faust.html
+
+**When Making Games Is Your Job, What Do You Do for Fun?**\
+`Members of the New York Times Games team told us about their game club and what they play after they polish off each day’s puzzles.`\
+https://www.nytimes.com/2026/09/25/insider/games-puzzles-wordle-connections.html
+
+**NYT Spelling Bee Answers for September 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/25/crosswords/spelling-bee-forum.html
+
 **Desi Lydic Roasts Trump for Pulling Out All the Stops for Xi**\
 `“Trump picked him up at the airport? OK, that is friendship,” Lydic said on Thursday’s “Daily Show.”`\
 https://www.nytimes.com/2026/09/25/arts/television/desi-lydic-roasts-trump-xi.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-
 **Florida Charges 20 People with Voter Fraud**\
 `Most cases involved noncitizens who registered to vote, attesting that they were U.S. citizens, state officials said.`\
 https://www.nytimes.com/2026/09/24/us/florida-illegal-voting-charges-noncitizens-election.html
-
-**Ex-F.B.I. Agents Crucial to ‘Grand Conspiracy’ Case Suggest Testimony Won’t Help**\
-`Lawyers for the agents said that their clients would testify about “a properly predicated allegation that then-citizen Trump had unlawfully retained hundreds of highly classified documents.”`\
-https://www.nytimes.com/2026/09/24/us/politics/ex-fbi-agents-grand-conspiracy-case.html
-
-**Kitty Lunn, Who Expanded the Boundaries of Dance, Dies at 76**\
-`After breaking her back in a fall, she helped start Infinity Dance Theater, and found that her wheelchair was a tool, not a hindrance.`\
-https://www.nytimes.com/2026/09/24/us/kitty-lunn-dead.html
-
-**Republicans in Red-State Races Are Starting to Break From Trump**\
-`Our national political correspondent, Shane Goldmacher, explains how a growing number of Republican candidates in key battleground states are making calculated decisions to distance themselves from President Trump and his policies.`\
-https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-state-races-are-starting-to-break-from-trump.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
