@@ -1,3 +1,7 @@
+**Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
+`Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
+https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
+
 **Live Updates: Final Day of Trump-Xi Summit Includes Tours and Tea**\
 `The presidents will visit the National Archives to cap a visit full of ceremony and symbolism as the superpowers navigate tensions over artificial intelligence, trade and Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/25/style/fashion-style-history-new-y
 **How Climate Change Is Disrupting Summer Travel**\
 `Once dismissed as occasional inconveniences, climate-related disruptions are now an inescapable fixture of summer travel. How will travelers respond?`\
 https://www.nytimes.com/2026/09/25/travel/climate-change-summer-travel-disruptions.html
-
-**Choose Your Favorite $1 Million Swedish Waterfront Home**\
-`An Art Noveau-style home, a four-bedroom with guesthouses and a modern home with views of a fjord, all near Gothenburg.`\
-https://www.nytimes.com/2026/09/25/realestate/choose-your-favorite-1-million-swedish-waterfront-home.html
 
