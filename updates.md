@@ -1,3 +1,11 @@
+**30 College Students Splattered With Condiments and Liquids in Hazing, Police Say**\
+`Two University of Wisconsin-Madison students face charges of suspicion of hazing in the episode, which happened on Wednesday in a sweltering basement, officials said.`\
+https://www.nytimes.com/2026/09/25/us/hazing-madison-wisconsin-fraternity.html
+
+**Supreme Court Ruling Could Have Limited Impact on Voter Screening in Midterms**\
+`Federal law requires a 90-day “quiet period” before elections, likely restricting the immediate scope of a decision that allows the use of a citizenship database to examine voter rolls.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-voter-fraud-midterms-impact.html
+
 **A Fatal Stabbing Leaves a Quiet Neighborhood Even Quieter**\
 `A 46-year-old doctor was killed and his wife was critically wounded inside their Pittsburgh-area home. A man has been arrested and charged in connection with the attack.`\
 https://www.nytimes.com/2026/09/25/us/pittsburgh-doctor-stabbing.html
