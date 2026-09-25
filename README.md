@@ -1,3 +1,7 @@
+**The Drake-Texas Alliance Grows Stronger**\
+`During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
+https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
+
 **Iced Coffee Debate**\
 `Plus, the 100 best TV shows of the 21st century.`\
 https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
@@ -182,7 +186,7 @@ https://www.nytimes.com/2026/09/25/business/energy-environment/trump-diesel-expo
 `The economic damage from Russian strikes, resulting in lost sales, disrupted workdays and logistical snarls, is in the billions of dollars.`\
 https://www.nytimes.com/2026/09/25/world/europe/ukraine-russia-economy.html
 
-**The Best TV of this Century?**\
+**The Best TV of This Century?**\
 `With so many options (and opinions), what makes something great?`\
 https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/us/politics/north-carolina-senate-roy-cooper-
 **Book Club: Read ‘Switzy,’ by Emma Cline, With the Book Review**\
 `In October, the Book Review Book Club will read Cline’s latest, about a man with dementia who has decided to end his life on his own terms.`\
 https://www.nytimes.com/2026/09/25/books/review/switzy-emma-cline-book-club.html
-
-**Brain Science Shows Why 18 Is Too Young for the Death Penalty**\
-`Our brains don’t finish developing until we’re well into our 20s. That matters when deciding who gets the death penalty.`\
-https://www.nytimes.com/2026/09/25/opinion/death-penalty-young-brain-development.html
 

@@ -1,3 +1,31 @@
+**Iced Coffee Debate**\
+`Plus, the 100 best TV shows of the 21st century.`\
+https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
+
+**Use Your Rotisserie Chicken to Make These Enchiladas**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/09/25/dining/use-your-rotisserie-chicken-to-make-these-enchiladas.html
+
+**Polls Show Advantage for Incumbent Parties in 4 Governor’s Races**\
+`Democrats hold wide leads in Maine and Pennsylvania, as does the incumbent Republican in New Hampshire, but Michigan appears closer, according to New York Times/Siena polls.`\
+https://www.nytimes.com/2026/09/25/us/governor-polls-maine-michigan-new-hampshire-pennsylvania.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks: killer A.I., mysterious cults, alien horror, postapocalyptic survival and zany dimensions.`\
+https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
+
+**Tiler Peck Takes on a New Role at City Ballet: Choreographic Associate**\
+`The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
+https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
+
+**These Midterm Races Matter the Most. They’re Discussed the Least.**\
+`Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
+https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
+
+**Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
+`The presidents are set to visit the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
+https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
+
 **A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
 `Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
 https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
