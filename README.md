@@ -1,3 +1,7 @@
+**Report Finds Security Failings at Event Where Charlie Kirk Was Killed**\
+`A review commissioned by Utah Valley University faults campus and Turning Point USA officials for poor planning of the event last year.`\
+https://www.nytimes.com/2026/09/25/us/utah-valley-university-charlie-kirk-security.html
+
 **Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
 `Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
 https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/interactive/2026/09/25/us/mecklenburgletter.html
 **Are Book Awards Dictated by D.E.I.?**\
 `Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
 https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
-
-**After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
-`A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
-https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
 

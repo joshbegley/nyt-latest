@@ -1,3 +1,11 @@
+**Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
+`Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
+https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html
+
+**China’s Xi Snubs a Troubled U.N. for Trump, Overshadowing Its Big Week**\
+`The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
+
 **After Much Political Ado, Ed Sheeran’s Boston Concerts Are Canceled for Weather**\
 `The cancellations come after the Gillette Stadium owner pressured Mr. Sheeran to remove an act who made pro-Palestine statements.`\
 https://www.nytimes.com/2026/09/25/nyregion/ed-sheeran-concerts-canceled-storm.html

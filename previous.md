@@ -1,3 +1,7 @@
+**Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
+`Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
+https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html
+
 **After Much Political Ado, Ed Sheeran’s Boston Concerts Are Canceled for Weather**\
 `The cancellations come after the Gillette Stadium owner pressured Mr. Sheeran to remove an act who made pro-Palestine statements.`\
 https://www.nytimes.com/2026/09/25/nyregion/ed-sheeran-concerts-canceled-storm.html
@@ -118,7 +122,7 @@ https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-b
 `Star Meat Delivery did not complete the requirements necessary to process food, the Agriculture Department said.`\
 https://www.nytimes.com/2026/09/25/business/star-meat-delivery-recall-usda.html
 
-**China’s Xi Snubs a Troubled U.N. for Trump, Drowning Out Its Big Week**\
+**China’s Xi Snubs a Troubled U.N. for Trump, Overshadowing Its Big Week**\
 `The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
 **After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
 `A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
 https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
-
-**Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
 
