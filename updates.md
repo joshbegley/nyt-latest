@@ -1,3 +1,7 @@
+**Four Beluga Whales Die Weeks After Major Rescue Mission**\
+`The belugas were among 30 whales transferred to aquariums in the United States and Spain from a closed marine attraction in Canada.`\
+https://www.nytimes.com/2026/09/25/us/marineland-beluga-whales-deaths.html
+
 **U.S. Rejects U.N. Declaration on Preparing for Future Pandemics**\
 `Most member nations spoke in support of the declaration, but some rich countries had strong objections.`\
 https://www.nytimes.com/2026/09/25/us/politics/us-rejects-un-declaration-on-preparing-for-pandemics.html
