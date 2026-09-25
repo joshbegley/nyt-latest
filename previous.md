@@ -1,3 +1,7 @@
+**Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
+`Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
+https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
+
 **As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
 `President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-xi-state-visit.html
@@ -173,12 +177,4 @@ https://www.nytimes.com/2026/09/25/style/china-state-dinner-melania-trump-pants.
 **Where to Eat, Sleep and Shop in the Greek Island of Crete**\
 `The Mediterranean destination offers remote beaches, charming tavernas and mountain retreats. Here, four locals share their favorite spots.`\
 https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-beaches.html
-
-**Bracing for Midterm Losses, Republicans in Congress Try a Pre-election Pivot**\
-`After nearly two years of allowing President Trump to set their agenda, G.O.P. senators are grasping for some quick action on cost-of-living measures they can show voters before November.`\
-https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
-
-**Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
 

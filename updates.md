@@ -1,3 +1,7 @@
+**Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
+`Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
+https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
+
 **As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
 `President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-xi-state-visit.html
