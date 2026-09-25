@@ -1,3 +1,7 @@
+**In London, a New Flagship for Alex Eagle**\
+`The designer signed on to creative direct the whole of 180 the Thames, a new lifestyle hub on the north bank of the Thames. Then she moved her own business there.`\
+https://www.nytimes.com/2026/09/24/t-magazine/alex-eagle-180-the-thames.html
+
 **Airline Credit Cards Are Screwing Up the Whole Industry**\
 `Airline loyalty programs are anticompetitive and hurting consumers.`\
 https://www.nytimes.com/2026/09/24/opinion/flights-airlines-spirit-loyalty-credit-cards.html
