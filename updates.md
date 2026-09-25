@@ -1,3 +1,7 @@
+**Pope Leo to Press: ‘You Are All Welcome’**\
+`Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
+https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
+
 **Trump Gave Xi His Go-To Gift: A Bald Eagle Statue**\
 `The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
 https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
