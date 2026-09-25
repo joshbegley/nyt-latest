@@ -1,3 +1,15 @@
+**Kennedy Center Shelved Repairs Now Cited for Closure, Whistle-Blowers Say**\
+`In a letter to Congress, former employees say the center delayed a plan to address the leaks that its officials now cite as a serious safety risk.`\
+https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html
+
+**Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
+`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace ties to the United States.`\
+https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html
+
+**Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
+`Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
+https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
+
 **How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
 `A new report by a Bay Area start-up called Parse adds new details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
 https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html

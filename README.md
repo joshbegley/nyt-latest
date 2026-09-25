@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
 `Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
 https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
 
-**Charges of A.I. Writing in a Lauded Novel, and a Fight Over the Literary Future**\
+**His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.**\
 `“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
 https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
 

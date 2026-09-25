@@ -1,9 +1,13 @@
+**Kennedy Center Shelved Repairs Now Cited for Closure, Whistle-Blowers Say**\
+`In a letter to Congress, former employees say the center delayed a plan to address the leaks that its officials now cite as a serious safety risk.`\
+https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html
+
 **How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
 `A new report by a Bay Area start-up called Parse adds new details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
 https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
 
 **Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
-`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace its ties to the United States.`\
+`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace ties to the United States.`\
 https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html
 
 **U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
@@ -56,7 +60,7 @@ https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.
 
 **Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
 `Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
-https://www.nytimes.com/live/2026/09/25/weather/noreaster-storm-nyc-weekend
+https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
 
 **Sunkist Fruit Gems, Staple Candy of Bar Mitzvah Tradition, Are Discontinued**\
 `The jelly candies were a staple at bar and bat mitzvahs and other Jewish celebrations for generations.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michi
 **A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
 `Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
 https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
-
-**87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
-`María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
-https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
