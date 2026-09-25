@@ -1,3 +1,15 @@
+**How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
+`A new report by a Bay Area start-up called Parse adds new details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
+https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
+
+**Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
+`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace its ties to the United States.`\
+https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html
+
+**U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
+`Israel condemned the database of firms tied to activity in the occupied West Bank as a “political tool” to advance “a smear campaign.”`\
+https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html
+
 **Byron Sher, Early Environmental Warrior in California, Dies at 98**\
 `A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
 https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
