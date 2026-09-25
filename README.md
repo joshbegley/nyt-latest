@@ -1,3 +1,7 @@
+**Desi Lydic Roasts Trump for Pulling Out All the Stops for Xi**\
+`“Trump picked him up at the airport? OK, that is friendship,” Lydic said on Thursday’s “Daily Show.”`\
+https://www.nytimes.com/2026/09/25/arts/television/desi-lydic-roasts-trump-xi.html
+
 **Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
 `The strike, which began early Friday, is the latest labor action to unsettle classical music at a time of financial turmoil and uncertainty.`\
 https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/us/kitty-lunn-dead.html
 **Republicans in Red-State Races Are Starting to Break From Trump**\
 `Our national political correspondent, Shane Goldmacher, explains how a growing number of Republican candidates in key battleground states are making calculated decisions to distance themselves from President Trump and his policies.`\
 https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-state-races-are-starting-to-break-from-trump.html
-
-**Trump Hosts China’s Leader for a State Visit**\
-`Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
