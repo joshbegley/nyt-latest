@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Sept. 25, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-headlines/the-headlines-news-quiz-sept-25-2026.html
+
 **The Ezra Klein Show: Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
 `Ezra Klein interviews the Nvidia chief executive Jensen Huang.`\
 https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.html
@@ -183,7 +187,7 @@ https://www.nytimes.com/2026/09/25/world/europe/slovakia-village-tourism.html
 https://www.nytimes.com/2026/09/25/travel/travel-first-aid-what-to-bring.html
 
 **Choosing the Best TV of the 21st Century**\
-`Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the list was made.`\
+`Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the project was made.`\
 https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-the-21st-century.html
 
 **Russian Attacks Destroy Ukrainian Books**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011148419/russian-attacks-destr
 **At the New York Film Festival, Movies With Oomph**\
 `Films by Ava DuVernay, Tony Gilroy and Luca Guadagnino set a high bar at the latest edition of this Lincoln Center event.`\
 https://www.nytimes.com/2026/09/25/movies/new-york-film-festival-pedro-pascal-elizabeth-holmes-nathan-fielder.html
-
-**Book Review: ‘Building 903,’ by Lois Lowry**\
-`Lois Lowry pioneered dystopian fiction for young readers. “Building 903” adds to her legacy.`\
-https://www.nytimes.com/2026/09/25/books/review/lois-lowry-building-903.html
 

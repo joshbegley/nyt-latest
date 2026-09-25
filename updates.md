@@ -1,3 +1,11 @@
+**‘The Headlines’ News Quiz: Sept. 25, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-headlines/the-headlines-news-quiz-sept-25-2026.html
+
+**Choosing the Best TV of the 21st Century**\
+`Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the project was made.`\
+https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-the-21st-century.html
+
 **The Ezra Klein Show: Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
 `Ezra Klein interviews the Nvidia chief executive Jensen Huang.`\
 https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.html
