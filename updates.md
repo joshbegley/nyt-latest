@@ -1,3 +1,7 @@
+**Byron Sher, Early Environmental Warrior in California, Dies at 98**\
+`A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
+https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
+
 **South Carolinians: Do You Have a Short-Term, High-Interest Personal Loan? Share Your Bills.**\
 `We want to hear from borrowers who have taken out installment, payday or title loans, and those who work for companies that offer them.`\
 https://www.nytimes.com/2026/09/25/us/south-carolinians-do-you-have-a-short-term-high-interest-personal-loan-share-your-bills.html

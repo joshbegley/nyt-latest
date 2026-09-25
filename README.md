@@ -1,3 +1,7 @@
+**U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
+`Israel condemned the database of firms tied to activity in the occupied West Bank as a “political tool” to advance “a smear campaign.”`\
+https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html
+
 **Byron Sher, Early Environmental Warrior in California, Dies at 98**\
 `A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
 https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
 **Pope Leo to Press: ‘You Are All Welcome’**\
 `Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
 https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
-
-**You Get an Eagle, and You Get an Eagle: Xi Gets Trump’s Go-To Gift**\
-`The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
-https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

@@ -1,3 +1,7 @@
+**Byron Sher, Early Environmental Warrior in California, Dies at 98**\
+`A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
+https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
+
 **South Carolinians: Do You Have a Short-Term, High-Interest Personal Loan? Share Your Bills.**\
 `We want to hear from borrowers who have taken out installment, payday or title loans, and those who work for companies that offer them.`\
 https://www.nytimes.com/2026/09/25/us/south-carolinians-do-you-have-a-short-term-high-interest-personal-loan-share-your-bills.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-
 **You Get an Eagle, and You Get an Eagle: Xi Gets Trump’s Go-To Gift**\
 `The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
 https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
-
-**Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
-`Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
-https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
