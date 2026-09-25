@@ -1,3 +1,7 @@
+**Iran Proposes 7-Day Plan to End War**\
+`Under the offer, the Strait of Hormuz would reopen and nuclear talks would be revived.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/iran-proposal.html
+
 **Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
 `The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
 https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killin
 **Conservative Outlets Offer Trump Feed While White House TV Pool Is Suspended**\
 `Real America’s Voice and LindellTV have teamed up to provide a feed of daily presidential events.`\
 https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv-pool-conservative-news.html
-
-**Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
-`Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
-https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

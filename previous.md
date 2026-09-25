@@ -1,3 +1,19 @@
+**Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
+`The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
+https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
+
+**‘America’s Bishop’ Was Beatified. 50,000 Catholics Showed Up.**\
+`Archbishop Fulton J. Sheen, who was the country’s most visible Roman Catholic clergyman of the 20th century, is one step closer to sainthood after a ceremony in St. Louis.`\
+https://www.nytimes.com/2026/09/24/us/fulton-sheen-catholic-saint.html
+
+**Kyrsten Sinema’s Home Is Ransacked by an Ex-Bodyguard, Officials Say**\
+`The man, Matthew Ammel, dated Ms. Sinema while he was part of her Senate campaign security detail and was married, according to court filings.`\
+https://www.nytimes.com/2026/09/24/us/kyrsten-sinema-affair-bodyguard-arrest.html
+
+**Unused Tents and Uneaten Food: Watchdog Finds ‘Waste’ in Immigration Crackdown**\
+`In a report Thursday, the Government Accountability Office said the Trump administration squandered millions of dollars to expand detention.`\
+https://www.nytimes.com/2026/09/24/us/politics/gao-report-finds-waste-immigrant-detention.html
+
 **Delegates Walk Out in Protest as Netanyahu Speaks**\
 `On Thursday, hundreds of people in New York City protested Prime Minister Benjamin Netanyahu of Israel, who spoke at the U.N. General Assembly.`\
 https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-unga-protests.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv
 **Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
 `Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
 https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
-
-**What’s Going On in This Graph? | Sept. 30, 2026**\
-`Which emojis do you find yourself using most often? Are they the same as the emojis you used last year?`\
-https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-graph-sept-30-2026.html
-
-**What’s Going On in This Picture? | Sept. 28, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-picture-sept-28-2026.html
-
-**The Wild West of A.I. Needs to End. Here’s How.**\
-`It’s time to give the public what it wants: A.I. regulation.`\
-https://www.nytimes.com/2026/09/24/opinion/ai-regulation-government-tech-industry.html
-
-**MOCA Appoints Former Public Media Leader as Its New Director**\
-`Jonathan Abbott, who oversaw the network that produces PBS programs like “Masterpiece,” is the Museum of Contemporary Art, Los Angeles’s sixth director in 18 years.`\
-https://www.nytimes.com/2026/09/24/arts/design/moca-new-director-jonathan-abbott.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

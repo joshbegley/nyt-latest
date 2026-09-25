@@ -1,3 +1,19 @@
+**Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
+`The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
+https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
+
+**‘America’s Bishop’ Was Beatified. 50,000 Catholics Showed Up.**\
+`Archbishop Fulton J. Sheen, who was the country’s most visible Roman Catholic clergyman of the 20th century, is one step closer to sainthood after a ceremony in St. Louis.`\
+https://www.nytimes.com/2026/09/24/us/fulton-sheen-catholic-saint.html
+
+**Kyrsten Sinema’s Home Is Ransacked by an Ex-Bodyguard, Officials Say**\
+`The man, Matthew Ammel, dated Ms. Sinema while he was part of her Senate campaign security detail and was married, according to court filings.`\
+https://www.nytimes.com/2026/09/24/us/kyrsten-sinema-affair-bodyguard-arrest.html
+
+**Unused Tents and Uneaten Food: Watchdog Finds ‘Waste’ in Immigration Crackdown**\
+`In a report Thursday, the Government Accountability Office said the Trump administration squandered millions of dollars to expand detention.`\
+https://www.nytimes.com/2026/09/24/us/politics/gao-report-finds-waste-immigrant-detention.html
+
 **Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
 `Investigators found that New Jersey’s lieutenant governor, Dale Caldwell, sought a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
 https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
