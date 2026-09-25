@@ -1,3 +1,7 @@
+**China’s Xi Snubs a Troubled U.N. for Trump, Drowning Out Its Big Week**\
+`The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
+
 **Beaches Are Disappearing in Southern California as El Niño Bears Down**\
 `Beachfront homeowners and beachcombers are watching the sand vanish into the ocean as torrid waves strike the coast.`\
 https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
 **Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
 `Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
 https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
-
-**Trump Plans to Visit Tennessee, Oklahoma and Alabama**\
-`The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
-https://www.nytimes.com/2026/09/25/us/politics/trump-rally-tennessee-oklahoma-alabama-republicans.html
 
