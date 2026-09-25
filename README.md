@@ -1,3 +1,7 @@
+**Read the document**\
+`Sheri H. Mecklenburg resignation letter`\
+https://www.nytimes.com/interactive/2026/09/25/us/mecklenburgletter.html
+
 **Are Book Awards Dictated by D.E.I.?**\
 `Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
 https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/podcasts/the-daily/the-life-and-for-now-the-d
 **Trump Called the Kennedy Center Elitist. Was It?**\
 `When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
-
-**Dallas Cowboys Succession**\
-`Plus, who should be panicking in the N.F.L.`\
-https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
 

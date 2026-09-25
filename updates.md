@@ -1,3 +1,7 @@
+**Are Book Awards Dictated by D.E.I.?**\
+`Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
+https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
+
 **African Presidents Call for Permanent African Seats on U.N. Security Council**\
 `A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the change while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
 https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
