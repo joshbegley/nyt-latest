@@ -1,3 +1,7 @@
+**OpenAI Agents Hacked Into an Australian Government Website. Who’s Responsible?**\
+`The first known breach of a government website by rogue artificial intelligence agents has prompted global calls for more regulation of the technology.`\
+https://www.nytimes.com/2026/09/25/world/australia/openai-hack-australia.html
+
 **Once Sentenced to Death, Mary Jane Veloso Receives Pardon in the Philippines**\
 `Mary Jane Veloso was convicted of drug smuggling and nearly killed by a firing squad in Indonesia. On Friday, more than a decade later, she was pardoned in the Philippines.`\
 https://www.nytimes.com/2026/09/25/world/asia/mary-jane-veloso-philippines-pardon.html

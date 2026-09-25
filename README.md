@@ -1,3 +1,11 @@
+**Xi Jinping Didn’t Bring a CEO Entourage. What That Says About China-US Relations.**\
+`American chief executives turned out in force to see Xi Jinping, while their Chinese counterparts were absent, a sign of how drastically business ties have changed.`\
+https://www.nytimes.com/2026/09/25/business/trump-xi-jinping-chinese-executives.html
+
+**Peak TV**\
+`We talk about the best television of the 21st century`\
+https://www.nytimes.com/2026/09/25/briefing/peak-tv.html
+
 **OpenAI Agents Hacked Into an Australian Government Website. Who’s Responsible?**\
 `The first known breach of a government website by rogue artificial intelligence agents has prompted global calls for more regulation of the technology.`\
 https://www.nytimes.com/2026/09/25/world/australia/openai-hack-australia.html
@@ -116,7 +124,7 @@ https://www.nytimes.com/2026/09/25/movies/new-movies-this-week-critics.html
 
 **Es Devlin, Master of the Extravaganza, Highlights the Art of Craft**\
 `For the Homo Faber Biennial in the Venetian lagoon, the designer unites works by 500 artisans, each one an island of talent.`\
-https://www.nytimes.com/2026/09/25/arts/design/es-devlin-master-of-the-extravaganza-highlights-the-art-of-craft.html
+https://www.nytimes.com/2026/09/25/arts/design/es-devlin-homo-faber-biennial-venice.html
 
 **See an Underwater World Projected on the Brooklyn Bridge**\
 `A video art installation about Hudson Canyon, in the Atlantic Ocean, will be shown on the bridge tonight.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/25/books/review/lois-lowry-building-903.html
 **Word of the Day: adjourn**\
 `This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/25/learning/word-of-the-day-adjourn.html
-
-**Russian Attacks Destroy Millions of Books, the Heart of Ukrainian Culture**\
-`A publisher whose warehouse was hit twice said Moscow “thinks that books are more dangerous for them than military equipment.”`\
-https://www.nytimes.com/2026/09/25/world/europe/russia-ukraine-books-attacks.html
-
-**This Island Loves Its Bears. If Only They’d Stop Eating Trash.**\
-`Kodiak Island in Alaska is famous for its giant brown bears, but human efforts to keep the behemoths out of the landfill have become a struggle.`\
-https://www.nytimes.com/2026/09/25/us/kodiak-island-bears-dump-alaska.html
 
