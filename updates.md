@@ -1,3 +1,7 @@
+**After Much Political Ado, Ed Sheeran’s Boston Concerts Are Canceled for Weather**\
+`The cancellations come after the Gillette Stadium owner pressured Mr. Sheeran to remove an act who made pro-Palestine statements.`\
+https://www.nytimes.com/2026/09/25/nyregion/ed-sheeran-concerts-canceled-storm.html
+
 **Saudi Arabia Open to Possibly Developing Nuclear Weapons**\
 `An intelligence assessment examined Saudi Arabia’s military ambitions as Congress reviews a new civilian nuclear deal between the U.S. and the kingdom.`\
 https://www.nytimes.com/2026/09/25/us/politics/saudi-arabia-nuclear-weapons.html
