@@ -1,3 +1,15 @@
+**Hurricane Nolo Takes Aim at Hawaii**\
+`Though likely to avoid a direct hit, parts of the state could receive nearly three feet of rain, forecasters warned.`\
+https://www.nytimes.com/2026/09/24/weather/hurricane-nolo-hawaii.html
+
+**The Best TV Shows of the 21st Century: What to Watch**\
+`Our list of the 100 best TV shows of this century (so far) is a great resource for TV lovers. But how do you narrow it down? Here are some helpful starting points.`\
+https://www.nytimes.com/interactive/2026/arts/television/watch-tv-shows-21st-century.html
+
+**Justice Department Scraps Dozens of School Desegregation Cases**\
+`Critics said the changes, mostly in the South, moved the nation “back toward the Jim Crow era.” Justice Department officials said the decrees were outdated.`\
+https://www.nytimes.com/2026/09/24/us/politics/justice-department-desegregation-cases.html
+
 **France to Send Soldiers to Saudi Arabia to Help Secure Energy Sites**\
 `Attacks on Saudi cities on the Red Sea by the Iran-backed Houthi militia in Yemen have added to pressure on global oil supplies.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/france-saudi-arabia-red-sea-yemen-houthis.html
