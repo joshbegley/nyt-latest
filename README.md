@@ -1,3 +1,7 @@
+**Who Polishes the Brass at Grand Central?**\
+`The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
+https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
+
 **Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
 `The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
 https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
 `Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
 https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
 
-**Trump Gave Xi His Go-To Gift: A Bald Eagle Statue**\
+**You Get an Eagle, and You Get an Eagle: Xi Gets Trump’s Go-To Gift**\
 `The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
 https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
-**Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
-`The presidents are visiting the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
+**Live Updates: Trump-Xi Summit Ends With Tea and Tour but Little Visible Policy Progress**\
+`The presidents visited the National Archives to cap a trip full of ceremony and symbolism but no major announcements on artificial intelligence, trade or Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **CNN and CBS Resume White House Coverage After Standoff**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
 **Alaskans Dismayed, but Not Moved, by Peltola’s Treatment of Her Staff**\
 `Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
 https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
-
-**Pope Leo Signals Support for Journalists Targeted by Trump**\
-`Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
-https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
 

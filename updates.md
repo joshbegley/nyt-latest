@@ -1,3 +1,19 @@
+**Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
+`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
+https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
+
+**Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
+`The prosecutor said that U.S. Attorney Andrew S. Boutros had intervened and overruled her in the case against a group of protesters known as the “Broadview Six.”`\
+https://www.nytimes.com/2026/09/25/us/chicago-federal-prosecutor-resigns-broadview-six.html
+
+**Woman Who Accused Jay-Z of Rape Recants Her Account**\
+`An anonymous accuser’s retraction is now part of Jay-Z’s case against the lawyers who had represented her.`\
+https://www.nytimes.com/2026/09/25/arts/music/jay-z-jane-doe-rape-recant-statement.html
+
+**Why Does The Times Care About Mark Zuckerberg’s Style?**\
+`For our chief fashion critic, Vanessa Friedman, the Meta chief executive’s choice of clothes reveal, perhaps inadvertently, pieces of his psyche.`\
+https://www.nytimes.com/2026/09/25/insider/mark-zuckerberg-fashion-style.html
+
 **CNN and CBS Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN covered two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
