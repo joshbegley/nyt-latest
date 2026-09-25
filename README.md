@@ -1,3 +1,7 @@
+**Once Sentenced to Death, Mary Jane Veloso Receives Pardon in the Philippines**\
+`Mary Jane Veloso was convicted of drug smuggling and nearly killed by a firing squad in Indonesia. On Friday, more than a decade later, she was pardoned in the Philippines.`\
+https://www.nytimes.com/2026/09/25/world/asia/mary-jane-veloso-philippines-pardon.html
+
 **Trump Called the Kennedy Center Elitist. Was It?**\
 `When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/us/kodiak-island-bears-dump-alaska.html
 **The Viral In-N-Out Spatula Hero Is Exactly Who You Imagined He Was**\
 `It started as a bizarre late-night standoff behind the counter of a fast food joint. It ended with no injuries — and free burgers.`\
 https://www.nytimes.com/2026/09/25/us/in-n-out-burger-luca-opperman-spatula.html
-
-**The World Needs Better Power Grids. Why Smaller May Be Better.**\
-`Jonas Birgersson, a Swedish entrepreneur, wants to use decentralized networks modeled on the internet to transform how electricity is distributed.`\
-https://www.nytimes.com/2026/09/25/business/power-grid-jonas-birgersson.html
 
