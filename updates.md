@@ -1,3 +1,7 @@
+**‘Unabomber’ Review: A Not-So-Beautiful Mind**\
+`Russell Crowe and Jacob Tremblay add welcome intrigue to this bifurcated true-crime drama.`\
+https://www.nytimes.com/2026/09/24/movies/unabomber-review-a-not-so-beautiful-mind.html
+
 **In Trump’s White House, China’s Dictator Is Welcome. American Media, Less So.**\
 `The showdown over President Trump’s partial media ban played out as he welcomed President Xi Jinping, whose government is ranked among the most repressive in the world.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-press-pool-boycott-media.html
