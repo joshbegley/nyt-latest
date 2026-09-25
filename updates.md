@@ -1,3 +1,7 @@
+**Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
+`The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
+https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
+
 **32 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
 `During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
 https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html

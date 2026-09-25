@@ -1,3 +1,7 @@
+**Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
+`The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
+https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
+
 **China’s Truce With Trump Buys It Valuable Time**\
 `Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
 https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/world/europe/slovakia-village-tourism.html
 **What to Pack in Your Travel First-Aid Kit**\
 `A bouncer and security guard, accustomed to responding to fights, fires and accidents, recommends a range of useful first-aid items for a variety of travelers.`\
 https://www.nytimes.com/2026/09/25/travel/travel-first-aid-what-to-bring.html
-
-**Choosing the Best TV of the 21st Century**\
-`Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the project was made.`\
-https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-the-21st-century.html
 
