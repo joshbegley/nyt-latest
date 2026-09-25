@@ -1,3 +1,7 @@
+**Airline Credit Cards Are Screwing Up the Whole Industry**\
+`Airline loyalty programs are anticompetitive and hurting consumers.`\
+https://www.nytimes.com/2026/09/24/opinion/flights-airlines-spirit-loyalty-credit-cards.html
+
 **Trump and Xi Exchange Symbolic Gifts Ahead of State Dinner**\
 `President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html

@@ -1,3 +1,7 @@
+**Airline Credit Cards Are Screwing Up the Whole Industry**\
+`Airline loyalty programs are anticompetitive and hurting consumers.`\
+https://www.nytimes.com/2026/09/24/opinion/flights-airlines-spirit-loyalty-credit-cards.html
+
 **Trump and Xi Exchange Symbolic Gifts Ahead of State Dinner**\
 `President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wil
 **‘Hold My Legs’: How Ernie Sisto Shot a Sky-High Disaster**\
 `When a B-25 bomber crashed into the Empire State Building in 1945, a Times photographer leaned far out to get close up.`\
 https://www.nytimes.com/2026/09/24/nyregion/ernie-sisto-photography.html
-
-**Mamdani Accuses Netanyahu of Spreading ‘Baseless Lies’ After U.N. Speech**\
-`The Israeli prime minister accused Mayor Zohran Mamdani, an outspoken critic of Israel, of antisemitism. The mayor has become a political foil for the prime minister.`\
-https://www.nytimes.com/2026/09/24/nyregion/netanyahu-mamdani-un-speech.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
