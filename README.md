@@ -1,3 +1,7 @@
+**Abdul El-Sayed Responds to Right-Wing Vitriol**\
+`Dr. Abdul El-Sayed’s Senate campaign has been a target of Islamophobic right-wing attacks. On “The Ezra Klein Show,” he shares what he has made of these attacks, and how he hopes to refocus the conversation.`\
+https://www.nytimes.com/video/opinion/100000011172026/abdul-el-sayed-responds-to-right-wing-vitriol.html
+
 **Are the Current Laws Enough to Regulate A.I.?**\
 `On “The Ezra Klein Show,” Jensen Huang, the chief executive of Nvidia, thinks that the frontier A.I. companies don’t need new regulations or regulatory exemptions to slow down development.`\
 https://www.nytimes.com/video/opinion/100000011166609/are-the-current-laws-enough-to-regulate-ai.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-
 **Iced Coffee Debate**\
 `Plus, the 100 best TV shows of the 21st century.`\
 https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
-
-**Use Your Rotisserie Chicken to Make These Enchiladas**\
-`And more popular recipes from the week.`\
-https://www.nytimes.com/2026/09/25/dining/use-your-rotisserie-chicken-to-make-these-enchiladas.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
