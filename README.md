@@ -1,3 +1,11 @@
+**France to Send Soldiers to Saudi Arabia to Help Secure Energy Sites**\
+`Attacks on Saudi cities on the Red Sea by the Iran-backed Houthi militia in Yemen have added to pressure on global oil supplies.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/france-saudi-arabia-red-sea-yemen-houthis.html
+
+**Best TV Shows of the 21st Century: A Printable List**\
+`More than 500 stars, showrunners and TV lovers voted on their favorite shows of this century. Here are the results of our poll.`\
+https://www.nytimes.com/interactive/2026/arts/television/print-best-tv-shows-21st-century.html
+
 **In London, a New Flagship for Alex Eagle**\
 `The designer signed on to creative direct the whole of 180 the Thames, a new lifestyle hub on the north bank of the Thames. Then she moved her own business there.`\
 https://www.nytimes.com/2026/09/24/t-magazine/alex-eagle-180-the-thames.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/09/24/opinion/flights-airlines-spirit-loyalty-credi
 `President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html
 
-**‘The Sopranos’ Is Nowhere on This List. Also, It’s Everywhere.**\
+**How ‘The Sopranos’ Influenced the Best TV Shows of the 21st Century**\
 `Our poll of the best shows of the 21st century explores how TV built on, and moved on from, one of the last great shows of the 20th.`\
 https://www.nytimes.com/2026/09/24/arts/television/the-sopranos-tv-21st-century.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/24/arts/television/netflix-expiring-october.html
 **Is Adéla, an Ex-Ballerina From Slovakia, the Next Pop Sensation?**\
 `Adéla was cut in the first round of a reality show looking to create the girl group Katseye. Judges said they saw her “as a solo artist.” She agreed.`\
 https://www.nytimes.com/2026/09/24/style/adela-prima-red-bottoms-tour.html
-
-**And to Think That I Ate It on Mulberry Street**\
-`The annual Feast of San Gennaro gave me heartburn, a tummy ache and a great time`\
-https://www.nytimes.com/2026/09/24/dining/san-gennaro.html
-
-**Read Senator Maggie Hassan’s Letter to the White House**\
-`Hassan, Democrat of New Hampshire, sent a letter demanding that the White House chief of staff, Susie Wiles, divulge who produced a commercial urging Republicans to vote.`\
-https://www.nytimes.com/interactive/2026/09/24/us/Maggie-Hassan-Letter-Susie-Wiles.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
