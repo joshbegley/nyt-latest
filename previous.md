@@ -1,3 +1,11 @@
+**Adding a Child to Your Car Insurance? Here Are Way to Hold Down the Costs.**\
+`Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
+https://www.nytimes.com/2026/09/25/your-money/adding-a-child-to-your-car-insurance-here-are-way-to-hold-down-the-costs.html
+
+**Trump Plans to Visit Tennessee, Oklahoma and Alabama**\
+`The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-rally-tennessee-oklahoma-alabama-republicans.html
+
 **The A.I. Boom Is Built on Theft**\
 `A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
 https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.htm
 https://www.nytimes.com/2026/09/25/business/trump-xi-jinping-chinese-executives.html
 
 **Peak TV**\
-`We talk about the best television of the 21st century`\
+`We talk about the best television of the 21st century.`\
 https://www.nytimes.com/2026/09/25/briefing/peak-tv.html
 
 **OpenAI Agents Hacked Into an Australian Government Website. Who’s Responsible?**\
@@ -98,13 +106,13 @@ https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 `Practical tips to reduce screen time, manage notifications and regain focus.`\
 https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
 
-**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
-`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
-https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
-
 **What Can Climate Change and Covid Teach Us About A.I. Doom?**\
 `From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
 https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
+
+**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
+`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
+https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
 
 **Colombia Sends Troops to Coastal City Gripped by Violence**\
 `President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celeb
 **How the New York Times Stays Young After 175 Years**\
 `A conversation about how The Times stays up to speed with youth culture.`\
 https://www.nytimes.com/2026/09/25/insider/nyt-175-youth-culture.html
-
-**32 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
-`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
-https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
-
-**Book Review: ‘The Ballad of the Fugitive William Parker,’ by Cristin O’Keefe Aptowicz**\
-`A new book by Cristin O’Keefe Aptowicz recounts how violent resistance by a group of armed Black men fueled the fight over slavery.`\
-https://www.nytimes.com/2026/09/25/books/review/the-ballad-of-the-fugitive-william-parker-cristin-okeefe-aptowicz.html
 

@@ -1,3 +1,15 @@
+**Adding a Child to Your Car Insurance? Here Are Way to Hold Down the Costs.**\
+`Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
+https://www.nytimes.com/2026/09/25/your-money/adding-a-child-to-your-car-insurance-here-are-way-to-hold-down-the-costs.html
+
+**Trump Plans to Visit Tennessee, Oklahoma and Alabama**\
+`The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-rally-tennessee-oklahoma-alabama-republicans.html
+
+**Peak TV**\
+`We talk about the best television of the 21st century.`\
+https://www.nytimes.com/2026/09/25/briefing/peak-tv.html
+
 **The A.I. Boom Is Built on Theft**\
 `A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
 https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
