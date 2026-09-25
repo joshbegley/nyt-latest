@@ -1,3 +1,23 @@
+**Maps: Tracking Tropical Storm Gonzalo**\
+`See the likely path and wind arrival times for Gonzalo`\
+https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.html
+
+**Live Updates: Powerful Fall Storm Strengthens as It Crawls Up the East Coast**\
+`Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
+https://www.nytimes.com/live/2026/09/25/weather/noreaster-storm-nyc-weekend
+
+**Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
+`The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
+https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
+
+**Supreme Court Allows Use of Trump Administration’s Expansive Database for Voter Screening**\
+`Critics of a citizenship database built by the Trump administration have raised alarms about privacy and improper voter purges.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
+
+**Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
+
 **Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
 `The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability and whether states will use it.`\
 https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
