@@ -1,3 +1,7 @@
+**Charges of A.I. Writing in a Lauded Novel, and a Fight Over the Literary Future**\
+`“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
+https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
+
 **Manchester City Found Guilty of 114 Charges**\
 `In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
 https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
 **Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
 `The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
-
-**China’s Truce With Trump Buys It Valuable Time**\
-`Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
-https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
-
-**Trump, Xi and the Tech Moguls**\
-`The state visit by Xi Jinping, China’s top leader, so far has been long on pomp but short on substance on issues like artificial intelligence.`\
-https://www.nytimes.com/2026/09/25/business/dealbook/trump-xi-tech-ceos-state-dinner.html
 

@@ -1,3 +1,11 @@
+**Beaches Are Disappearing in Southern California as El Niño Bears Down**\
+`Beachfront homeowners and beachcombers are watching the sand vanish into the ocean as torrid waves strike the coast.`\
+https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
+
+**Embattled New Jersey Lt. Governor Resigns After Ethics Inquiry**\
+`Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
+https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
+
 **Charges of A.I. Writing in a Lauded Novel, and a Fight Over the Literary Future**\
 `“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
 https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
@@ -162,7 +170,7 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
-**Live Updates: Trump-Xi Summit Ends With Tea and Tour but Little Visible Policy Progress**\
+**Trump-Xi Summit Ends With Tea and Tour but Little Visible Policy Progress**\
 `The presidents visited the National Archives to cap a trip full of ceremony and symbolism but no major announcements on artificial intelligence, trade or Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/25/us/politics/trump-rally-tennessee-oklahoma-al
 **The A.I. Boom Is Built on Theft**\
 `A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
 https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
-
-**How to Regulate A.I.**\
-`Most Americans want government oversight of artificial intelligence. On “The Opinions,” Binyamin Appelbaum lays out how that could work: an oversight commission, clear labeling for chatbots and an A.I. “constitution” shaped by the public, not by tech companies.`\
-https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
-
-**Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
-`The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
-https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
 
