@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **CNN and CBS Resume White House Coverage After Standoff**\
-`Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+`Crews from CBS and CNN covered two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
 
 **Trump Bypasses Battlegrounds to Visit Deep-Red States**\

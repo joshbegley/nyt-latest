@@ -1,3 +1,7 @@
+**CNN and CBS Resume White House Coverage After Standoff**\
+`Crews from CBS and CNN covered two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
 **African Presidents Call for Permanent African Seats on U.N. Security Council**\
 `A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
 https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html

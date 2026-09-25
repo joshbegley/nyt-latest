@@ -1,3 +1,15 @@
+**Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
+`The prosecutor said that U.S. Attorney Andrew S. Boutros had intervened and overruled her in the case against a group of protesters known as the “Broadview Six.”`\
+https://www.nytimes.com/2026/09/25/us/chicago-federal-prosecutor-resigns-broadview-six.html
+
+**Woman Who Accused Jay-Z of Rape Recants Her Account**\
+`An anonymous accuser’s retraction is now part of Jay-Z’s case against the lawyers who had represented her.`\
+https://www.nytimes.com/2026/09/25/arts/music/jay-z-jane-doe-rape-recant-statement.html
+
+**Why Does The Times Care About Mark Zuckerberg’s Style?**\
+`For our chief fashion critic, Vanessa Friedman, the Meta chief executive’s choice of clothes reveal, perhaps inadvertently, pieces of his psyche.`\
+https://www.nytimes.com/2026/09/25/insider/mark-zuckerberg-fashion-style.html
+
 **African Presidents Call for Permanent African Seats on U.N. Security Council**\
 `A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
 https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
 **Share & Tell With Katie Nolan and Michael Cruz Kayne**\
 `Reactions to Donald Trump Jr.’s wedding, Kim Kardashian’s “Team Moms” and more.`\
 https://www.nytimes.com/2026/09/25/podcasts/share-tell-with-katie-nolan-and-michael-cruz-kayne.html
-
-**Chatbots Are Not Your Friends**\
-`Our cozy relationship with A.I. chatbots can lead to “artificial intimacy,” says one expert. Here’s how to keep it in check.`\
-https://www.nytimes.com/2026/09/25/well/ai-chatbots-artificial-intimacy.html
-
-**A Russian Software Company Duped the Secret Service, U.S. Prosecutors Say**\
-`Executives from a Russian-owned company are accused of misrepresentation in order to secure U.S. government contracts.`\
-https://www.nytimes.com/2026/09/25/world/europe/russia-software-arrest.html
-
-**Decades After They Were Designed, These Chairs Got Brought to Life**\
-`Plus: purple men’s wear, a floral collar and more from T’s cultural compendium.`\
-https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 
