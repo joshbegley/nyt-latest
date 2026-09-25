@@ -1,3 +1,7 @@
+**As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
+`President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-xi-state-visit.html
+
 **Trump and Xi Wrap Up Final Day of Washington Summit**\
 `President Trump and President Xi Jinping of China concluded a three-day summit in Washington on Friday with tea at the White House and a tour of the National Archives.`\
 https://www.nytimes.com/video/us/politics/100000011176141/trump-xi-final-day-summit.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-bea
 **Bracing for Midterm Losses, Republicans in Congress Try a Pre-election Pivot**\
 `After nearly two years of allowing President Trump to set their agenda, G.O.P. senators are grasping for some quick action on cost-of-living measures they can show voters before November.`\
 https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
-
-**A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
-`A name that could call to mind Hitler is judged offensive.`\
-https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
