@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
 `The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-rally-tennessee-oklahoma-alabama-republicans.html
 
-**The A.I. Boom Is Built on Theft**\
-`A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
-https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
-
