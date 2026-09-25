@@ -1,3 +1,7 @@
+**A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
+`Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
+https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
+
 **87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
 `María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
 https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 `Practical tips to reduce screen time, manage notifications and regain focus.`\
 https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
 
-**What Can Climate Change and Covid Teach Us About A.I. Doom?**\
-`From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
-https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
-
 **Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
 `Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
 https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
+
+**What Can Climate Change and Covid Teach Us About A.I. Doom?**\
+`From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
+https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
 
 **Colombia Sends Troops to Coastal City Gripped by Violence**\
 `President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/arts/design/es-devlin-homo-faber-biennial-ven
 **See an Underwater World Projected on the Brooklyn Bridge**\
 `A video art installation about Hudson Canyon, in the Atlantic Ocean, will be shown on the bridge tonight.`\
 https://www.nytimes.com/2026/09/25/nyregion/brooklyn-bridge-installation-hudson-canyon.html
-
-**Do You Keep Falling in Love With Celebrity Animals?**\
-`A neckless raccoon named Jimothy captivated the internet this summer. Were you one of his many online fans?`\
-https://www.nytimes.com/2026/09/25/learning/do-you-keep-falling-in-love-with-celebrity-animals.html
 

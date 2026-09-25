@@ -1,3 +1,7 @@
+**A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
+`Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
+https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
+
 **87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
 `María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
 https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html

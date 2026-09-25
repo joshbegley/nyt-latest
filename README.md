@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
-**Live Updates: Final Day of Trump-Xi Summit Includes Tours and Tea**\
-`The presidents will visit the National Archives to cap a visit full of ceremony and symbolism as the superpowers navigate tensions over artificial intelligence, trade and Taiwan.`\
+**Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
+`The presidents are set to visit the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **CNN and CBS Will Resume White House Coverage After Standoff**\
@@ -138,13 +138,13 @@ https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 `Practical tips to reduce screen time, manage notifications and regain focus.`\
 https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
 
-**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
-`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
-https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
-
 **What Can Climate Change and Covid Teach Us About A.I. Doom?**\
 `From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
 https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
+
+**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
+`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
+https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
 
 **Colombia Sends Troops to Coastal City Gripped by Violence**\
 `President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
