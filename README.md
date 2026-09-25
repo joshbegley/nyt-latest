@@ -1,3 +1,7 @@
+**Powerful Storm Lashes North Carolina as It Moves Up East Coast**\
+`A strengthening nor’easter brought rough swells and threatened homes in North Carolina as it tracked up the East Coast.`\
+https://www.nytimes.com/video/weather/100000011174680/weather-noreaster-storm-north-carolina.html
+
 **The Graffiti Artist Top Brands Call on for That ‘New York’ Look**\
 `If the city had a font, would his lettering be it?`\
 https://www.nytimes.com/2026/09/25/nyregion/new-york-graffiti-artist-faust.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
 **Professor Sues New School, Claiming Tenure Has Been Dismantled**\
 `The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
 https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html
-
-**Florida Charges 20 People with Voter Fraud**\
-`Most cases involved noncitizens who registered to vote, attesting that they were U.S. citizens, state officials said.`\
-https://www.nytimes.com/2026/09/24/us/florida-illegal-voting-charges-noncitizens-election.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
