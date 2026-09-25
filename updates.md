@@ -1,3 +1,7 @@
+**South Carolinians: Do You Have a Short-Term, High-Interest Personal Loan? Share Your Bills.**\
+`We want to hear from borrowers who have taken out installment, payday or title loans, and those who work for companies that offer them.`\
+https://www.nytimes.com/2026/09/25/us/south-carolinians-do-you-have-a-short-term-high-interest-personal-loan-share-your-bills.html
+
 **Book Club: Let’s Talk About ‘Etna,’ by Paul Yoon**\
 `Yoon’s latest novel is about a bomb-sniffing dog trying to make it home after a war.`\
 https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-by-paul-yoon.html
