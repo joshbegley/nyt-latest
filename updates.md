@@ -1,3 +1,11 @@
+**A Fatal Stabbing Leaves a Quiet Neighborhood Even Quieter**\
+`A 46-year-old doctor was killed and his wife was critically wounded inside their Pittsburgh-area home. A man has been arrested and charged in connection with the attack.`\
+https://www.nytimes.com/2026/09/25/us/pittsburgh-doctor-stabbing.html
+
+**OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
+`The company did not learn until recently that its technology had meddled with websites for the Education Department, Commerce Department and Securities and Exchange Commission.`\
+https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
+
 **OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
 `The company did not learn until recently that its technology had meddled with sites for the Education Department, Commerce Department and the Securities and Exchange Commission.`\
 https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html

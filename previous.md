@@ -1,5 +1,9 @@
+**A Fatal Stabbing Leaves a Quiet Neighborhood Even Quieter**\
+`A 46-year-old doctor was killed and his wife was critically wounded inside their Pittsburgh-area home. A man has been arrested and charged in connection with the attack.`\
+https://www.nytimes.com/2026/09/25/us/pittsburgh-doctor-stabbing.html
+
 **OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
-`The company did not learn until recently that its technology had meddled with sites for the Education Department, Commerce Department and the Securities and Exchange Commission.`\
+`The company did not learn until recently that its technology had meddled with websites for the Education Department, Commerce Department and Securities and Exchange Commission.`\
 https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
 
 **Parisians Share Their Favorite Movies Set in the City**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/09/25/business/sunkist-fruit-gems-candy-discontinue
 **The Local: Chickenpox is back**\
 `Plus, questions on the investigation into Mayor Kaohly Her that the city won’t answer.`\
 https://www.nytimes.com/2026/09/25/briefing/minnesota-chickenpox.html
-
-**Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
-`The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
-https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
 
