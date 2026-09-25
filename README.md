@@ -1,3 +1,7 @@
+**Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
+`The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
+https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
+
 **‘America’s Bishop’ Was Beatified. 50,000 Catholics Showed Up.**\
 `Archbishop Fulton J. Sheen, who was the country’s most visible Roman Catholic clergyman of the 20th century, is one step closer to sainthood after a ceremony in St. Louis.`\
 https://www.nytimes.com/2026/09/24/us/fulton-sheen-catholic-saint.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv
 **Federal Council Terminates Review of Arch’s Effects on Historic Sites**\
 `Trump’s allies end a legally required step, one of the final hurdles for the project to advance.`\
 https://www.nytimes.com/2026/09/24/upshot/arch-trump-washington.html
-
-**What’s Going On in This Graph? | Sept. 30, 2026**\
-`Which emojis do you find yourself using most often? Are they the same as the emojis you used last year?`\
-https://www.nytimes.com/2026/09/24/learning/whats-going-on-in-this-graph-sept-30-2026.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
