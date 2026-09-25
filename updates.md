@@ -1,3 +1,7 @@
+**Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
+`The strike, which began early Friday, is the latest spasm of labor unrest unsettling classical music at a time of financial turmoil and uncertainty.`\
+https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
+
 **Quote of the Day: Two Joyful Sides to This Chicago Story**\
 `Quotation of the Day for Friday, September 25, 2026.`\
 https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides-to-this-chicago-story.html
