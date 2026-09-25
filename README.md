@@ -1,3 +1,7 @@
+**Share & Tell With Katie Nolan and Michael Cruz Kayne**\
+`Reactions to Donald Trump Jr.’s wedding, Kim Kardashian’s “Team Moms” and more.`\
+https://www.nytimes.com/2026/09/25/podcasts/share-tell-with-katie-nolan-and-michael-cruz-kayne.html
+
 **Chatbots Are Not Your Friends**\
 `Our cozy relationship with A.I. chatbots can lead to “artificial intimacy,” says one expert. Here’s how to keep it in check.`\
 https://www.nytimes.com/2026/09/25/well/ai-chatbots-artificial-intimacy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/opinion/krasner-pollock-artist-wife.html
 **TikTok and Instagram Creators Have Turned NYC Into an Unofficial Soundstage**\
 `The streets of New York are a backdrop for countless TikTok and Instagram videos.`\
 https://www.nytimes.com/2026/09/25/business/media/nyc-tiktok-instagram-shows.html
-
-**In ‘Basic Pistol,’ a Sociologist Finds Hidden Lessons in Gun Training**\
-`More than just instruction on how to use a weapon, the courses teach a way of life, the sociologist Harel Shapira argues in “Basic Pistol.”`\
-https://www.nytimes.com/2026/09/25/books/basic-pistol-harel-shapira-gun-training.html
 
