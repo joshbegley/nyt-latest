@@ -1,3 +1,31 @@
+**Trump Called the Kennedy Center Elitist. Was It?**\
+`When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
+
+**The Life and, for Now, the Death of the Kennedy Center**\
+`The arts center has been a project of President Trump since the beginning of his second term.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-daily/the-life-and-for-now-the-death-of-the-kennedy-center.html
+
+**Dallas Cowboys Succession**\
+`Plus, who should be panicking in the N.F.L.`\
+https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
+
+**NYT Connections Answers for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/connections-companion-1203.html
+
+**Trump’s Standoff With White House Reporters, and the Rise and Fall of ‘Pervert Glasses’**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-headlines/trump-white-house-reporters-meta-glasses.html
+
+**NYT Strands Hints for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/strands-sidekick-937.html
+
+**Today’s Wordle Hints for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
+
 **Alaskans Dismayed, But Not Moved, by Peltola’s Treatment of Her Staff**\
 `Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
 https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/09/25/us/in-n-out-burger-luca-opperman-spatula.html
 **The World Needs Better Power Grids. Why Smaller May Be Better.**\
 `Jonas Birgersson, a Swedish entrepreneur, wants to use decentralized networks modeled on the internet to transform how electricity is distributed.`\
 https://www.nytimes.com/2026/09/25/business/power-grid-jonas-birgersson.html
-
-**Young Democrats Are Putting the Party Back in Politics. It’s Working.**\
-`Fun, free events communicate a larger goal: that everyday people should be able to afford a joyful life.`\
-https://www.nytimes.com/2026/09/25/opinion/democrats-young-voters-joy-mamdani.html
-
-**The Rise of Indian Japanese Food**\
-`Plus: a new hotel in the Dolomites, colorful watches and more from T Magazine’s cultural compendium.`\
-https://www.nytimes.com/2026/09/25/t-magazine/indian-japanese-fusion-cuisine.html
-
-**An Art Deco-Inspired Locket With a Turquoise Stone**\
-`Monica Rich Kosann’s necklace reimagines one of her first high jewelry pieces.`\
-https://www.nytimes.com/2026/09/25/t-magazine/monica-rich-kosann-locket-jewelry.html
-
-**New Film Revisits One City’s Deadly Chapter of ‘To Catch a Predator’**\
-`When the long-running TV franchise came to Murphy, Texas, in 2006, a man ended up dead. A new film, “Primetime,” looks back on what happened.`\
-https://www.nytimes.com/2026/09/25/us/to-catch-a-predator-sting-texas-primetime-movie.html
-
-**How A.I. Is Reshaping the National Weather Service**\
-`Millions of Americans rely on their local weather forecasts, but as peak storm season approaches, have the Trump administration’s budget cuts made it harder to accurately predict the weather? Meteorologists say it isn’t that simple.`\
-https://www.nytimes.com/video/weather/100000011123089/nws-ai-weather-forecasting.html
-
-**Inside the Record Summer ICE Surge That Swept Across the U.S.**\
-`A review of dozens of incidents caught on camera sheds new light on a largely invisible crackdown.`\
-https://www.nytimes.com/2026/09/25/us/ice-surge-immigration-arrests.html
-
-**A.I. Has Made Me a Better Doctor. It’s Made Med Students Worse.**\
-`I’m confident in my mastery over what doctors do — and less confident about my continued mastery of an ever-evolving universe of facts.`\
-https://www.nytimes.com/2026/09/25/opinion/ai-doctor-medical-students.html
 
