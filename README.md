@@ -1,3 +1,7 @@
+**ICE Raids in Beef Country Raise Fears of Higher Prices**\
+`Cattle industry groups in Texas, Oklahoma and Kansas and two Republican senators said the Trump administration’s immigration enforcement actions were hurting operations.`\
+https://www.nytimes.com/2026/09/25/us/politics/ice-raids-kansas-texas-oklahoma-beef-prices.html
+
 **Four Beluga Whales Die Weeks After Major Rescue Mission**\
 `The belugas were among 30 whales transferred to aquariums in the United States and Spain from a closed marine attraction in Canada.`\
 https://www.nytimes.com/2026/09/25/us/marineland-beluga-whales-deaths.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/25/arts/music/new-york-philharmonic-mahler-revie
 **Not Long Ago, Trump Accused China of Election Meddling. Today, ‘Great Friendship.’**\
 `President Trump softened much of his stance toward China as he prepared to host its leader. But his disregard of a topic that has consumed him — the 2020 election — was particularly stark.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.html
-
-**Who Polishes the Brass at Grand Central?**\
-`The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
-https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
 
