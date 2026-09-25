@@ -1,3 +1,7 @@
+**Trump, Xi and the Tech Moguls**\
+`The state visit by Xi Jinping, China’s top leader, so far has been long on pomp but short on substance on issues like artificial intelligence.`\
+https://www.nytimes.com/2026/09/25/business/dealbook/trump-xi-tech-ceos-state-dinner.html
+
 **‘The Headlines’ News Quiz: Sept. 25, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/09/25/podcasts/the-headlines/the-headlines-news-quiz-sept-25-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-th
 **Russian Attacks Destroy Ukrainian Books**\
 `Our reporter Kim Barker goes inside a storied Kyiv book market that was hit by an air strike. Russian attacks have damaged millions of books in Ukraine in the last few months.`\
 https://www.nytimes.com/video/world/europe/100000011148419/russian-attacks-destroy-ukrainian-books.html
-
-**At the New York Film Festival, Movies With Oomph**\
-`Films by Ava DuVernay, Tony Gilroy and Luca Guadagnino set a high bar at the latest edition of this Lincoln Center event.`\
-https://www.nytimes.com/2026/09/25/movies/new-york-film-festival-pedro-pascal-elizabeth-holmes-nathan-fielder.html
 
