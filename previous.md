@@ -1,3 +1,7 @@
+**Why Nepal’s Prime Minister Balen Shah Wears Sunglasses**\
+`Balendra Shah wore them as a rapper, as Kathmandu’s mayor and on his way to becoming prime minister. Now he has taken the look to the United Nations.`\
+https://www.nytimes.com/2026/09/24/world/asia/balen-shah-sunglasses-nepal.html
+
 **Pandas and Eagles and A.I., Oh My! Trump Throws a State Dinner for Xi**\
 `Altman. Musk. Huang. Bezos. They all came to the White House Thursday night, though you might not have seen it on TV.`\
 https://www.nytimes.com/2026/09/24/us/politics/state-dinner-scene.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/business/massachusetts-draftkings-ai-gambling
 **Netanyahu, Addressing U.N., Denounces Israel’s Critics as ‘Moral Cowards’**\
 `Prime Minister Benjamin Netanyahu also reserved some of his ire for the mayor of the city hosting him, Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-israel-un.html
-
-**Netanyahu Lashes Out at Foes in U.N. Speech, Including Mamdani**\
-`Prime Minister Benjamin Netanyahu of Israel lashed out at a litany of enemies but took particular verbal aim at Mayor Zohran Mamdani.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-speech-un-general-assembly.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

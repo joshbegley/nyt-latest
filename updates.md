@@ -1,3 +1,7 @@
+**Why Nepal’s Prime Minister Balen Shah Wears Sunglasses**\
+`Balendra Shah wore them as a rapper, as Kathmandu’s mayor and on his way to becoming prime minister. Now he has taken the look to the United Nations.`\
+https://www.nytimes.com/2026/09/24/world/asia/balen-shah-sunglasses-nepal.html
+
 **Pandas and Eagles and A.I., Oh My! Trump Throws a State Dinner for Xi**\
 `Altman. Musk. Huang. Bezos. They all came to the White House Thursday night, though you might not have seen it on TV.`\
 https://www.nytimes.com/2026/09/24/us/politics/state-dinner-scene.html
