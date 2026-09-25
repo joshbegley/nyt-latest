@@ -1,3 +1,7 @@
+**‘Unabomber’ Review: A Not-So-Beautiful Mind**\
+`Russell Crowe and Jacob Tremblay add welcome intrigue to this bifurcated true-crime drama.`\
+https://www.nytimes.com/2026/09/24/movies/unabomber-review-a-not-so-beautiful-mind.html
+
 **In Trump’s White House, China’s Dictator Is Welcome. American Media, Less So.**\
 `The showdown over President Trump’s partial media ban played out as he welcomed President Xi Jinping, whose government is ranked among the most repressive in the world.`\
 https://www.nytimes.com/2026/09/24/us/politics/trump-xi-press-pool-boycott-media.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
 **A Spirited Battle Over Data Centers**\
 `At the Climate Forward live event, policymakers, executives and activists debated the boom in data centers, the growing backlash and its environmental effects.`\
 https://www.nytimes.com/2026/09/24/climate/a-spirited-battle-over-data-centers.html
-
-**Hiker Is Found Dead on Washington Trail After Fall**\
-`The death came two days after another hiker died on the same mountain trail in northwestern Washington, officials said.`\
-https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
