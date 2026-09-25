@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-bea
 `After nearly two years of allowing President Trump to set their agenda, G.O.P. senators are grasping for some quick action on cost-of-living measures they can show voters before November.`\
 https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
 
-**Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
-

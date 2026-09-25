@@ -1,3 +1,11 @@
+**As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
+`President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-xi-state-visit.html
+
+**Trump and Xi Wrap Up Final Day of Washington Summit**\
+`President Trump and President Xi Jinping of China concluded a three-day summit in Washington on Friday with tea at the White House and a tour of the National Archives.`\
+https://www.nytimes.com/video/us/politics/100000011176141/trump-xi-final-day-summit.html
+
 **Jeff Probst on How ‘Survivor’ Captures Him, Warts and All**\
 `In his interview with “Popcast,” Jeff Probst, the “Survivor” host and showrunner, discusses navigating the good and the bad of being the face of the show — and why he never hides his mistakes.`\
 https://www.nytimes.com/video/podcasts/100000011166309/jeff-probst-on-how-survivor-captures-him-warts-and-all.html
