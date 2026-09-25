@@ -1,3 +1,7 @@
+**Pope Leo Signals Support for Journalists Targeted by Trump**\
+`Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
+https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
+
 **Trump Called the Kennedy Center Elitist. Was It?**\
 `When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
