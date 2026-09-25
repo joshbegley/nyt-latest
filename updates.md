@@ -1,3 +1,15 @@
+**What Is Jeff Probst’s ‘Survivor’ Succession Plan?**\
+`Jeff Probst, the host and executive producer of “Survivor,” spoke to “Popcast” about his 26 years on the show and who could succeed him.`\
+https://www.nytimes.com/video/podcasts/100000011166303/what-is-jeff-probsts-survivor-succession-plan.html
+
+**2 Men Were Searching for Gold in New York City’s Sewers, Police Say**\
+`The men, who were charged with trespassing on Friday, were part of a group that slinked out of a manhole near where world leaders were staying for the U.N. General Assembly, the authorities said.`\
+https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
+
+**Live Updates: East Coast Braces as Powerful Nor’easter Approaches**\
+`Rain, flooding and gusty winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
+https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
+
 **Hurricane Nolo Moves Toward Hawaii, Bringing ‘Catastrophic’ Rain**\
 `More than two feet of rain could fall on the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
 https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
