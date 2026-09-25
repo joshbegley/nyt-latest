@@ -1,3 +1,11 @@
+**Book Club: Let’s Talk About ‘Etna,’ by Paul Yoon**\
+`Yoon’s latest novel is about a bomb-sniffing dog trying to make it home after a war.`\
+https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-by-paul-yoon.html
+
+**Distributor of Recalled Meat Worked for Years Without Proper Permits**\
+`Star Meat Delivery did not complete the requirements necessary to process food, the Agriculture Department said.`\
+https://www.nytimes.com/2026/09/25/business/star-meat-delivery-recall-usda.html
+
 **China’s Xi Snubs a Troubled U.N. for Trump, Drowning Out Its Big Week**\
 `The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 `The presidents visited the National Archives to cap a trip full of ceremony and symbolism but no major announcements on artificial intelligence, trade or Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
-**CNN and CBS Resume White House Coverage After Standoff**\
-`Crews from CBS and CNN covered two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
-https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
-
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
-
-**Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
-`Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
-https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
 

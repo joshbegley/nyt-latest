@@ -1,3 +1,7 @@
+**China’s Xi Snubs a Troubled U.N. for Trump, Drowning Out Its Big Week**\
+`The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
+
 **Beaches Are Disappearing in Southern California as El Niño Bears Down**\
 `Beachfront homeowners and beachcombers are watching the sand vanish into the ocean as torrid waves strike the coast.`\
 https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
