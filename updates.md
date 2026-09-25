@@ -1,3 +1,11 @@
+**Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
+`Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
+https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
+
+**Live Updates: Final Day of Trump-Xi Summit Includes Tours and Tea**\
+`The presidents will visit the National Archives to cap a visit full of ceremony and symbolism as the superpowers navigate tensions over artificial intelligence, trade and Taiwan.`\
+https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
+
 **CNN and CBS Will Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN were planning to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
