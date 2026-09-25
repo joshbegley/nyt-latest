@@ -1,3 +1,11 @@
+**Abdul El-Sayed Responds to Right-Wing Vitriol**\
+`Dr. Abdul El-Sayed’s Senate campaign has been a target of Islamophobic right-wing attacks. On “The Ezra Klein Show,” he shares what he has made of these attacks, and how he hopes to refocus the conversation.`\
+https://www.nytimes.com/video/opinion/100000011172026/abdul-el-sayed-responds-to-right-wing-vitriol.html
+
+**Are the Current Laws Enough to Regulate A.I.?**\
+`On “The Ezra Klein Show,” Jensen Huang, the chief executive of Nvidia, thinks that the frontier A.I. companies don’t need new regulations or regulatory exemptions to slow down development.`\
+https://www.nytimes.com/video/opinion/100000011166609/are-the-current-laws-enough-to-regulate-ai.html
+
 **What Is Jeff Probst’s ‘Survivor’ Succession Plan?**\
 `Jeff Probst, the host and executive producer of “Survivor,” spoke to “Popcast” about his 26 years on the show and who could succeed him.`\
 https://www.nytimes.com/video/podcasts/100000011166303/what-is-jeff-probsts-survivor-succession-plan.html
