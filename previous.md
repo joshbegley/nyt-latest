@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/09/25/opinion/death-penalty-young-brain-development
 
 **The Problem Is Where Interest Rates May Go, Not Where They Are Now**\
 `History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
-https://www.nytimes.com/2026/09/25/business/interest-rates-economy.html
+https://www.nytimes.com/2026/09/25/business/interest-rates-economy-markets-inflation-mortgages.html
 
 **On This Mexican Island, Raccoons Make and Play With Toys (and Also Sip Margaritas)**\
 `Scientists observed a family of pygmy raccoons near a Cozumel beach club learning from one another how to craft balls from paper, an indication that the animals have a culture.`\

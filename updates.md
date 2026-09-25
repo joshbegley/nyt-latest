@@ -1,3 +1,7 @@
+**The Problem Is Where Interest Rates May Go, Not Where They Are Now**\
+`History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
+https://www.nytimes.com/2026/09/25/business/interest-rates-economy-markets-inflation-mortgages.html
+
 **Share & Tell With Katie Nolan and Michael Cruz Kayne**\
 `Reactions to Donald Trump Jr.’s wedding, Kim Kardashian’s “Team Moms” and more.`\
 https://www.nytimes.com/2026/09/25/podcasts/share-tell-with-katie-nolan-and-michael-cruz-kayne.html
