@@ -1,3 +1,7 @@
+**In Trump’s White House, China’s Dictator Is Welcome. American Media, Less So.**\
+`The showdown over President Trump’s partial media ban played out as he welcomed President Xi Jinping, whose government is ranked among the most repressive in the world.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-press-pool-boycott-media.html
+
 **Full Guest List for Trump’s State Dinner With Xi**\
 `Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook were among those invited to the event, hosted by President Trump and Melania Trump.`\
 https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/climate/a-spirited-battle-over-data-centers.h
 **Hiker Is Found Dead on Washington Trail After Fall**\
 `The death came two days after another hiker died on the same mountain trail in northwestern Washington, officials said.`\
 https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
-
-**An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
-`A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
-https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
