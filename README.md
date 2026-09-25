@@ -1,3 +1,27 @@
+**Iced Coffee Debate**\
+`Plus, the 100 best TV shows of the 21st century.`\
+https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
+
+**Use Your Rotisserie Chicken to Make These Enchiladas**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/09/25/dining/use-your-rotisserie-chicken-to-make-these-enchiladas.html
+
+**Polls Show Advantage for Incumbent Parties in 4 Governor’s Races**\
+`Democrats hold wide leads in Maine and Pennsylvania, as does the incumbent Republican in New Hampshire, but Michigan appears closer, according to New York Times/Siena polls.`\
+https://www.nytimes.com/2026/09/25/us/governor-polls-maine-michigan-new-hampshire-pennsylvania.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks: killer A.I., mysterious cults, alien horror, postapocalyptic survival and zany dimensions.`\
+https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
+
+**Tiler Peck Takes on a New Role at City Ballet: Choreographic Associate**\
+`The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
+https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
+
+**These Midterm Races Matter the Most. They’re Discussed the Least.**\
+`Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
+https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
+
 **A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
 `Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
 https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/25/books/review/switzy-emma-cline-book-club.html
 **Brain Science Shows Why 18 Is Too Young for the Death Penalty**\
 `Our brains don’t finish developing until we’re well into our 20s. That matters when deciding who gets the death penalty.`\
 https://www.nytimes.com/2026/09/25/opinion/death-penalty-young-brain-development.html
-
-**Rising Interest Rates Are Causing Alarm. Here’s What to Know.**\
-`History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
-https://www.nytimes.com/2026/09/25/business/interest-rates-economy-markets-inflation-mortgages.html
-
-**On This Mexican Island, Raccoons Make and Play With Toys (and Also Sip Margaritas)**\
-`Scientists observed a family of pygmy raccoons near a Cozumel beach club learning from one another how to craft balls from paper, an indication that the animals have a culture.`\
-https://www.nytimes.com/2026/09/25/science/raccoons-toys-cozumel-mexico-research.html
-
-**What Happened to Hollywood’s Most Reliable Happy Ending?**\
-`A new study by an independent analyst shows that action films are more likely to end on a sadder note nowadays.`\
-https://www.nytimes.com/2026/09/25/movies/action-film-endings-sad.html
-
-**12 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/09/25/movies/new-movies-this-week-critics.html
-
-**Es Devlin, Master of the Extravaganza, Highlights the Art of Craft**\
-`For the Homo Faber Biennial in the Venetian lagoon, the designer unites works by 500 artisans, each one an island of talent.`\
-https://www.nytimes.com/2026/09/25/arts/design/es-devlin-homo-faber-biennial-venice.html
-
-**See an Underwater World Projected on the Brooklyn Bridge**\
-`A video art installation about Hudson Canyon, in the Atlantic Ocean, will be shown on the bridge tonight.`\
-https://www.nytimes.com/2026/09/25/nyregion/brooklyn-bridge-installation-hudson-canyon.html
 
