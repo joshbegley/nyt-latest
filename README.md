@@ -1,3 +1,7 @@
+**Alaskans Dismayed, But Not Moved, by Peltola’s Treatment of Her Staff**\
+`Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
+https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
+
 **25int-pope-press-zlqm**\
 `Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/us/ice-surge-immigration-arrests.html
 **A.I. Has Made Me a Better Doctor. It’s Made Med Students Worse.**\
 `I’m confident in my mastery over what doctors do — and less confident about my continued mastery of an ever-evolving universe of facts.`\
 https://www.nytimes.com/2026/09/25/opinion/ai-doctor-medical-students.html
-
-**Lee Krasner. Artist. Wife.**\
-`Only by being exhibited alongside her husband, Jackson Pollock, can Lee Krasner fully and finally emerge from his shadow.`\
-https://www.nytimes.com/2026/09/25/opinion/krasner-pollock-artist-wife.html
 

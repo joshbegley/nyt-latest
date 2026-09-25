@@ -1,3 +1,7 @@
+**25int-pope-press-zlqm**\
+`Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
+https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
+
 **Share & Tell With Katie Nolan and Michael Cruz Kayne**\
 `Reactions to Donald Trump Jr.’s wedding, Kim Kardashian’s “Team Moms” and more.`\
 https://www.nytimes.com/2026/09/25/podcasts/share-tell-with-katie-nolan-and-michael-cruz-kayne.html
@@ -110,13 +114,13 @@ https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celeb
 `A conversation about how The Times stays up to speed with youth culture.`\
 https://www.nytimes.com/2026/09/25/insider/nyt-175-youth-culture.html
 
+**32 Things to Do for Halloween in New York City**\
+`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
+https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
+
 **Book Review: ‘The Ballad of the Fugitive William Parker,’ by Cristin O’Keefe Aptowicz**\
 `A new book by Cristin O’Keefe Aptowicz recounts how violent resistance by a group of armed Black men fueled the fight over slavery.`\
 https://www.nytimes.com/2026/09/25/books/review/the-ballad-of-the-fugitive-william-parker-cristin-okeefe-aptowicz.html
-
-**33 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
-`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
-https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
 
 **This Tiny Village Is Picture Perfect, Apart From All the Tourists**\
 `The residents of Vlkolinec in Slovakia — there are 17 — say that since the place was named a world heritage site, gawking hordes have made it unlivable.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/opinion/ai-doctor-medical-students.html
 **Lee Krasner. Artist. Wife.**\
 `Only by being exhibited alongside her husband, Jackson Pollock, can Lee Krasner fully and finally emerge from his shadow.`\
 https://www.nytimes.com/2026/09/25/opinion/krasner-pollock-artist-wife.html
-
-**TikTok and Instagram Creators Have Turned NYC Into an Unofficial Soundstage**\
-`The streets of New York are a backdrop for countless TikTok and Instagram videos.`\
-https://www.nytimes.com/2026/09/25/business/media/nyc-tiktok-instagram-shows.html
 

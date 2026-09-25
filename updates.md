@@ -1,3 +1,11 @@
+**25int-pope-press-zlqm**\
+`Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
+https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
+
+**32 Things to Do for Halloween in New York City**\
+`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
+https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
+
 **Rising Interest Rates Are Causing Alarm. Here’s What to Know.**\
 `History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
 https://www.nytimes.com/2026/09/25/business/interest-rates-economy-markets-inflation-mortgages.html
