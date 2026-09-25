@@ -1,3 +1,7 @@
+**Donohue’s, an Old New York Saloon, Gets a New Operator**\
+`The beloved Upper East Side institution is gone. But the downtown restaurateur Jon Neidich says some retro details, and maybe the broiler, will survive.`\
+https://www.nytimes.com/2026/09/25/dining/donohues-steakhouse-manhattan-reopening.html
+
 **Abdul El-Sayed Responds to Right-Wing Vitriol**\
 `Dr. Abdul El-Sayed’s Senate campaign has been a target of Islamophobic right-wing attacks. On “The Ezra Klein Show,” he shares what he has made of these attacks, and how he hopes to refocus the conversation.`\
 https://www.nytimes.com/video/opinion/100000011172026/abdul-el-sayed-responds-to-right-wing-vitriol.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.
 **The Drake-Texas Alliance Grows Stronger**\
 `During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
 https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
-
-**Iced Coffee Debate**\
-`Plus, the 100 best TV shows of the 21st century.`\
-https://www.nytimes.com/2026/09/25/briefing/iced-coffee-debate.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

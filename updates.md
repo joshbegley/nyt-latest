@@ -1,3 +1,7 @@
+**Donohue’s, an Old New York Saloon, Gets a New Operator**\
+`The beloved Upper East Side institution is gone. But the downtown restaurateur Jon Neidich says some retro details, and maybe the broiler, will survive.`\
+https://www.nytimes.com/2026/09/25/dining/donohues-steakhouse-manhattan-reopening.html
+
 **Abdul El-Sayed Responds to Right-Wing Vitriol**\
 `Dr. Abdul El-Sayed’s Senate campaign has been a target of Islamophobic right-wing attacks. On “The Ezra Klein Show,” he shares what he has made of these attacks, and how he hopes to refocus the conversation.`\
 https://www.nytimes.com/video/opinion/100000011172026/abdul-el-sayed-responds-to-right-wing-vitriol.html
