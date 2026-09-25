@@ -1,3 +1,11 @@
+**CNN and CBS Will Resume White House Coverage After Standoff**\
+`Crews from CBS and CNN were planning to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
+**Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
+`Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
+https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
+
 **Alaskans Dismayed, but Not Moved, by Peltola’s Treatment of Her Staff**\
 `Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
 https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html

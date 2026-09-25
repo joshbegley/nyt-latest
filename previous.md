@@ -1,6 +1,10 @@
-**Adding a Child to Your Car Insurance? Here Are Way to Hold Down the Costs.**\
+**CNN and CBS Will Resume White House Coverage After Standoff**\
+`Crews from CBS and CNN were planning to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
+**Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
 `Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
-https://www.nytimes.com/2026/09/25/your-money/adding-a-child-to-your-car-insurance-here-are-way-to-hold-down-the-costs.html
+https://www.nytimes.com/2026/09/25/your-money/car-insurance-child-costs.html
 
 **Trump Plans to Visit Tennessee, Oklahoma and Alabama**\
 `The president announced plans to rally in deep-red states as his party makes a push for close races in battleground states.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/realestate/choose-your-favorite-1-million-swe
 **Thierry Henry Lists Glass-Topped SoHo Penthouse for $25 Million**\
 `The soccer legend and his partner combined floors to create a home with more than 6,000 square feet. Plus, Paul Feig and Maria Menounos listed properties.`\
 https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celebrity-home-listings.html
-
-**How the New York Times Stays Young After 175 Years**\
-`A conversation about how The Times stays up to speed with youth culture.`\
-https://www.nytimes.com/2026/09/25/insider/nyt-175-youth-culture.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Final Day of Trump-Xi Summit Includes Tours and Tea**\
+`The presidents will visit the National Archives to cap a visit full of ceremony and symbolism as the superpowers navigate tensions over artificial intelligence, trade and Taiwan.`\
+https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
+
 **CNN and CBS Will Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN were planning to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/travel/climate-change-summer-travel-disruptio
 **Choose Your Favorite $1 Million Swedish Waterfront Home**\
 `An Art Noveau-style home, a four-bedroom with guesthouses and a modern home with views of a fjord, all near Gothenburg.`\
 https://www.nytimes.com/2026/09/25/realestate/choose-your-favorite-1-million-swedish-waterfront-home.html
-
-**Thierry Henry Lists Glass-Topped SoHo Penthouse for $25 Million**\
-`The soccer legend and his partner combined floors to create a home with more than 6,000 square feet. Plus, Paul Feig and Maria Menounos listed properties.`\
-https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celebrity-home-listings.html
 
