@@ -1,3 +1,11 @@
+**A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
+`A name that could call to mind Hitler is judged offensive.`\
+https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
+
+**Supreme Court Allows Federal Voter Identification Tool Ahead of Midterms**\
+`Critics of the Trump administration system to monitor the citizenship status of voters had raised alarms about privacy and improper voter purges.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
+
 **Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
 `Despite the success of his hit slasher film, he played no part in the 11 sequels that followed and chose to pivot into the world of soap operas like “All My Children.”`\
 https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011172035/colombia-army-santa
 **Why a U.S. Diesel Export Ban May Not Lower Prices**\
 `President Trump has said he is considering restricting overseas sales of the fuel to bring down domestic prices, but experts say the policy will have many unintended effects.`\
 https://www.nytimes.com/2026/09/25/business/energy-environment/trump-diesel-export-ban.html
-
-**Stuck on the Battlefield, Russia Wages ‘Total War’ on Ukraine’s Economy**\
-`The economic damage from Russian strikes, resulting in lost sales, disrupted workdays and logistical snarls, is in the billions of dollars.`\
-https://www.nytimes.com/2026/09/25/world/europe/ukraine-russia-economy.html
-
-**The Best TV of This Century?**\
-`With so many options (and opinions), what makes something great?`\
-https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
 

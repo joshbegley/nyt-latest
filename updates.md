@@ -1,3 +1,11 @@
+**A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
+`A name that could call to mind Hitler is judged offensive.`\
+https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
+
+**Supreme Court Allows Federal Voter Identification Tool Ahead of Midterms**\
+`Critics of the Trump administration system to monitor the citizenship status of voters had raised alarms about privacy and improper voter purges.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
+
 **Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
 `Despite the success of his hit slasher film, he played no part in the 11 sequels that followed and chose to pivot into the world of soap operas like “All My Children.”`\
 https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
