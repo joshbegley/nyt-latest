@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/09/25/books/review/switzy-emma-cline-book-club.html
 `Our brains don’t finish developing until we’re well into our 20s. That matters when deciding who gets the death penalty.`\
 https://www.nytimes.com/2026/09/25/opinion/death-penalty-young-brain-development.html
 
-**The Problem Is Where Interest Rates May Go, Not Where They Are Now**\
+**Rising Interest Rates Are Causing Alarm. Here’s What to Know.**\
 `History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
 https://www.nytimes.com/2026/09/25/business/interest-rates-economy-markets-inflation-mortgages.html
 
