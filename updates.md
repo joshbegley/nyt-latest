@@ -1,3 +1,7 @@
+**The A.I. Boom Is Built on Theft**\
+`A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
+https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
+
 **How to Regulate A.I.**\
 `Most Americans want government oversight of artificial intelligence. On “The Opinions,” Binyamin Appelbaum lays out how that could work: an oversight commission, clear labeling for chatbots and an A.I. “constitution” shaped by the public, not by tech companies.`\
 https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
