@@ -1,3 +1,7 @@
+**Once Sentenced to Death, Mary Jane Veloso Receives Pardon in the Philippines**\
+`Mary Jane Veloso was convicted of drug smuggling and nearly killed by a firing squad in Indonesia. On Friday, more than a decade later, she was pardoned in the Philippines.`\
+https://www.nytimes.com/2026/09/25/world/asia/mary-jane-veloso-philippines-pardon.html
+
 **Pope Leo Signals Support for Journalists Targeted by Trump**\
 `Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
