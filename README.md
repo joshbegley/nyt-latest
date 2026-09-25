@@ -1,3 +1,7 @@
+**Hurricane Nolo Takes Aim at Hawaii**\
+`Though likely to avoid a direct hit, parts of the state could receive nearly three feet of rain, forecasters warned.`\
+https://www.nytimes.com/2026/09/24/weather/hurricane-nolo-hawaii.html
+
 **The Best TV Shows of the 21st Century: What to Watch**\
 `Our list of the 100 best TV shows of this century (so far) is a great resource for TV lovers. But how do you narrow it down? Here are some helpful starting points.`\
 https://www.nytimes.com/interactive/2026/arts/television/watch-tv-shows-21st-century.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-speech-un-general-
 **Are Lynchings Really Happening?**\
 `Some suggest that recent hangings are evidence of racial terrorism.`\
 https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
-
-**CNN, MS NOW and Politico Return to White House**\
-`A federal judge issued a temporary restraining order and told the White House to immediately restore press credentials for the three news outlets. Even so, reporters were initially denied entry to the White House grounds on Thursday.`\
-https://www.nytimes.com/video/us/politics/100000011173488/white-house-trump-press-cnn-ms-now-politico.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
