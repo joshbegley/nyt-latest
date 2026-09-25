@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: A Goals Gallery Walk**\
+`What are you looking forward to this fall? What challenges are you facing? How could you plan for a “seasonal reset” to help?`\
+https://www.nytimes.com/2026/09/25/learning/15-minute-lesson-plan-a-goals-gallery-walk.html
+
 **Powerful Storm Lashes North Carolina as It Moves Up East Coast**\
 `A strengthening nor’easter brought rough swells and threatened homes in North Carolina as it tracked up the East Coast.`\
 https://www.nytimes.com/video/weather/100000011174680/weather-noreaster-storm-north-carolina.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html
 **Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
 `A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
 https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
-
-**Professor Sues New School, Claiming Tenure Has Been Dismantled**\
-`The lawsuit was filed by one of 19 educators laid off in June amid a reorganization of the Manhattan university to address its financial problems.`\
-https://www.nytimes.com/2026/09/24/nyregion/news-shool-lawsuit-professor-tenure-layoffs.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: A Goals Gallery Walk**\
+`What are you looking forward to this fall? What challenges are you facing? How could you plan for a “seasonal reset” to help?`\
+https://www.nytimes.com/2026/09/25/learning/15-minute-lesson-plan-a-goals-gallery-walk.html
+
 **Powerful Storm Lashes North Carolina as It Moves Up East Coast**\
 `A strengthening nor’easter brought rough swells and threatened homes in North Carolina as it tracked up the East Coast.`\
 https://www.nytimes.com/video/weather/100000011174680/weather-noreaster-storm-north-carolina.html
