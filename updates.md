@@ -1,3 +1,7 @@
+**Trump Gave Xi His Go-To Gift: A Bald Eagle Statue**\
+`The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
+https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
+
 **Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html

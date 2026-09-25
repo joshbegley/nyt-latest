@@ -1,3 +1,7 @@
+**Trump Gave Xi His Go-To Gift: A Bald Eagle Statue**\
+`The president has often reached for statues of the national bird on diplomatic occasions in his second term. (Ronald Reagan favored them, too.)`\
+https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
+
 **Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/opinion/ezra-klein-podcast-abdul-el-sayed.htm
 **Fashion Trends Come and Go. The New York Times Has Seen Them All.**\
 `Throughout its 175-year history, the paper has captured and documented moments in fashion history.`\
 https://www.nytimes.com/interactive/2026/09/25/style/fashion-style-history-new-york-times-anniversary.html
-
-**How Climate Change Is Disrupting Summer Travel**\
-`Once dismissed as occasional inconveniences, climate-related disruptions are now an inescapable fixture of summer travel. How will travelers respond?`\
-https://www.nytimes.com/2026/09/25/travel/climate-change-summer-travel-disruptions.html
 
