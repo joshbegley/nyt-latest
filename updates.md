@@ -1,3 +1,15 @@
+**The Graffiti Artist Top Brands Call on for That ‘New York’ Look**\
+`If the city had a font, would his lettering be it?`\
+https://www.nytimes.com/2026/09/25/nyregion/new-york-graffiti-artist-faust.html
+
+**When Making Games Is Your Job, What Do You Do for Fun?**\
+`Members of the New York Times Games team told us about their game club and what they play after they polish off each day’s puzzles.`\
+https://www.nytimes.com/2026/09/25/insider/games-puzzles-wordle-connections.html
+
+**NYT Spelling Bee Answers for September 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/25/crosswords/spelling-bee-forum.html
+
 **Desi Lydic Roasts Trump for Pulling Out All the Stops for Xi**\
 `“Trump picked him up at the airport? OK, that is friendship,” Lydic said on Thursday’s “Daily Show.”`\
 https://www.nytimes.com/2026/09/25/arts/television/desi-lydic-roasts-trump-xi.html
