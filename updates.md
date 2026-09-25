@@ -1,3 +1,11 @@
+**Hurricane Nolo Moves Toward Hawaii, Bringing ‘Catastrophic’ Rain**\
+`More than two feet of rain could fall on the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
+https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
+
+**How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
+`A new report by a Bay Area start-up called Parse adds details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
+https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
+
 **6 People Are Missing After Explosion in Athens Tourist District**\
 `Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
 https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html

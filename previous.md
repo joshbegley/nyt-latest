@@ -1,3 +1,7 @@
+**Hurricane Nolo Moves Toward Hawaii, Bringing ‘Catastrophic’ Rain**\
+`More than two feet of rain could fall on the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
+https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
+
 **6 People Are Missing After Explosion in Athens Tourist District**\
 `Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
 https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
 https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html
 
 **How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
-`A new report by a Bay Area start-up called Parse adds new details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
+`A new report by a Bay Area start-up called Parse adds details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
 https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
 
 **Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
 **Tiler Peck Takes on a New Role at City Ballet: Choreographic Associate**\
 `The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
 https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
-
-**These Elections Could Decide 2028. No One Is Watching Them.**\
-`Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
-https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
