@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
+
+**Review: With Dudamel and the Philharmonic, Joy Is in the Work**\
+`Gustavo Dudamel, settling in at the New York Philharmonic, led a world premiere by Tania León and Mahler’s Fifth Symphony.`\
+https://www.nytimes.com/2026/09/25/arts/music/new-york-philharmonic-mahler-review.html
+
+**Not Long Ago, Trump Accused China of Election Meddling. Today, ‘Great Friendship.’**\
+`President Trump softened much of his stance toward China as he prepared to host its leader. But his disregard of a topic that has consumed him — the 2020 election — was particularly stark.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.html
+
 **Who Polishes the Brass at Grand Central?**\
 `The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
 https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/25/crosswords/connections-companion-1203.html
 **Trump’s Standoff With White House Reporters, and the Rise and Fall of ‘Pervert Glasses’**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/09/25/podcasts/the-headlines/trump-white-house-reporters-meta-glasses.html
-
-**NYT Strands Hints for September 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
-https://www.nytimes.com/2026/09/25/crosswords/strands-sidekick-937.html
-
-**Today’s Wordle Hints for September 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
-https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
-
-**Alaskans Dismayed, but Not Moved, by Peltola’s Treatment of Her Staff**\
-`Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
-https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
 

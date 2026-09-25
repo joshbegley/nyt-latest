@@ -1,3 +1,15 @@
+**Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
+
+**Review: With Dudamel and the Philharmonic, Joy Is in the Work**\
+`Gustavo Dudamel, settling in at the New York Philharmonic, led a world premiere by Tania León and Mahler’s Fifth Symphony.`\
+https://www.nytimes.com/2026/09/25/arts/music/new-york-philharmonic-mahler-review.html
+
+**Not Long Ago, Trump Accused China of Election Meddling. Today, ‘Great Friendship.’**\
+`President Trump softened much of his stance toward China as he prepared to host its leader. But his disregard of a topic that has consumed him — the 2020 election — was particularly stark.`\
+https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.html
+
 **Who Polishes the Brass at Grand Central?**\
 `The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
 https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
