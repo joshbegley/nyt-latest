@@ -1,3 +1,11 @@
+**Supreme Court Allows Tool to Screen Voters**\
+`Also, the East Coast braces for a powerful storm. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-storm.html
+
+**Sylvester Stallone on the Toll of Steroids and His Eating Disorder**\
+`Sylvester Stallone opened up about developing an eating disorder and taking steroids when he was younger. His appearance “became an obsession, really bad,” he said on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011166196/sylvester-stallone-on-the-toll-of-steroids-and-his-eating-disorder.html
+
 **Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
 `Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
 https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
