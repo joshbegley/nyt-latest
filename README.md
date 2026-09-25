@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
 `Quotation of the Day for Friday, September 25, 2026.`\
 https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides-to-this-chicago-story.html
 
-**Leo XIV, Trying to Be Everyone’s Pope, Heads to Secular France**\
-`After touring Africa, Pope Leo’s four-day visit to France shows how he is seeking to appeal to Roman Catholicism’s original heartlands as well as to the church’s newest strongholds.`\
+**Leo XIV, Trying to Be Everyone’s Pope, Tours Secular France**\
+`After visiting Africa, Pope Leo’s four-day trip to France shows how he is seeking to appeal to Roman Catholicism’s original heartlands as well as to the church’s newest strongholds.`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html
 
 **Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
