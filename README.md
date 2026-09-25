@@ -2,7 +2,7 @@
 `See the likely path and wind arrival times for Gonzalo`\
 https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.html
 
-**Live Updates: Powerful Fall Storm Strengthens as It Crawls Up the East Coast**\
+**Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
 `Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
 https://www.nytimes.com/live/2026/09/25/weather/noreaster-storm-nyc-weekend
 
@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.htm
 https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
 
 **Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
-`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
+`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court.`\
 https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
 
 **Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
