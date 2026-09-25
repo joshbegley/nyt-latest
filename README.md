@@ -1,3 +1,7 @@
+**87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
+`María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
+https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html
+
 **Is China Really Stealing A.I. From American Companies?**\
 `As Xi Jinping visits President Trump in Washington, the leaders are expected to discuss claims that China is surreptitiously copying American A.I. technologies, a process known as distillation.`\
 https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 `Practical tips to reduce screen time, manage notifications and regain focus.`\
 https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
 
-**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
-`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
-https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
-
 **What Can Climate Change and Covid Teach Us About A.I. Doom?**\
 `From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
 https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
+
+**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
+`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
+https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
 
 **Colombia Sends Troops to Coastal City Gripped by Violence**\
 `President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/nyregion/brooklyn-bridge-installation-hudson-
 **Do You Keep Falling in Love With Celebrity Animals?**\
 `A neckless raccoon named Jimothy captivated the internet this summer. Were you one of his many online fans?`\
 https://www.nytimes.com/2026/09/25/learning/do-you-keep-falling-in-love-with-celebrity-animals.html
-
-**David Benioff on His Favorite TV Shows**\
-`The screenwriter David Benioff is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
-https://www.nytimes.com/video/arts/100000011161792/david-benioff-on-his-favorite-tv-shows.html
 
