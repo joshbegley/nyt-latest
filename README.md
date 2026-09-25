@@ -1,3 +1,63 @@
+**The Rise of Indian Japanese Food**\
+`Plus: a new hotel in the Dolomites, colorful watches and more from T Magazine’s cultural compendium.`\
+https://www.nytimes.com/2026/09/25/t-magazine/indian-japanese-fusion-cuisine.html
+
+**An Art Deco-Inspired Locket With a Turquoise Stone**\
+`Monica Rich Kosann’s necklace reimagines one of her first high jewelry pieces.`\
+https://www.nytimes.com/2026/09/25/t-magazine/monica-rich-kosann-locket-jewelry.html
+
+**New Film Revisits One City’s Deadly Chapter of ‘To Catch a Predator’**\
+`When the long-running TV franchise came to Murphy, Texas, in 2006, a man ended up dead. A new film, “Primetime,” looks back on what happened.`\
+https://www.nytimes.com/2026/09/25/us/to-catch-a-predator-sting-texas-primetime-movie.html
+
+**How A.I. Is Reshaping the National Weather Service**\
+`Millions of Americans rely on their local weather forecasts, but as peak storm season approaches, have the Trump administration’s budget cuts made it harder to accurately predict the weather? Meteorologists say it isn’t that simple.`\
+https://www.nytimes.com/video/weather/100000011123089/nws-ai-weather-forecasting.html
+
+**Inside the Record Summer ICE Surge That Swept Across the U.S.**\
+`A review of dozens of incidents caught on camera sheds new light on a largely invisible crackdown.`\
+https://www.nytimes.com/2026/09/25/us/ice-surge-immigration-arrests.html
+
+**A.I. Has Made Me a Better Doctor. It’s Made Med Students Worse.**\
+`I’m confident in my mastery over what doctors do — and less confident about my continued mastery of an ever-evolving universe of facts.`\
+https://www.nytimes.com/2026/09/25/opinion/ai-doctor-medical-students.html
+
+**Lee Krasner. Artist. Wife.**\
+`Only by being exhibited alongside her husband, Jackson Pollock, can Lee Krasner fully and finally emerge from his shadow.`\
+https://www.nytimes.com/2026/09/25/opinion/krasner-pollock-artist-wife.html
+
+**TikTok and Instagram Creators Have Turned NYC Into an Unofficial Soundstage**\
+`The streets of New York are a backdrop for countless TikTok and Instagram videos.`\
+https://www.nytimes.com/2026/09/25/business/media/nyc-tiktok-instagram-shows.html
+
+**In ‘Basic Pistol,’ a Sociologist Finds Hidden Lessons in Gun Training**\
+`More than just instruction on how to use a weapon, the courses teach a way of life, the sociologist Harel Shapira argues in “Basic Pistol.”`\
+https://www.nytimes.com/2026/09/25/books/basic-pistol-harel-shapira-gun-training.html
+
+**Filippo Bernardini Scammed the Book Business for Years. Is He Back?**\
+`The man who admitted to stealing hundreds of manuscripts swore he’d never do it again. New online skulduggery resembles his old tricks, and then some.`\
+https://www.nytimes.com/2026/09/25/books/filippo-bernardini-manuscript-thief-publishing-scam.html
+
+**Mark Zuckerberg Is Trying Something On**\
+`Meta’s C.E.O. talks for the first time about his style evolution.`\
+https://www.nytimes.com/2026/09/25/style/mark-zuckerberg-fashion-glasses.html
+
+**How Drinking Affects Your Dementia Risk**\
+`Researchers are still investigating what alcohol does to the brain, and what (if any) amount is safe.`\
+https://www.nytimes.com/2026/09/25/well/mind/alcohol-dementia-risk.html
+
+**The New York Times News Quiz, September 25, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/09/25/briefing/weekly-news-quiz.html
+
+**Can I Question My Partner’s Moose Sighting?**\
+`A ruling on a trail-running dispute.`\
+https://www.nytimes.com/quiz/2026/09/25/magazine/moose-sighting-hodgman-quiz.html
+
+**What Does Abdul El-Sayed Believe?**\
+`The Senate nominee talks about his view for the future of the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011172023/what-does-abdul-el-sayed-believe.html
+
 **15-Minute Lesson Plan: A Goals Gallery Walk**\
 `What are you looking forward to this fall? What challenges are you facing? How could you plan for a “seasonal reset” to help?`\
 https://www.nytimes.com/2026/09/25/learning/15-minute-lesson-plan-a-goals-gallery-walk.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/2026/09/24/world/middleeast/iran-proposal.html
 **Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
 `The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
 https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
-
-**‘America’s Bishop’ Was Beatified. 50,000 Catholics Showed Up.**\
-`Archbishop Fulton J. Sheen, who was the country’s most visible Roman Catholic clergyman of the 20th century, is one step closer to sainthood after a ceremony in St. Louis.`\
-https://www.nytimes.com/2026/09/24/us/fulton-sheen-catholic-saint.html
-
-**Kyrsten Sinema’s Home Is Ransacked by an Ex-Bodyguard, Officials Say**\
-`The man, Matthew Ammel, dated Ms. Sinema while he was part of her Senate campaign security detail and was married, according to court filings.`\
-https://www.nytimes.com/2026/09/24/us/kyrsten-sinema-affair-bodyguard-arrest.html
-
-**Unused Tents and Uneaten Food: Watchdog Finds ‘Waste’ in Immigration Crackdown**\
-`In a report Thursday, the Government Accountability Office said the Trump administration squandered millions of dollars to expand detention.`\
-https://www.nytimes.com/2026/09/24/us/politics/gao-report-finds-waste-immigrant-detention.html
-
-**Delegates Walk Out in Protest as Netanyahu Speaks**\
-`On Thursday, hundreds of people in New York City protested Prime Minister Benjamin Netanyahu of Israel, who spoke at the U.N. General Assembly.`\
-https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-unga-protests.html
-
-**Netanyahu Goes on the Attack on the World Stage**\
-`Natalie Kitroeff calls Isabel Kershner in Jerusalem to hear how Prime Minister Benjamin Netanyahu’s fierce speech at the U.N. is landing with Israelis.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011174035/netanyahu-goes-on-the-attack-on-the-world-stage.html
-
-**Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
-`Investigators found that New Jersey’s lieutenant governor, Dale Caldwell, sought a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
-https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
-
-**Edward Lehner, Who Made Dog Owners Pick ‘It’ Up, Dies at 93**\
-`Before the law passed, navigating New York was a harrowing exercise in dog-feces avoidance. As he put it, sometimes “you would come home and have it all over you.”`\
-https://www.nytimes.com/2026/09/24/nyregion/edward-h-lehner-dead.html
-
-**About 100 Are Arrested in Protests Against Netanyahu**\
-`Large groups gathered in Midtown Manhattan to demonstrate as the Israeli prime minister spoke to the General Assembly.`\
-https://www.nytimes.com/2026/09/24/nyregion/un-protest-netanyahu-israel-gaza.html
-
-**The Missing Filter on Our Election Process**\
-`Election reforms in the 1970s made voting much more populist, but at what cost? The shift away from the convention system drastically changed the kind of people who get elected, favoring those with celebrity status and name recognition.`\
-https://www.nytimes.com/video/opinion/100000011159540/the-missing-filter-on-our-election-process.html
-
-**How the Supreme Court Saved the Midterms**\
-`President Trump has made multiple attempts to restrict voting access ahead of the midterms, but the courts keep getting in his way. The Law experts Sarah Isgur and Rick Pildes talk about why the president’s attempts have failed.`\
-https://www.nytimes.com/video/opinion/100000011159531/how-the-supreme-court-saved-the-midterms.html
-
-**Man Wounded in Trump Assassination Attempt Dies 2 Years Later**\
-`James Copenhaver, 76, was struck in the arm and abdomen in the shooting in Butler, Pa.`\
-https://www.nytimes.com/2026/09/24/us/trump-butler-assassination-attempt-victim-dies.html
-
-**Trump Is Hosting Xi for a State Dinner. It’s a Rarity for the U.S. President.**\
-`The state dinner for President Xi on Thursday will be only the fourth hosted by President Trump, far fewer than past U.S. presidents.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-state-dinners-history-xi.html
-
-**U.S. Intercedes for Elon Musk’s X Over European Fine**\
-`Federal officials asked to intervene in a case that accused the social media platform of allowing deceptive behavior on its site and resulted in a $140 million penalty.`\
-https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html
-
-**Bob Pettit, N.B.A. Great for the Hawks, Dies at 93**\
-`A prolific scorer and rebounder, in 1958 he delivered one of the most remarkable performances in playoff history.`\
-https://www.nytimes.com/2026/09/24/obituaries/bob-pettit-dead.html
-
-**U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
-`In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
-https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 
