@@ -1,3 +1,7 @@
+**Justice Jackson Calls Emergency Docket ‘Potentially Corrosive’**\
+`Hours after fielding the Trump administration’s latest emergency application, Justice Ketanji Brown Jackson gave a speech urging the Supreme Court to rethink such requests.`\
+https://www.nytimes.com/2026/09/24/us/politics/supreme-court-jackson-emergency-docket.html
+
 **‘Unabomber’ Review: A Not-So-Beautiful Mind**\
 `Russell Crowe and Jacob Tremblay add welcome intrigue to this bifurcated true-crime drama.`\
 https://www.nytimes.com/2026/09/24/movies/unabomber-review-a-not-so-beautiful-mind.html

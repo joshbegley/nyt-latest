@@ -1,3 +1,7 @@
+**Justice Jackson Calls Emergency Docket ‘Potentially Corrosive’**\
+`Hours after fielding the Trump administration’s latest emergency application, Justice Ketanji Brown Jackson gave a speech urging the Supreme Court to rethink such requests.`\
+https://www.nytimes.com/2026/09/24/us/politics/supreme-court-jackson-emergency-docket.html
+
 **‘Unabomber’ Review: A Not-So-Beautiful Mind**\
 `Russell Crowe and Jacob Tremblay add welcome intrigue to this bifurcated true-crime drama.`\
 https://www.nytimes.com/2026/09/24/movies/unabomber-review-a-not-so-beautiful-mind.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/us/trump-midterm-election-ad-government-fundi
 **Who Is the Trump-Appointed Judge Who Blocked the White House Media Ban?**\
 `Judge Timothy J. Kelly had worked as counsel for Senator Charles E. Grassley, who called him a “very talented attorney” in 2017.`\
 https://www.nytimes.com/2026/09/24/us/politics/who-is-tim-kelly-media-judge.html
-
-**A Spirited Battle Over Data Centers**\
-`At the Climate Forward live event, policymakers, executives and activists debated the boom in data centers, the growing backlash and its environmental effects.`\
-https://www.nytimes.com/2026/09/24/climate/a-spirited-battle-over-data-centers.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
