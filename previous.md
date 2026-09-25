@@ -1,3 +1,7 @@
+**Is China Really Stealing A.I. From American Companies?**\
+`As Xi Jinping visits President Trump in Washington, the leaders are expected to discuss claims that China is surreptitiously copying American A.I. technologies, a process known as distillation.`\
+https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
+
 **Pope Leo to Press: ‘You Are All Welcome’**\
 `Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
 https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/learning/do-you-keep-falling-in-love-with-cel
 **David Benioff on His Favorite TV Shows**\
 `The screenwriter David Benioff is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
 https://www.nytimes.com/video/arts/100000011161792/david-benioff-on-his-favorite-tv-shows.html
-
-**What Does Abdul El-Sayed Believe?**\
-`The Senate nominee talks about his view for the future of the Democratic Party.`\
-https://www.nytimes.com/2026/09/25/opinion/ezra-klein-podcast-abdul-el-sayed.html
 

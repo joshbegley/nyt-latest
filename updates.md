@@ -1,3 +1,7 @@
+**Is China Really Stealing A.I. From American Companies?**\
+`As Xi Jinping visits President Trump in Washington, the leaders are expected to discuss claims that China is surreptitiously copying American A.I. technologies, a process known as distillation.`\
+https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
+
 **Pope Leo to Press: ‘You Are All Welcome’**\
 `Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
 https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
