@@ -1,3 +1,7 @@
+**China’s Truce With Trump Buys It Valuable Time**\
+`Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
+https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
+
 **Trump, Xi and the Tech Moguls**\
 `The state visit by Xi Jinping, China’s top leader, so far has been long on pomp but short on substance on issues like artificial intelligence.`\
 https://www.nytimes.com/2026/09/25/business/dealbook/trump-xi-tech-ceos-state-dinner.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/travel/travel-first-aid-what-to-bring.html
 **Choosing the Best TV of the 21st Century**\
 `Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the project was made.`\
 https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-the-21st-century.html
-
-**Russian Attacks Destroy Ukrainian Books**\
-`Our reporter Kim Barker goes inside a storied Kyiv book market that was hit by an air strike. Russian attacks have damaged millions of books in Ukraine in the last few months.`\
-https://www.nytimes.com/video/world/europe/100000011148419/russian-attacks-destroy-ukrainian-books.html
 

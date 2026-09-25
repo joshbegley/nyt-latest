@@ -1,3 +1,7 @@
+**China’s Truce With Trump Buys It Valuable Time**\
+`Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
+https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
+
 **Trump, Xi and the Tech Moguls**\
 `The state visit by Xi Jinping, China’s top leader, so far has been long on pomp but short on substance on issues like artificial intelligence.`\
 https://www.nytimes.com/2026/09/25/business/dealbook/trump-xi-tech-ceos-state-dinner.html
