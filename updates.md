@@ -1,3 +1,11 @@
+**Latest Midterm Polls Reveal Bright Spots for Republicans**\
+`There has been a turnaround in Maine, our new poll shows.`\
+https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms-senate-polls.html
+
+**FEMA Deploys Teams to Hawaii Ahead of Hurricane Nolo**\
+`Hurricane Nolo will be the most significant test of the disaster agency’s new leadership.`\
+https://www.nytimes.com/2026/09/25/weather/fema-hawaii-nolo.html
+
 **Supreme Court Allows Tool to Screen Voters**\
 `Also, the East Coast braces for a powerful storm. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-storm.html

@@ -1,3 +1,7 @@
+**Latest Midterm Polls Reveal Bright Spots for Republicans**\
+`There has been a turnaround in Maine, our new poll shows.`\
+https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms-senate-polls.html
+
 **Supreme Court Allows Tool to Screen Voters**\
 `Also, the East Coast braces for a powerful storm. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-storm.html
@@ -9,6 +13,10 @@ https://www.nytimes.com/video/podcasts/100000011166196/sylvester-stallone-on-the
 **Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
 `Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
 https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
+
+**FEMA Deploys Teams to Hawaii Ahead of Hurricane Nolo**\
+`Hurricane Nolo will be the most significant test of the disaster agency’s new leadership.`\
+https://www.nytimes.com/2026/09/25/weather/fema-hawaii-nolo.html
 
 **As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
 `President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
@@ -173,8 +181,4 @@ https://www.nytimes.com/2026/09/25/arts/music/jay-z-jane-doe-rape-recant-stateme
 **Why Does The Times Care About Mark Zuckerberg’s Style?**\
 `For our chief fashion critic, Vanessa Friedman, the Meta chief executive’s choice of clothes reveal, perhaps inadvertently, pieces of his psyche.`\
 https://www.nytimes.com/2026/09/25/insider/mark-zuckerberg-fashion-style.html
-
-**African Presidents Call for Permanent African Seats on U.N. Security Council**\
-`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the change while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
-https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
 
