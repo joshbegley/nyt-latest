@@ -1,3 +1,7 @@
+**Abdul El-Sayed on the Israeli-Palestinian Conflict**\
+`What should America’s Israel policy look like? On “The Ezra Klein Show,” Dr. Abdul El-Sayed, the Democratic Senate candidate for Michigan, argues that America needs to focus on facilitating a peace process for Israelis and Palestinians, rather than trying to dictate a specific outcome like the two-state solution.`\
+https://www.nytimes.com/video/opinion/100000011172027/abdul-el-sayed-on-the-israeli-palestinian-conflict.html
+
 **Donohue’s, an Old New York Saloon, Gets a New Operator**\
 `The beloved Upper East Side institution is gone. But the downtown restaurateur Jon Neidich says some retro details, and maybe the broiler, will survive.`\
 https://www.nytimes.com/2026/09/25/dining/donohues-steakhouse-manhattan-reopening.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
 **Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
 `The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
-
-**The Drake-Texas Alliance Grows Stronger**\
-`During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
-https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

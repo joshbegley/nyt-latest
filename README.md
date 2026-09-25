@@ -1,3 +1,7 @@
+**Jeff Probst on How ‘Survivor’ Captures Him, Warts and All**\
+`In his interview with “Popcast,” Jeff Probst, the “Survivor” host and showrunner, discusses navigating the good and the bad of being the face of the show — and why he never hides his mistakes.`\
+https://www.nytimes.com/video/podcasts/100000011166309/jeff-probst-on-how-survivor-captures-him-warts-and-all.html
+
 **Abdul El-Sayed on the Israeli-Palestinian Conflict**\
 `What should America’s Israel policy look like? On “The Ezra Klein Show,” Dr. Abdul El-Sayed, the Democratic Senate candidate for Michigan, argues that America needs to focus on facilitating a peace process for Israelis and Palestinians, rather than trying to dictate a specific outcome like the two-state solution.`\
 https://www.nytimes.com/video/opinion/100000011172027/abdul-el-sayed-on-the-israeli-palestinian-conflict.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-paint
 **Supreme Court Allows Use of Trump Administration’s Expansive Database for Voter Screening**\
 `Critics of a citizenship database built by the Trump administration have raised alarms about privacy and improper voter purges.`\
 https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
-
-**Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
-`Despite the success of his hit slasher film, he played no part in the 11 sequels that followed and chose to pivot into the world of soap operas like “All My Children.”`\
-https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
-
-**Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
-`The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
-https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

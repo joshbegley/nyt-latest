@@ -1,3 +1,7 @@
+**Abdul El-Sayed on the Israeli-Palestinian Conflict**\
+`What should America’s Israel policy look like? On “The Ezra Klein Show,” Dr. Abdul El-Sayed, the Democratic Senate candidate for Michigan, argues that America needs to focus on facilitating a peace process for Israelis and Palestinians, rather than trying to dictate a specific outcome like the two-state solution.`\
+https://www.nytimes.com/video/opinion/100000011172027/abdul-el-sayed-on-the-israeli-palestinian-conflict.html
+
 **Donohue’s, an Old New York Saloon, Gets a New Operator**\
 `The beloved Upper East Side institution is gone. But the downtown restaurateur Jon Neidich says some retro details, and maybe the broiler, will survive.`\
 https://www.nytimes.com/2026/09/25/dining/donohues-steakhouse-manhattan-reopening.html
