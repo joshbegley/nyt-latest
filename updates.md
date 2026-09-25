@@ -1,3 +1,7 @@
+**32 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
+`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
+https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
+
 **China’s Truce With Trump Buys It Valuable Time**\
 `Easing tensions with Washington gives Beijing room to tackle economic troubles at home while reducing its vulnerability to American pressure.`\
 https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html

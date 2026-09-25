@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celeb
 `A conversation about how The Times stays up to speed with youth culture.`\
 https://www.nytimes.com/2026/09/25/insider/nyt-175-youth-culture.html
 
-**32 Things to Do for Halloween in New York City**\
+**32 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
 `During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
 https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
 
