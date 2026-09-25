@@ -1,3 +1,31 @@
+**African Presidents Call for Permanent African Seats on U.N. Security Council**\
+`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
+https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
+
+**At State Dinner for China’s Leader, Melania Trump Wears the Pants**\
+`And possibly makes history while doing so.`\
+https://www.nytimes.com/2026/09/25/style/china-state-dinner-melania-trump-pants.html
+
+**Where to Eat, Sleep and Shop in the Greek Island of Crete**\
+`The Mediterranean destination offers remote beaches, charming tavernas and mountain retreats. Here, four locals share their favorite spots.`\
+https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-beaches.html
+
+**Bracing for Midterm Losses, Republicans in Congress Try a Pre-election Pivot**\
+`After nearly two years of allowing President Trump to set their agenda, G.O.P. senators are grasping for some quick action on cost-of-living measures they can show voters before November.`\
+https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
+
+**Supreme Court Allows Expansive Voter Screening Tool Ahead of Midterms**\
+`Critics of the Trump administration system to monitor the citizenship status of voters had raised alarms about privacy and improper voter purges.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
+
+**Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
+`The presidents are visiting the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
+https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
+
+**Trump Bypasses Battlegrounds to Visit Deep-Red States**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
+
 **A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
 `A name that could call to mind Hitler is judged offensive.`\
 https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html

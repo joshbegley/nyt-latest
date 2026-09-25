@@ -1,8 +1,24 @@
+**African Presidents Call for Permanent African Seats on U.N. Security Council**\
+`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
+https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
+
+**At State Dinner for China’s Leader, Melania Trump Wears the Pants**\
+`And possibly makes history while doing so.`\
+https://www.nytimes.com/2026/09/25/style/china-state-dinner-melania-trump-pants.html
+
+**Where to Eat, Sleep and Shop in the Greek Island of Crete**\
+`The Mediterranean destination offers remote beaches, charming tavernas and mountain retreats. Here, four locals share their favorite spots.`\
+https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-beaches.html
+
+**Bracing for Midterm Losses, Republicans in Congress Try a Pre-election Pivot**\
+`After nearly two years of allowing President Trump to set their agenda, G.O.P. senators are grasping for some quick action on cost-of-living measures they can show voters before November.`\
+https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
+
 **A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
 `A name that could call to mind Hitler is judged offensive.`\
 https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
 
-**Supreme Court Allows Federal Voter Identification Tool Ahead of Midterms**\
+**Supreme Court Allows Expansive Voter Screening Tool Ahead of Midterms**\
 `Critics of the Trump administration system to monitor the citizenship status of voters had raised alarms about privacy and improper voter purges.`\
 https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
 
@@ -67,12 +83,16 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
 **Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
-`The presidents are set to visit the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
+`The presidents are visiting the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **CNN and CBS Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
+**Trump Bypasses Battlegrounds to Visit Deep-Red States**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
 
 **Adding a Child to Your Car Insurance? Here Are Ways to Hold Down the Costs.**\
 `Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/25/world/europe/russia-software-arrest.html
 **Decades After They Were Designed, These Chairs Got Brought to Life**\
 `Plus: purple men’s wear, a floral collar and more from T’s cultural compendium.`\
 https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
-
-**How to Make Your Phone Less Addictive**\
-`Practical tips to reduce screen time, manage notifications and regain focus.`\
-https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
-
-**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
-`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
-https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
-
-**What Can Climate Change and Covid Teach Us About A.I. Doom?**\
-`From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
-https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
-
-**Colombia Sends Troops to Coastal City Gripped by Violence**\
-`President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
-https://www.nytimes.com/video/world/americas/100000011172035/colombia-army-santa-marta-violence-cartels.html
-
-**Why a U.S. Diesel Export Ban May Not Lower Prices**\
-`President Trump has said he is considering restricting overseas sales of the fuel to bring down domestic prices, but experts say the policy will have many unintended effects.`\
-https://www.nytimes.com/2026/09/25/business/energy-environment/trump-diesel-export-ban.html
 
