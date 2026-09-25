@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
 `Practical tips to reduce screen time, manage notifications and regain focus.`\
 https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
 
-**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
-`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
-https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
-
 **What Can Climate Change and Covid Teach Us About A.I. Doom?**\
 `From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
 https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
+
+**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
+`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
+https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
 
 **Colombia Sends Troops to Coastal City Gripped by Violence**\
 `President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
