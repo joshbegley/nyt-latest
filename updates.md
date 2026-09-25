@@ -1,3 +1,35 @@
+**Trump Called the Kennedy Center Elitist. Was It?**\
+`When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
+
+**The Life and, for Now, the Death of the Kennedy Center**\
+`The arts center has been a project of President Trump since the beginning of his second term.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-daily/the-life-and-for-now-the-death-of-the-kennedy-center.html
+
+**Dallas Cowboys Succession**\
+`Plus, who should be panicking in the N.F.L.`\
+https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
+
+**NYT Connections Answers for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/connections-companion-1203.html
+
+**Trump’s Standoff With White House Reporters, and the Rise and Fall of ‘Pervert Glasses’**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/09/25/podcasts/the-headlines/trump-white-house-reporters-meta-glasses.html
+
+**NYT Strands Hints for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/strands-sidekick-937.html
+
+**Today’s Wordle Hints for September 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
+
+**Alaskans Dismayed, But Not Moved, by Peltola’s Treatment of Her Staff**\
+`Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
+https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
+
 **25int-pope-press-zlqm**\
 `Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html

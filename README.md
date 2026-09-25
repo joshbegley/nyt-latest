@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
 `Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
 https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
 
-**25int-pope-press-zlqm**\
+**Pope Leo Signals Support for Journalists Targeted by Trump**\
 `Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
 
