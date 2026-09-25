@@ -1,3 +1,19 @@
+**Manchester City Found Guilty of 114 Charges**\
+`In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
+https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
+
+**2 Men Who Popped Out of Manhattan Sewer Have Been Arrested**\
+`The authorities said that the men had slinked out of a manhole near where world leaders were staying for the U.N. General Assembly. The arrests come amid a surge of similar incidents in the city.`\
+https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
+
+**Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
+`Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
+https://www.nytimes.com/live/2026/09/25/weather/noreaster-storm-nyc-weekend
+
+**Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
+`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court.`\
+https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
+
 **Maps: Tracking Tropical Storm Gonzalo**\
 `See the likely path and wind arrival times for Gonzalo`\
 https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.html

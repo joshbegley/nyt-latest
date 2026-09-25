@@ -1,8 +1,16 @@
+**Manchester City Found Guilty of 114 Charges**\
+`In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
+https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
+
+**2 Men Who Popped Out of Manhattan Sewer Have Been Arrested**\
+`The authorities said that the men had slinked out of a manhole near where world leaders were staying for the U.N. General Assembly. The arrests come amid a surge of similar incidents in the city.`\
+https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
+
 **Maps: Tracking Tropical Storm Gonzalo**\
 `See the likely path and wind arrival times for Gonzalo`\
 https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.html
 
-**Live Updates: Powerful Fall Storm Strengthens as It Crawls Up the East Coast**\
+**Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
 `Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
 https://www.nytimes.com/live/2026/09/25/weather/noreaster-storm-nyc-weekend
 
@@ -51,7 +59,7 @@ https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.htm
 https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
 
 **Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
-`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
+`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court.`\
 https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
 
 **Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/25/business/china-trump-xi-truce.html
 **Trump, Xi and the Tech Moguls**\
 `The state visit by Xi Jinping, China’s top leader, so far has been long on pomp but short on substance on issues like artificial intelligence.`\
 https://www.nytimes.com/2026/09/25/business/dealbook/trump-xi-tech-ceos-state-dinner.html
-
-**‘The Headlines’ News Quiz: Sept. 25, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/09/25/podcasts/the-headlines/the-headlines-news-quiz-sept-25-2026.html
-
-**The Ezra Klein Show: Jensen Huang Thinks A.I. Alarmism Has Gone Too Far**\
-`Ezra Klein interviews the Nvidia chief executive Jensen Huang.`\
-https://www.nytimes.com/2026/09/25/podcasts/hardfork-ezra-klein-jensen-huang.html
 
