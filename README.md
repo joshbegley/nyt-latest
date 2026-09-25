@@ -1,3 +1,7 @@
+**How to Regulate A.I.**\
+`Most Americans want government oversight of artificial intelligence. On “The Opinions,” Binyamin Appelbaum lays out how that could work: an oversight commission, clear labeling for chatbots and an A.I. “constitution” shaped by the public, not by tech companies.`\
+https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
+
 **Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
 `The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/books/review/the-ballad-of-the-fugitive-willi
 **This Tiny Village Is Picture Perfect, Apart From All the Tourists**\
 `The residents of Vlkolinec in Slovakia — there are 17 — say that since the place was named a world heritage site, gawking hordes have made it unlivable.`\
 https://www.nytimes.com/2026/09/25/world/europe/slovakia-village-tourism.html
-
-**What to Pack in Your Travel First-Aid Kit**\
-`A bouncer and security guard, accustomed to responding to fights, fires and accidents, recommends a range of useful first-aid items for a variety of travelers.`\
-https://www.nytimes.com/2026/09/25/travel/travel-first-aid-what-to-bring.html
 
