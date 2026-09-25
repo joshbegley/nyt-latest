@@ -1,3 +1,7 @@
+**Desi Lydic Roasts Trump for Pulling Out All the Stops for Xi**\
+`“Trump picked him up at the airport? OK, that is friendship,” Lydic said on Thursday’s “Daily Show.”`\
+https://www.nytimes.com/2026/09/25/arts/television/desi-lydic-roasts-trump-xi.html
+
 **Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
 `The strike, which began early Friday, is the latest labor action to unsettle classical music at a time of financial turmoil and uncertainty.`\
 https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
