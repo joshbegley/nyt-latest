@@ -1,3 +1,7 @@
+**Four Beluga Whales Die Weeks After Major Rescue Mission**\
+`The belugas were among 30 whales transferred to aquariums in the United States and Spain from a closed marine attraction in Canada.`\
+https://www.nytimes.com/2026/09/25/us/marineland-beluga-whales-deaths.html
+
 **U.S. Rejects U.N. Declaration on Preparing for Future Pandemics**\
 `Most member nations spoke in support of the declaration, but some rich countries had strong objections.`\
 https://www.nytimes.com/2026/09/25/us/politics/us-rejects-un-declaration-on-preparing-for-pandemics.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.htm
 **Who Polishes the Brass at Grand Central?**\
 `The station has more than 7,000 linear feet of brass surfaces. The job of keeping them shiny never ends.`\
 https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny-brass-cleaner.html
-
-**Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
-`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court.`\
-https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
 

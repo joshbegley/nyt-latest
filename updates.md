@@ -1,3 +1,15 @@
+**U.S. Rejects U.N. Declaration on Preparing for Future Pandemics**\
+`Most member nations spoke in support of the declaration, but some rich countries had strong objections.`\
+https://www.nytimes.com/2026/09/25/us/politics/us-rejects-un-declaration-on-preparing-for-pandemics.html
+
+**Supreme Court Once Again Blocks Republican-Backed Voting Map in Missouri**\
+`A federal appeals court had sided with Republicans seeking to use redrawn congressional district boundaries to give their party an advantage in the midterms elections.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-missouri-congressional-map.html
+
+**When Waves From Hurricane Polo Could Reach Southern California’s Beaches**\
+`Here’s a timeline for when and where the far-off storm could affect the West Coast.`\
+https://www.nytimes.com/2026/09/25/weather/los-angeles-hurricane-polo-waves.html
+
 **Latest Midterm Polls Reveal Bright Spots for Republicans**\
 `There has been a turnaround in Maine, our new poll shows.`\
 https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms-senate-polls.html
