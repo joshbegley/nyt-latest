@@ -1,4 +1,16 @@
 **Full Guest List for Trump’s State Dinner With Xi**\
+`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook were among those invited to the event, hosted by President Trump and Melania Trump.`\
+https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
+
+**Tech Titans Mingle With Trump and Xi at State Dinner**\
+`Prominent executives attended a dinner at the White House Thursday night, as the countries wrangled over tariffs, trade and potential A.I. regulation.`\
+https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
+
+**U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
+`In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
+https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
+
+**Full Guest List for Trump’s State Dinner With Xi**\
 `Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook made appearances at the event, hosted by President Trump and Melania Trump.`\
 https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
 
