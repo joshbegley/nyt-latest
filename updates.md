@@ -1,3 +1,7 @@
+**Dale Caldwell, New Jersey’s Lt. Governor, Violated Workplace Policies, Report Finds**\
+`Investigators found that New Jersey’s lieutenant governor, Dale Caldwell, sought a promotion for his girlfriend and made a sexually charged comment to a staff member.`\
+https://www.nytimes.com/2026/09/24/nyregion/dale-caldwell-ethics-report-new-jersey-mikie-sherrill.html
+
 **Delegates Walk Out in Protest as Netanyahu Speaks**\
 `On Thursday, hundreds of people in New York City protested Prime Minister Benjamin Netanyahu of Israel, who spoke at the U.N. General Assembly.`\
 https://www.nytimes.com/video/world/middleeast/100000011173289/israel-netanyahu-unga-protests.html
