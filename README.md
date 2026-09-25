@@ -1,3 +1,7 @@
+**Trump and Xi Wrap Up Final Day of Washington Summit**\
+`President Trump and President Xi Jinping of China concluded a three-day summit in Washington on Friday with tea at the White House and a tour of the National Archives.`\
+https://www.nytimes.com/video/us/politics/100000011176141/trump-xi-final-day-summit.html
+
 **Jeff Probst on How ‘Survivor’ Captures Him, Warts and All**\
 `In his interview with “Popcast,” Jeff Probst, the “Survivor” host and showrunner, discusses navigating the good and the bad of being the face of the show — and why he never hides his mistakes.`\
 https://www.nytimes.com/video/podcasts/100000011166309/jeff-probst-on-how-survivor-captures-him-warts-and-all.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
 **A Racehorse, Austrian Painter, Is Renamed After a Complaint**\
 `A name that could call to mind Hitler is judged offensive.`\
 https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
-
-**Supreme Court Allows Use of Trump Administration’s Expansive Database for Voter Screening**\
-`Critics of a citizenship database built by the Trump administration have raised alarms about privacy and improper voter purges.`\
-https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

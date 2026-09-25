@@ -1,3 +1,7 @@
+**Jeff Probst on How ‘Survivor’ Captures Him, Warts and All**\
+`In his interview with “Popcast,” Jeff Probst, the “Survivor” host and showrunner, discusses navigating the good and the bad of being the face of the show — and why he never hides his mistakes.`\
+https://www.nytimes.com/video/podcasts/100000011166309/jeff-probst-on-how-survivor-captures-him-warts-and-all.html
+
 **Abdul El-Sayed on the Israeli-Palestinian Conflict**\
 `What should America’s Israel policy look like? On “The Ezra Klein Show,” Dr. Abdul El-Sayed, the Democratic Senate candidate for Michigan, argues that America needs to focus on facilitating a peace process for Israelis and Palestinians, rather than trying to dictate a specific outcome like the two-state solution.`\
 https://www.nytimes.com/video/opinion/100000011172027/abdul-el-sayed-on-the-israeli-palestinian-conflict.html
