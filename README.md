@@ -1,3 +1,7 @@
+**Are Book Awards Dictated by D.E.I.?**\
+`Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
+https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
+
 **After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
 `A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
 https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-th
 **Dallas Cowboys Succession**\
 `Plus, who should be panicking in the N.F.L.`\
 https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
-
-**NYT Connections Answers for September 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
-https://www.nytimes.com/2026/09/25/crosswords/connections-companion-1203.html
 

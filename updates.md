@@ -1,3 +1,11 @@
+**African Presidents Call for Permanent African Seats on U.N. Security Council**\
+`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the change while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
+https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
+
+**Supreme Court Allows Expansive Federal Database for Voter Screening**\
+`Critics of a citizenship database built by the Trump administration have raised alarms about privacy and improper voter purges.`\
+https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
+
 **After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
 `A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
 https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html

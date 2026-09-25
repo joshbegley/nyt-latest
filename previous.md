@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/09/25/arts/music/jay-z-jane-doe-rape-recant-stateme
 https://www.nytimes.com/2026/09/25/insider/mark-zuckerberg-fashion-style.html
 
 **African Presidents Call for Permanent African Seats on U.N. Security Council**\
-`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
+`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the change while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
 https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
 
 **At State Dinner for China’s Leader, Melania Trump Wears the Pants**\
@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms.html
 `A name that could call to mind Hitler is judged offensive.`\
 https://www.nytimes.com/2026/09/25/sports/horse-racing/horse-name-austrian-painter-hitler.html
 
-**Supreme Court Allows Expansive Voter Screening Tool Ahead of Midterms**\
-`Critics of the Trump administration system to monitor the citizenship status of voters had raised alarms about privacy and improper voter purges.`\
+**Supreme Court Allows Expansive Federal Database for Voter Screening**\
+`Critics of a citizenship database built by the Trump administration have raised alarms about privacy and improper voter purges.`\
 https://www.nytimes.com/2026/09/25/us/politics/supreme-court-citizenship-voter-lists.html
 
 **Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
