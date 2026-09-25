@@ -1,3 +1,7 @@
+**Trump and Xi Exchange Symbolic Gifts Ahead of a State Dinner**\
+`President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
+https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html
+
 **‘The Sopranos’ Is Nowhere on This List. Also, It’s Everywhere.**\
 `Our poll of the best shows of the 21st century explores how TV built on, and moved on from, one of the last great shows of the 20th.`\
 https://www.nytimes.com/2026/09/24/arts/television/the-sopranos-tv-21st-century.html
