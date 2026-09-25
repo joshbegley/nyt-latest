@@ -1,3 +1,7 @@
+**U.S. Rejects U.N. Declaration on Preparing for Future Pandemics**\
+`Most member nations spoke in support of the declaration, but some rich countries had strong objections.`\
+https://www.nytimes.com/2026/09/25/us/politics/us-rejects-un-declaration-on-preparing-for-pandemics.html
+
 **Supreme Court Once Again Blocks Republican-Backed Voting Map in Missouri**\
 `A federal appeals court had sided with Republicans seeking to use redrawn congressional district boundaries to give their party an advantage in the midterms elections.`\
 https://www.nytimes.com/2026/09/25/us/politics/supreme-court-missouri-congressional-map.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/interactive/2026/09/25/nyregion/grand-central-station-ny
 **Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
 `The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court.`\
 https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
-
-**Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
-`The prosecutor said that U.S. Attorney Andrew S. Boutros had intervened and overruled her in the case against a group of protesters known as the “Broadview Six.”`\
-https://www.nytimes.com/2026/09/25/us/chicago-federal-prosecutor-resigns-broadview-six.html
 
