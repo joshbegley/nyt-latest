@@ -1,3 +1,7 @@
+**Full Guest List for Trump’s State Dinner With Xi**\
+`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook made appearances at the event, hosted by President Trump and Melania Trump.`\
+https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
+
 **Iran Proposes 7-Day Plan to End War**\
 `Under the offer, the Strait of Hormuz would reopen and nuclear talks would be revived.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/iran-proposal.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-sta
 `Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
 
-**Man Who Called Himself ‘King of New York’ Convicted in Abductions**\
-`Abu Chowdhury, a Queens supermarket owner, believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
+**N.Y.C. Supermarket Owner Convicted in Violent Abduction Scheme**\
+`Abu Chowdhury believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
 https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
 
 **Tech Titans Will Mingle With Trump and Xi at State Dinner**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
 **An Idaho Cold Case Revisits the Unsolved Tylenol Killings in 1982**\
 `A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
 https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
-
-**Conservative Outlets Offer Trump Feed While White House TV Pool Is Suspended**\
-`Real America’s Voice and LindellTV have teamed up to provide a feed of daily presidential events.`\
-https://www.nytimes.com/2026/09/24/business/media/trump-white-house-press-ban-tv-pool-conservative-news.html
 
 **U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
