@@ -1,3 +1,11 @@
+**African Presidents Call for Permanent African Seats on U.N. Security Council**\
+`A host of African leaders including the presidents of Ghana, Liberia, Kenya and Namibia demanded the reform, while the U.N. Secretary General said the lack of a permanent African seat was “indefensible.”`\
+https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html
+
+**At State Dinner for China’s Leader, Melania Trump Wears the Pants**\
+`And possibly makes history while doing so.`\
+https://www.nytimes.com/2026/09/25/style/china-state-dinner-melania-trump-pants.html
+
 **Where to Eat, Sleep and Shop in the Greek Island of Crete**\
 `The Mediterranean destination offers remote beaches, charming tavernas and mountain retreats. Here, four locals share their favorite spots.`\
 https://www.nytimes.com/2026/09/25/t-magazine/crete-guide-hotels-restaurants-beaches.html
@@ -75,7 +83,7 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 
 **Live Updates: Trump-Xi Summit Includes Tours and Tea, but Little Visible Policy Progress**\
-`The presidents are set to visit the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
+`The presidents are visiting the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **CNN and CBS Resume White House Coverage After Standoff**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/25/world/europe/russia-software-arrest.html
 **Decades After They Were Designed, These Chairs Got Brought to Life**\
 `Plus: purple men’s wear, a floral collar and more from T’s cultural compendium.`\
 https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
-
-**How to Make Your Phone Less Addictive**\
-`Practical tips to reduce screen time, manage notifications and regain focus.`\
-https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
-
-**What Can Climate Change and Covid Teach Us About A.I. Doom?**\
-`From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
-https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
 
