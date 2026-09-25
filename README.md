@@ -1,3 +1,7 @@
+**The A.I. Boom Is Built on Theft**\
+`A.I. models were created by “stealing enormous amounts of intellectual property,” Binyamin Appelbaum argues on “The Opinions.” He says it’s time to end the immunity Silicon Valley has been granted and hold the A.I. industry to the same rules and legal obligations as everyone else.`\
+https://www.nytimes.com/video/opinion/100000011172497/the-ai-boom-is-built-on-theft.html
+
 **How to Regulate A.I.**\
 `Most Americans want government oversight of artificial intelligence. On “The Opinions,” Binyamin Appelbaum lays out how that could work: an oversight commission, clear labeling for chatbots and an A.I. “constitution” shaped by the public, not by tech companies.`\
 https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
 **Book Review: ‘The Ballad of the Fugitive William Parker,’ by Cristin O’Keefe Aptowicz**\
 `A new book by Cristin O’Keefe Aptowicz recounts how violent resistance by a group of armed Black men fueled the fight over slavery.`\
 https://www.nytimes.com/2026/09/25/books/review/the-ballad-of-the-fugitive-william-parker-cristin-okeefe-aptowicz.html
-
-**This Tiny Village Is Picture Perfect, Apart From All the Tourists**\
-`The residents of Vlkolinec in Slovakia — there are 17 — say that since the place was named a world heritage site, gawking hordes have made it unlivable.`\
-https://www.nytimes.com/2026/09/25/world/europe/slovakia-village-tourism.html
 

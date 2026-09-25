@@ -1,3 +1,7 @@
+**How to Regulate A.I.**\
+`Most Americans want government oversight of artificial intelligence. On “The Opinions,” Binyamin Appelbaum lays out how that could work: an oversight commission, clear labeling for chatbots and an A.I. “constitution” shaped by the public, not by tech companies.`\
+https://www.nytimes.com/video/opinion/100000011166038/how-to-regulate-ai.html
+
 **Top Saudi Cleric Calls Fight Against Houthis a Religious Duty**\
 `The grand mufti urged Saudi-led forces to remain in “constant readiness,” suggesting that the kingdom might expand its campaign against the Houthis in Yemen.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/saudi-mufti-houthis-yemen-war.html
