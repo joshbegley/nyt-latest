@@ -1,5 +1,5 @@
 **Full Guest List for Trump’s State Dinner With Xi**\
-`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook made appearances at the event, hosted by President Trump and Melania Trump.`\
+`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook were among those invited to the event, hosted by President Trump and Melania Trump.`\
 https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
 
 **Iran Proposes 7-Day Plan to End War**\
@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.
 `Abu Chowdhury believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
 https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
 
-**Tech Titans Will Mingle With Trump and Xi at State Dinner**\
-`Prominent executives are expected to attend a dinner at the White House Thursday night, as the countries wrangle over tariffs, trade and potential A.I. regulation.`\
+**Tech Titans Mingle With Trump and Xi at State Dinner**\
+`Prominent executives attended a dinner at the White House Thursday night, as the countries wrangled over tariffs, trade and potential A.I. regulation.`\
 https://www.nytimes.com/2026/09/24/business/economy/tech-executives-state-dinner-xi-trump.html
 
 **Trump Administration Asks Supreme Court to Allow Deportations to Third Countries**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/24/us/sauk-mountain-hiker-dead.html
 `A man who killed himself that year in a church in Boise was known as the “Unknown Wanderer.” Investigators said he might have a connection to the famous case of tainted Tylenol.`\
 https://www.nytimes.com/2026/09/24/us/unknown-wanderer-identified-tylenol-killings.html
 
-**U.N. Live Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
+**U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
 https://www.nytimes.com/live/2026/09/24/world/un-general-assembly-news
 

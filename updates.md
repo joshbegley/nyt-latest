@@ -1,3 +1,15 @@
+**Full Guest List for Trump’s State Dinner With Xi**\
+`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook made appearances at the event, hosted by President Trump and Melania Trump.`\
+https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
+
+**Iran Proposes 7-Day Plan to End War**\
+`Under the offer, the Strait of Hormuz would reopen and nuclear talks would be revived.`\
+https://www.nytimes.com/2026/09/24/world/middleeast/iran-proposal.html
+
+**N.Y.C. Supermarket Owner Convicted in Violent Abduction Scheme**\
+`Abu Chowdhury believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
+https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
+
 **Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
 `The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
 https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
