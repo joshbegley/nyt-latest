@@ -1,3 +1,15 @@
+**6 People Are Missing After Explosion in Athens Tourist District**\
+`Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
+https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
+
+**Embattled New Jersey Lt. Governor Dale Caldwell Resigns After Ethics Inquiry**\
+`Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
+https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
+
+**His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.**\
+`“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
+https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
+
 **Kennedy Center Shelved Repairs Now Cited for Closure, Whistle-Blowers Say**\
 `In a letter to Congress, former employees say the center delayed a plan to address the leaks that its officials now cite as a serious safety risk.`\
 https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html

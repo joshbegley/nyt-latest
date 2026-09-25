@@ -1,3 +1,7 @@
+**6 People Are Missing After Explosion in Athens Tourist District**\
+`Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
+https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
+
 **Kennedy Center Shelved Repairs Now Cited for Closure, Whistle-Blowers Say**\
 `In a letter to Congress, former employees say the center delayed a plan to address the leaks that its officials now cite as a serious safety risk.`\
 https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html
@@ -38,11 +42,11 @@ https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
 `Beachfront homeowners and beachcombers are watching the sand vanish into the ocean as torrid waves strike the coast.`\
 https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
 
-**Embattled New Jersey Lt. Governor Resigns After Ethics Inquiry**\
+**Embattled New Jersey Lt. Governor Dale Caldwell Resigns After Ethics Inquiry**\
 `Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
 https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
 
-**Charges of A.I. Writing in a Lauded Novel, and a Fight Over the Literary Future**\
+**His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.**\
 `“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
 https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-ch
 **These Elections Could Decide 2028. No One Is Watching Them.**\
 `Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
 https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
-
-**A Small Hawaiian Island Rode Out a Storm With Faith and Little Help**\
-`Not much is publicly known about how Niihau, a privately owned Hawaiian island with fewer than 100 residents, fared during Hurricane Lowell.`\
-https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
