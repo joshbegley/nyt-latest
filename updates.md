@@ -1,3 +1,7 @@
+**ICE Raids in Beef Country Raise Fears of Higher Prices**\
+`Cattle industry groups in Texas, Oklahoma and Kansas and two Republican senators said the Trump administration’s immigration enforcement actions were hurting operations.`\
+https://www.nytimes.com/2026/09/25/us/politics/ice-raids-kansas-texas-oklahoma-beef-prices.html
+
 **Four Beluga Whales Die Weeks After Major Rescue Mission**\
 `The belugas were among 30 whales transferred to aquariums in the United States and Spain from a closed marine attraction in Canada.`\
 https://www.nytimes.com/2026/09/25/us/marineland-beluga-whales-deaths.html
