@@ -1,3 +1,15 @@
+**Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
+`The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
+https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
+
+**Catherine Ringer, French Pop Icon of Eclectic Style, Dies at 68**\
+`With her guitarist-partner, Fred Chichin, she formed Les Rita Mitsouko as a band that embraced a more multicultural France.`\
+https://www.nytimes.com/2026/09/25/world/europe/catherine-ringer-dead.html
+
+**Read the document**\
+`Sheri H. Mecklenburg resignation letter`\
+https://www.nytimes.com/interactive/2026/09/25/us/mecklenburgletter.html
+
 **Are Book Awards Dictated by D.E.I.?**\
 `Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
 https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/25/world/australia/openai-hack-australia.html
 **Once Sentenced to Death, Mary Jane Veloso Receives Pardon in the Philippines**\
 `Mary Jane Veloso was convicted of drug smuggling and nearly killed by a firing squad in Indonesia. On Friday, more than a decade later, she was pardoned in the Philippines.`\
 https://www.nytimes.com/2026/09/25/world/asia/mary-jane-veloso-philippines-pardon.html
-
-**The Life and, for Now, the Death of the Kennedy Center**\
-`The arts center has been a project of President Trump since the beginning of his second term.`\
-https://www.nytimes.com/2026/09/25/podcasts/the-daily/the-life-and-for-now-the-death-of-the-kennedy-center.html
-
-**Trump Called the Kennedy Center Elitist. Was It?**\
-`When President Trump decided to take over and then to shut down the Kennedy Center, he claimed that it had become too elitist and leaned too liberal. Features writer Elizabeth Williamson explains how the arts organization’s programming actually has tried to appeal to as broad an audience as possible.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011173669/trump-called-the-kennedy-center-elitist-was-it.html
-
-**Dallas Cowboys Succession**\
-`Plus, who should be panicking in the N.F.L.`\
-https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
 

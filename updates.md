@@ -1,3 +1,15 @@
+**Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
+`The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
+https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
+
+**Catherine Ringer, French Pop Icon of Eclectic Style, Dies at 68**\
+`With her guitarist-partner, Fred Chichin, she formed Les Rita Mitsouko as a band that embraced a more multicultural France.`\
+https://www.nytimes.com/2026/09/25/world/europe/catherine-ringer-dead.html
+
+**Read the document**\
+`Sheri H. Mecklenburg resignation letter`\
+https://www.nytimes.com/interactive/2026/09/25/us/mecklenburgletter.html
+
 **Are Book Awards Dictated by D.E.I.?**\
 `Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
 https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
