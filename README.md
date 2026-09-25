@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
 `The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
 https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
 
-**These Midterm Races Matter the Most. They’re Discussed the Least.**\
+**These Elections Could Decide 2028. No One Is Watching Them.**\
 `Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
 https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
 
