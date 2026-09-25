@@ -1,3 +1,67 @@
+**The Rise of Indian Japanese Food**\
+`Plus: a new hotel in the Dolomites, colorful watches and more from T Magazine’s cultural compendium.`\
+https://www.nytimes.com/2026/09/25/t-magazine/indian-japanese-fusion-cuisine.html
+
+**An Art Deco-Inspired Locket With a Turquoise Stone**\
+`Monica Rich Kosann’s necklace reimagines one of her first high jewelry pieces.`\
+https://www.nytimes.com/2026/09/25/t-magazine/monica-rich-kosann-locket-jewelry.html
+
+**New Film Revisits One City’s Deadly Chapter of ‘To Catch a Predator’**\
+`When the long-running TV franchise came to Murphy, Texas, in 2006, a man ended up dead. A new film, “Primetime,” looks back on what happened.`\
+https://www.nytimes.com/2026/09/25/us/to-catch-a-predator-sting-texas-primetime-movie.html
+
+**How A.I. Is Reshaping the National Weather Service**\
+`Millions of Americans rely on their local weather forecasts, but as peak storm season approaches, have the Trump administration’s budget cuts made it harder to accurately predict the weather? Meteorologists say it isn’t that simple.`\
+https://www.nytimes.com/video/weather/100000011123089/nws-ai-weather-forecasting.html
+
+**Inside the Record Summer ICE Surge That Swept Across the U.S.**\
+`A review of dozens of incidents caught on camera sheds new light on a largely invisible crackdown.`\
+https://www.nytimes.com/2026/09/25/us/ice-surge-immigration-arrests.html
+
+**A.I. Has Made Me a Better Doctor. It’s Made Med Students Worse.**\
+`I’m confident in my mastery over what doctors do — and less confident about my continued mastery of an ever-evolving universe of facts.`\
+https://www.nytimes.com/2026/09/25/opinion/ai-doctor-medical-students.html
+
+**Lee Krasner. Artist. Wife.**\
+`Only by being exhibited alongside her husband, Jackson Pollock, can Lee Krasner fully and finally emerge from his shadow.`\
+https://www.nytimes.com/2026/09/25/opinion/krasner-pollock-artist-wife.html
+
+**TikTok and Instagram Creators Have Turned NYC Into an Unofficial Soundstage**\
+`The streets of New York are a backdrop for countless TikTok and Instagram videos.`\
+https://www.nytimes.com/2026/09/25/business/media/nyc-tiktok-instagram-shows.html
+
+**In ‘Basic Pistol,’ a Sociologist Finds Hidden Lessons in Gun Training**\
+`More than just instruction on how to use a weapon, the courses teach a way of life, the sociologist Harel Shapira argues in “Basic Pistol.”`\
+https://www.nytimes.com/2026/09/25/books/basic-pistol-harel-shapira-gun-training.html
+
+**Filippo Bernardini Scammed the Book Business for Years. Is He Back?**\
+`The man who admitted to stealing hundreds of manuscripts swore he’d never do it again. New online skulduggery resembles his old tricks, and then some.`\
+https://www.nytimes.com/2026/09/25/books/filippo-bernardini-manuscript-thief-publishing-scam.html
+
+**Mark Zuckerberg Is Trying Something On**\
+`Meta’s C.E.O. talks for the first time about his style evolution.`\
+https://www.nytimes.com/2026/09/25/style/mark-zuckerberg-fashion-glasses.html
+
+**How Drinking Affects Your Dementia Risk**\
+`Researchers are still investigating what alcohol does to the brain, and what (if any) amount is safe.`\
+https://www.nytimes.com/2026/09/25/well/mind/alcohol-dementia-risk.html
+
+**The New York Times News Quiz, September 25, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/09/25/briefing/weekly-news-quiz.html
+
+**Can I Question My Partner’s Moose Sighting?**\
+`A ruling on a trail-running dispute.`\
+https://www.nytimes.com/quiz/2026/09/25/magazine/moose-sighting-hodgman-quiz.html
+
+**What Does Abdul El-Sayed Believe?**\
+`The Senate nominee talks about his view for the future of the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011172023/what-does-abdul-el-sayed-believe.html
+
+**Leo XIV, Trying to Be Everyone’s Pope, Tours Secular France**\
+`After visiting Africa, Pope Leo’s four-day trip to France shows how he is seeking to appeal to Roman Catholicism’s original heartlands as well as to the church’s newest strongholds.`\
+https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html
+
 **Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
 `The professor had catalyzed debates over diversity efforts in higher education.`\
 https://www.nytimes.com/2026/09/25/world/europe/cambridge-jason-arday-investigation.html

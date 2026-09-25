@@ -1,3 +1,167 @@
+**Chatbots Are Not Your Friends**\
+`Our cozy relationship with A.I. chatbots can lead to “artificial intimacy,” says one expert. Here’s how to keep it in check.`\
+https://www.nytimes.com/2026/09/25/well/ai-chatbots-artificial-intimacy.html
+
+**A Russian Software Company Duped the Secret Service, U.S. Prosecutors Say**\
+`Executives from a Russian-owned company are accused of misrepresentation in order to secure U.S. government contracts.`\
+https://www.nytimes.com/2026/09/25/world/europe/russia-software-arrest.html
+
+**Decades After They Were Designed, These Chairs Got Brought to Life**\
+`Plus: purple men’s wear, a floral collar and more from T’s cultural compendium.`\
+https://www.nytimes.com/2026/09/25/t-magazine/chair-design-copenhagen.html
+
+**How to Make Your Phone Less Addictive**\
+`Practical tips to reduce screen time, manage notifications and regain focus.`\
+https://www.nytimes.com/2026/09/25/podcasts/how-to-make-your-phone-less-addictive.html
+
+**Colombia’s President Wears Gun to Santa Marta, City Shut Down by a Criminal Group**\
+`Abelardo De La Espriella, the new president, wore the gun to visit Santa Marta, a tourist destination shut down by an armed group after state forces killed a group leader.`\
+https://www.nytimes.com/2026/09/25/us/colombia-de-la-espriella-gun.html
+
+**What Can Climate Change and Covid Teach Us About A.I. Doom?**\
+`From climate to Covid to A.I., we face a terrifying feeling of exponential growth spinning out of our control. Are we right?`\
+https://www.nytimes.com/2026/09/25/magazine/why-we-cant-stop-predicting-the-apocalypse.html
+
+**Colombia Sends Troops to Coastal City Gripped by Violence**\
+`President Abelardo De La Espriella of Colombia deployed the military to Santa Marta after a gang stormed the area in retaliation after security forces killed one of its leaders.`\
+https://www.nytimes.com/video/world/americas/100000011172035/colombia-army-santa-marta-violence-cartels.html
+
+**Why a U.S. Diesel Export Ban May Not Lower Prices**\
+`President Trump has said he is considering restricting overseas sales of the fuel to bring down domestic prices, but experts say the policy will have many unintended effects.`\
+https://www.nytimes.com/2026/09/25/business/energy-environment/trump-diesel-export-ban.html
+
+**Stuck on the Battlefield, Russia Wages ‘Total War’ on Ukraine’s Economy**\
+`The economic damage from Russian strikes, resulting in lost sales, disrupted workdays and logistical snarls, is in the billions of dollars.`\
+https://www.nytimes.com/2026/09/25/world/europe/ukraine-russia-economy.html
+
+**The Best TV of this Century?**\
+`With so many options (and opinions), what makes something great?`\
+https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
+
+**Michael Whatley, the Republican Senate Candidate in North Carolina, Sticks By Trump**\
+`Republicans in Senate battlegrounds have started to break with the president. Not Michael Whatley of North Carolina, even as his race seems at risk.`\
+https://www.nytimes.com/2026/09/25/us/politics/north-carolina-senate-roy-cooper-michael-whatley.html
+
+**Book Club: Read ‘Switzy,’ by Emma Cline, With the Book Review**\
+`In October, the Book Review Book Club will read Cline’s latest, about a man with dementia who has decided to end his life on his own terms.`\
+https://www.nytimes.com/2026/09/25/books/review/switzy-emma-cline-book-club.html
+
+**Brain Science Shows Why 18 Is Too Young for the Death Penalty**\
+`Our brains don’t finish developing until we’re well into our 20s. That matters when deciding who gets the death penalty.`\
+https://www.nytimes.com/2026/09/25/opinion/death-penalty-young-brain-development.html
+
+**The Problem Is Where Interest Rates May Go, Not Where They Are Now**\
+`History shows that the markets and the economy flourished when rates were even higher than today’s. But, our columnist notes, those times didn’t last.`\
+https://www.nytimes.com/2026/09/25/business/interest-rates-economy.html
+
+**On This Mexican Island, Raccoons Make and Play With Toys (and Also Sip Margaritas)**\
+`Scientists observed a family of pygmy raccoons near a Cozumel beach club learning from one another how to craft balls from paper, an indication that the animals have a culture.`\
+https://www.nytimes.com/2026/09/25/science/raccoons-toys-cozumel-mexico-research.html
+
+**What Happened to Hollywood’s Most Reliable Happy Ending?**\
+`A new study by an independent analyst shows that action films are more likely to end on a sadder note nowadays.`\
+https://www.nytimes.com/2026/09/25/movies/action-film-endings-sad.html
+
+**12 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/09/25/movies/new-movies-this-week-critics.html
+
+**Es Devlin, Master of the Extravaganza, Highlights the Art of Craft**\
+`For the Homo Faber Biennial in the Venetian lagoon, the designer unites works by 500 artisans, each one an island of talent.`\
+https://www.nytimes.com/2026/09/25/arts/design/es-devlin-master-of-the-extravaganza-highlights-the-art-of-craft.html
+
+**See an Underwater World Projected on the Brooklyn Bridge**\
+`A video art installation about Hudson Canyon, in the Atlantic Ocean, will be shown on the bridge tonight.`\
+https://www.nytimes.com/2026/09/25/nyregion/brooklyn-bridge-installation-hudson-canyon.html
+
+**Do You Keep Falling in Love With Celebrity Animals?**\
+`A neckless raccoon named Jimothy captivated the internet this summer. Were you one of his many online fans?`\
+https://www.nytimes.com/2026/09/25/learning/do-you-keep-falling-in-love-with-celebrity-animals.html
+
+**David Benioff on His Favorite TV Shows**\
+`The screenwriter David Benioff is one of the hundreds of stars, showrunners and industry insiders who contributed their picks for The New York Times’s list of the best TV shows of the 21st century.`\
+https://www.nytimes.com/video/arts/100000011161792/david-benioff-on-his-favorite-tv-shows.html
+
+**What Does Abdul El-Sayed Believe?**\
+`The Senate nominee talks about his view for the future of the Democratic Party.`\
+https://www.nytimes.com/2026/09/25/opinion/ezra-klein-podcast-abdul-el-sayed.html
+
+**Fashion Trends Come and Go. The New York Times Has Seen Them All.**\
+`Throughout its 175-year history, the paper has captured and documented moments in fashion history.`\
+https://www.nytimes.com/interactive/2026/09/25/style/fashion-style-history-new-york-times-anniversary.html
+
+**How Climate Change Is Disrupting Summer Travel**\
+`Once dismissed as occasional inconveniences, climate-related disruptions are now an inescapable fixture of summer travel. How will travelers respond?`\
+https://www.nytimes.com/2026/09/25/travel/climate-change-summer-travel-disruptions.html
+
+**Choose Your Favorite $1 Million Swedish Waterfront Home**\
+`An Art Noveau-style home, a four-bedroom with guesthouses and a modern home with views of a fjord, all near Gothenburg.`\
+https://www.nytimes.com/2026/09/25/realestate/choose-your-favorite-1-million-swedish-waterfront-home.html
+
+**Thierry Henry Lists Glass-Topped SoHo Penthouse for $25 Million**\
+`The soccer legend and his partner combined floors to create a home with more than 6,000 square feet. Plus, Paul Feig and Maria Menounos listed properties.`\
+https://www.nytimes.com/2026/09/25/realestate/thierry-henry-soho-penthouse-celebrity-home-listings.html
+
+**How the New York Times Stays Young After 175 Years**\
+`A conversation about how The Times stays up to speed with youth culture.`\
+https://www.nytimes.com/2026/09/25/insider/nyt-175-youth-culture.html
+
+**Book Review: ‘The Ballad of the Fugitive William Parker,’ by Cristin O’Keefe Aptowicz**\
+`A new book by Cristin O’Keefe Aptowicz recounts how violent resistance by a group of armed Black men fueled the fight over slavery.`\
+https://www.nytimes.com/2026/09/25/books/review/the-ballad-of-the-fugitive-william-parker-cristin-okeefe-aptowicz.html
+
+**33 Fun Halloween Events in NYC 2026: Parades, Haunted Houses and More**\
+`During spooky season, keep it creepy with costume parades, witches on Wall Street and headless horsemen in the Hudson Valley.`\
+https://www.nytimes.com/2026/09/25/arts/halloween-nyc-2026.html
+
+**This Tiny Village Is Picture Perfect, Apart From All the Tourists**\
+`The residents of Vlkolinec in Slovakia — there are 17 — say that since the place was named a world heritage site, gawking hordes have made it unlivable.`\
+https://www.nytimes.com/2026/09/25/world/europe/slovakia-village-tourism.html
+
+**What to Pack in Your Travel First-Aid Kit**\
+`A bouncer and security guard, accustomed to responding to fights, fires and accidents, recommends a range of useful first-aid items for a variety of travelers.`\
+https://www.nytimes.com/2026/09/25/travel/travel-first-aid-what-to-bring.html
+
+**Choosing the Best TV of the 21st Century**\
+`Our latest Canon project focuses on the best TV of the 21st century and features 100 shows. Gilbert Cruz, The Times’s Canon editor, speaks about some of the stars and creators who voted and discusses how the list was made.`\
+https://www.nytimes.com/video/insider/100000011151286/choosing-the-best-tv-of-the-21st-century.html
+
+**Russian Attacks Destroy Ukrainian Books**\
+`Our reporter Kim Barker goes inside a storied Kyiv book market that was hit by an air strike. Russian attacks have damaged millions of books in Ukraine in the last few months.`\
+https://www.nytimes.com/video/world/europe/100000011148419/russian-attacks-destroy-ukrainian-books.html
+
+**At the New York Film Festival, Movies With Oomph**\
+`Films by Ava DuVernay, Tony Gilroy and Luca Guadagnino set a high bar at the latest edition of this Lincoln Center event.`\
+https://www.nytimes.com/2026/09/25/movies/new-york-film-festival-pedro-pascal-elizabeth-holmes-nathan-fielder.html
+
+**Book Review: ‘Building 903,’ by Lois Lowry**\
+`Lois Lowry pioneered dystopian fiction for young readers. “Building 903” adds to her legacy.`\
+https://www.nytimes.com/2026/09/25/books/review/lois-lowry-building-903.html
+
+**Word of the Day: adjourn**\
+`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/25/learning/word-of-the-day-adjourn.html
+
+**Russian Attacks Destroy Millions of Books, the Heart of Ukrainian Culture**\
+`A publisher whose warehouse was hit twice said Moscow “thinks that books are more dangerous for them than military equipment.”`\
+https://www.nytimes.com/2026/09/25/world/europe/russia-ukraine-books-attacks.html
+
+**This Island Loves Its Bears. If Only They’d Stop Eating Trash.**\
+`Kodiak Island in Alaska is famous for its giant brown bears, but human efforts to keep the behemoths out of the landfill have become a struggle.`\
+https://www.nytimes.com/2026/09/25/us/kodiak-island-bears-dump-alaska.html
+
+**The Viral In-N-Out Spatula Hero Is Exactly Who You Imagined He Was**\
+`It started as a bizarre late-night standoff behind the counter of a fast food joint. It ended with no injuries — and free burgers.`\
+https://www.nytimes.com/2026/09/25/us/in-n-out-burger-luca-opperman-spatula.html
+
+**The World Needs Better Power Grids. Why Smaller May Be Better.**\
+`Jonas Birgersson, a Swedish entrepreneur, wants to use decentralized networks modeled on the internet to transform how electricity is distributed.`\
+https://www.nytimes.com/2026/09/25/business/power-grid-jonas-birgersson.html
+
+**Young Democrats Are Putting the Party Back in Politics. It’s Working.**\
+`Fun, free events communicate a larger goal: that everyday people should be able to afford a joyful life.`\
+https://www.nytimes.com/2026/09/25/opinion/democrats-young-voters-joy-mamdani.html
+
 **The Rise of Indian Japanese Food**\
 `Plus: a new hotel in the Dolomites, colorful watches and more from T Magazine’s cultural compendium.`\
 https://www.nytimes.com/2026/09/25/t-magazine/indian-japanese-fusion-cuisine.html
@@ -33,168 +197,4 @@ https://www.nytimes.com/2026/09/25/business/media/nyc-tiktok-instagram-shows.htm
 **In ‘Basic Pistol,’ a Sociologist Finds Hidden Lessons in Gun Training**\
 `More than just instruction on how to use a weapon, the courses teach a way of life, the sociologist Harel Shapira argues in “Basic Pistol.”`\
 https://www.nytimes.com/2026/09/25/books/basic-pistol-harel-shapira-gun-training.html
-
-**Filippo Bernardini Scammed the Book Business for Years. Is He Back?**\
-`The man who admitted to stealing hundreds of manuscripts swore he’d never do it again. New online skulduggery resembles his old tricks, and then some.`\
-https://www.nytimes.com/2026/09/25/books/filippo-bernardini-manuscript-thief-publishing-scam.html
-
-**Mark Zuckerberg Is Trying Something On**\
-`Meta’s C.E.O. talks for the first time about his style evolution.`\
-https://www.nytimes.com/2026/09/25/style/mark-zuckerberg-fashion-glasses.html
-
-**How Drinking Affects Your Dementia Risk**\
-`Researchers are still investigating what alcohol does to the brain, and what (if any) amount is safe.`\
-https://www.nytimes.com/2026/09/25/well/mind/alcohol-dementia-risk.html
-
-**The New York Times News Quiz, September 25, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/09/25/briefing/weekly-news-quiz.html
-
-**Can I Question My Partner’s Moose Sighting?**\
-`A ruling on a trail-running dispute.`\
-https://www.nytimes.com/quiz/2026/09/25/magazine/moose-sighting-hodgman-quiz.html
-
-**What Does Abdul El-Sayed Believe?**\
-`The Senate nominee talks about his view for the future of the Democratic Party.`\
-https://www.nytimes.com/video/opinion/100000011172023/what-does-abdul-el-sayed-believe.html
-
-**15-Minute Lesson Plan: A Goals Gallery Walk**\
-`What are you looking forward to this fall? What challenges are you facing? How could you plan for a “seasonal reset” to help?`\
-https://www.nytimes.com/2026/09/25/learning/15-minute-lesson-plan-a-goals-gallery-walk.html
-
-**Powerful Storm Lashes North Carolina as It Moves Up East Coast**\
-`A strengthening nor’easter brought rough swells and threatened homes in North Carolina as it tracked up the East Coast.`\
-https://www.nytimes.com/video/weather/100000011174680/weather-noreaster-storm-north-carolina.html
-
-**The Graffiti Artist Top Brands Call on for That ‘New York’ Look**\
-`If the city had a font, would his lettering be it?`\
-https://www.nytimes.com/2026/09/25/nyregion/new-york-graffiti-artist-faust.html
-
-**When Making Games Is Your Job, What Do You Do for Fun?**\
-`Members of the New York Times Games team told us about their game club and what they play after they polish off each day’s puzzles.`\
-https://www.nytimes.com/2026/09/25/insider/games-puzzles-wordle-connections.html
-
-**NYT Spelling Bee Answers for September 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/25/crosswords/spelling-bee-forum.html
-
-**Desi Lydic Roasts Trump for Pulling Out All the Stops for Xi**\
-`“Trump picked him up at the airport? OK, that is friendship,” Lydic said on Thursday’s “Daily Show.”`\
-https://www.nytimes.com/2026/09/25/arts/television/desi-lydic-roasts-trump-xi.html
-
-**Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
-`The strike, which began early Friday, is the latest labor action to unsettle classical music at a time of financial turmoil and uncertainty.`\
-https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
-
-**Quote of the Day: Two Joyful Sides to This Chicago Story**\
-`Quotation of the Day for Friday, September 25, 2026.`\
-https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides-to-this-chicago-story.html
-
-**Leo XIV, Trying to Be Everyone’s Pope, Tours Secular France**\
-`After visiting Africa, Pope Leo’s four-day trip to France shows how he is seeking to appeal to Roman Catholicism’s original heartlands as well as to the church’s newest strongholds.`\
-https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html
-
-**Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
-`The professor had catalyzed debates over diversity efforts in higher education.`\
-https://www.nytimes.com/2026/09/25/world/europe/cambridge-jason-arday-investigation.html
-
-**Dating Moves Fast in Your 70s**\
-`For our third date, he told me to bring my toothbrush.`\
-https://www.nytimes.com/2026/09/25/style/modern-love-dating-moves-fast-in-your-70s.html
-
-**They Met at a Corner Store. Their Love Story Took a Few Detours.**\
-`Graylen Gatewood, a granddaughter of E.L. Doctorow, and Charles McFarlane, a fashion historian, fell in love as undergraduates at Bard College.`\
-https://www.nytimes.com/2026/09/25/style/graylen-gatewood-charles-mcfarlane-wedding.html
-
-**Real Life Proved Better Than Fiction**\
-`Savannah Stuitje would sit at the bar where she and Margo Feingold worked, reading a book in hopes of catching Feingold’s attention so she “had no choice but to talk to me.”`\
-https://www.nytimes.com/2026/09/25/style/savannah-stuitje-margo-feingold-wedding.html
-
-**One Hour Late for the First Date, but Glad He Didn’t Bail**\
-`Zachary Martellucci was beginning to come out when he met Jordan Shavarebi. Together, they built the queer community both had wanted.`\
-https://www.nytimes.com/2026/09/25/style/zachary-martellucci-jordan-shavarebi-wedding.html
-
-**Meeting in Midlife and Making a Dream Come True**\
-`Anna Kashner and Ronald Clark, who were both parents when they met, had an understanding of each other from the start.`\
-https://www.nytimes.com/2026/09/25/style/anna-kashner-ronald-clark-wedding.html
-
-**On This Day | Sept. 25**\
-`In 1957, nine Black students, later known as the Little Rock Nine, entered Central High School in Little Rock, Ark., under the guard of federal troops enforcing school desegregation.`\
-https://www.nytimes.com/2026/09/25/learning/on-this-day-sept-25.html
-
-**Why Nepal’s Prime Minister Balen Shah Wears Sunglasses**\
-`Balendra Shah wore them as a rapper, as Kathmandu’s mayor and on his way to becoming prime minister. Now he has taken the look to the United Nations.`\
-https://www.nytimes.com/2026/09/24/world/asia/balen-shah-sunglasses-nepal.html
-
-**Pandas and Eagles and A.I., Oh My! Trump Throws a State Dinner for Xi**\
-`Altman. Musk. Huang. Bezos. They all came to the White House Thursday night, though you might not have seen it on TV.`\
-https://www.nytimes.com/2026/09/24/us/politics/state-dinner-scene.html
-
-**Hurricane Nolo Takes Aim at Hawaii**\
-`Though likely to avoid a direct hit, parts of the state could receive nearly three feet of rain, forecasters warned.`\
-https://www.nytimes.com/2026/09/24/weather/hurricane-nolo-hawaii.html
-
-**The Best TV Shows of the 21st Century: What to Watch**\
-`Our list of the 100 best TV shows of this century (so far) is a great resource for TV lovers. But how do you narrow it down? Here are some helpful starting points.`\
-https://www.nytimes.com/interactive/2026/arts/television/watch-tv-shows-21st-century.html
-
-**Justice Department Scraps Dozens of School Desegregation Cases**\
-`Critics said the changes, mostly in the South, moved the nation “back toward the Jim Crow era.” Justice Department officials said the decrees were outdated.`\
-https://www.nytimes.com/2026/09/24/us/politics/justice-department-desegregation-cases.html
-
-**France to Send Soldiers to Saudi Arabia to Help Secure Energy Sites**\
-`Attacks on Saudi cities on the Red Sea by the Iran-backed Houthi militia in Yemen have added to pressure on global oil supplies.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/france-saudi-arabia-red-sea-yemen-houthis.html
-
-**Best TV Shows of the 21st Century: A Printable List**\
-`More than 500 stars, showrunners and TV lovers voted on their favorite shows of this century. Here are the results of our poll.`\
-https://www.nytimes.com/interactive/2026/arts/television/print-best-tv-shows-21st-century.html
-
-**In London, a New Flagship for Alex Eagle**\
-`The designer signed on to creative direct the whole of 180 the Thames, a new lifestyle hub on the north bank of the Thames. Then she moved her own business there.`\
-https://www.nytimes.com/2026/09/24/t-magazine/alex-eagle-180-the-thames.html
-
-**Airline Credit Cards Are Screwing Up the Whole Industry**\
-`Airline loyalty programs are anticompetitive and hurting consumers.`\
-https://www.nytimes.com/2026/09/24/opinion/flights-airlines-spirit-loyalty-credit-cards.html
-
-**Trump and Xi Exchange Symbolic Gifts Ahead of State Dinner**\
-`President Trump gave a statue of a bald eagle to President Xi Jinping before a state dinner at the White House.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-xi-gift-exchange.html
-
-**How ‘The Sopranos’ Influenced the Best TV Shows of the 21st Century**\
-`Our poll of the best shows of the 21st century explores how TV built on, and moved on from, one of the last great shows of the 20th.`\
-https://www.nytimes.com/2026/09/24/arts/television/the-sopranos-tv-21st-century.html
-
-**NYT Crossword Answers for Sept. 25, 2026**\
-`Rafael Musa returns to open our solving weekend.`\
-https://www.nytimes.com/2026/09/24/crosswords/daily-puzzle-2026-09-25.html
-
-**How ‘Breaking Bad’ Became the Best Show of the 21st Century**\
-`“Breaking Bad” was voted the greatest show of the 21st century by our panel. We interviewed the creator Vince Gilligan and the actors Bryan Cranston and Giancarlo Esposito about the making of the show and why it still resonates nearly 20 years after its debut.`\
-https://www.nytimes.com/video/arts/television/100000011062762/how-breaking-bad-became-the-best-show-of-the-21st-century.html
-
-**Justice Jackson Calls Emergency Docket ‘Potentially Corrosive’**\
-`Hours after fielding the Trump administration’s latest emergency application, Justice Ketanji Brown Jackson gave a speech urging the Supreme Court to rethink such requests.`\
-https://www.nytimes.com/2026/09/24/us/politics/supreme-court-jackson-emergency-docket.html
-
-**‘Unabomber’ Review: A Not-So-Beautiful Mind**\
-`Russell Crowe and Jacob Tremblay add welcome intrigue to this bifurcated true-crime drama.`\
-https://www.nytimes.com/2026/09/24/movies/unabomber-review-a-not-so-beautiful-mind.html
-
-**In Trump’s White House, China’s Dictator Is Welcome. American Media, Less So.**\
-`The showdown over President Trump’s partial media ban played out as he welcomed President Xi Jinping, whose government is ranked among the most repressive in the world.`\
-https://www.nytimes.com/2026/09/24/us/politics/trump-xi-press-pool-boycott-media.html
-
-**Full Guest List for Trump’s State Dinner With Xi**\
-`Tech titans including Jeff Bezos, Elon Musk, Jensen Huang, Sam Altman and Tim Cook were among those invited to the event, hosted by President Trump and Melania Trump.`\
-https://www.nytimes.com/2026/09/24/us/politics/full-guest-list-trump-state-dinner-xi.html
-
-**Iran Proposes 7-Day Plan to End War**\
-`Under the offer, the Strait of Hormuz would reopen and nuclear talks would be revived.`\
-https://www.nytimes.com/2026/09/24/world/middleeast/iran-proposal.html
-
-**Fifth-Grade Teacher and Boy Die in Iowa Lake on Field Trip**\
-`The teacher, Hannah Jorgensen, 24, jumped into the water to save the boy, according to his family.`\
-https://www.nytimes.com/2026/09/24/us/iowa-5th-grade-teacher-student-dead.html
 
