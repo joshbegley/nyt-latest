@@ -1,3 +1,11 @@
+**Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
+`The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
+https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
+
+**CNN and CBS Resume White House Coverage After Standoff**\
+`Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
+https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
+
 **CNN and CBS Will Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html

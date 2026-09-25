@@ -1,3 +1,7 @@
+**Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
+`The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
+https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
+
 **The Drake-Texas Alliance Grows Stronger**\
 `During his “FOMO” livestream last week, Drake premiered a not-quite-official flip of Ella Langley’s “Choosin’ Texas.” Our critic Jon Caramanica explores how the remix — featuring Don Toliver — serves as both a tribute to Houston’s chopped and screwed music and an acknowledgment of country and hip-hop’s respective breakout stars of the year.`\
 https://www.nytimes.com/video/podcasts/100000011172361/the-drake-texas-alliance-grows-stronger.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
 `The presidents are set to visit the National Archives to cap a visit full of ceremony and symbolism but, so far, minimal agreement on artificial intelligence, trade and Taiwan.`\
 https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
-**CNN and CBS Will Resume White House Coverage After Standoff**\
+**CNN and CBS Resume White House Coverage After Standoff**\
 `Crews from CBS and CNN planned to cover two events on Friday with President Trump and the Chinese leader, Xi Jinping.`\
 https://www.nytimes.com/2026/09/25/business/media/trump-white-house-tv-pool-ban.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
 **Michael Whatley, the Republican Senate Candidate in North Carolina, Sticks By Trump**\
 `Republicans in Senate battlegrounds have started to break with the president. Not Michael Whatley of North Carolina, even as his race seems at risk.`\
 https://www.nytimes.com/2026/09/25/us/politics/north-carolina-senate-roy-cooper-michael-whatley.html
-
-**Book Club: Read ‘Switzy,’ by Emma Cline, With the Book Review**\
-`In October, the Book Review Book Club will read Cline’s latest, about a man with dementia who has decided to end his life on his own terms.`\
-https://www.nytimes.com/2026/09/25/books/review/switzy-emma-cline-book-club.html
 
