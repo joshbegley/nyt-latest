@@ -1,3 +1,7 @@
+**Powerful Storm Lashes North Carolina as It Moves Up East Coast**\
+`A strengthening nor’easter brought rough swells and threatened homes in North Carolina as it tracked up the East Coast.`\
+https://www.nytimes.com/video/weather/100000011174680/weather-noreaster-storm-north-carolina.html
+
 **The Graffiti Artist Top Brands Call on for That ‘New York’ Look**\
 `If the city had a font, would his lettering be it?`\
 https://www.nytimes.com/2026/09/25/nyregion/new-york-graffiti-artist-faust.html
