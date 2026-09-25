@@ -1,3 +1,7 @@
+**After Much Political Ado, Ed Sheeran’s Boston Concerts Are Canceled for Weather**\
+`The cancellations come after the Gillette Stadium owner pressured Mr. Sheeran to remove an act who made pro-Palestine statements.`\
+https://www.nytimes.com/2026/09/25/nyregion/ed-sheeran-concerts-canceled-storm.html
+
 **Saudi Arabia Open to Possibly Developing Nuclear Weapons**\
 `An intelligence assessment examined Saudi Arabia’s military ambitions as Congress reviews a new civilian nuclear deal between the U.S. and the kingdom.`\
 https://www.nytimes.com/2026/09/25/us/politics/saudi-arabia-nuclear-weapons.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-po
 **Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
-
-**Review: With Dudamel and the Philharmonic, Joy Is in the Work**\
-`Gustavo Dudamel, settling in at the New York Philharmonic, led a world premiere by Tania León and Mahler’s Fifth Symphony.`\
-https://www.nytimes.com/2026/09/25/arts/music/new-york-philharmonic-mahler-review.html
 
