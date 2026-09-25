@@ -1,3 +1,15 @@
+**OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
+`The company did not learn until recently that its technology had meddled with sites for the Education Department, Commerce Department and the Securities and Exchange Commission.`\
+https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
+
+**Parisians Share Their Favorite Movies Set in the City**\
+`We asked visual artists, chefs, musicians and others who call the famously cinematic city home to share the films that capture it from striking and surprising angles.`\
+https://www.nytimes.com/2026/09/25/t-magazine/favorite-paris-films.html
+
+**Report Finds Security Failings at Event Where Charlie Kirk Was Killed**\
+`A review commissioned by Utah Valley University faults campus and Turning Point USA officials for poor planning of the event last year.`\
+https://www.nytimes.com/2026/09/25/us/utah-valley-university-charlie-kirk-security.html
+
 **Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
 `Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
 https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html

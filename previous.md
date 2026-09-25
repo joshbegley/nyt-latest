@@ -1,3 +1,15 @@
+**OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
+`The company did not learn until recently that its technology had meddled with sites for the Education Department, Commerce Department and the Securities and Exchange Commission.`\
+https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
+
+**Parisians Share Their Favorite Movies Set in the City**\
+`We asked visual artists, chefs, musicians and others who call the famously cinematic city home to share the films that capture it from striking and surprising angles.`\
+https://www.nytimes.com/2026/09/25/t-magazine/favorite-paris-films.html
+
+**Report Finds Security Failings at Event Where Charlie Kirk Was Killed**\
+`A review commissioned by Utah Valley University faults campus and Turning Point USA officials for poor planning of the event last year.`\
+https://www.nytimes.com/2026/09/25/us/utah-valley-university-charlie-kirk-security.html
+
 **Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
 `Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
 https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html
@@ -165,20 +177,4 @@ https://www.nytimes.com/2026/09/25/briefing/minnesota-chickenpox.html
 **Here’s How Trump Is Building a National Citizenship Database to Check Voters**\
 `The Supreme Court allowed the Trump administration to deploy a system that merges personal data from across the government. Questions remain about its reliability.`\
 https://www.nytimes.com/2026/09/25/us/politics/what-to-know-citizenship-database.html
-
-**Catherine Ringer, French Pop Icon of Eclectic Style, Dies at 68**\
-`With her guitarist-partner, Fred Chichin, she formed Les Rita Mitsouko as a band that embraced a more multicultural France.`\
-https://www.nytimes.com/2026/09/25/world/europe/catherine-ringer-dead.html
-
-**Read the document**\
-`Sheri H. Mecklenburg resignation letter`\
-https://www.nytimes.com/interactive/2026/09/25/us/mecklenburgletter.html
-
-**Are Book Awards Dictated by D.E.I.?**\
-`Readers respond to a column by Bret Stephens that argues that they are. Also: Climate change grief; endangered humans; a warning in Germany.`\
-https://www.nytimes.com/2026/09/25/opinion/book-awards-dei.html
-
-**After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
-`A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
-https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
 
