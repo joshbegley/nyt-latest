@@ -1,3 +1,7 @@
+**After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
+`A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
+https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
+
 **Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html

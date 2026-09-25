@@ -1,3 +1,7 @@
+**After Tough Primaries, Democrats in Key States Feel Unified, New Polls Find**\
+`A majority of Democrats in Maine and Michigan said the primary process strengthened their party heading into November.`\
+https://www.nytimes.com/2026/09/25/us/politics/maine-michigan-democrats-unity-poll.html
+
 **Flashback: Your Weekly History Quiz, Sept. 26, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/podcasts/dallas-cowboys-succession.html
 **NYT Connections Answers for September 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/25/crosswords/connections-companion-1203.html
-
-**Trump’s Standoff With White House Reporters, and the Rise and Fall of ‘Pervert Glasses’**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/09/25/podcasts/the-headlines/trump-white-house-reporters-meta-glasses.html
 
