@@ -1,3 +1,39 @@
+**Quote of the Day: Two Joyful Sides to This Chicago Story**\
+`Quotation of the Day for Friday, September 25, 2026.`\
+https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides-to-this-chicago-story.html
+
+**Leo XIV, Trying to Be Everyone’s Pope, Heads to Secular France**\
+`After touring Africa, Pope Leo’s four-day visit to France shows how he is seeking to appeal to Roman Catholicism’s original heartlands as well as to the church’s newest strongholds.`\
+https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html
+
+**Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
+`The professor became a flashpoint in debates over diversity efforts in higher education.`\
+https://www.nytimes.com/2026/09/25/world/europe/cambridge-jason-arday-investigation.html
+
+**Dating Moves Fast in Your 70s**\
+`For our third date, he told me to bring my toothbrush.`\
+https://www.nytimes.com/2026/09/25/style/modern-love-dating-moves-fast-in-your-70s.html
+
+**They Met at a Corner Store. Their Love Story Took a Few Detours.**\
+`Graylen Gatewood, a granddaughter of E.L. Doctorow, and Charles McFarlane, a fashion historian, fell in love as undergraduates at Bard College.`\
+https://www.nytimes.com/2026/09/25/style/graylen-gatewood-charles-mcfarlane-wedding.html
+
+**Real Life Proved Better Than Fiction**\
+`Savannah Stuitje would sit at the bar where she and Margo Feingold worked, reading a book in hopes of catching Feingold’s attention so she “had no choice but to talk to me.”`\
+https://www.nytimes.com/2026/09/25/style/savannah-stuitje-margo-feingold-wedding.html
+
+**One Hour Late for the First Date, but Glad He Didn’t Bail**\
+`Zachary Martellucci was beginning to come out when he met Jordan Shavarebi. Together, they built the queer community both had wanted.`\
+https://www.nytimes.com/2026/09/25/style/zachary-martellucci-jordan-shavarebi-wedding.html
+
+**Meeting in Midlife and Making a Dream Come True**\
+`Anna Kashner and Ronald Clark, who were both parents when they met, had an understanding of each other from the start.`\
+https://www.nytimes.com/2026/09/25/style/anna-kashner-ronald-clark-wedding.html
+
+**On This Day | Sept. 25**\
+`In 1957, nine Black students, later known as the Little Rock Nine, entered Central High School in Little Rock, Ark., under the guard of federal troops enforcing school desegregation.`\
+https://www.nytimes.com/2026/09/25/learning/on-this-day-sept-25.html
+
 **Why Nepal’s Prime Minister Balen Shah Wears Sunglasses**\
 `Balendra Shah wore them as a rapper, as Kathmandu’s mayor and on his way to becoming prime minister. Now he has taken the look to the United Nations.`\
 https://www.nytimes.com/2026/09/24/world/asia/balen-shah-sunglasses-nepal.html
