@@ -1,3 +1,7 @@
+**What Is Jeff Probst’s ‘Survivor’ Succession Plan?**\
+`Jeff Probst, the host and executive producer of “Survivor,” spoke to “Popcast” about his 26 years on the show and who could succeed him.`\
+https://www.nytimes.com/video/podcasts/100000011166303/what-is-jeff-probsts-survivor-succession-plan.html
+
 **Hurricane Nolo Moves Toward Hawaii, Bringing ‘Catastrophic’ Rain**\
 `More than two feet of rain could fall on the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
 https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
@@ -58,16 +62,16 @@ https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti
 `In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
 https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
 
-**2 Men Who Popped Out of Manhattan Sewer Have Been Arrested**\
-`The authorities said that the men had slinked out of a manhole near where world leaders were staying for the U.N. General Assembly. The arrests come amid a surge of similar incidents in the city.`\
+**2 Men Were Searching for Gold in New York City’s Sewers, Police Say**\
+`The men, who were charged with trespassing on Friday, were part of a group that slinked out of a manhole near where world leaders were staying for the U.N. General Assembly, the authorities said.`\
 https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
 
 **Maps: Tracking Tropical Storm Gonzalo**\
 `See the likely path and wind arrival times for Gonzalo`\
 https://www.nytimes.com/interactive/2026/09/25/weather/gonzalo-map-path-tracker.html
 
-**Live Updates: Nor’easter Strengthens as It Crawls Up the East Coast**\
-`Rain, flooding and gusty winds are in the forecast this weekend for the Northeast, including New York and Boston.`\
+**Live Updates: East Coast Braces as Powerful Nor’easter Approaches**\
+`Rain, flooding and gusty winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
 
 **Sunkist Fruit Gems, Staple Candy of Bar Mitzvah Tradition, Are Discontinued**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/09/25/dining/use-your-rotisserie-chicken-to-make-th
 **Polls Show Advantage for Incumbent Parties in 4 Governor’s Races**\
 `Democrats hold wide leads in Maine and Pennsylvania, as does the incumbent Republican in New Hampshire, but Michigan appears closer, according to New York Times/Siena polls.`\
 https://www.nytimes.com/2026/09/25/us/governor-polls-maine-michigan-new-hampshire-pennsylvania.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks: killer A.I., mysterious cults, alien horror, postapocalyptic survival and zany dimensions.`\
-https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
