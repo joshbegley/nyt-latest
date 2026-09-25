@@ -1,3 +1,7 @@
+**South Carolinians: Do You Have a Short-Term, High-Interest Personal Loan? Share Your Bills.**\
+`We want to hear from borrowers who have taken out installment, payday or title loans, and those who work for companies that offer them.`\
+https://www.nytimes.com/2026/09/25/us/south-carolinians-do-you-have-a-short-term-high-interest-personal-loan-share-your-bills.html
+
 **Book Club: Let’s Talk About ‘Etna,’ by Paul Yoon**\
 `Yoon’s latest novel is about a bomb-sniffing dog trying to make it home after a war.`\
 https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-by-paul-yoon.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/world/americas/trump-bald-eagle-gift-xi.html
 **Fed Faces Prospect of Another Interest Rate Increase Just Before Midterm Elections**\
 `Financial markets are placing nearly 70 percent odds on the Federal Reserve raising interest rates in late October.`\
 https://www.nytimes.com/2026/09/25/business/fed-interest-rates-midterms.html
-
-**Trump-Xi Summit Ends With Tea and Tour but Little Visible Policy Progress**\
-`The presidents visited the National Archives to cap a trip full of ceremony and symbolism but no major announcements on artificial intelligence, trade or Taiwan.`\
-https://www.nytimes.com/live/2026/09/25/us/trump-xi-summit-meeting-us-china
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**Book Club: Let’s Talk About ‘Etna,’ by Paul Yoon**\
+`Yoon’s latest novel is about a bomb-sniffing dog trying to make it home after a war.`\
+https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-by-paul-yoon.html
+
+**Distributor of Recalled Meat Worked for Years Without Proper Permits**\
+`Star Meat Delivery did not complete the requirements necessary to process food, the Agriculture Department said.`\
+https://www.nytimes.com/2026/09/25/business/star-meat-delivery-recall-usda.html
+
 **China’s Xi Snubs a Troubled U.N. for Trump, Drowning Out Its Big Week**\
 `The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
 https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
