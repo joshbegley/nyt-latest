@@ -1,5 +1,5 @@
 **Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
-`The strike, which began early Friday, is the latest spasm of labor unrest unsettling classical music at a time of financial turmoil and uncertainty.`\
+`The strike, which began early Friday, is the latest labor action to unsettle classical music at a time of financial turmoil and uncertainty.`\
 https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
 
 **Quote of the Day: Two Joyful Sides to This Chicago Story**\
