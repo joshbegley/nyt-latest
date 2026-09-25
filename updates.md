@@ -1,3 +1,15 @@
+**‘The Sopranos’ Is Nowhere on This List. Also, It’s Everywhere.**\
+`Our poll of the best shows of the 21st century explores how TV built on, and moved on from, one of the last great shows of the 20th.`\
+https://www.nytimes.com/2026/09/24/arts/television/the-sopranos-tv-21st-century.html
+
+**NYT Crossword Answers for Sept. 25, 2026**\
+`Rafael Musa returns to open our solving weekend.`\
+https://www.nytimes.com/2026/09/24/crosswords/daily-puzzle-2026-09-25.html
+
+**How ‘Breaking Bad’ Became the Best Show of the 21st Century**\
+`“Breaking Bad” was voted the greatest show of the 21st century by our panel. We interviewed the creator Vince Gilligan and the actors Bryan Cranston and Giancarlo Esposito about the making of the show and why it still resonates nearly 20 years after its debut.`\
+https://www.nytimes.com/video/arts/television/100000011062762/how-breaking-bad-became-the-best-show-of-the-21st-century.html
+
 **Justice Jackson Calls Emergency Docket ‘Potentially Corrosive’**\
 `Hours after fielding the Trump administration’s latest emergency application, Justice Ketanji Brown Jackson gave a speech urging the Supreme Court to rethink such requests.`\
 https://www.nytimes.com/2026/09/24/us/politics/supreme-court-jackson-emergency-docket.html
