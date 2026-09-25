@@ -1,3 +1,7 @@
+**Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
+`The professor had catalyzed debates over diversity efforts in higher education.`\
+https://www.nytimes.com/2026/09/25/world/europe/cambridge-jason-arday-investigation.html
+
 **15-Minute Lesson Plan: A Goals Gallery Walk**\
 `What are you looking forward to this fall? What challenges are you facing? How could you plan for a “seasonal reset” to help?`\
 https://www.nytimes.com/2026/09/25/learning/15-minute-lesson-plan-a-goals-gallery-walk.html

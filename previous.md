@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html
 
 **Cambridge Abandons Plans to Fully Investigate Its Hiring of Jason Arday**\
-`The professor became a flashpoint in debates over diversity efforts in higher education.`\
+`The professor had catalyzed debates over diversity efforts in higher education.`\
 https://www.nytimes.com/2026/09/25/world/europe/cambridge-jason-arday-investigation.html
 
 **Dating Moves Fast in Your 70s**\
