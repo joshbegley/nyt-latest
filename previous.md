@@ -1,3 +1,7 @@
+**Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
+`Despite the success of his hit slasher film, he played no part in the 11 sequels that followed and chose to pivot into the world of soap operas like “All My Children.”`\
+https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
+
 **Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
 `The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
 `The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
 https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
 
-**These Midterm Races Matter the Most. They’re Discussed the Least.**\
+**These Elections Could Decide 2028. No One Is Watching Them.**\
 `Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
 https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/world/europe/ukraine-russia-economy.html
 **The Best TV of This Century?**\
 `With so many options (and opinions), what makes something great?`\
 https://www.nytimes.com/2026/09/25/podcasts/cannonball-best-tv.html
-
-**Michael Whatley, the Republican Senate Candidate in North Carolina, Sticks By Trump**\
-`Republicans in Senate battlegrounds have started to break with the president. Not Michael Whatley of North Carolina, even as his race seems at risk.`\
-https://www.nytimes.com/2026/09/25/us/politics/north-carolina-senate-roy-cooper-michael-whatley.html
 

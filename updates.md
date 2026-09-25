@@ -1,3 +1,11 @@
+**Victor Miller, Screenwriter for ‘Friday the 13th,’ Dies at 86**\
+`Despite the success of his hit slasher film, he played no part in the 11 sequels that followed and chose to pivot into the world of soap operas like “All My Children.”`\
+https://www.nytimes.com/2026/09/25/obituaries/victor-miller-dead.html
+
+**These Elections Could Decide 2028. No One Is Watching Them.**\
+`Four swing states will soon elect the official who will run the 2028 presidential election. The candidates are alarming.`\
+https://www.nytimes.com/2026/09/25/opinion/midterms-arizona-nevada-georgia-michigan.html
+
 **Netanyahu Said to Have Been Warned by Emirati Leader About Hamas Attack Before Oct. 7**\
 `The warning from the leader of the United Arab Emirates, which lacked specific details about the nature of an attack, never reached the chiefs of Israel’s security establishment, Israeli officials said.`\
 https://www.nytimes.com/2026/09/25/world/middleeast/netanyahu-warning-oct-7-uae.html
