@@ -1,3 +1,7 @@
+**Cleveland Orchestra Players Walk Out, Forcing Cancellation of Performances**\
+`The strike, which began early Friday, is the latest spasm of labor unrest unsettling classical music at a time of financial turmoil and uncertainty.`\
+https://www.nytimes.com/2026/09/25/arts/music/cleveland-orchestra-strike.html
+
 **Quote of the Day: Two Joyful Sides to This Chicago Story**\
 `Quotation of the Day for Friday, September 25, 2026.`\
 https://www.nytimes.com/2026/09/25/pageoneplus/quote-of-the-day-two-joyful-sides-to-this-chicago-story.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/politics/100000011170300/republicans-in-red-sta
 **Trump Hosts China’s Leader for a State Visit**\
 `Also, mortgage rates hit 7 percent. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/09/24/briefing/trump-xi-state-visit-mortgage-rates.html
-
-**N.Y.C. Supermarket Owner Convicted in Violent Abduction Scheme**\
-`Abu Chowdhury believed his victims had insulted his wife and honor. He kidnapped them and beat them savagely, prosecutors said.`\
-https://www.nytimes.com/2026/09/24/nyregion/abu-chowdhury-queens-abductions-kidnappings.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\
