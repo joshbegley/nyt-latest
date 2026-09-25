@@ -1,3 +1,7 @@
+**87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
+`María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
+https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html
+
 **Is China Really Stealing A.I. From American Companies?**\
 `As Xi Jinping visits President Trump in Washington, the leaders are expected to discuss claims that China is surreptitiously copying American A.I. technologies, a process known as distillation.`\
 https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
