@@ -1,3 +1,7 @@
+**Alaskans Dismayed, but Not Moved, by Peltola’s Treatment of Her Staff**\
+`Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
+https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
+
 **Adding a Child to Your Car Insurance? Here Are Way to Hold Down the Costs.**\
 `Unlike health insurance, a parent’s auto policy has no age limit on when a child has to be removed. But it’s good to know the options.`\
 https://www.nytimes.com/2026/09/25/your-money/adding-a-child-to-your-car-insurance-here-are-way-to-hold-down-the-costs.html

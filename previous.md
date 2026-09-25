@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/09/25/crosswords/strands-sidekick-937.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/25/crosswords/wordle-review-1925.html
 
-**Alaskans Dismayed, But Not Moved, by Peltola’s Treatment of Her Staff**\
+**Alaskans Dismayed, but Not Moved, by Peltola’s Treatment of Her Staff**\
 `Voters interviewed in Anchorage and Fairbanks on Thursday said news that Mary Peltola, the Democratic nominee for Senate, had used offensive slurs would not change their vote.`\
 https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-reaction.html
 
