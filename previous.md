@@ -1,3 +1,7 @@
+**Pandas and Eagles and A.I., Oh My! Trump Throws a State Dinner for Xi**\
+`Altman. Musk. Huang. Bezos. They all came to the White House Thursday night, though you might not have seen it on TV.`\
+https://www.nytimes.com/2026/09/24/us/politics/state-dinner-scene.html
+
 **Hurricane Nolo Takes Aim at Hawaii**\
 `Though likely to avoid a direct hit, parts of the state could receive nearly three feet of rain, forecasters warned.`\
 https://www.nytimes.com/2026/09/24/weather/hurricane-nolo-hawaii.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-israel-un.html
 **Netanyahu Lashes Out at Foes in U.N. Speech, Including Mamdani**\
 `Prime Minister Benjamin Netanyahu of Israel lashed out at a litany of enemies but took particular verbal aim at Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/24/world/middleeast/netanyahu-speech-un-general-assembly.html
-
-**Are Lynchings Really Happening?**\
-`Some suggest that recent hangings are evidence of racial terrorism.`\
-https://www.nytimes.com/2026/09/24/opinion/lynchings-ayanna-pressley-investigation.html
 
 **U.N. Updates: Netanyahu Lashes Out at Critics and Underscores Threats to Israel**\
 `In a combative speech, the prime minister defended Israeli military action across the Middle East, and attacked Mayor Zohran Mamdani of New York. Dozens of delegates walked out of the hall as he took the podium.`\

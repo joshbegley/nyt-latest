@@ -1,3 +1,7 @@
+**Pandas and Eagles and A.I., Oh My! Trump Throws a State Dinner for Xi**\
+`Altman. Musk. Huang. Bezos. They all came to the White House Thursday night, though you might not have seen it on TV.`\
+https://www.nytimes.com/2026/09/24/us/politics/state-dinner-scene.html
+
 **Hurricane Nolo Takes Aim at Hawaii**\
 `Though likely to avoid a direct hit, parts of the state could receive nearly three feet of rain, forecasters warned.`\
 https://www.nytimes.com/2026/09/24/weather/hurricane-nolo-hawaii.html
