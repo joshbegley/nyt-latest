@@ -1,3 +1,11 @@
+**How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
+`A new report by a Bay Area start-up called Parse adds new details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
+https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
+
+**Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
+`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace its ties to the United States.`\
+https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html
+
 **U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
 `Israel condemned the database of firms tied to activity in the occupied West Bank as a “political tool” to advance “a smear campaign.”`\
 https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/09/25/us/hurricane-lowell-hawaii-niihau-damage.html
 **87-Year-Old Evicted From Her Home Tells Spaniards to ‘Fight’ to Avoid Same Fate**\
 `María del Carmen Abascal, whose case has become a symbol of Spain’s housing crisis, appeared in a video from her hospital bed after police officers removed her from her apartment.`\
 https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html
-
-**Is China Really Stealing A.I. From American Companies?**\
-`As Xi Jinping visits President Trump in Washington, the leaders are expected to discuss claims that China is surreptitiously copying American A.I. technologies, a process known as distillation.`\
-https://www.nytimes.com/2026/09/25/science/china-ai-distillation-copying.html
-
-**Pope Leo to Press: ‘You Are All Welcome’**\
-`Speaking on a flight to Paris before his state visit to France, Pope Leo XIV said all journalists were “welcome” to cover him after the Trump administration tried to restrict White House access to certain media outlets.`\
-https://www.nytimes.com/video/world/europe/100000011175000/pope-leo-trump-white-house-media-ban.html
 
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
