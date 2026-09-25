@@ -1,3 +1,7 @@
+**Anthropic’s Blacklisting by the Pentagon Was Legal, Federal Judges Rule**\
+`The Pentagon had “ample support for its conclusion” that the A.I. company’s products could pose a national security risk, according to a Washington appeals court ruling.`\
+https://www.nytimes.com/2026/09/25/technology/anthropic-trump-ruling.html
+
 **Prosecutor Resigns, Saying U.S. Attorney Mishandled Chicago Protest Case**\
 `The prosecutor said that U.S. Attorney Andrew S. Boutros had intervened and overruled her in the case against a group of protesters known as the “Broadview Six.”`\
 https://www.nytimes.com/2026/09/25/us/chicago-federal-prosecutor-resigns-broadview-six.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/us/politics/24pol-peltola-alaska-senate-react
 **Pope Leo Signals Support for Journalists Targeted by Trump**\
 `Asked about the Trump administration’s restrictions on journalists, Leo told reporters accompanying him on a flight to France that they were “all welcome.”`\
 https://www.nytimes.com/2026/09/25/world/europe/pope-leo-media-trump.html
-
-**Share & Tell With Katie Nolan and Michael Cruz Kayne**\
-`Reactions to Donald Trump Jr.’s wedding, Kim Kardashian’s “Team Moms” and more.`\
-https://www.nytimes.com/2026/09/25/podcasts/share-tell-with-katie-nolan-and-michael-cruz-kayne.html
 
