@@ -1,3 +1,7 @@
+**Saudi Arabia Open to Possibly Developing Nuclear Weapons**\
+`An intelligence assessment examined Saudi Arabia’s military ambitions as Congress reviews a new civilian nuclear deal between the U.S. and the kingdom.`\
+https://www.nytimes.com/2026/09/25/us/politics/saudi-arabia-nuclear-weapons.html
+
 **ICE Raids in Beef Country Raise Fears of Higher Prices**\
 `Cattle industry groups in Texas, Oklahoma and Kansas and two Republican senators said the Trump administration’s immigration enforcement actions were hurting operations.`\
 https://www.nytimes.com/2026/09/25/us/politics/ice-raids-kansas-texas-oklahoma-beef-prices.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/interactive/2026/09/25/upshot/flashback.html
 **Review: With Dudamel and the Philharmonic, Joy Is in the Work**\
 `Gustavo Dudamel, settling in at the New York Philharmonic, led a world premiere by Tania León and Mahler’s Fifth Symphony.`\
 https://www.nytimes.com/2026/09/25/arts/music/new-york-philharmonic-mahler-review.html
-
-**Not Long Ago, Trump Accused China of Election Meddling. Today, ‘Great Friendship.’**\
-`President Trump softened much of his stance toward China as he prepared to host its leader. But his disregard of a topic that has consumed him — the 2020 election — was particularly stark.`\
-https://www.nytimes.com/2026/09/25/us/politics/trump-china-election-meddling.html
 

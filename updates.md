@@ -1,3 +1,7 @@
+**Saudi Arabia Open to Possibly Developing Nuclear Weapons**\
+`An intelligence assessment examined Saudi Arabia’s military ambitions as Congress reviews a new civilian nuclear deal between the U.S. and the kingdom.`\
+https://www.nytimes.com/2026/09/25/us/politics/saudi-arabia-nuclear-weapons.html
+
 **ICE Raids in Beef Country Raise Fears of Higher Prices**\
 `Cattle industry groups in Texas, Oklahoma and Kansas and two Republican senators said the Trump administration’s immigration enforcement actions were hurting operations.`\
 https://www.nytimes.com/2026/09/25/us/politics/ice-raids-kansas-texas-oklahoma-beef-prices.html
