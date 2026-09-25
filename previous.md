@@ -182,10 +182,6 @@ https://www.nytimes.com/2026/09/25/us/governor-polls-maine-michigan-new-hampshir
 `In this month’s picks: killer A.I., mysterious cults, alien horror, postapocalyptic survival and zany dimensions.`\
 https://www.nytimes.com/2026/09/25/movies/science-fiction-movies-streaming.html
 
-**Tiler Peck Takes on a New Role at City Ballet: Choreographic Associate**\
-`The position was created for the principal dancer, who is the first woman at New York City Ballet to hold a choreographic title.`\
-https://www.nytimes.com/2026/09/25/arts/dance/tiler-peck-new-york-city-ballet-choreographic-associate.html
-
 **Seeking Friendly Crowds, Trump Will Skip Battlegrounds and Rally in Deep-Red States**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/25/us/elections-midterms-trump-news
