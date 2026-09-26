@@ -1,3 +1,7 @@
+**As A.I. Makes Law Firms More Efficient, Clients Ask: ‘Where’s My Discount?’**\
+`There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
+https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html
+
 **Has A.I. Become Too Big to Fail? Or Is It Something Worse?**\
 `It’s as though 2008 never even happened.`\
 https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html

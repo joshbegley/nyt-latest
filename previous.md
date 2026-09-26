@@ -1,3 +1,7 @@
+**As A.I. Makes Law Firms More Efficient, Clients Ask: ‘Where’s My Discount?’**\
+`There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
+https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html
+
 **The W.N.B.A. Should Take Care of Its Own**\
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/theater/jake-shears-scissor-sisters-rocky-hor
 **Memoirs From Michael Douglas, Sylvester Stallone and Other Tough Guys**\
 `Michael Douglas and Sylvester Stallone are among the tough (and tough-ish) guys getting personal in memoirs this fall.`\
 https://www.nytimes.com/2026/09/26/books/review/actor-memoirs-michael-douglas-sylvester-stallone.html
-
-**In Backyard Ultramarathons, the Race Goes On Until Everyone Gives Up**\
-`Runners complete the same lap every hour for as long as they can — sometimes for days. The brutal format has become surprisingly popular.`\
-https://www.nytimes.com/2026/09/26/well/backyard-ultramarathon-prairie-on-fire.html
 
