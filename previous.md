@@ -1,3 +1,7 @@
+**How El Niño Is Shaping Storms on Two Sides of the U.S.**\
+`Hurricanes near Hawaii. A nor’easter on the East Coast. The ocean phenomenon’s influence on storms around the country may just be getting started.`\
+https://www.nytimes.com/2026/09/26/climate/el-nino-hurricane-noreaster.html
+
 **Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
 `The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.htm
 **‘Zombified’ C.D.C., Hobbled by Cuts, Struggles to Fulfill Scientific Mission**\
 `The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
 https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
-
-**Why Some Couples Are Hiring Concierges Just for Their Guests**\
-`Couples who want their guests to feel taken care of throughout their celebrations are hiring concierges to book travel arrangements, organize excursions and even handle last-minute requests.`\
-https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
 

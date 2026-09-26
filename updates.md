@@ -1,3 +1,7 @@
+**How El Niño Is Shaping Storms on Two Sides of the U.S.**\
+`Hurricanes near Hawaii. A nor’easter on the East Coast. The ocean phenomenon’s influence on storms around the country may just be getting started.`\
+https://www.nytimes.com/2026/09/26/climate/el-nino-hurricane-noreaster.html
+
 **Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
 `The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
