@@ -1,3 +1,11 @@
+**Has A.I. Become Too Big to Fail? Or Is It Something Worse?**\
+`It’s as though 2008 never even happened.`\
+https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
+
+**The Four TV Shows That Heralded America’s Fall**\
+`Four TV shows, now acknowledged as the medium’s high point, each cannily predicted the ways in which America would start to crack apart.`\
+https://www.nytimes.com/2026/09/26/opinion/best-tv-shows-sopranos-breaking-bad-wire-mad-men.html
+
 **‘The MAGA Flag Is in Tatters’**\
 `This week in politics: Midwest realignment and what’s next for conservatives.`\
 https://www.nytimes.com/2026/09/26/opinion/midterm-elections-midwest-political-realignment.html

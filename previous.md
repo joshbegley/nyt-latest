@@ -2,7 +2,7 @@
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
 
-**Has the A.I. Industry Become Too Big to Fail?**\
+**Has A.I. Become Too Big to Fail? Or Is It Something Worse?**\
 `It’s as though 2008 never even happened.`\
 https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
 
@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-f
 `Racism and transphobia are distorting the conversation around the W.N.B.A. The contributing Opinion writer Roxane Gay argues that the league must continue its tradition of standing up for social issues. And, of course, keep the focus on basketball.`\
 https://www.nytimes.com/video/opinion/100000011173829/the-wnba-is-more-than-a-culture-war.html
 
-**The Four TV Shows That Explain America**\
+**The Four TV Shows That Heralded America’s Fall**\
 `Four TV shows, now acknowledged as the medium’s high point, each cannily predicted the ways in which America would start to crack apart.`\
 https://www.nytimes.com/2026/09/26/opinion/best-tv-shows-sopranos-breaking-bad-wire-mad-men.html
 
