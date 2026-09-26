@@ -1,3 +1,11 @@
+**In Backyard Ultramarathons, the Race Goes On Until Everyone Gives Up**\
+`Runners complete the same lap every hour for as long as they can — sometimes for days. The brutal format has become surprisingly popular.`\
+https://www.nytimes.com/2026/09/26/well/backyard-ultramarathon-prairie-on-fire.html
+
+**Heroine or Public Enemy? The Israeli Blocking Much of Netanyahu’s Agenda.**\
+`Gali Baharav-Miara, Israel’s first female attorney general, has stopped many of the government’s efforts to remove constraints on its power.`\
+https://www.nytimes.com/2026/09/26/world/middleeast/israel-netanyahu-gali-baharav-miara-attorney-general.html
+
 **Loris Messina and Simone Rizzo make their Moschino debut**\
 `Loris Messina and Simone Rizzo make their debut at Moschino.`\
 https://www.nytimes.com/2026/09/26/style/moschino-loris-messina-simone-rizzo-debut.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
 **6 People Are Missing After Explosion in Athens Tourist District**\
 `Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
 https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
-
-**Kennedy Center Shelved Repairs Now Cited for Closure, Whistle-Blowers Say**\
-`In a letter to Congress, former employees say the center delayed a plan to address the leaks that its officials now cite as a serious safety risk.`\
-https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.html
-
-**How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
-`A new report by a Bay Area start-up called Parse adds details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
-https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\

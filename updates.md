@@ -1,3 +1,11 @@
+**In Backyard Ultramarathons, the Race Goes On Until Everyone Gives Up**\
+`Runners complete the same lap every hour for as long as they can — sometimes for days. The brutal format has become surprisingly popular.`\
+https://www.nytimes.com/2026/09/26/well/backyard-ultramarathon-prairie-on-fire.html
+
+**Heroine or Public Enemy? The Israeli Blocking Much of Netanyahu’s Agenda.**\
+`Gali Baharav-Miara, Israel’s first female attorney general, has stopped many of the government’s efforts to remove constraints on its power.`\
+https://www.nytimes.com/2026/09/26/world/middleeast/israel-netanyahu-gali-baharav-miara-attorney-general.html
+
 **Loris Messina and Simone Rizzo make their Moschino debut**\
 `Loris Messina and Simone Rizzo make their debut at Moschino.`\
 https://www.nytimes.com/2026/09/26/style/moschino-loris-messina-simone-rizzo-debut.html
