@@ -1,3 +1,7 @@
+**Will the Midterms Bring a Political Realignment?**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/video/opinion/100000011172467/will-the-midterms-bring-a-political-realignment.html
+
 **My Sister-in-Law Makes Family Vacations a Nightmare. Can We Stop Inviting Her?**\
 `She wants to be liked and included, but her behavior is often confrontational and defensive.`\
 https://www.nytimes.com/2026/09/26/magazine/family-vacation-nightmare-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/world/asia/a-tetris-like-maze-blocks-protests
 **Quote of the Day: Patricio Guzmán, Filmmaker Who Documented Chile’s Struggles, Dies at 85**\
 `Quotation of the Day for Saturday, September 26, 2026.`\
 https://www.nytimes.com/2026/09/26/pageoneplus/quote-of-the-day-patricio-guzman-filmmaker-who-documented-chiles-struggles-dies-at-85.html
-
-**At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia**\
-`In his talks with President Trump, the Chinese leader used praise, warnings and wartime history to challenge American support for Taiwan and Japan.`\
-https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html
 
