@@ -1,3 +1,7 @@
+**700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
+`The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
+https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
+
 **The Full 12 Rounds**\
 `Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
 https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
