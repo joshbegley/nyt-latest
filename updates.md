@@ -1,3 +1,7 @@
+**Live Updates: Powerful Nor’easter Bears Down on East Coast**\
+`Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including New York, Long Island and Boston.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
 **Free Rein**\
 `Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
 https://www.nytimes.com/2026/09/26/briefing/free-rein.html
