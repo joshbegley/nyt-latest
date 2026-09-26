@@ -1,3 +1,11 @@
+**Beaches in Southern California Are Disappearing**\
+`Giant swells this year have stripped sand from Southern California beaches. Experts warn that this year’s El Niño could be the strongest ever recorded, bringing even more damaging surf.`\
+https://www.nytimes.com/video/climate/100000011159455/california-beaches-disappearing-el-nino.html
+
+**Live Updates: East Coast Braces as Powerful Nor’easter Approaches**\
+`Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
+https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
+
 **Nor’easter vs. Hurricane: What’s the Difference?**\
 `The systems are organized differently, though how they affect your town or neighborhood can be the same.`\
 https://www.nytimes.com/2026/09/25/weather/noreaster-hurricane-definition.html
