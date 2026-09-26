@@ -1,3 +1,11 @@
+**Why Does Trump Think He Can Act Like a King?**\
+`The Supreme Court has had a lot to do with it.`\
+https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
+
+**When the Weed Wars Came to Warren Street**\
+`New money and age-old injustice in an American river town.`\
+https://www.nytimes.com/interactive/2026/09/26/nyregion/hudson-weed-wars.html
+
 **Gen Z Chaos Hits the Runway**\
 `Meryll Rogge’s collection for Marni nailed the moment.`\
 https://www.nytimes.com/2026/09/26/style/milan-fashion-week-gen-z-marni.html
