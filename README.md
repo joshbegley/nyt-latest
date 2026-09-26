@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
 `In “Mestra,” Madeline Miller follows the daughter of the king of Thessaly on her endless, self-destructive quest to satisfy her insatiable father.`\
 https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
 
-**A Shrinking Work Force Is Changing the C.D.C.**\
-`The Centers for Disease Control and Prevention has lost close to 30 percent of its staff in the past year, with big turnover in top leadership and entire teams effectively shut down. Our health reporter Apoorva Mandavilli explains how these changes have affected the work of the department.`\
-https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-changing-the-cdc.html
-
