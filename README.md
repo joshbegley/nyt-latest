@@ -1,3 +1,7 @@
+**Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
+`The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
+https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
+
 **Why Does Trump Think He Can Act Like a King?**\
 `The Supreme Court has had a lot to do with it.`\
 https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
 **Why Some Couples Are Hiring Concierges Just for Their Guests**\
 `Couples who want their guests to feel taken care of throughout their celebrations are hiring concierges to book travel arrangements, organize excursions and even handle last-minute requests.`\
 https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
-
-**This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
-`As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
-https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
 
