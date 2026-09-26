@@ -1,3 +1,7 @@
+**The Full 12 Rounds**\
+`Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
+https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
+
 **Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
 `High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
 https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/26/climate/el-nino-california-water-drought.html
 **What’s This ‘S.N.L’ Star’s Next Move Beyond Trump? A New Comedy Special.**\
 `Johnson found fame playing President Trump on “S.N.L.” He hopes a new comedy special shows he has more to offer than just impersonations.`\
 https://www.nytimes.com/2026/09/26/arts/television/snl-james-austin-johnson-trump.html
-
-**Intentional Communities Sprout in the Wake of the Housing Crisis**\
-`New developments around the United States are experimenting with different ways people can live together.`\
-https://www.nytimes.com/2026/09/26/headway/housing-community-veterans-homelessness.html
 
