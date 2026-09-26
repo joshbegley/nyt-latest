@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/09/26/headway/housing-community-veterans-homelessne
 `The organization, founded in 2006 to back Democratic veterans opposing the Iraq war, is pouring huge sums into this year’s elections amid intense voter antipathy for another conflict in the Middle East.`\
 https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
 
-**Book Review: ‘Mestra,’ by Madeline Miller**\
-`In “Mestra,” Madeline Miller follows the daughter of the king of Thessaly on her endless, self-destructive quest to satisfy her insatiable father.`\
-https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
-
