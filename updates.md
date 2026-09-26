@@ -1,3 +1,7 @@
+**Rahm Emanuel, Eyeing 2028, Makes His 2026 Play**\
+`The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about the next presidential race.`\
+https://www.nytimes.com/2026/09/26/us/politics/rahm-emanuel-midterms-house.html
+
 **Pete Byrne, New Wave Singer Behind ‘Always Something There,’ Dies at 74**\
 `As the voice of Naked Eyes, he became a familiar presence on MTV during the synth-pop boom of the 1980s.`\
 https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
