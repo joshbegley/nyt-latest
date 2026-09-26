@@ -1,3 +1,7 @@
+**Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
+`The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
+https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
+
 **Why Does Trump Think He Can Act Like a King?**\
 `The Supreme Court has had a lot to do with it.`\
 https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
 `In “Mestra,” Madeline Miller follows the daughter of the king of Thessaly on her endless, self-destructive quest to satisfy her insatiable father.`\
 https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
 
-**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
-`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
-https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
-
 **A Shrinking Work Force Is Changing the C.D.C.**\
 `The Centers for Disease Control and Prevention has lost close to 30 percent of its staff in the past year, with big turnover in top leadership and entire teams effectively shut down. Our health reporter Apoorva Mandavilli explains how these changes have affected the work of the department.`\
 https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-changing-the-cdc.html
+
+**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
+`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
+https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
 
 **‘Zombified’ C.D.C., Hobbled by Cuts, Struggles to Fulfill Scientific Mission**\
 `The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
 **Why Some Couples Are Hiring Concierges Just for Their Guests**\
 `Couples who want their guests to feel taken care of throughout their celebrations are hiring concierges to book travel arrangements, organize excursions and even handle last-minute requests.`\
 https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
-
-**This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
-`As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
-https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
 

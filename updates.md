@@ -1,3 +1,7 @@
+**Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
+`The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
+https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
+
 **Why Does Trump Think He Can Act Like a King?**\
 `The Supreme Court has had a lot to do with it.`\
 https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
