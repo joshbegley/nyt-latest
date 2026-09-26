@@ -1,3 +1,11 @@
+**The Full 12 Rounds**\
+`Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
+https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
+
+**Pete Byrne, Synth Pop Singer Behind ‘Always Something There,’ Dies at 74**\
+`As the voice of Naked Eyes, he became a familiar presence on MTV in the 1980s, when the band’s hits helped define the era.`\
+https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
+
 **Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
 `High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
 https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
