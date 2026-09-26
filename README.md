@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.htm
 `There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
 https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html
 
-**The W.N.B.A. Should Take Care of Its Own**\
+**It’s Time for the W.N.B.A. to Pick Sides**\
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
 

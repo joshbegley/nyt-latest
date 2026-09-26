@@ -1,4 +1,8 @@
 **Nor’easter Live Updates: Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
+`The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
+**Nor’easter Live Updates: Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
 
