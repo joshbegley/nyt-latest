@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/25/us/politics/supreme-court-voter-fraud-midterm
 https://www.nytimes.com/2026/09/25/us/pittsburgh-doctor-stabbing.html
 
 **OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
-`The company did not learn until recently that its technology had meddled with websites for the Education and Commerce Departments and the Securities and Exchange Commission.`\
+`The company did not learn until recently that its technology had meddled with websites for the Education Department, Commerce Department and Securities and Exchange Commission.`\
 https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
 
 **Parisians Share Their Favorite Movies Set in the City**\
