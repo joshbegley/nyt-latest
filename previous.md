@@ -1,3 +1,7 @@
+**Free Rein**\
+`Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
+https://www.nytimes.com/2026/09/26/briefing/free-rein.html
+
 **Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
 `The legendary actor on his disturbing childhood, his Hollywood missteps and the pain he caused to his loved ones, his body and himself.`\
 https://www.nytimes.com/2026/09/26/magazine/sylvester-stallone-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education
 **Beaches in Southern California Are Disappearing**\
 `Giant swells this year have stripped sand from Southern California beaches. Experts warn that this year’s El Niño could be the strongest ever recorded, bringing even more damaging surf.`\
 https://www.nytimes.com/video/climate/100000011159455/california-beaches-disappearing-el-nino.html
-
-**Nor’easter vs. Hurricane: What’s the Difference?**\
-`The systems are organized differently, though how they affect your town or neighborhood can be the same.`\
-https://www.nytimes.com/2026/09/25/weather/noreaster-hurricane-definition.html
 

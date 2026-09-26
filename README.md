@@ -1,3 +1,7 @@
+**Live Updates: Powerful Nor’easter Bears Down on East Coast**\
+`Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including New York, Long Island and Boston.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
 **Free Rein**\
 `Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
 https://www.nytimes.com/2026/09/26/briefing/free-rein.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settle
 **Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
 `The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
 https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
-
-**Beaches in Southern California Are Disappearing**\
-`Giant swells this year have stripped sand from Southern California beaches. Experts warn that this year’s El Niño could be the strongest ever recorded, bringing even more damaging surf.`\
-https://www.nytimes.com/video/climate/100000011159455/california-beaches-disappearing-el-nino.html
 

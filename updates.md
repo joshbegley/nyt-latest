@@ -1,3 +1,7 @@
+**Free Rein**\
+`Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
+https://www.nytimes.com/2026/09/26/briefing/free-rein.html
+
 **Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
 `The legendary actor on his disturbing childhood, his Hollywood missteps and the pain he caused to his loved ones, his body and himself.`\
 https://www.nytimes.com/2026/09/26/magazine/sylvester-stallone-interview.html
