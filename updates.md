@@ -1,3 +1,7 @@
+**In Coastal Towns, the Nor’easter Upended Wedding Plans**\
+`Across the northeast, couples were forced to postpone, relocate or cancel weddings they planned to hold outdoors this weekend.`\
+https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.html
+
 **Live Updates: Powerful Nor’easter Bears Down on East Coast**\
 `Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including the New York metropolitan area and Boston.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
