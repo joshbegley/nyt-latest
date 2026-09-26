@@ -1,3 +1,7 @@
+**Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
+`High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
+https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
+
 **Rahm Emanuel, Eyeing 2028, Makes His 2026 Play**\
 `The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about the next presidential race.`\
 https://www.nytimes.com/2026/09/26/us/politics/rahm-emanuel-midterms-house.html

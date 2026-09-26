@@ -1,3 +1,7 @@
+**Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
+`High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
+https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
+
 **Pete Byrne, New Wave Singer Behind ‘Always Something There,’ Dies at 74**\
 `As the voice of Naked Eyes, he became a familiar presence on MTV during the synth-pop boom of the 1980s.`\
 https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/26/arts/television/snl-james-austin-johnson-trum
 **Intentional Communities Sprout in the Wake of the Housing Crisis**\
 `New developments around the United States are experimenting with different ways people can live together.`\
 https://www.nytimes.com/2026/09/26/headway/housing-community-veterans-homelessness.html
-
-**VoteVets Spends Millions to Elect Democrats, Shaping Midterms**\
-`The organization, founded in 2006 to back Democratic veterans opposing the Iraq war, is pouring huge sums into this year’s elections amid intense voter antipathy for another conflict in the Middle East.`\
-https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
 
