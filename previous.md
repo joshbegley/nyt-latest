@@ -1,3 +1,7 @@
+**White House Blocks CNN From Air Force One**\
+`CNN won’t be able to join President Trump on a Saturday trip to Tennessee. He had banned CNN and two other news outlets from the White House, but a court order on Thursday restored their access.`\
+https://www.nytimes.com/2026/09/25/business/media/white-house-cnn-air-force-one-ban.html
+
 **Mean**\
 `Brian Callahan’s first Saturday puzzle poses a sweet set of challenges.`\
 https://www.nytimes.com/2026/09/25/crosswords/daily-puzzle-2026-09-26.html
