@@ -1,3 +1,7 @@
+**On World Stage, Mamdani Tries to Play Diplomat**\
+`In a whirlwind week, Mayor Zohran Mamdani hosted President Trump, sat with many of the world’s mayors and led heads of state around New York City.`\
+https://www.nytimes.com/2026/09/26/nyregion/mamdani-netanyahu-united-nations.html
+
 **How El Niño Is Shaping Storms on Two Sides of the U.S.**\
 `Hurricanes near Hawaii. A nor’easter on the East Coast. The ocean phenomenon’s influence on storms around the country may just be getting started.`\
 https://www.nytimes.com/2026/09/26/climate/el-nino-hurricane-noreaster.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.htm
 `There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
 https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html
 
-**The W.N.B.A. Should Take Care of Its Own**\
+**It’s Time for the W.N.B.A. to Pick Sides**\
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-chang
 **Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
 `Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
 https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
-
-**‘Zombified’ C.D.C., Hobbled by Cuts, Struggles to Fulfill Scientific Mission**\
-`The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
-https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
 

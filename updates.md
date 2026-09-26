@@ -1,3 +1,11 @@
+**On World Stage, Mamdani Tries to Play Diplomat**\
+`In a whirlwind week, Mayor Zohran Mamdani hosted President Trump, sat with many of the world’s mayors and led heads of state around New York City.`\
+https://www.nytimes.com/2026/09/26/nyregion/mamdani-netanyahu-united-nations.html
+
+**It’s Time for the W.N.B.A. to Pick Sides**\
+`The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
+https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
+
 **Nor’easter Live Updates: Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
