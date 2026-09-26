@@ -1,3 +1,7 @@
+**Nor’easter Live Updates: Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
+`The storm flooded low-lying areas, knocked out power and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
 **Trump Rejects Iran’s Cease-Fire Proposal to Reopen Strait of Hormuz**\
 `The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
