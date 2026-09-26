@@ -1,3 +1,7 @@
+**Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
+`The body of Tasia Fortune, a 29-year-old Black woman, was found hanging from a tree branch behind an abandoned property in Jackson, Miss., last month.`\
+https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
+
 **Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
 `The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
 https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
