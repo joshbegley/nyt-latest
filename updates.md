@@ -1,3 +1,7 @@
+**Trump Administration Plans to Gut Clean Car Rules**\
+`New fuel-economy standards, which President Trump said he finalized Saturday, would kill a federal effort to speed the transition to electric vehicles.`\
+https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
+
 **700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
 `The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
 https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
