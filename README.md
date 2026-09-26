@@ -2,8 +2,8 @@
 `High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
 https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
 
-**Pete Byrne, New Wave Singer Behind ‘Always Something There,’ Dies at 74**\
-`As the voice of Naked Eyes, he became a familiar presence on MTV during the synth-pop boom of the 1980s.`\
+**Pete Byrne, Synth Pop Singer Behind ‘Always Something There,’ Dies at 74**\
+`As the voice of Naked Eyes, he became a familiar presence on MTV in the 1980s, when the band’s hits helped define the era.`\
 https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
 
 **On World Stage, Mamdani Tries to Play Diplomat**\
