@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/09/26/crosswords/wordle-review-1926.html
 https://www.nytimes.com/2026/09/26/crosswords/strands-sidekick-938.html
 
 **Live Updates: Powerful Nor’easter Bears Down on East Coast**\
-`Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including New York, Long Island and Boston.`\
+`Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including the New York metropolitan area and Boston.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
 
 **Free Rein**\
@@ -158,13 +158,13 @@ https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-chang
 `The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
 https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
 
-**This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
-`As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
-https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
-
 **Why Some Couples Are Hiring Concierges Just for Their Guests**\
 `Couples who want their guests to feel taken care of throughout their celebrations are hiring concierges to book travel arrangements, organize excursions and even handle last-minute requests.`\
 https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
+
+**This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
+`As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
+https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
 
 **In an $80 Motel Room, a Discovery to Shed Light on the Origins of Life**\
 `A scrappy science project led to a significant discovery: two new species of a rare organism that could elucidate a fundamental transition in the history of life on our planet.`\

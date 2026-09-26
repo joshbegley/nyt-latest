@@ -1,3 +1,7 @@
+**Live Updates: Powerful Nor’easter Bears Down on East Coast**\
+`Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including the New York metropolitan area and Boston.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
 **As A.I. Makes Law Firms More Efficient, Clients Ask: ‘Where’s My Discount?’**\
 `There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
 https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html

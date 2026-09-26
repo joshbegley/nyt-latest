@@ -1,3 +1,7 @@
+**In Coastal Towns, the Nor’easter Upended Wedding Plans**\
+`Across the northeast, couples were forced to postpone, relocate or cancel weddings they planned to hold outdoors this weekend.`\
+https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.html
+
 **As A.I. Makes Law Firms More Efficient, Clients Ask: ‘Where’s My Discount?’**\
 `There’s growing pressure to move beyond the billable hour. But big firms aren’t ready to blow up their trusted business model.`\
 https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-hour.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/headway/portland-diginity-village-homeless-co
 **Jake Shears Loves a Scary Book. And Video Game. And Musical.**\
 `The Scissor Sisters frontman is now playing Frank-N-Furter in “The Rocky Horror Show.” It suits his taste for horror and spookiness.`\
 https://www.nytimes.com/2026/09/26/theater/jake-shears-scissor-sisters-rocky-horror-broadway.html
-
-**Memoirs From Michael Douglas, Sylvester Stallone and Other Tough Guys**\
-`Michael Douglas and Sylvester Stallone are among the tough (and tough-ish) guys getting personal in memoirs this fall.`\
-https://www.nytimes.com/2026/09/26/books/review/actor-memoirs-michael-douglas-sylvester-stallone.html
 
