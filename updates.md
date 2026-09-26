@@ -1,3 +1,11 @@
+**Nor’easter vs. Hurricane: What’s the Difference?**\
+`The systems are organized differently, though how they affect your town or neighborhood can be the same.`\
+https://www.nytimes.com/2026/09/25/weather/noreaster-hurricane-definition.html
+
+**OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
+`The company did not learn until recently that its technology had meddled with websites for the Education and Commerce Departments and the Securities and Exchange Commission.`\
+https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
+
 **30 College Students Splattered With Condiments and Liquids in Hazing, Police Say**\
 `Two University of Wisconsin-Madison students face charges of suspicion of hazing in the episode, which happened on Wednesday in a sweltering basement, officials said.`\
 https://www.nytimes.com/2026/09/25/us/hazing-madison-wisconsin-fraternity.html
