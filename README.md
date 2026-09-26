@@ -1,3 +1,19 @@
+**A Tetris-Like Maze Blocks Protests in Pakistan’s Capital**\
+`Pakistani authorities have barricaded Islamabad with more than 1,500 shipping containers to stop opposition protesters, choking off access to the capital.`\
+https://www.nytimes.com/2026/09/26/world/asia/a-tetris-like-maze-blocks-protests-in-pakistans-capital.html
+
+**Quote of the Day: Patricio Guzmán, Filmmaker Who Documented Chile’s Struggles, Dies at 85**\
+`Quotation of the Day for Saturday, September 26, 2026.`\
+https://www.nytimes.com/2026/09/26/pageoneplus/quote-of-the-day-patricio-guzman-filmmaker-who-documented-chiles-struggles-dies-at-85.html
+
+**At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia**\
+`In his talks with President Trump, the Chinese leader used praise, warnings and wartime history to challenge American support for Taiwan and Japan.`\
+https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html
+
+**On This Day | Sept. 26**\
+`In 1960, the first televised debate between major-party presidential candidates, Richard M. Nixon and John F. Kennedy, took place in Chicago.`\
+https://www.nytimes.com/2026/09/26/learning/on-this-day-sept-26.html
+
 **White House Blocks CNN From Air Force One**\
 `CNN won’t be able to join President Trump on a Saturday trip to Tennessee. He had banned CNN and two other news outlets from the White House, but a court order on Thursday restored their access.`\
 https://www.nytimes.com/2026/09/25/business/media/white-house-cnn-air-force-one-ban.html
@@ -169,18 +185,6 @@ https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-b
 **Distributor of Recalled Meat Worked for Years Without Proper Permits**\
 `Star Meat Delivery did not complete the requirements necessary to process food, the Agriculture Department said.`\
 https://www.nytimes.com/2026/09/25/business/star-meat-delivery-recall-usda.html
-
-**China’s Xi Snubs a Troubled U.N. for Trump, Overshadowing Its Big Week**\
-`The U.S.-China summit offered a sharp contrast with the action at the faltering United Nations in a gridlocked New York.`\
-https://www.nytimes.com/2026/09/25/us/politics/trump-china-united-nations.html
-
-**Beaches Are Disappearing in Southern California as El Niño Bears Down**\
-`Beachfront homeowners and beachcombers are watching the sand vanish into the ocean as torrid waves strike the coast.`\
-https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
-
-**Embattled New Jersey Lt. Governor Dale Caldwell Resigns After Ethics Inquiry**\
-`Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
-https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
