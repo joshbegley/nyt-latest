@@ -1,3 +1,7 @@
+**How Do I Make a Really Good Meatless BLT?**\
+`Lose the bacon; keep the crispy lettuce and juicy tomato; add meaty mushrooms and sharp onions.`\
+https://www.nytimes.com/2026/09/26/dining/how-do-i-make-a-really-good-meatless-blt.html
+
 **Fall Baking Begins Now**\
 `Kick off the season with pumpkin blondies, apple cider doughnuts, cranberry Bundt cake and more.`\
 https://www.nytimes.com/2026/09/26/dining/fall-baking-begins-now.html
@@ -158,13 +162,13 @@ https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
 `In “Mestra,” Madeline Miller follows the daughter of the king of Thessaly on her endless, self-destructive quest to satisfy her insatiable father.`\
 https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
 
-**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
-`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
-https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
-
 **A Shrinking Work Force Is Changing the C.D.C.**\
 `The Centers for Disease Control and Prevention has lost close to 30 percent of its staff in the past year, with big turnover in top leadership and entire teams effectively shut down. Our health reporter Apoorva Mandavilli explains how these changes have affected the work of the department.`\
 https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-changing-the-cdc.html
+
+**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
+`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
+https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
 
 **‘Zombified’ C.D.C., Hobbled by Cuts, Struggles to Fulfill Scientific Mission**\
 `The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/books/review/dodge-city-patrick-dewitt.html
 **Pearl Jam’s Bass Player Is a Style Innovator**\
 `Fun hats. Layers. A blend of punk and jock fashions. A new book reveals Jeff Ament’s influence on a ’90s look that swept the nation.`\
 https://www.nytimes.com/2026/09/26/style/pearl-jam-jeff-ament-grunge-fashion-1990s.html
-
-**Sizzling New Romance Books**\
-`Our columnist on three books worth your time.`\
-https://www.nytimes.com/2026/09/26/books/review/new-romance-books.html
 
