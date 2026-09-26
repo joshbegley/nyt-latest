@@ -1,3 +1,7 @@
+**‘The MAGA Flag Is in Tatters’**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/2026/09/26/opinion/midterm-elections-midwest-political-realignment.html
+
 **The W.N.B.A. Should Take Care of Its Own**\
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
