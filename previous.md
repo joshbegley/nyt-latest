@@ -1,3 +1,43 @@
+**The W.N.B.A. Should Take Care of Its Own**\
+`The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
+https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
+
+**Has the A.I. Industry Become Too Big to Fail?**\
+`It’s as though 2008 never even happened.`\
+https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
+
+**The W.N.B.A. Is More Than a Culture War**\
+`Racism and transphobia are distorting the conversation around the W.N.B.A. The contributing Opinion writer Roxane Gay argues that the league must continue its tradition of standing up for social issues. And, of course, keep the focus on basketball.`\
+https://www.nytimes.com/video/opinion/100000011173829/the-wnba-is-more-than-a-culture-war.html
+
+**The Four TV Shows That Explain America**\
+`Four TV shows, now acknowledged as the medium’s high point, each cannily predicted the ways in which America would start to crack apart.`\
+https://www.nytimes.com/2026/09/26/opinion/best-tv-shows-sopranos-breaking-bad-wire-mad-men.html
+
+**Will the Midterms Bring a Political Realignment?**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/2026/09/26/opinion/midterm-elections-midwest-political-realignment.html
+
+**The U.N. Is Terrible. We Need the U.N.**\
+`Trump’s attack on global institutions leaves us helpless before a growing array of challenges.`\
+https://www.nytimes.com/2026/09/26/opinion/un-united-nations-failure.html
+
+**Why Do Clinical Trials for Cancer Drugs Take So Long?**\
+`Readers respond to a guest essay about the costs and delays in getting experimental treatments to patients.`\
+https://www.nytimes.com/2026/09/26/opinion/clinical-trials-cancer-drugs.html
+
+**Hold My Hand, Warm My Heart**\
+`Two of the things that count most in life are love and usefulness. Holding hands offers both.`\
+https://www.nytimes.com/2026/09/26/opinion/holding-hands-love.html
+
+**The W.N.B.A. Is More Than a Culture War**\
+`Racism and transphobia are distorting the conversation around the W.N.B.A. The contributing Opinion writer Roxane Gay argues that the league must continue its tradition of standing up for social issues. And, of course, keep the focus on basketball.`\
+https://www.nytimes.com/video/opinion/100000011165185/the-wnba-is-more-than-a-culture-war.html
+
+**Will the Midterms Bring a Political Realignment?**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/video/opinion/100000011172467/will-the-midterms-bring-a-political-realignment.html
+
 **My Sister-in-Law Makes Family Vacations a Nightmare. Can We Stop Inviting Her?**\
 `She wants to be liked and included, but her behavior is often confrontational and defensive.`\
 https://www.nytimes.com/2026/09/26/magazine/family-vacation-nightmare-ethics.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/09/26/books/review/actor-memoirs-michael-douglas-sy
 **In Backyard Ultramarathons, the Race Goes On Until Everyone Gives Up**\
 `Runners complete the same lap every hour for as long as they can — sometimes for days. The brutal format has become surprisingly popular.`\
 https://www.nytimes.com/2026/09/26/well/backyard-ultramarathon-prairie-on-fire.html
-
-**Heroine or Public Enemy? The Israeli Blocking Much of Netanyahu’s Agenda.**\
-`Gali Baharav-Miara, Israel’s first female attorney general, has stopped many of the government’s efforts to remove constraints on its power.`\
-https://www.nytimes.com/2026/09/26/world/middleeast/israel-netanyahu-gali-baharav-miara-attorney-general.html
-
-**Loris Messina and Simone Rizzo make their Moschino debut**\
-`Loris Messina and Simone Rizzo make their debut at Moschino.`\
-https://www.nytimes.com/2026/09/26/style/moschino-loris-messina-simone-rizzo-debut.html
-
-**At Gucci, Demna Offers Retail Therapy**\
-`Demna wrestles with the shopping problem.`\
-https://www.nytimes.com/2026/09/26/style/gucci-demna-store.html
-
-**He Ran a Top Lady Gaga Fan Page. Then He Vanished.**\
-`Kirill Nguyen, the founder of Gaga Daily, said he had been imprisoned in Belarus for participating in pro-democracy protests. He resurfaced this week after an absence of more than two years.`\
-https://www.nytimes.com/2026/09/26/world/europe/lady-gaga-daily-founder-belarus-prison.html
-
-**Brooklyn Democrats Were About to Lose Power. So They Changed the Rules.**\
-`The Brooklyn Democratic Party is in the middle of a fight over who will control the organization that has shocked even seasoned political observers.`\
-https://www.nytimes.com/2026/09/26/nyregion/brooklyn-democrats-rodneyse-bichotte.html
-
-**The Feast of San Gennaro Turns 100 in a Changing Little Italy**\
-`It’s a milestone year for the annual food festival, but its shrinking size and the absence of some of the feast’s mainstays are weighing heavy on the community.`\
-https://www.nytimes.com/2026/09/26/nyregion/san-gennaro-little-italy.html
-
-**NYT Spelling Bee Answers for September 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/26/crosswords/spelling-bee-forum.html
-
-**A Tetris-Like Maze Blocks Protests in Pakistan’s Capital**\
-`Pakistani authorities have barricaded Islamabad with more than 1,500 shipping containers to stop opposition protesters, choking off access to the capital.`\
-https://www.nytimes.com/2026/09/26/world/asia/a-tetris-like-maze-blocks-protests-in-pakistans-capital.html
-
-**Quote of the Day: Patricio Guzmán, Filmmaker Who Documented Chile’s Struggles, Dies at 85**\
-`Quotation of the Day for Saturday, September 26, 2026.`\
-https://www.nytimes.com/2026/09/26/pageoneplus/quote-of-the-day-patricio-guzman-filmmaker-who-documented-chiles-struggles-dies-at-85.html
-
-**At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia**\
-`In his talks with President Trump, the Chinese leader used praise, warnings and wartime history to challenge American support for Taiwan and Japan.`\
-https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html
 

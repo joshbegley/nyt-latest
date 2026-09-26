@@ -1,3 +1,43 @@
+**The W.N.B.A. Should Take Care of Its Own**\
+`The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
+https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
+
+**Has the A.I. Industry Become Too Big to Fail?**\
+`It’s as though 2008 never even happened.`\
+https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
+
+**The W.N.B.A. Is More Than a Culture War**\
+`Racism and transphobia are distorting the conversation around the W.N.B.A. The contributing Opinion writer Roxane Gay argues that the league must continue its tradition of standing up for social issues. And, of course, keep the focus on basketball.`\
+https://www.nytimes.com/video/opinion/100000011173829/the-wnba-is-more-than-a-culture-war.html
+
+**The Four TV Shows That Explain America**\
+`Four TV shows, now acknowledged as the medium’s high point, each cannily predicted the ways in which America would start to crack apart.`\
+https://www.nytimes.com/2026/09/26/opinion/best-tv-shows-sopranos-breaking-bad-wire-mad-men.html
+
+**Will the Midterms Bring a Political Realignment?**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/2026/09/26/opinion/midterm-elections-midwest-political-realignment.html
+
+**The U.N. Is Terrible. We Need the U.N.**\
+`Trump’s attack on global institutions leaves us helpless before a growing array of challenges.`\
+https://www.nytimes.com/2026/09/26/opinion/un-united-nations-failure.html
+
+**Why Do Clinical Trials for Cancer Drugs Take So Long?**\
+`Readers respond to a guest essay about the costs and delays in getting experimental treatments to patients.`\
+https://www.nytimes.com/2026/09/26/opinion/clinical-trials-cancer-drugs.html
+
+**Hold My Hand, Warm My Heart**\
+`Two of the things that count most in life are love and usefulness. Holding hands offers both.`\
+https://www.nytimes.com/2026/09/26/opinion/holding-hands-love.html
+
+**The W.N.B.A. Is More Than a Culture War**\
+`Racism and transphobia are distorting the conversation around the W.N.B.A. The contributing Opinion writer Roxane Gay argues that the league must continue its tradition of standing up for social issues. And, of course, keep the focus on basketball.`\
+https://www.nytimes.com/video/opinion/100000011165185/the-wnba-is-more-than-a-culture-war.html
+
+**Will the Midterms Bring a Political Realignment?**\
+`This week in politics: Midwest realignment and what’s next for conservatives.`\
+https://www.nytimes.com/video/opinion/100000011172467/will-the-midterms-bring-a-political-realignment.html
+
 **My Sister-in-Law Makes Family Vacations a Nightmare. Can We Stop Inviting Her?**\
 `She wants to be liked and included, but her behavior is often confrontational and defensive.`\
 https://www.nytimes.com/2026/09/26/magazine/family-vacation-nightmare-ethics.html
