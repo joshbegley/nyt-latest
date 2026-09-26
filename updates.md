@@ -1,3 +1,23 @@
+**My Sister-in-Law Makes Family Vacations a Nightmare. Can We Stop Inviting Her?**\
+`She wants to be liked and included, but her behavior is often confrontational and defensive.`\
+https://www.nytimes.com/2026/09/26/magazine/family-vacation-nightmare-ethics.html
+
+**Special Edition: Our Interview With Mark Carney**\
+`Ten New York Times journalists and editors interviewed the Canadian prime minister for an hour at The Times office in New York on Wednesday. Here’s what we learned.`\
+https://www.nytimes.com/2026/09/26/world/canada/carney-interview-canada-us-trump-trade.html
+
+**NYT Connections Answers for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/connections-companion-1204.html
+
+**Today’s Wordle Hints for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/wordle-review-1926.html
+
+**NYT Strands Hints for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/strands-sidekick-938.html
+
 **Live Updates: Powerful Nor’easter Bears Down on East Coast**\
 `Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston

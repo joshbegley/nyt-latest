@@ -1,3 +1,23 @@
+**My Sister-in-Law Makes Family Vacations a Nightmare. Can We Stop Inviting Her?**\
+`She wants to be liked and included, but her behavior is often confrontational and defensive.`\
+https://www.nytimes.com/2026/09/26/magazine/family-vacation-nightmare-ethics.html
+
+**Special Edition: Our Interview With Mark Carney**\
+`Ten New York Times journalists and editors interviewed the Canadian prime minister for an hour at The Times office in New York on Wednesday. Here’s what we learned.`\
+https://www.nytimes.com/2026/09/26/world/canada/carney-interview-canada-us-trump-trade.html
+
+**NYT Connections Answers for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/connections-companion-1204.html
+
+**Today’s Wordle Hints for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/wordle-review-1926.html
+
+**NYT Strands Hints for September 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/26/crosswords/strands-sidekick-938.html
+
 **Live Updates: Powerful Nor’easter Bears Down on East Coast**\
 `Rain, flooding and damaging winds are in the forecast for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/26/pageoneplus/quote-of-the-day-patricio-guzman-
 **At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia**\
 `In his talks with President Trump, the Chinese leader used praise, warnings and wartime history to challenge American support for Taiwan and Japan.`\
 https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html
-
-**On This Day | Sept. 26**\
-`In 1960, the first televised debate between major-party presidential candidates, Richard M. Nixon and John F. Kennedy, took place in Chicago.`\
-https://www.nytimes.com/2026/09/26/learning/on-this-day-sept-26.html
-
-**White House Blocks CNN From Air Force One**\
-`CNN won’t be able to join President Trump on a Saturday trip to Tennessee. He had banned CNN and two other news outlets from the White House, but a court order on Thursday restored their access.`\
-https://www.nytimes.com/2026/09/25/business/media/white-house-cnn-air-force-one-ban.html
-
-**Mean**\
-`Brian Callahan’s first Saturday puzzle poses a sweet set of challenges.`\
-https://www.nytimes.com/2026/09/25/crosswords/daily-puzzle-2026-09-26.html
-
-**TikTok to Pay Alabama $100 Million to Settle Social Media Addiction Claims**\
-`The settlement, which also includes changes to the platform’s features, is the latest in a string of agreements by companies to address child addiction.`\
-https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settlement.html
-
-**Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
-`The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
-https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
 
