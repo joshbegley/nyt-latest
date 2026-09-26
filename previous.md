@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/26/style/pearl-jam-jeff-ament-grunge-fashion-199
 `Our columnist on three books worth your time.`\
 https://www.nytimes.com/2026/09/26/books/review/new-romance-books.html
 
-**People Are Putting Their Phones Down for IRL Interactive Games**\
-`Games have come a long way from being played on tables, computer screens and phones. Now, we can go inside them.`\
-https://www.nytimes.com/2026/09/26/style/immersive-interactive-games-chicago-new-york.html
-
