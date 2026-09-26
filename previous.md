@@ -1,3 +1,15 @@
+**Brooklyn Democrats Were About to Lose Power. So They Changed the Rules.**\
+`The Brooklyn Democratic Party is in the middle of a fight over who will control the organization that has shocked even seasoned political observers.`\
+https://www.nytimes.com/2026/09/26/nyregion/brooklyn-democrats-rodneyse-bichotte.html
+
+**The Feast of San Gennaro Turns 100 in a Changing Little Italy**\
+`It’s a milestone year for the annual food festival, but its shrinking size and the absence of some of the feast’s mainstays are weighing heavy on the community.`\
+https://www.nytimes.com/2026/09/26/nyregion/san-gennaro-little-italy.html
+
+**NYT Spelling Bee Answers for September 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/26/crosswords/spelling-bee-forum.html
+
 **A Tetris-Like Maze Blocks Protests in Pakistan’s Capital**\
 `Pakistani authorities have barricaded Islamabad with more than 1,500 shipping containers to stop opposition protesters, choking off access to the capital.`\
 https://www.nytimes.com/2026/09/26/world/asia/a-tetris-like-maze-blocks-protests-in-pakistans-capital.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settle
 **Byron Sher, Early Environmental Warrior in California, Dies at 98**\
 `A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
 https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
-
-**South Carolinians: Do You Have a Short-Term, High-Interest Personal Loan? Share Your Bills.**\
-`We want to hear from borrowers who have taken out installment, payday or title loans, and those who work for companies that offer them.`\
-https://www.nytimes.com/2026/09/25/us/south-carolinians-do-you-have-a-short-term-high-interest-personal-loan-share-your-bills.html
-
-**Book Club: Let’s Talk About ‘Etna,’ by Paul Yoon**\
-`Yoon’s latest novel is about a bomb-sniffing dog trying to make it home after a war.`\
-https://www.nytimes.com/2026/09/25/books/review/book-club-lets-talk-about-etna-by-paul-yoon.html
-
-**Distributor of Recalled Meat Worked for Years Without Proper Permits**\
-`Star Meat Delivery did not complete the requirements necessary to process food, the Agriculture Department said.`\
-https://www.nytimes.com/2026/09/25/business/star-meat-delivery-recall-usda.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
