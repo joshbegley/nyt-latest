@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-st
 https://www.nytimes.com/video/podcasts/100000011166196/sylvester-stallone-on-the-toll-of-steroids-and-his-eating-disorder.html
 
 **Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
-`Tasia Fortune, 29, was found dead on Aug. 3, her body hanging from a tree branch behind an abandoned property in Jackson, Miss.`\
+`The body of Tasia Fortune, a 29-year-old Black woman, was found hanging from a tree branch behind an abandoned property in Jackson, Miss., last month.`\
 https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
 
 **FEMA Deploys Teams to Hawaii Ahead of Hurricane Nolo**\

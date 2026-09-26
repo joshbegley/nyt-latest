@@ -1,3 +1,7 @@
+**Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
+`The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
+https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
+
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend

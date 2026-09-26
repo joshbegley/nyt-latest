@@ -1,3 +1,7 @@
+**Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
+`The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
+https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
+
 **Beaches in Southern California Are Disappearing**\
 `Giant swells this year have stripped sand from Southern California beaches. Experts warn that this year’s El Niño could be the strongest ever recorded, bringing even more damaging surf.`\
 https://www.nytimes.com/video/climate/100000011159455/california-beaches-disappearing-el-nino.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti
 **Manchester City Found Guilty of 114 Charges**\
 `In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
 https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
-
-**2 Men Were Searching for Gold in New York City’s Sewers, Police Say**\
-`The men, who were charged with trespassing on Friday, were part of a group that slinked out of a manhole near where world leaders were staying for the U.N. General Assembly, the authorities said.`\
-https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
