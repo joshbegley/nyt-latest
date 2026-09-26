@@ -1,3 +1,7 @@
+**Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
+`The legendary actor on his disturbing childhood, his Hollywood missteps and the pain he caused to his loved ones, his body and himself.`\
+https://www.nytimes.com/2026/09/26/magazine/sylvester-stallone-interview.html
+
 **Milwaukee Museum Returns Pots by Enslaved Artist David Drake to Family**\
 `The museum restituted two of Drake’s stoneware jars to his heirs, but has found a way to keep both on display. It joins a growing number of institutions that are returning his work to his heirs.`\
 https://www.nytimes.com/2026/09/26/arts/design/milwaukee-museum-returns-pots-by-enslaved-artist-david-drake-to-family.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/climate/100000011159455/california-beaches-disappe
 **Nor’easter vs. Hurricane: What’s the Difference?**\
 `The systems are organized differently, though how they affect your town or neighborhood can be the same.`\
 https://www.nytimes.com/2026/09/25/weather/noreaster-hurricane-definition.html
-
-**30 College Students Splattered With Condiments and Liquids in Hazing, Police Say**\
-`Two University of Wisconsin-Madison students face charges of suspicion of hazing in the episode, which happened on Wednesday in a sweltering basement, officials said.`\
-https://www.nytimes.com/2026/09/25/us/hazing-madison-wisconsin-fraternity.html
 
