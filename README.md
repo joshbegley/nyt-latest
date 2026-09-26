@@ -1,3 +1,7 @@
+**He Ran a Top Lady Gaga Fan Page. Then He Vanished.**\
+`Kirill Nguyen, the founder of Gaga Daily, said he had been imprisoned in Belarus for participating in pro-democracy protests. He resurfaced this week after an absence of more than two years.`\
+https://www.nytimes.com/2026/09/26/world/europe/lady-gaga-daily-founder-belarus-prison.html
+
 **Brooklyn Democrats Were About to Lose Power. So They Changed the Rules.**\
 `The Brooklyn Democratic Party is in the middle of a fight over who will control the organization that has shocked even seasoned political observers.`\
 https://www.nytimes.com/2026/09/26/nyregion/brooklyn-democrats-rodneyse-bichotte.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-chi
 **U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
 `Israel condemned the database of firms tied to activity in the occupied West Bank as a “political tool” to advance “a smear campaign.”`\
 https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html
-
-**Byron Sher, Early Environmental Warrior in California, Dies at 98**\
-`A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
-https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
