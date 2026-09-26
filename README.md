@@ -1,3 +1,7 @@
+**700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
+`The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
+https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
+
 **The Full 12 Rounds**\
 `Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
 https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/26/realestate/how-do-i-find-the-right-continuing
 **California Needs Water. El Niño Might Bring Too Much to Keep.**\
 `The drought-stricken state has improved its ability to collect and store rainwater. But many gallons may still rush into the Pacific.`\
 https://www.nytimes.com/2026/09/26/climate/el-nino-california-water-drought.html
-
-**What’s This ‘S.N.L’ Star’s Next Move Beyond Trump? A New Comedy Special.**\
-`Johnson found fame playing President Trump on “S.N.L.” He hopes a new comedy special shows he has more to offer than just impersonations.`\
-https://www.nytimes.com/2026/09/26/arts/television/snl-james-austin-johnson-trump.html
 
