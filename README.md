@@ -1,3 +1,7 @@
+**TikTok to Pay Alabama $100 Million to Settle Social Media Addiction Claims**\
+`The settlement, which also includes changes to the platform’s features, is the latest in a string of agreements by companies to address child addiction.`\
+https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settlement.html
+
 **Trump Proposes $810 Million in Education and Health Cuts, Defying Congress**\
 `The attempted clawback represents the second time in as many years that the White House has sought to cancel funding approved by lawmakers.`\
 https://www.nytimes.com/2026/09/25/us/politics/white-house-rescissions-education-and-health-funds.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resig
 **His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.**\
 `“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
 https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
-
-**Manchester City Found Guilty of 114 Charges**\
-`In this special episode, The Athletic FC podcast breaks down the news and what it means.`\
-https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-charges.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
