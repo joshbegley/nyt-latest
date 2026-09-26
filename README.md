@@ -14,7 +14,7 @@ https://www.nytimes.com/video/opinion/100000011173829/the-wnba-is-more-than-a-cu
 `Four TV shows, now acknowledged as the medium’s high point, each cannily predicted the ways in which America would start to crack apart.`\
 https://www.nytimes.com/2026/09/26/opinion/best-tv-shows-sopranos-breaking-bad-wire-mad-men.html
 
-**Will the Midterms Bring a Political Realignment?**\
+**‘The MAGA Flag Is in Tatters’**\
 `This week in politics: Midwest realignment and what’s next for conservatives.`\
 https://www.nytimes.com/2026/09/26/opinion/midterm-elections-midwest-political-realignment.html
 
