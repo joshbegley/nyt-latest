@@ -1,3 +1,7 @@
+**Trump Administration Plans to Gut Clean Car Rules**\
+`New fuel-economy standards, which President Trump said he finalized Saturday, would kill a federal effort to speed the transition to electric vehicles.`\
+https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
+
 **700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
 `The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
 https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/09/26/arts/music/patient-zero-taylor-swift-madonna-
 **How Do I Find the Right Continuing Care Facility for Me?**\
 `Paying more upfront can shift more of the risk of your future health care costs to the community, said a lawyer who practices elder law.`\
 https://www.nytimes.com/2026/09/26/realestate/how-do-i-find-the-right-continuing-care-facility-for-me.html
-
-**California Needs Water. El Niño Might Bring Too Much to Keep.**\
-`The drought-stricken state has improved its ability to collect and store rainwater. But many gallons may still rush into the Pacific.`\
-https://www.nytimes.com/2026/09/26/climate/el-nino-california-water-drought.html
 
