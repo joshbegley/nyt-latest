@@ -130,8 +130,8 @@ https://www.nytimes.com/video/opinion/100000011166609/are-the-current-laws-enoug
 `Jeff Probst, the host and executive producer of “Survivor,” spoke to “Popcast” about his 26 years on the show and who could succeed him.`\
 https://www.nytimes.com/video/podcasts/100000011166303/what-is-jeff-probsts-survivor-succession-plan.html
 
-**Hurricane Nolo Moves Toward Hawaii, Bringing ‘Catastrophic’ Rain**\
-`More than two feet of rain could fall on the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
+**Hurricane Nolo Moves Toward Hawaii, Bringing Threat of Dangerous Flooding**\
+`As much as 16 inches of rain could fall on parts of the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
 https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
 
 **6 People Are Missing After Explosion in Athens Tourist District**\

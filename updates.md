@@ -1,3 +1,7 @@
+**Hurricane Nolo Moves Toward Hawaii, Bringing Threat of Dangerous Flooding**\
+`As much as 16 inches of rain could fall on parts of the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
+https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
+
 **White House Blocks CNN From Air Force One**\
 `CNN won’t be able to join President Trump on a Saturday trip to Tennessee. He had banned CNN and two other news outlets from the White House, but a court order on Thursday restored their access.`\
 https://www.nytimes.com/2026/09/25/business/media/white-house-cnn-air-force-one-ban.html
