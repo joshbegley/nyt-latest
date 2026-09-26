@@ -1,3 +1,7 @@
+**TikTok to Pay Alabama $100 Million to Settle Social Media Addiction Claims**\
+`The settlement, which also includes changes to the platform’s features, is the latest in a string of agreements by companies to address child addiction.`\
+https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settlement.html
+
 **Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
 `The body of Tasia Fortune, a 29-year-old Black woman, was found hanging from a tree branch behind an abandoned property in Jackson, Miss., last month.`\
 https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
