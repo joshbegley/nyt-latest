@@ -1,3 +1,11 @@
+**Fall Baking Begins Now**\
+`Kick off the season with pumpkin blondies, apple cider doughnuts, cranberry Bundt cake and more.`\
+https://www.nytimes.com/2026/09/26/dining/fall-baking-begins-now.html
+
+**As Hurricane Nolo Approaches Hawaii, This Volunteer is Ready to Help**\
+`Kerry Vekhov put his landscaping business on hold for more than a month to take part in recovery work after Hurricane Lala. Now the requests for assistance are coming in again.`\
+https://www.nytimes.com/2026/09/26/weather/hurricane-nola-preparations-volunteers.html
+
 **In Coastal Towns, the Nor’easter Upended Wedding Plans**\
 `Across the northeast, couples were forced to postpone, relocate or cancel weddings they planned to hold outdoors this weekend.`\
 https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/09/26/business/dealbook/ai-law-discount-billable-ho
 `The league has an invaluable opportunity right now; it can be a reflection of the world as it could be, not merely as it is.`\
 https://www.nytimes.com/2026/09/26/opinion/wnba-playoffs-culture-war.html
 
-**Has A.I. Become Too Big to Fail? Or Is It Something Worse?**\
+**What Happens if the A.I. Bubble Bursts**\
 `It’s as though 2008 never even happened.`\
 https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/26/books/review/new-romance-books.html
 **People Are Putting Their Phones Down for IRL Interactive Games**\
 `Games have come a long way from being played on tables, computer screens and phones. Now, we can go inside them.`\
 https://www.nytimes.com/2026/09/26/style/immersive-interactive-games-chicago-new-york.html
-
-**The Homeless Community in Portland That Became Self-Governed**\
-`Portland’s Dignity Village has been a place for people without housing for more than 25 years.`\
-https://www.nytimes.com/2026/09/26/headway/portland-diginity-village-homeless-community.html
-
-**Jake Shears Loves a Scary Book. And Video Game. And Musical.**\
-`The Scissor Sisters frontman is now playing Frank-N-Furter in “The Rocky Horror Show.” It suits his taste for horror and spookiness.`\
-https://www.nytimes.com/2026/09/26/theater/jake-shears-scissor-sisters-rocky-horror-broadway.html
 

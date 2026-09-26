@@ -1,3 +1,15 @@
+**Fall Baking Begins Now**\
+`Kick off the season with pumpkin blondies, apple cider doughnuts, cranberry Bundt cake and more.`\
+https://www.nytimes.com/2026/09/26/dining/fall-baking-begins-now.html
+
+**As Hurricane Nolo Approaches Hawaii, This Volunteer is Ready to Help**\
+`Kerry Vekhov put his landscaping business on hold for more than a month to take part in recovery work after Hurricane Lala. Now the requests for assistance are coming in again.`\
+https://www.nytimes.com/2026/09/26/weather/hurricane-nola-preparations-volunteers.html
+
+**What Happens if the A.I. Bubble Bursts**\
+`It’s as though 2008 never even happened.`\
+https://www.nytimes.com/2026/09/26/opinion/ai-bubble-banking-crisis-too-big-to-fail.html
+
 **In Coastal Towns, the Nor’easter Upended Wedding Plans**\
 `Across the northeast, couples were forced to postpone, relocate or cancel weddings they planned to hold outdoors this weekend.`\
 https://www.nytimes.com/2026/09/26/us/noreaster-cancels-new-england-weddings.html
