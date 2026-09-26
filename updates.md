@@ -1,3 +1,7 @@
+**Pete Byrne, New Wave Singer Behind ‘Always Something There,’ Dies at 74**\
+`As the voice of Naked Eyes, he became a familiar presence on MTV during the synth-pop boom of the 1980s.`\
+https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
+
 **On World Stage, Mamdani Tries to Play Diplomat**\
 `In a whirlwind week, Mayor Zohran Mamdani hosted President Trump, sat with many of the world’s mayors and led heads of state around New York City.`\
 https://www.nytimes.com/2026/09/26/nyregion/mamdani-netanyahu-united-nations.html

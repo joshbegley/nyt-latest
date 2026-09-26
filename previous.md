@@ -1,3 +1,7 @@
+**Pete Byrne, New Wave Singer Behind ‘Always Something There,’ Dies at 74**\
+`As the voice of Naked Eyes, he became a familiar presence on MTV during the synth-pop boom of the 1980s.`\
+https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
+
 **On World Stage, Mamdani Tries to Play Diplomat**\
 `In a whirlwind week, Mayor Zohran Mamdani hosted President Trump, sat with many of the world’s mayors and led heads of state around New York City.`\
 https://www.nytimes.com/2026/09/26/nyregion/mamdani-netanyahu-united-nations.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
 **A Shrinking Work Force Is Changing the C.D.C.**\
 `The Centers for Disease Control and Prevention has lost close to 30 percent of its staff in the past year, with big turnover in top leadership and entire teams effectively shut down. Our health reporter Apoorva Mandavilli explains how these changes have affected the work of the department.`\
 https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-changing-the-cdc.html
-
-**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
-`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
-https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
 
