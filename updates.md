@@ -1,3 +1,19 @@
+**A Tetris-Like Maze Blocks Protests in Pakistan’s Capital**\
+`Pakistani authorities have barricaded Islamabad with more than 1,500 shipping containers to stop opposition protesters, choking off access to the capital.`\
+https://www.nytimes.com/2026/09/26/world/asia/a-tetris-like-maze-blocks-protests-in-pakistans-capital.html
+
+**Quote of the Day: Patricio Guzmán, Filmmaker Who Documented Chile’s Struggles, Dies at 85**\
+`Quotation of the Day for Saturday, September 26, 2026.`\
+https://www.nytimes.com/2026/09/26/pageoneplus/quote-of-the-day-patricio-guzman-filmmaker-who-documented-chiles-struggles-dies-at-85.html
+
+**At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia**\
+`In his talks with President Trump, the Chinese leader used praise, warnings and wartime history to challenge American support for Taiwan and Japan.`\
+https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html
+
+**On This Day | Sept. 26**\
+`In 1960, the first televised debate between major-party presidential candidates, Richard M. Nixon and John F. Kennedy, took place in Chicago.`\
+https://www.nytimes.com/2026/09/26/learning/on-this-day-sept-26.html
+
 **Hurricane Nolo Moves Toward Hawaii, Bringing Threat of Dangerous Flooding**\
 `As much as 16 inches of rain could fall on parts of the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
 https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
