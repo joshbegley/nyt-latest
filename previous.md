@@ -1,3 +1,7 @@
+**Gen Z Chaos Hits the Runway**\
+`Meryll Rogge’s collection for Marni nailed the moment.`\
+https://www.nytimes.com/2026/09/26/style/milan-fashion-week-gen-z-marni.html
+
 **How Do I Make a Really Good Meatless BLT?**\
 `Lose the bacon; keep the crispy lettuce and juicy tomato; add meaty mushrooms and sharp onions.`\
 https://www.nytimes.com/2026/09/26/dining/how-do-i-make-a-really-good-meatless-blt.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/26/science/motel-science-discovery.html
 **Book Review: ‘Dodge City,’ by Patrick deWitt**\
 `“Dodge City,” by Patrick deWitt, follows a young man on a road trip to Canada to avoid conscription in Vietnam.`\
 https://www.nytimes.com/2026/09/26/books/review/dodge-city-patrick-dewitt.html
-
-**Pearl Jam’s Bass Player Is a Style Innovator**\
-`Fun hats. Layers. A blend of punk and jock fashions. A new book reveals Jeff Ament’s influence on a ’90s look that swept the nation.`\
-https://www.nytimes.com/2026/09/26/style/pearl-jam-jeff-ament-grunge-fashion-1990s.html
 

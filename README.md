@@ -1,3 +1,11 @@
+**Why Does Trump Think He Can Act Like a King?**\
+`The Supreme Court has had a lot to do with it.`\
+https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
+
+**When the Weed Wars Came to Warren Street**\
+`New money and age-old injustice in an American river town.`\
+https://www.nytimes.com/interactive/2026/09/26/nyregion/hudson-weed-wars.html
+
 **Gen Z Chaos Hits the Runway**\
 `Meryll Rogge’s collection for Marni nailed the moment.`\
 https://www.nytimes.com/2026/09/26/style/milan-fashion-week-gen-z-marni.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
 **This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
 `As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
 https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
-
-**In an $80 Motel Room, a Discovery to Shed Light on the Origins of Life**\
-`A scrappy science project led to a significant discovery: two new species of a rare organism that could elucidate a fundamental transition in the history of life on our planet.`\
-https://www.nytimes.com/2026/09/26/science/motel-science-discovery.html
-
-**Book Review: ‘Dodge City,’ by Patrick deWitt**\
-`“Dodge City,” by Patrick deWitt, follows a young man on a road trip to Canada to avoid conscription in Vietnam.`\
-https://www.nytimes.com/2026/09/26/books/review/dodge-city-patrick-dewitt.html
 

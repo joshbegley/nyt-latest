@@ -1,3 +1,7 @@
+**Gen Z Chaos Hits the Runway**\
+`Meryll Rogge’s collection for Marni nailed the moment.`\
+https://www.nytimes.com/2026/09/26/style/milan-fashion-week-gen-z-marni.html
+
 **How Do I Make a Really Good Meatless BLT?**\
 `Lose the bacon; keep the crispy lettuce and juicy tomato; add meaty mushrooms and sharp onions.`\
 https://www.nytimes.com/2026/09/26/dining/how-do-i-make-a-really-good-meatless-blt.html
