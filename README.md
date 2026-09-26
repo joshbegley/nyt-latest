@@ -1,3 +1,11 @@
+**TV Networks to Resume Trump Coverage, Even as White House Excludes CNN**\
+`The White House TV pool went dark this past week amid a standoff between CNN and the president. Network leaders, however, believe an indefinite suspension may be untenable.`\
+https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.html
+
+**Storm-tested New Jersey Braves Nor’easter With Waist-High Floods**\
+`The storm flooded homes and businesses, caused power outages and forced people to evacuate amid heavy winds and rain.`\
+https://www.nytimes.com/2026/09/26/nyregion/new-jersey-noreaster-floods.html
+
 **Trump Administration Plans to Gut Clean Car Rules**\
 `New fuel-economy standards, which President Trump said he finalized Saturday, would kill a federal effort to speed the transition to electric vehicles.`\
 https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/26/arts/television/lola-petticrew-furious-say-no
 **Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
 `Now 80, the actor and filmmaker is ready to examine his own life, his work and the impact it has had on our culture.`\
 https://www.nytimes.com/video/podcasts/100000011166181/sylvester-stallone-hid-his-struggles-for-decades-now-hes-coming-clean.html
-
-**Taylor Swift’s ‘Patient Zero’ and 9 More Songs to Hear**\
-`Taylor Swift offers sympathetic advice, Madonna and Charli XCX reminisce, U2 blasts garage-rock and more.`\
-https://www.nytimes.com/2026/09/26/arts/music/patient-zero-taylor-swift-madonna-playlist.html
-
-**How Do I Find the Right Continuing Care Facility for Me?**\
-`Paying more upfront can shift more of the risk of your future health care costs to the community, said a lawyer who practices elder law.`\
-https://www.nytimes.com/2026/09/26/realestate/how-do-i-find-the-right-continuing-care-facility-for-me.html
 
