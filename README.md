@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/09/25/podcasts/manchester-city-found-guilty-of-114-
 `The men, who were charged with trespassing on Friday, were part of a group that slinked out of a manhole near where world leaders were staying for the U.N. General Assembly, the authorities said.`\
 https://www.nytimes.com/2026/09/25/nyregion/nyc-sewers-arrest.html
 
-**Live Updates: East Coast Braces as Powerful Nor’easter Approaches**\
+**Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
 https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
 
