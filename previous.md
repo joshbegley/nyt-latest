@@ -1,3 +1,7 @@
+**Mean**\
+`Brian Callahan’s first Saturday puzzle poses a sweet set of challenges.`\
+https://www.nytimes.com/2026/09/25/crosswords/daily-puzzle-2026-09-26.html
+
 **TikTok to Pay Alabama $100 Million to Settle Social Media Addiction Claims**\
 `The settlement, which also includes changes to the platform’s features, is the latest in a string of agreements by companies to address child addiction.`\
 https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settlement.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/09/25/us/el-nino-california-beach-erosion.html
 **Embattled New Jersey Lt. Governor Dale Caldwell Resigns After Ethics Inquiry**\
 `Dale G. Caldwell, a Methodist minister and former university president, quit one day after the release of a report that found he had crossed ethical lines.`\
 https://www.nytimes.com/2026/09/25/nyregion/new-jersey-lieutenant-governor-resigns-dale-caldwell.html
-
-**His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.**\
-`“It Was Either That Or Die,” by the Haitian-Canadian author Thélyson Orélien, was the hit of the French literary season. Now it has been pulled from the shortlist for a prestigious prize.`\
-https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\

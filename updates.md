@@ -1,3 +1,7 @@
+**Mean**\
+`Brian Callahan’s first Saturday puzzle poses a sweet set of challenges.`\
+https://www.nytimes.com/2026/09/25/crosswords/daily-puzzle-2026-09-26.html
+
 **TikTok to Pay Alabama $100 Million to Settle Social Media Addiction Claims**\
 `The settlement, which also includes changes to the platform’s features, is the latest in a string of agreements by companies to address child addiction.`\
 https://www.nytimes.com/2026/09/25/technology/tiktok-alabama-child-safety-settlement.html
