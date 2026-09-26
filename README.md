@@ -126,8 +126,8 @@ https://www.nytimes.com/2026/09/26/arts/design/milwaukee-museum-returns-pots-by-
 `An abrupt decree, a network boycott, a legal intervention and an uneasy détente: This was no typical battle between a president and his press corps.`\
 https://www.nytimes.com/2026/09/26/business/media/trump-white-house-press-ban.html
 
-**Rahm Emanuel Makes His 2026 Play**\
-`The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about 2028.`\
+**Rahm Emanuel, Eyeing 2028, Makes His 2026 Play**\
+`The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about the next presidential race.`\
 https://www.nytimes.com/2026/09/26/us/politics/rahm-emanuel-midterms-house.html
 
 **Arthur Hancock III, Derby Breeder With a Flair for Bluegrass, Dies at 83**\
