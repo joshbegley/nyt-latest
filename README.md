@@ -1,3 +1,7 @@
+**Fall Baking Begins Now**\
+`Kick off the season with pumpkin blondies, apple cider doughnuts, cranberry Bundt cake and more.`\
+https://www.nytimes.com/2026/09/26/dining/fall-baking-begins-now.html
+
 **As Hurricane Nolo Approaches Hawaii, This Volunteer is Ready to Help**\
 `Kerry Vekhov put his landscaping business on hold for more than a month to take part in recovery work after Hurricane Lala. Now the requests for assistance are coming in again.`\
 https://www.nytimes.com/2026/09/26/weather/hurricane-nola-preparations-volunteers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/books/review/new-romance-books.html
 **People Are Putting Their Phones Down for IRL Interactive Games**\
 `Games have come a long way from being played on tables, computer screens and phones. Now, we can go inside them.`\
 https://www.nytimes.com/2026/09/26/style/immersive-interactive-games-chicago-new-york.html
-
-**The Homeless Community in Portland That Became Self-Governed**\
-`Portland’s Dignity Village has been a place for people without housing for more than 25 years.`\
-https://www.nytimes.com/2026/09/26/headway/portland-diginity-village-homeless-community.html
 
