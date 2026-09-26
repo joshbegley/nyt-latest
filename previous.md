@@ -2,7 +2,7 @@
 `Hurricanes near Hawaii. A nor’easter on the East Coast. The ocean phenomenon’s influence on storms around the country may just be getting started.`\
 https://www.nytimes.com/2026/09/26/climate/el-nino-hurricane-noreaster.html
 
-**Trump Rejects Iranian Proposal for Cease-Fire and Opening of Strait**\
+**Trump Rejects Iran’s Cease-Fire Proposal to Reopen Strait of Hormuz**\
 `The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
 
@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/09/26/arts/music/patient-zero-taylor-swift-madonna-
 `Paying more upfront can shift more of the risk of your future health care costs to the community, said a lawyer who practices elder law.`\
 https://www.nytimes.com/2026/09/26/realestate/how-do-i-find-the-right-continuing-care-facility-for-me.html
 
-**California Needs Water. El Niño Might Bring Too Much.**\
+**California Needs Water. El Niño Might Bring Too Much to Keep.**\
 `The drought-stricken state has improved its ability to collect and store rainwater. But many gallons may still rush into the Pacific.`\
 https://www.nytimes.com/2026/09/26/climate/el-nino-california-water-drought.html
 
