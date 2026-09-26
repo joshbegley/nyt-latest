@@ -1,3 +1,127 @@
+**Milwaukee Museum Returns Pots by Enslaved Artist David Drake to Family**\
+`The museum restituted two of Drake’s stoneware jars to his heirs, but has found a way to keep both on display. It joins a growing number of institutions that are returning his work to his heirs.`\
+https://www.nytimes.com/2026/09/26/arts/design/milwaukee-museum-returns-pots-by-enslaved-artist-david-drake-to-family.html
+
+**A 7-Day Standoff That Said So Much About Trump and the Media**\
+`An abrupt decree, a network boycott, a legal intervention and an uneasy détente: This was no typical battle between a president and his press corps.`\
+https://www.nytimes.com/2026/09/26/business/media/trump-white-house-press-ban.html
+
+**Rahm Emanuel Makes His 2026 Play**\
+`The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about 2028.`\
+https://www.nytimes.com/2026/09/26/us/politics/rahm-emanuel-midterms-house.html
+
+**Arthur Hancock III, Derby Breeder With a Flair for Bluegrass, Dies at 83**\
+`He raised more than one Kentucky Derby champion and wrote music recorded by the likes of Willie Nelson. He also spoke out against abuses in horse racing.`\
+https://www.nytimes.com/2026/09/26/sports/arthur-hancock-horse-racing-dead.html
+
+**High Gas and Rising Mortgage Rates Trouble Trump as Midterms Near**\
+`As the president extolled the strength of the economy on the global stage, Americans continued to feel the sting of rising prices stemming from the war in Iran.`\
+https://www.nytimes.com/2026/09/26/business/trump-economy-midterm-elections.html
+
+**Sylvester Stallone on His Fight to Play Rocky**\
+`Why did a young Sylvester Stallone insist on playing the lead role in “Rocky”? He talked about his mindset on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011167471/sylvester-stallone-on-his-fight-to-play-rocky.html
+
+**‘It Was Insane’: Sylvester Stallone on His Abusive Father**\
+`“There were some times I’ll never forget.” On “The Interview,” Sylvester Stallone talked about life with his violent father.`\
+https://www.nytimes.com/video/podcasts/100000011166200/it-was-insane-sylvester-stallone-on-his-abusive-father.html
+
+**‘It Really Hurt Me’: Sylvester Stallone on His Mother Not Attending the Oscars**\
+`In 1977, Sylvester Stallone was nominated for two Academy Awards for “Rocky,” but his mother chose not to attend the ceremony. He talked about that experience on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011166197/it-really-hurt-me-sylvester-stallone-on-his-mother-not-attending-the-oscars.html
+
+**Sylvester Stallone on Arnold Schwarzenegger: ‘We Almost Came to Blows’**\
+`“He was a thorn in my side.” Sylvester Stallone talked about his former nemesis Arnold Schwarzenegger on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011166186/sylvester-stallone-on-arnold-schwarzenegger-we-almost-came-to-blows.html
+
+**Lola Petticrew Has Taken on the Troubles, Twice**\
+`Before playing a mesmerizing serial killer in “Furious,” the Belfast performer starred in two series set during the bloody conflict in Northern Ireland.`\
+https://www.nytimes.com/2026/09/26/arts/television/lola-petticrew-furious-say-nothing-trespasses.html
+
+**Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
+`Now 80, the actor and filmmaker is ready to examine his own life, his work and the impact it has had on our culture.`\
+https://www.nytimes.com/video/podcasts/100000011166181/sylvester-stallone-hid-his-struggles-for-decades-now-hes-coming-clean.html
+
+**Taylor Swift’s ‘Patient Zero’ and 9 More Songs to Hear**\
+`Taylor Swift offers sympathetic advice, Madonna and Charli XCX reminisce, U2 blasts garage-rock and more.`\
+https://www.nytimes.com/2026/09/26/arts/music/patient-zero-taylor-swift-madonna-playlist.html
+
+**How Do I Find the Right Continuing Care Facility for Me?**\
+`Paying more upfront can shift more of the risk of your future health care costs to the community, said a lawyer who practices elder law.`\
+https://www.nytimes.com/2026/09/26/realestate/how-do-i-find-the-right-continuing-care-facility-for-me.html
+
+**California Needs Water. El Niño Might Bring Too Much.**\
+`The drought-stricken state has improved its ability to collect and store rainwater. But many gallons may still rush into the Pacific.`\
+https://www.nytimes.com/2026/09/26/climate/el-nino-california-water-drought.html
+
+**What’s This ‘S.N.L’ Star’s Next Move Beyond Trump? A New Comedy Special.**\
+`Johnson found fame playing President Trump on “S.N.L.” He hopes a new comedy special shows he has more to offer than just impersonations.`\
+https://www.nytimes.com/2026/09/26/arts/television/snl-james-austin-johnson-trump.html
+
+**Intentional Communities Sprout in the Wake of the Housing Crisis**\
+`New developments around the United States are experimenting with different ways people can live together.`\
+https://www.nytimes.com/2026/09/26/headway/housing-community-veterans-homelessness.html
+
+**VoteVets Spends Millions to Elect Democrats, Shaping Midterms**\
+`The organization, founded in 2006 to back Democratic veterans opposing the Iraq war, is pouring huge sums into this year’s elections amid intense voter antipathy for another conflict in the Middle East.`\
+https://www.nytimes.com/2026/09/26/us/politics/votevets-midterm-elections.html
+
+**Book Review: ‘Mestra,’ by Madeline Miller**\
+`In “Mestra,” Madeline Miller follows the daughter of the king of Thessaly on her endless, self-destructive quest to satisfy her insatiable father.`\
+https://www.nytimes.com/2026/09/26/books/review/mestra-madeline-miller.html
+
+**Bobby Pulido, a Texan Singer, Puts Republicans on Defense**\
+`Bobby Pulido, a Tejano musician running as a Democrat for the House, has left his Republican opponent struggling to match his star power in a district that President Trump won easily in 2024.`\
+https://www.nytimes.com/2026/09/26/us/politics/bobby-pulido-texas-house-race.html
+
+**A Shrinking Work Force Is Changing the C.D.C.**\
+`The Centers for Disease Control and Prevention has lost close to 30 percent of its staff in the past year, with big turnover in top leadership and entire teams effectively shut down. Our health reporter Apoorva Mandavilli explains how these changes have affected the work of the department.`\
+https://www.nytimes.com/video/us/100000011151011/a-shrinking-work-force-is-changing-the-cdc.html
+
+**‘Zombified’ C.D.C., Hobbled by Cuts, Struggles to Fulfill Scientific Mission**\
+`The agency has lost its independence and nearly a third of its staff, as Health Secretary Robert F. Kennedy Jr. and associates have tightened control.`\
+https://www.nytimes.com/2026/09/26/health/cdc-staff-cuts-rfk-jr.html
+
+**This Screw Is Needed for Missiles and Planes. Buying One Can Take Years.**\
+`As the Trump administration scrambles to increase the production of munitions, these special screws are expensive and hard to source.`\
+https://www.nytimes.com/2026/09/26/business/ball-screws-military-production.html
+
+**Why Some Couples Are Hiring Concierges Just for Their Guests**\
+`Couples who want their guests to feel taken care of throughout their celebrations are hiring concierges to book travel arrangements, organize excursions and even handle last-minute requests.`\
+https://www.nytimes.com/2026/09/26/style/wedding-concierges-for-guests.html
+
+**In an $80 Motel Room, a Discovery to Shed Light on the Origins of Life**\
+`A scrappy science project led to a significant discovery: two new species of a rare organism that could elucidate a fundamental transition in the history of life on our planet.`\
+https://www.nytimes.com/2026/09/26/science/motel-science-discovery.html
+
+**Book Review: ‘Dodge City,’ by Patrick deWitt**\
+`“Dodge City,” by Patrick deWitt, follows a young man on a road trip to Canada to avoid conscription in Vietnam.`\
+https://www.nytimes.com/2026/09/26/books/review/dodge-city-patrick-dewitt.html
+
+**Pearl Jam’s Bass Player Is a Style Innovator**\
+`Fun hats. Layers. A blend of punk and jock fashions. A new book reveals Jeff Ament’s influence on a ’90s look that swept the nation.`\
+https://www.nytimes.com/2026/09/26/style/pearl-jam-jeff-ament-grunge-fashion-1990s.html
+
+**Sizzling New Romance Books**\
+`Our columnist on three books worth your time.`\
+https://www.nytimes.com/2026/09/26/books/review/new-romance-books.html
+
+**People Are Putting Their Phones Down for IRL Interactive Games**\
+`Games have come a long way from being played on tables, computer screens and phones. Now, we can go inside them.`\
+https://www.nytimes.com/2026/09/26/style/immersive-interactive-games-chicago-new-york.html
+
+**The Homeless Community in Portland That Became Self-Governed**\
+`Portland’s Dignity Village has been a place for people without housing for more than 25 years.`\
+https://www.nytimes.com/2026/09/26/headway/portland-diginity-village-homeless-community.html
+
+**Jake Shears Loves a Scary Book. And Video Game. And Musical.**\
+`The Scissor Sisters frontman is now playing Frank-N-Furter in “The Rocky Horror Show.” It suits his taste for horror and spookiness.`\
+https://www.nytimes.com/2026/09/26/theater/jake-shears-scissor-sisters-rocky-horror-broadway.html
+
+**Memoirs From Michael Douglas, Sylvester Stallone and Other Tough Guys**\
+`Michael Douglas and Sylvester Stallone are among the tough (and tough-ish) guys getting personal in memoirs this fall.`\
+https://www.nytimes.com/2026/09/26/books/review/actor-memoirs-michael-douglas-sylvester-stallone.html
+
 **In Backyard Ultramarathons, the Race Goes On Until Everyone Gives Up**\
 `Runners complete the same lap every hour for as long as they can — sometimes for days. The brutal format has become surprisingly popular.`\
 https://www.nytimes.com/2026/09/26/well/backyard-ultramarathon-prairie-on-fire.html
@@ -73,120 +197,4 @@ https://www.nytimes.com/2026/09/25/weather/noreaster-hurricane-definition.html
 **30 College Students Splattered With Condiments and Liquids in Hazing, Police Say**\
 `Two University of Wisconsin-Madison students face charges of suspicion of hazing in the episode, which happened on Wednesday in a sweltering basement, officials said.`\
 https://www.nytimes.com/2026/09/25/us/hazing-madison-wisconsin-fraternity.html
-
-**Supreme Court Ruling Could Have Limited Impact on Voter Screening in Midterms**\
-`Federal law requires a 90-day “quiet period” before elections, likely restricting the immediate scope of a decision that allows the use of a citizenship database to examine voter rolls.`\
-https://www.nytimes.com/2026/09/25/us/politics/supreme-court-voter-fraud-midterms-impact.html
-
-**A Fatal Stabbing Leaves a Quiet Neighborhood Even Quieter**\
-`A 46-year-old doctor was killed and his wife was critically wounded inside their Pittsburgh-area home. A man has been arrested and charged in connection with the attack.`\
-https://www.nytimes.com/2026/09/25/us/pittsburgh-doctor-stabbing.html
-
-**OpenAI’s A.I. Went Rogue and Meddled With U.S. Government Websites**\
-`The company did not learn until recently that its technology had meddled with websites for the Education and Commerce Departments and the Securities and Exchange Commission.`\
-https://www.nytimes.com/2026/09/25/technology/openais-ai-us-government-websites.html
-
-**Parisians Share Their Favorite Movies Set in the City**\
-`We asked visual artists, chefs, musicians and others who call the famously cinematic city home to share the films that capture it from striking and surprising angles.`\
-https://www.nytimes.com/2026/09/25/t-magazine/favorite-paris-films.html
-
-**Report Finds Security Failings at Event Where Charlie Kirk Was Killed**\
-`A review commissioned by Utah Valley University faults campus and Turning Point USA officials for poor planning of the event last year.`\
-https://www.nytimes.com/2026/09/25/us/utah-valley-university-charlie-kirk-security.html
-
-**Pardoned Jan. 6 Rioter Is Accused of Touching Woman’s Hair on D.C. Metro**\
-`Bryan Betancur, 29, was taken into custody on Thursday in Arlington, Va., two days after he completed a sentence for the same offense in the District of Columbia.`\
-https://www.nytimes.com/2026/09/25/us/jan-6-pardon-convicted-metro-hair-toucher.html
-
-**After Much Political Ado, Ed Sheeran’s Boston Concerts Are Canceled for Weather**\
-`The cancellations come after the Gillette Stadium owner pressured Mr. Sheeran to remove an act who made pro-Palestine statements.`\
-https://www.nytimes.com/2026/09/25/nyregion/ed-sheeran-concerts-canceled-storm.html
-
-**Saudi Arabia Open to Possibly Developing Nuclear Weapons**\
-`An intelligence assessment examined Saudi Arabia’s military ambitions as Congress reviews a new civilian nuclear deal between the U.S. and the kingdom.`\
-https://www.nytimes.com/2026/09/25/us/politics/saudi-arabia-nuclear-weapons.html
-
-**ICE Raids in Beef Country Raise Fears of Higher Prices**\
-`Cattle industry groups in Texas, Oklahoma and Kansas and two Republican senators said the Trump administration’s immigration enforcement actions were hurting operations.`\
-https://www.nytimes.com/2026/09/25/us/politics/ice-raids-kansas-texas-oklahoma-beef-prices.html
-
-**Four Beluga Whales Die Weeks After Major Rescue Mission**\
-`The belugas were among 30 whales transferred to aquariums in the United States and Spain from a closed marine attraction in Canada.`\
-https://www.nytimes.com/2026/09/25/us/marineland-beluga-whales-deaths.html
-
-**U.S. Rejects U.N. Declaration on Preparing for Future Pandemics**\
-`Most member nations spoke in support of the declaration, but some rich countries had strong objections.`\
-https://www.nytimes.com/2026/09/25/us/politics/us-rejects-un-declaration-on-preparing-for-pandemics.html
-
-**Supreme Court Once Again Blocks Republican-Backed Voting Map in Missouri**\
-`A federal appeals court had sided with Republicans seeking to use redrawn congressional district boundaries to give their party an advantage in the midterms elections.`\
-https://www.nytimes.com/2026/09/25/us/politics/supreme-court-missouri-congressional-map.html
-
-**When Waves From Hurricane Polo Could Reach Southern California’s Beaches**\
-`Here’s a timeline for when and where the far-off storm could affect the West Coast.`\
-https://www.nytimes.com/2026/09/25/weather/los-angeles-hurricane-polo-waves.html
-
-**Latest Midterm Polls Reveal Bright Spots for Republicans**\
-`There has been a turnaround in Maine, our new poll shows.`\
-https://www.nytimes.com/2026/09/25/us/politics/republicans-midterms-senate-polls.html
-
-**Supreme Court Allows Tool to Screen Voters**\
-`Also, the East Coast braces for a powerful storm. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/09/25/briefing/supreme-court-database-east-coast-storm.html
-
-**Sylvester Stallone on the Toll of Steroids and His Eating Disorder**\
-`Sylvester Stallone opened up about developing an eating disorder and taking steroids when he was younger. His appearance “became an obsession, really bad,” he said on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011166196/sylvester-stallone-on-the-toll-of-steroids-and-his-eating-disorder.html
-
-**Mississippi Hanging Was Staged After Drug Dispute, Investigators Say**\
-`The body of Tasia Fortune, a 29-year-old Black woman, was found hanging from a tree branch behind an abandoned property in Jackson, Miss., last month.`\
-https://www.nytimes.com/2026/09/25/us/mississippi-tasia-fortune-killing.html
-
-**FEMA Deploys Teams to Hawaii Ahead of Hurricane Nolo**\
-`Hurricane Nolo will be the most significant test of the disaster agency’s new leadership.`\
-https://www.nytimes.com/2026/09/25/weather/fema-hawaii-nolo.html
-
-**As Xi Leaves Washington, Divisions Still Simmer Beneath the Surface**\
-`President Trump welcomed Xi Jinping of China for a state visit that was heavy on pomp and ceremony. But surprisingly little time was spent on the issues that most divide the two superpowers.`\
-https://www.nytimes.com/2026/09/25/us/politics/trump-xi-state-visit.html
-
-**Trump and Xi Wrap Up Final Day of Washington Summit**\
-`President Trump and President Xi Jinping of China concluded a three-day summit in Washington on Friday with tea at the White House and a tour of the National Archives.`\
-https://www.nytimes.com/video/us/politics/100000011176141/trump-xi-final-day-summit.html
-
-**Jeff Probst on How ‘Survivor’ Captures Him, Warts and All**\
-`In his interview with “Popcast,” Jeff Probst, the “Survivor” host and showrunner, discusses navigating the good and the bad of being the face of the show — and why he never hides his mistakes.`\
-https://www.nytimes.com/video/podcasts/100000011166309/jeff-probst-on-how-survivor-captures-him-warts-and-all.html
-
-**Abdul El-Sayed on the Israeli-Palestinian Conflict**\
-`What should America’s Israel policy look like? On “The Ezra Klein Show,” Dr. Abdul El-Sayed, the Democratic Senate candidate for Michigan, argues that America needs to focus on facilitating a peace process for Israelis and Palestinians, rather than trying to dictate a specific outcome like the two-state solution.`\
-https://www.nytimes.com/video/opinion/100000011172027/abdul-el-sayed-on-the-israeli-palestinian-conflict.html
-
-**Donohue’s, an Old New York Saloon, Gets a New Operator**\
-`The beloved Upper East Side institution is gone. But the downtown restaurateur Jon Neidich says some retro details, and maybe the broiler, will survive.`\
-https://www.nytimes.com/2026/09/25/dining/donohues-steakhouse-manhattan-reopening.html
-
-**Abdul El-Sayed Responds to Right-Wing Vitriol**\
-`Dr. Abdul El-Sayed’s Senate campaign has been a target of Islamophobic right-wing attacks. On “The Ezra Klein Show,” he shares what he has made of these attacks, and how he hopes to refocus the conversation.`\
-https://www.nytimes.com/video/opinion/100000011172026/abdul-el-sayed-responds-to-right-wing-vitriol.html
-
-**Are the Current Laws Enough to Regulate A.I.?**\
-`On “The Ezra Klein Show,” Jensen Huang, the chief executive of Nvidia, thinks that the frontier A.I. companies don’t need new regulations or regulatory exemptions to slow down development.`\
-https://www.nytimes.com/video/opinion/100000011166609/are-the-current-laws-enough-to-regulate-ai.html
-
-**What Is Jeff Probst’s ‘Survivor’ Succession Plan?**\
-`Jeff Probst, the host and executive producer of “Survivor,” spoke to “Popcast” about his 26 years on the show and who could succeed him.`\
-https://www.nytimes.com/video/podcasts/100000011166303/what-is-jeff-probsts-survivor-succession-plan.html
-
-**Hurricane Nolo Moves Toward Hawaii, Bringing Threat of Dangerous Flooding**\
-`As much as 16 inches of rain could fall on parts of the Big Island this weekend. The storm is the third hurricane to approach the state in recent weeks.`\
-https://www.nytimes.com/live/2026/09/25/weather/hurricane-nolo-hawaii
-
-**6 People Are Missing After Explosion in Athens Tourist District**\
-`Four of the missing are believed to be tourists, possibly Americans. Local officials said the cause might have been a gas leak.`\
-https://www.nytimes.com/2026/09/25/world/europe/athens-tourists-explosion.html
-
-**Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
-`Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
-https://www.nytimes.com/live/2026/09/25/nyregion/noreaster-storm-nyc-weekend
 
