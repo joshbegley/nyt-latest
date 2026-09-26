@@ -1,3 +1,15 @@
+**Loris Messina and Simone Rizzo make their Moschino debut**\
+`Loris Messina and Simone Rizzo make their debut at Moschino.`\
+https://www.nytimes.com/2026/09/26/style/moschino-loris-messina-simone-rizzo-debut.html
+
+**At Gucci, Demna Offers Retail Therapy**\
+`Demna wrestles with the shopping problem.`\
+https://www.nytimes.com/2026/09/26/style/gucci-demna-store.html
+
+**He Ran a Top Lady Gaga Fan Page. Then He Vanished.**\
+`Kirill Nguyen, the founder of Gaga Daily, said he had been imprisoned in Belarus for participating in pro-democracy protests. He resurfaced this week after an absence of more than two years.`\
+https://www.nytimes.com/2026/09/26/world/europe/lady-gaga-daily-founder-belarus-prison.html
+
 **Brooklyn Democrats Were About to Lose Power. So They Changed the Rules.**\
 `The Brooklyn Democratic Party is in the middle of a fight over who will control the organization that has shocked even seasoned political observers.`\
 https://www.nytimes.com/2026/09/26/nyregion/brooklyn-democrats-rodneyse-bichotte.html

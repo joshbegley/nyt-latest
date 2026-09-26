@@ -1,3 +1,15 @@
+**Loris Messina and Simone Rizzo make their Moschino debut**\
+`Loris Messina and Simone Rizzo make their debut at Moschino.`\
+https://www.nytimes.com/2026/09/26/style/moschino-loris-messina-simone-rizzo-debut.html
+
+**At Gucci, Demna Offers Retail Therapy**\
+`Demna wrestles with the shopping problem.`\
+https://www.nytimes.com/2026/09/26/style/gucci-demna-store.html
+
+**He Ran a Top Lady Gaga Fan Page. Then He Vanished.**\
+`Kirill Nguyen, the founder of Gaga Daily, said he had been imprisoned in Belarus for participating in pro-democracy protests. He resurfaced this week after an absence of more than two years.`\
+https://www.nytimes.com/2026/09/26/world/europe/lady-gaga-daily-founder-belarus-prison.html
+
 **Brooklyn Democrats Were About to Lose Power. So They Changed the Rules.**\
 `The Brooklyn Democratic Party is in the middle of a fight over who will control the organization that has shocked even seasoned political observers.`\
 https://www.nytimes.com/2026/09/26/nyregion/brooklyn-democrats-rodneyse-bichotte.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/09/25/arts/music/kennedy-center-trump-renovations.h
 **How OpenAI’s Rogue A.I. Agents Tried to Trick a Robot Detector**\
 `A new report by a Bay Area start-up called Parse adds details to an incident that has shocked the A.I. world and led to calls for closer government regulation.`\
 https://www.nytimes.com/2026/09/25/technology/openai-hugging-face-hack.html
-
-**Carney Seeks New Trade Partners for Canada, But Knows the Limits**\
-`Canada’s prime minister is pursuing deeper trade, defense and cultural ties with China, India and the European Union, but none are likely to replace ties to the United States.`\
-https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html
-
-**U.N. Releases New List of Companies It Says Do Business With Israeli Settlements**\
-`Israel condemned the database of firms tied to activity in the occupied West Bank as a “political tool” to advance “a smear campaign.”`\
-https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html
-
-**Byron Sher, Early Environmental Warrior in California, Dies at 98**\
-`A congenial legislator with a professorial air, he won battles through charm, not pugilism, passing laws to protect drinking water, redwood forests and clean air.`\
-https://www.nytimes.com/2026/09/25/science/earth/byron-sher-dead.html
 
 **Nor’easter Updates: East Coast Braces as Powerful Storm Approaches**\
 `Rain, flooding and strong winds are in the forecast this weekend for much of the coastal Northeast, including New York, Long Island and Boston.`\
