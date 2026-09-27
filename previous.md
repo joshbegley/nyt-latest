@@ -1,3 +1,7 @@
+**A.I. Shortcuts Are Ruining How We Think**\
+`Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
+https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
+
 **Why Won’t My Co-Workers Acknowledge My Birthday?**\
 `Plus: What to do when your boss is nit-picking your work.`\
 https://www.nytimes.com/2026/09/27/business/workplace-.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
 **Why Does Trump Think He Can Act Like a King?**\
 `The Supreme Court has had a lot to do with it.`\
 https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
-
-**When the Weed Wars Came to Warren Street**\
-`New money and age-old injustice in an American river town.`\
-https://www.nytimes.com/interactive/2026/09/26/nyregion/hudson-weed-wars.html
 
 **Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\

@@ -1,3 +1,7 @@
+**A.I. Shortcuts Are Ruining How We Think**\
+`Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
+https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
+
 **The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
 `You can still buy a Singapore Sling in the colonial-era hotel where it’s said to have been invented more than a century ago. Custom versions have arisen nearby.`\
 https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
