@@ -1,3 +1,7 @@
+**UK Deploys Bomb Squad Near R.A.F. Fairford, Air Base Used by US**\
+`British police said they had arrested several men on suspicion of offenses under the Explosives Act and had evacuated local residents near the R.A.F. Fairford base.`\
+https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
+
 **Nor’easter Live Updates: Heavy Winds and Rain Cause Coastal Flooding in Northeast**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds
 **The Full 12 Rounds**\
 `Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
 https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
-
-**Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
-`High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
-https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
 
