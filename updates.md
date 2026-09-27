@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for September 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/27/crosswords/spelling-bee-forum.html
+
+**We’re Not in Texas Anymore. Line Dancing Takes New York by Storm.**\
+`It’s happening in bars, dance studios, even a roller rink. And you’re as likely to find the crowd clad in cutoff shorts and crop tops as boots and denim.`\
+https://www.nytimes.com/2026/09/27/nyregion/nyc-line-dancing.html
+
+**‘As I Straightened Up, I Noticed the Cyclist Coming Back’**\
+`A putback in Prospect Park, imagining the Manhattan day ahead and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/27/nyregion/metropolitan-diary.html
+
 **Maybe We Should Leave Birds Alone**\
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html

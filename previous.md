@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for September 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/27/crosswords/spelling-bee-forum.html
+
+**We’re Not in Texas Anymore. Line Dancing Takes New York by Storm.**\
+`It’s happening in bars, dance studios, even a roller rink. And you’re as likely to find the crowd clad in cutoff shorts and crop tops as boots and denim.`\
+https://www.nytimes.com/2026/09/27/nyregion/nyc-line-dancing.html
+
+**‘As I Straightened Up, I Noticed the Cyclist Coming Back’**\
+`A putback in Prospect Park, imagining the Manhattan day ahead and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/09/27/nyregion/metropolitan-diary.html
+
 **Maybe We Should Leave Birds Alone**\
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
@@ -174,15 +186,7 @@ https://www.nytimes.com/2026/09/26/crosswords/connections-companion-1204.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
 https://www.nytimes.com/2026/09/26/crosswords/wordle-review-1926.html
 
-**NYT Strands Hints for September 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
-https://www.nytimes.com/2026/09/26/crosswords/strands-sidekick-938.html
-
 **Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
 https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
-
-**Free Rein**\
-`Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
-https://www.nytimes.com/2026/09/26/briefing/free-rein.html
 
