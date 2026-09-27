@@ -1,3 +1,7 @@
+**Pennsylvania Measles Outbreak Grows to Nearly 900 Cases**\
+`State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
+https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
+
 **Woman Found Dead in Central Park**\
 `Investigators are questioning a man in the death. The woman, who appeared to be homeless, was stabbed multiple times, according to officials with knowledge of the matter.`\
 https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
@@ -34,13 +38,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/nyregion/nyc-line-dancing.html
 **‘As I Straightened Up, I Noticed the Cyclist Coming Back’**\
 `A putback in Prospect Park, imagining the Manhattan day ahead and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/09/27/nyregion/metropolitan-diary.html
-
-**Maybe We Should Leave Birds Alone**\
-`One of Britain’s favorite national pastimes is hurting as well as helping.`\
-https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
 
