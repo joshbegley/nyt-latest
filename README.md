@@ -1,3 +1,7 @@
+**Did Anthropic’s A.I. Really Make a Scientific Discovery on Its Own?**\
+`An expert at the University of Copenhagen said his team had been sharing its research with the company’s A.I. model, Claude, and that its new finding matched their work.`\
+https://www.nytimes.com/2026/09/27/science/anthropic-biology-enzyme-mestre.html
+
 **A Growing North Korea Problem**\
 `In an interview with The New York Times, South Korea’s president dropped a bold proposal for how to curb North Korea’s nuclear program.`\
 https://www.nytimes.com/2026/09/27/world/lee-jae-myung-north-korea-sanctions.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/books/review/man-in-the-mirror-anand-giridhar
 **Here’s Your New House. It Comes With Friends.**\
 `Fresh pies. Book groups. Puzzle challenges. Developers of master-planned communities see fear of social isolation and desire for friends as a business opportunity. Welcome to Amity Lane.`\
 https://www.nytimes.com/2026/09/27/business/heres-your-new-house-it-comes-with-friends.html
-
-**Victoria’s Secret Falls for a Nice Guy**\
-`Adam Selman is in charge of the lingerie giant’s image. Twenty-five million women’s bras are in his hands.`\
-https://www.nytimes.com/2026/09/27/style/adam-selman-victorias-secret-lingere.html
 
