@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons
 `As a group of players from an all-women’s baseball league in the 1940s and ’50s gathered at a recent reunion, the future of women’s baseball looks bright again.`\
 https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
 
-**The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
-`You can still buy a Singapore Sling in the colonial-era hotel where it’s said to have been invented more than a century ago. Custom versions have arisen nearby.`\
-https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
-
