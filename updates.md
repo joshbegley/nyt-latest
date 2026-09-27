@@ -1,3 +1,31 @@
+**Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
+`Quotation of the Day for Sunday, September 27, 2026.`\
+https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
+
+**The Surprising Reasons China Is Skeptical of A.I. Safety Calls**\
+`In China, A.I. doomsday warnings can feel distinctly Western or like a ploy to stop Chinese A.I. companies from trying to overtake their U.S. rivals.`\
+https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
+
+**Corrections: Sept. 27, 2026**\
+`Corrections that appeared in print on Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/27/pageoneplus/corrections-sept-27-2026.html
+
+**Recreational Aerial Craft Become Weapons in Myanmar’s War**\
+`Years after a coup, the military is increasingly using motorized paragliders and gyrocopters to bomb towns and villages in rebel-held territory.`\
+https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons.html
+
+**Women Sluggers Are No Longer in a League of Their Own**\
+`As a group of players from an all-women’s baseball league in the 1940s and ’50s gathered at a recent reunion, the future of women’s baseball looks bright again.`\
+https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
+
+**The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
+`The Singapore Sling was said to have been invented more than a century ago in a colonial-era hotel, where it now goes for about $40 a pop.`\
+https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
+
+**On This Day | Sept. 27**\
+`In 1964, the Warren Commission issued a report concluding that Lee Harvey Oswald had acted alone in assassinating President John F. Kennedy.`\
+https://www.nytimes.com/2026/09/27/learning/on-this-day-sept-27.html
+
 **Trump Promotes Criticism of Republican Who Broke With Him on Immigration**\
 `The president amplified negative social media comments about Representative María Elvira Salazar of Florida, a move that drew a rebuke from at least one Republican.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-criticism.html
