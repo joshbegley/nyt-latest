@@ -1,3 +1,7 @@
+**Giant Pandas, Icons of China’s Soft Diplomacy, Arrive in Atlanta**\
+`A male named Ping Ping and a female named Fu Shuang landed on Sunday, days after China’s leader said he would dispatch “envoys of friendship” to the United States.`\
+https://www.nytimes.com/2026/09/27/us/panda-zoo-atlanta-china-xi.html
+
 **Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
 `As their midterm picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
 https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html

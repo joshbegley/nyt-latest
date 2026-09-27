@@ -1,3 +1,7 @@
+**Giant Pandas, Icons of China’s Soft Diplomacy, Arrive in Atlanta**\
+`A male named Ping Ping and a female named Fu Shuang landed on Sunday, days after China’s leader said he would dispatch “envoys of friendship” to the United States.`\
+https://www.nytimes.com/2026/09/27/us/panda-zoo-atlanta-china-xi.html
+
 **Yotam Ottolenghi’s Spiced Pea Stew With Yogurt**\
 `And more cozy, autumnal recipes for shifting into soup mode.`\
 https://www.nytimes.com/2026/09/27/dining/yotam-ottolenghis-spiced-pea-stew-with-yogurt.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/pageoneplus/corrections-sept-27-2026.html
 **Recreational Aerial Craft Become Weapons in Myanmar’s War**\
 `Years after a coup, the military is increasingly using motorized paragliders and gyrocopters to bomb towns and villages in rebel-held territory.`\
 https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons.html
-
-**Women Sluggers Are No Longer in a League of Their Own**\
-`As a group of players from an all-women’s baseball league in the 1940s and ’50s gathered at a recent reunion, the future of women’s baseball looks bright again.`\
-https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
 
