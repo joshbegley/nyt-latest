@@ -1,3 +1,7 @@
+**Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
+`The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
+https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
+
 **To Feed or Not to Feed the Birds?**\
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
