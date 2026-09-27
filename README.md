@@ -1,3 +1,27 @@
+**The Best TV Shows of the 21st Century**\
+`More than 500 TV insiders submitted their ballots. Let the debate begin.`\
+https://www.nytimes.com/2026/09/27/podcasts/the-daily/the-best-tv-shows-of-the-21st-century.html
+
+**Donald Trump, Mean Girl**\
+`Our government is being run by a clique of middle-aged guys.`\
+https://www.nytimes.com/2026/09/27/opinion/donald-trump-administration-mean-girls.html
+
+**NYT Connections Answers for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/connections-companion-1205.html
+
+**Today’s Wordle Hints for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
+
+**The Super El Niño Comes Bearing One Gift: Time to Prepare**\
+`There’s still time to prepare.`\
+https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
+
+**NYT Strands Hints for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/strands-sidekick-939.html
+
 **A.I. Shortcuts Are Ruining How We Think**\
 `Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
 https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
@@ -169,26 +193,6 @@ https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
 **Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
 `High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
 https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
-
-**Pete Byrne, Synth Pop Singer Behind ‘Always Something There,’ Dies at 74**\
-`As the voice of Naked Eyes, he became a familiar presence on MTV in the 1980s, when the band’s hits helped define the era.`\
-https://www.nytimes.com/2026/09/26/arts/music/pete-byrne-dead.html
-
-**On World Stage, Mamdani Tries to Play Diplomat**\
-`In a whirlwind week, Mayor Zohran Mamdani hosted President Trump, sat with many of the world’s mayors and led heads of state around New York City.`\
-https://www.nytimes.com/2026/09/26/nyregion/mamdani-netanyahu-united-nations.html
-
-**How El Niño Is Shaping Storms on Two Sides of the U.S.**\
-`Hurricanes near Hawaii. A nor’easter on the East Coast. The ocean phenomenon’s influence on storms around the country may just be getting started.`\
-https://www.nytimes.com/2026/09/26/climate/el-nino-hurricane-noreaster.html
-
-**Trump Rejects Iran’s Cease-Fire Proposal to Reopen Strait of Hormuz**\
-`The president said the deal was not “acceptable” and demurred on whether he would restart military strikes after the midterm elections.`\
-https://www.nytimes.com/2026/09/26/us/politics/trump-iran-hormuz-strait.html
-
-**Why Does Trump Think He Can Act Like a King?**\
-`The Supreme Court has had a lot to do with it.`\
-https://www.nytimes.com/2026/09/26/opinion/trump-voting-mail-supreme-court.html
 
 **Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
