@@ -1,3 +1,7 @@
+**Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
+`President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the U.S. ambassador to China. Trump is withholding a $14 billion arms package to Taiwan.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
+
 **Trump’s 2024 Campaign Ad Returns, With Taxpayers Paying For It**\
 `An ad nearly identical to one President Trump ran during his 2024 campaign returned on Saturday, paid for using public money. Several ethics lawyers it may violate federal law.`\
 https://www.nytimes.com/video/us/politics/100000011178196/trumps-2024-campaign-ad-taxpayers.html

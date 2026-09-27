@@ -1,3 +1,7 @@
+**Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
+`President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the U.S. ambassador to China. Trump is withholding a $14 billion arms package to Taiwan.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
+
 **Trump’s 2024 Campaign Ad Returns, With Taxpayers Paying For It**\
 `An ad nearly identical to one President Trump ran during his 2024 campaign returned on Saturday, paid for using public money. Several ethics lawyers it may violate federal law.`\
 https://www.nytimes.com/video/us/politics/100000011178196/trumps-2024-campaign-ad-taxpayers.html
@@ -90,13 +94,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/movies/kyle-maclachlan-memoir-david-lynch-twi
 **How BrooklynVegan Went From Indie Rock Blog to Ghost Site**\
 `It started as an internet outpost for die-hard music fans. Then came success. Then came corporate ownership.`\
 https://www.nytimes.com/2026/09/27/style/brooklyn-vegan-indie-rock-website-corporate-ownership.html
-
-**Washington Taxed Its Millionaires. Now the Rich Want It Repealed.**\
-`Washington State voters will get a chance to accept or reject the 9.9 percent income tax on millionaires approved by the Legislature, which broke the state’s taboo against levying income taxes.`\
-https://www.nytimes.com/2026/09/27/us/politics/washington-state-millionaires-tax.html
 
