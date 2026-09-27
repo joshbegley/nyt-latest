@@ -1,3 +1,7 @@
+**The Mean Girls Presidency**\
+`Our government is being run by a clique of middle-aged guys.`\
+https://www.nytimes.com/2026/09/27/opinion/donald-trump-administration-mean-girls.html
+
 **Saturday Night, No Mask Required, at the Last Ditch Lesbian Bar in Massachusetts**\
 `Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
 https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html

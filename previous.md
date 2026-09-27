@@ -22,7 +22,7 @@ https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
 `More than 500 TV insiders submitted their ballots. Let the debate begin.`\
 https://www.nytimes.com/2026/09/27/podcasts/the-daily/the-best-tv-shows-of-the-21st-century.html
 
-**Donald Trump, Mean Girl**\
+**The Mean Girls Presidency**\
 `Our government is being run by a clique of middle-aged guys.`\
 https://www.nytimes.com/2026/09/27/opinion/donald-trump-administration-mean-girls.html
 
