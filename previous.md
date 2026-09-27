@@ -2,7 +2,7 @@
 `‘This swell is like Christmas morning,’ said a surfer looking to catch the perfect wave.`\
 https://www.nytimes.com/2026/09/27/nyregion/noreaster-surfing-northeast-waves.html
 
-**Standoff in a Northern Irish Town Over Contentious Sectarian March**\
+**Standoff Rocks a Northern Irish Town Over Contentious Sectarian March**\
 `A court ruled that a parade by a Protestant group could pass through a largely Catholic area for the first time in three decades. Protesters blocked the route.`\
 https://www.nytimes.com/2026/09/27/world/europe/northern-ireland-protestant-parade-catholic.html
 
@@ -50,13 +50,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
