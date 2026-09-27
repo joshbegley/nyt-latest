@@ -14,13 +14,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-premiere-buckets-o
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Seeks U.S. Clarification After Trump Rejects Cease-Fire Proposal**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rebuff might not be a final position.`\
