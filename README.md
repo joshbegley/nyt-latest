@@ -1,4 +1,4 @@
-**A Trump 2024 Campaign Ad Returns, Now Brought to You by The Government**\
+**A Trump 2024 Campaign Ad Returns, Now Brought to You by the Government**\
 `The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
 
@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
 `State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
 https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
 
-**Woman Found Dead in Central Park**\
-`Investigators are questioning a man in the death. The woman, who appeared to be homeless, was stabbed multiple times, according to officials with knowledge of the matter.`\
+**Woman Who Had Been Stabbed Found Dead in Central Park**\
+`Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
 https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
 
 **Nor’easter Continues to Batter Its Way Up the Northeast**\

@@ -1,3 +1,7 @@
+**A Trump 2024 Campaign Ad Returns, Now Brought to You by The Government**\
+`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
+
 **Pennsylvania Measles Outbreak Grows to Nearly 900 Cases**\
 `State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
 https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
