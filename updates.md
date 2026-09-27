@@ -1,3 +1,7 @@
+**‘S.N.L.’ Season Premiere: Buckets of Rain, With Jalen Brunson Reigning**\
+`Brunson, captain of the N.B.A. champion New York Knicks, hosted a “Saturday Night Live” show that satirized President Trump’s recent visit to Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/27/arts/television/snl-season-premiere-buckets-of-rain-with-jalen-brunson-reigning.html
+
 **‘You Could Serve Cardboard With This Sauce and It Would Be Good’**\
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html

@@ -166,13 +166,13 @@ https://www.nytimes.com/2026/09/27/nyregion/metropolitan-diary.html
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
 
-**Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
-`Quotation of the Day for Sunday, September 27, 2026.`\
-https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
-
 **The Surprising Reasons China Is Skeptical of A.I. Safety Calls**\
 `In China, A.I. doomsday warnings can feel distinctly Western or like a ploy to stop Chinese A.I. companies from trying to overtake their U.S. rivals.`\
 https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
+
+**Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
+`Quotation of the Day for Sunday, September 27, 2026.`\
+https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
 
 **Corrections: Sept. 27, 2026**\
 `Corrections that appeared in print on Sunday, Sept. 27, 2026.`\
