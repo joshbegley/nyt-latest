@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
 `State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
 https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
 
-**Woman Who Had Been Stabbed Found Dead in Central Park**\
+**Woman Who Had Been Stabbed Is Found Dead in Central Park**\
 `Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
 https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
 
@@ -78,13 +78,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
 **The State of Organ Donation**\
 `Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
 https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\

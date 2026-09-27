@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Sept. 28, 2026**\
+`Helen Chen’s crossword is in a league of its own.`\
+https://www.nytimes.com/2026/09/27/crosswords/daily-puzzle-2026-09-28.html
+
+**The Mighty Sparrow, Trinidadian Titan of Calypso, Is Dead at 91**\
+`He was sometimes described as the last of the true calypso singers. But in fact he simultaneously preserved calypso tradition and invented it anew.`\
+https://www.nytimes.com/2026/09/27/arts/music/the-mighty-sparrow-dead.html
+
 **Dario Amodei of Anthropic to Dine With Trump at White House**\
 `Dario Amodei, who is also the company’s chief executive, will join the president at the White House for a private dinner. Mr. Trump has dismissed his cautions.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-amodei-anthropic-artificial-intelligence.html
@@ -78,13 +86,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/27/us/politics/washington-state-millionaires-tax
 **Fact-Checking Vance’s Anti-Fraud Task Force**\
 `Vice President JD Vance claimed that the White House anti-fraud task force found $250 billion of fraud. Our reporter Linda Qiu explains why that claim is exaggerated.`\
 https://www.nytimes.com/video/us/politics/100000011156925/fact-checking-vances-anti-fraud-task-force.html
-
-**Book Review: ‘May We Feed the King,’ by Rebecca Perry**\
-`In Rebecca Perry’s “May We Feed the King,” a curator falls down a rabbit hole imagining life in a palace court.`\
-https://www.nytimes.com/2026/09/27/books/review/may-we-feed-the-king-rebecca-perry.html
-
-**Dazzling New Historical Fiction Books**\
-`Our columnist on four excellent recent novels.`\
-https://www.nytimes.com/2026/09/27/books/review/new-historical-fiction.html
 

@@ -1,3 +1,7 @@
+**Woman Who Had Been Stabbed Is Found Dead in Central Park**\
+`Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
+https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
+
 **Dario Amodei of Anthropic to Dine With Trump at White House**\
 `Dario Amodei, who is also the company’s chief executive, will join the president at the White House for a private dinner. Mr. Trump has dismissed his cautions.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-amodei-anthropic-artificial-intelligence.html
