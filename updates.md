@@ -1,3 +1,7 @@
+**Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
+`Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
+https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-of-hormuz.html
+
 **Giant Pandas, Icons of China’s Soft Diplomacy, Arrive in Atlanta**\
 `A male named Ping Ping and a female named Fu Shuang landed on Sunday, days after China’s leader said he would dispatch “envoys of friendship” to the United States.`\
 https://www.nytimes.com/2026/09/27/us/panda-zoo-atlanta-china-xi.html
