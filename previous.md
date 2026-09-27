@@ -1,3 +1,7 @@
+**Nor’easter Continues to Batter Its Way Up the Northeast**\
+`Heavy winds from the storm brought down utility lines and trees across the region. A 56-year-old Brooklyn man walking near a playground was killed by a falling tree, city officials said.`\
+https://www.nytimes.com/video/weather/100000011178174/noreaster-weather-storm-surge-floods.html
+
 **Dee Brock, Who Created the Dallas Cowboys Cheerleaders, Dies at 96**\
 `As the first director of the troupe, she helped transform it from a high school squad into a global phenomenon.`\
 https://www.nytimes.com/2026/09/27/us/dee-brock-dead.html
@@ -26,13 +30,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
 **The Surprising Reasons China Is Skeptical of A.I. Safety Calls**\
 `In China, A.I. doomsday warnings can feel distinctly Western or like a ploy to stop Chinese A.I. companies from trying to overtake their U.S. rivals.`\
 https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
-
-**Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
-`Quotation of the Day for Sunday, September 27, 2026.`\
-https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
 

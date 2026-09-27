@@ -1,3 +1,7 @@
+**Nor’easter Continues to Batter Its Way Up the Northeast**\
+`Heavy winds from the storm brought down utility lines and trees across the region. A 56-year-old Brooklyn man walking near a playground was killed by a falling tree, city officials said.`\
+https://www.nytimes.com/video/weather/100000011178174/noreaster-weather-storm-surge-floods.html
+
 **Dee Brock, Who Created the Dallas Cowboys Cheerleaders, Dies at 96**\
 `As the first director of the troupe, she helped transform it from a high school squad into a global phenomenon.`\
 https://www.nytimes.com/2026/09/27/us/dee-brock-dead.html
