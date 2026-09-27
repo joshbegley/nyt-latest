@@ -1,3 +1,7 @@
+**In Milan, Dolce & Gabbana, Bottega Veneta and Jil Sander**\
+`In an age of A.I., designers at Dolce & Gabbana, Bottega Veneta and Jil Sander ponder the question.`\
+https://www.nytimes.com/2026/09/27/style/dolce-gabbana-fendi-bottega-veneta-mfw.html
+
 **NYT Spelling Bee Answers for September 27, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/09/27/crosswords/spelling-bee-forum.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/09/26/world/canada/carney-interview-canada-us-trump
 **NYT Connections Answers for September 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
 https://www.nytimes.com/2026/09/26/crosswords/connections-companion-1204.html
-
-**Today’s Wordle Hints for September 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 27, 2026.`\
-https://www.nytimes.com/2026/09/26/crosswords/wordle-review-1926.html
 
 **Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
 `The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\

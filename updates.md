@@ -1,3 +1,7 @@
+**In Milan, Dolce & Gabbana, Bottega Veneta and Jil Sander**\
+`In an age of A.I., designers at Dolce & Gabbana, Bottega Veneta and Jil Sander ponder the question.`\
+https://www.nytimes.com/2026/09/27/style/dolce-gabbana-fendi-bottega-veneta-mfw.html
+
 **NYT Spelling Bee Answers for September 27, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/09/27/crosswords/spelling-bee-forum.html
