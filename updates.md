@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Sept. 28, 2026**\
+`Helen Chen’s crossword is in a league of its own.`\
+https://www.nytimes.com/2026/09/27/crosswords/daily-puzzle-2026-09-28.html
+
+**The Mighty Sparrow, Trinidadian Titan of Calypso, Is Dead at 91**\
+`He was sometimes described as the last of the true calypso singers. But in fact he simultaneously preserved calypso tradition and invented it anew.`\
+https://www.nytimes.com/2026/09/27/arts/music/the-mighty-sparrow-dead.html
+
 **Woman Who Had Been Stabbed Is Found Dead in Central Park**\
 `Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
 https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
