@@ -1,3 +1,7 @@
+**Trump Promotes Criticism of Republican Who Broke With Him on Immigration**\
+`The president amplified negative social media comments about Representative María Elvira Salazar of Florida, a move that drew a rebuke from at least one Republican.`\
+https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-criticism.html
+
 **Likely Piece of 1884 Shipwreck Washes Ashore in Nantucket During Nor’easter**\
 `Powerful waves spat out a chunk of the wooden boat, one of hundreds that had wrecked around the island in the 19th century.`\
 https://www.nytimes.com/2026/09/26/nyregion/shipwreck-nantucket-noreaster.html
