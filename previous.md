@@ -1,3 +1,7 @@
+**A Growing North Korea Problem**\
+`In an interview with The New York Times, South Korea’s president dropped a bold proposal for how to curb North Korea’s nuclear program.`\
+https://www.nytimes.com/2026/09/27/world/lee-jae-myung-north-korea-sanctions.html
+
 **Five Men Arrested on Suspicion of Terrorism Near U.K. Military Base**\
 `The U.K. police arrested five men near a military base on Sunday on suspicion of preparing acts of terrorism. The R.A.F. Fairford base is used primarily by the U.S. Air Force to deploy some of its largest bombers.`\
 https://www.nytimes.com/video/world/europe/100000011178306/raf-fairford-airbase-arrests.html
@@ -62,13 +66,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -90,8 +94,8 @@ https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 `The British counterterrorism police say the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
-**Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Flooding Threat Continues**\
-`Rising waters inundated communities up and down the East Coast, and emergency crews worked to restore power knocked out by lashing winds. The gradually weakening storm remains a threat through Monday, forecasters said.`\
+**Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
+`Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
 https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
 
 **The Best TV Shows of the 21st Century**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/business/heres-your-new-house-it-comes-with-f
 **Victoria’s Secret Falls for a Nice Guy**\
 `Adam Selman is in charge of the lingerie giant’s image. Twenty-five million women’s bras are in his hands.`\
 https://www.nytimes.com/2026/09/27/style/adam-selman-victorias-secret-lingere.html
-
-**Book Review: ‘Darkness Becomes Bright,’ by Emily Ogden**\
-`An engaging new book shows the master of American Gothic to be a deeply disturbed man who embraced the darkness most of us flee.`\
-https://www.nytimes.com/2026/09/27/books/review/darkness-becomes-bright-emily-ogden.html
 

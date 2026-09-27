@@ -1,3 +1,11 @@
+**A Growing North Korea Problem**\
+`In an interview with The New York Times, South Korea’s president dropped a bold proposal for how to curb North Korea’s nuclear program.`\
+https://www.nytimes.com/2026/09/27/world/lee-jae-myung-north-korea-sanctions.html
+
+**Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
+`Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
+https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
+
 **Five Men Arrested on Suspicion of Terrorism Near U.K. Military Base**\
 `The U.K. police arrested five men near a military base on Sunday on suspicion of preparing acts of terrorism. The R.A.F. Fairford base is used primarily by the U.S. Air Force to deploy some of its largest bombers.`\
 https://www.nytimes.com/video/world/europe/100000011178306/raf-fairford-airbase-arrests.html
