@@ -1,3 +1,7 @@
+**Morris Ballen, Who Helped Spread Indie Artists’ Music, Dies at 88**\
+`Countless independent acts in every genre — punk, hip-hop, church choir — relied on him to create small runs of high-quality records and CDs.`\
+https://www.nytimes.com/2026/09/27/obituaries/morris-ballen-dead.html
+
 **Giant Pandas, Icons of China’s Soft Diplomacy, Arrive in Atlanta**\
 `A male named Ping Ping and a female named Fu Shuang landed on Sunday, days after China’s leader said he would dispatch “envoys of friendship” to the United States.`\
 https://www.nytimes.com/2026/09/27/us/panda-zoo-atlanta-china-xi.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tave
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 
-**5 Men Arrested on Suspicion of Terrorism Offenses Near RAF Fairford, Air Base Used by U.S.**\
+**5 Men Arrested on Suspicion of Terrorism Near RAF Fairford, Air Base Used by U.S. in Iran War**\
 `British counterterrorism police said the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/09/27/business/members-of-technical-staff-artificia
 `The actor still hasn’t come to grips with the loss of David Lynch. He talks about that, his hesitation about taking a role in “Sex and the City” and his new memoir.`\
 https://www.nytimes.com/2026/09/27/movies/kyle-maclachlan-memoir-david-lynch-twin-peaks-sex-and-the-city.html
 
-**BrooklynVegan Went From Indie Rock Blog to Ghost Site**\
+**How BrooklynVegan Went From Indie Rock Blog to Ghost Site**\
 `It started as an internet outpost for die-hard music fans. Then came success. Then came corporate ownership.`\
 https://www.nytimes.com/2026/09/27/style/brooklyn-vegan-indie-rock-website-corporate-ownership.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are
 **Corrections: Sept. 27, 2026**\
 `Corrections that appeared in print on Sunday, Sept. 27, 2026.`\
 https://www.nytimes.com/2026/09/27/pageoneplus/corrections-sept-27-2026.html
-
-**Recreational Aerial Craft Become Weapons in Myanmar’s War**\
-`Years after a coup, the military is increasingly using motorized paragliders and gyrocopters to bomb towns and villages in rebel-held territory.`\
-https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons.html
 
