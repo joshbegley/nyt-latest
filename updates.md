@@ -1,3 +1,7 @@
+**Saturday Night, No Mask Required, at the Last Ditch Lesbian Bar in Massachusetts**\
+`Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
+https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
+
 **27 killed in mass shootings in South Africa overnight**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html

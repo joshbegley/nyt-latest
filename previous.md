@@ -1,3 +1,7 @@
+**Saturday Night, No Mask Required, at the Last Ditch Lesbian Bar in Massachusetts**\
+`Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
+https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
+
 **27 killed in mass shootings in South Africa overnight**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.
 **Storm-tested New Jersey Braves Nor’easter With Waist-High Floods**\
 `The storm flooded homes and businesses, caused power outages and forced people to evacuate amid heavy winds and rain.`\
 https://www.nytimes.com/2026/09/26/nyregion/new-jersey-noreaster-floods.html
-
-**Trump Administration Plans to Gut Clean Car Rules**\
-`New fuel-economy standards, which President Trump said he finalized Saturday, would kill a federal effort to speed the transition to electric vehicles.`\
-https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
 
