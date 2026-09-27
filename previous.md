@@ -1,3 +1,7 @@
+**Russian Foreign Minister Vows Russia Will See Ukraine War Through**\
+`Russia’s foreign minister met with his German counterpart during the U.N. General Assembly but spent part of his address defending his country’s war on Ukraine.`\
+https://www.nytimes.com/2026/09/26/world/europe/russia-germany-lavrov-ukraine-war.html
+
 **Woman Fatally Shot by Police in Times Square: ‘I’m Tired of This World’**\
 `Body camera footage released by the N.Y.P.D. shows officers trying to reason with Pamela Cisneros, who was armed with two knives.`\
 https://www.nytimes.com/2026/09/26/nyregion/times-square-stabbing-police-body-cam.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/podcasts/100000011166197/it-really-hurt-me-sylvest
 **Sylvester Stallone on Arnold Schwarzenegger: ‘We Almost Came to Blows’**\
 `“He was a thorn in my side.” Sylvester Stallone talked about his former nemesis Arnold Schwarzenegger on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011166186/sylvester-stallone-on-arnold-schwarzenegger-we-almost-came-to-blows.html
-
-**Lola Petticrew Has Taken on the Troubles, Twice**\
-`Before playing a mesmerizing serial killer in “Furious,” the Belfast performer starred in two series set during the bloody conflict in Northern Ireland.`\
-https://www.nytimes.com/2026/09/26/arts/television/lola-petticrew-furious-say-nothing-trespasses.html
 
