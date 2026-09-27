@@ -1,3 +1,7 @@
+**Pennsylvania Measles Outbreak Grows to Nearly 900 Cases**\
+`State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
+https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
+
 **The Super El Niño Is About to Unleash Weather Chaos. Get Ready Now.**\
 `There’s still time to prepare.`\
 https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
