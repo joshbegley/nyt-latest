@@ -1,3 +1,15 @@
+**Five Men Arrested on Suspicion of Terrorism Near U.K. Military Base**\
+`The U.K. police arrested five men near a military base on Sunday on suspicion of preparing acts of terrorism. The R.A.F. Fairford base is used primarily by the U.S. Air Force to deploy some of its largest bombers.`\
+https://www.nytimes.com/video/world/europe/100000011178306/raf-fairford-airbase-arrests.html
+
+**A Transcript From The Times Interview with Prime Minister Mark Carney of Canada**\
+`New York Times journalists pressed the Canadian prime minister about a range of topics in an hourlong interview last week. Here’s a transcript of their conversation.`\
+https://www.nytimes.com/2026/09/27/world/canada/mark-carney-interview-transcript.html
+
+**Neil Patrick Harris to Star in ‘Damn Yankees’ Revival on Broadway**\
+`The Tony- and Emmy-winning actor will portray the Devil in a new production of the 1955 musical, performing alongside Julianne Hough and Austin Scott.`\
+https://www.nytimes.com/2026/09/27/theater/damn-yankees-broadway-neil-patrick-harris.html
+
 **For East Coast Surfers, the Nor’easter Is a Warm Weather Gift**\
 `‘This swell is like Christmas morning,’ said a surfer looking to catch the perfect wave.`\
 https://www.nytimes.com/2026/09/27/nyregion/noreaster-surfing-northeast-waves.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/27/style/adam-selman-victorias-secret-lingere.ht
 **Book Review: ‘Darkness Becomes Bright,’ by Emily Ogden**\
 `An engaging new book shows the master of American Gothic to be a deeply disturbed man who embraced the darkness most of us flee.`\
 https://www.nytimes.com/2026/09/27/books/review/darkness-becomes-bright-emily-ogden.html
-
-**Christy Carlson Romano Opens Up About Child Stardom in Her New Memoir**\
-`With her new memoir, Christy Carlson Romano joins the ranks of industry survivors getting honest about their early years on sets.`\
-https://www.nytimes.com/2026/09/27/style/christy-carlson-romano-memoir-disney.html
-
-**The Daredevil Aviator on Page 1**\
-`In 1910, there was no greater journalistic mission than following a plane with a train.`\
-https://www.nytimes.com/2026/09/27/nyregion/glenn-curtiss-plane.html
-
-**In Milan, Dolce & Gabbana, Bottega Veneta and Jil Sander**\
-`In an age of A.I., designers at Dolce & Gabbana, Bottega Veneta and Jil Sander ponder the question.`\
-https://www.nytimes.com/2026/09/27/style/dolce-gabbana-fendi-bottega-veneta-mfw.html
 

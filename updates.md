@@ -1,3 +1,15 @@
+**Five Men Arrested on Suspicion of Terrorism Near U.K. Military Base**\
+`The U.K. police arrested five men near a military base on Sunday on suspicion of preparing acts of terrorism. The R.A.F. Fairford base is used primarily by the U.S. Air Force to deploy some of its largest bombers.`\
+https://www.nytimes.com/video/world/europe/100000011178306/raf-fairford-airbase-arrests.html
+
+**A Transcript From The Times Interview with Prime Minister Mark Carney of Canada**\
+`New York Times journalists pressed the Canadian prime minister about a range of topics in an hourlong interview last week. Here’s a transcript of their conversation.`\
+https://www.nytimes.com/2026/09/27/world/canada/mark-carney-interview-transcript.html
+
+**Neil Patrick Harris to Star in ‘Damn Yankees’ Revival on Broadway**\
+`The Tony- and Emmy-winning actor will portray the Devil in a new production of the 1955 musical, performing alongside Julianne Hough and Austin Scott.`\
+https://www.nytimes.com/2026/09/27/theater/damn-yankees-broadway-neil-patrick-harris.html
+
 **Standoff Rocks a Northern Irish Town Over Contentious Sectarian March**\
 `A court ruled that a parade by a Protestant group could pass through a largely Catholic area for the first time in three decades. Protesters blocked the route.`\
 https://www.nytimes.com/2026/09/27/world/europe/northern-ireland-protestant-parade-catholic.html
