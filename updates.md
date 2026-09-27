@@ -1,3 +1,11 @@
+**At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
+`These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
+https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
+
+**Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
+`As their November picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
+https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
+
 **5 Men Arrested on Suspicion of Terrorism Offenses Near RAF Fairford, Air Base Used by U.S.**\
 `British counterterrorism police said the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html

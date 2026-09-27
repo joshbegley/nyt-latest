@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-
 `Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
 https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
 
-**27 killed in mass shootings in South Africa overnight**\
+**At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
 
@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/09/27/business/workplace-.html
 `Ms. Peltola, the Democratic Senate candidate in Alaska, has complicated politics: She is pro-gun, pro-oil and pro-gas — but also pro-environment and especially pro-fish.`\
 https://www.nytimes.com/2026/09/27/us/politics/mary-peltola-alaska-senate.html
 
-**A ‘Big Problem’: Trump’s War With Iran Drags Down Republicans in Midterms**\
+**Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
 `As their November picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
 https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
 
