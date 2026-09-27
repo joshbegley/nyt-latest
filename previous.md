@@ -1,9 +1,13 @@
+**For East Coast Surfers, the Nor’easter Is a Warm Weather Gift**\
+`‘This swell is like Christmas morning,’ said a surfer looking to catch the perfect wave.`\
+https://www.nytimes.com/2026/09/27/nyregion/noreaster-surfing-northeast-waves.html
+
 **Standoff in a Northern Irish Town Over Contentious Sectarian March**\
 `A court ruled that a parade by a Protestant group could pass through a largely Catholic area for the first time in three decades. Protesters blocked the route.`\
 https://www.nytimes.com/2026/09/27/world/europe/northern-ireland-protestant-parade-catholic.html
 
 **A Trump 2024 Campaign Ad Returns, Now Brought to You by the Government**\
-`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
+`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel the warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
 
 **Pennsylvania Measles Outbreak Grows to Nearly 900 Cases**\
@@ -46,13 +50,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
 **The State of Organ Donation**\
 `Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
 https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/nyregion/glenn-curtiss-plane.html
 **In Milan, Dolce & Gabbana, Bottega Veneta and Jil Sander**\
 `In an age of A.I., designers at Dolce & Gabbana, Bottega Veneta and Jil Sander ponder the question.`\
 https://www.nytimes.com/2026/09/27/style/dolce-gabbana-fendi-bottega-veneta-mfw.html
-
-**NYT Spelling Bee Answers for September 27, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/27/crosswords/spelling-bee-forum.html
 

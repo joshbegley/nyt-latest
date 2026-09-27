@@ -1,3 +1,11 @@
+**For East Coast Surfers, the Nor’easter Is a Warm Weather Gift**\
+`‘This swell is like Christmas morning,’ said a surfer looking to catch the perfect wave.`\
+https://www.nytimes.com/2026/09/27/nyregion/noreaster-surfing-northeast-waves.html
+
+**A Trump 2024 Campaign Ad Returns, Now Brought to You by the Government**\
+`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel the warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
+
 **Standoff in a Northern Irish Town Over Contentious Sectarian March**\
 `A court ruled that a parade by a Protestant group could pass through a largely Catholic area for the first time in three decades. Protesters blocked the route.`\
 https://www.nytimes.com/2026/09/27/world/europe/northern-ireland-protestant-parade-catholic.html
