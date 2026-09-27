@@ -1,3 +1,7 @@
+**Likely Piece of 1884 Shipwreck Washes Ashore in Nantucket During Nor’easter**\
+`Powerful waves spat out a chunk of the wooden boat, one of hundreds that had wrecked around the island in the 19th century.`\
+https://www.nytimes.com/2026/09/26/nyregion/shipwreck-nantucket-noreaster.html
+
 **Russian Foreign Minister Vows Russia Will See Ukraine War Through**\
 `Russia’s foreign minister met with his German counterpart during the U.N. General Assembly but spent part of his address defending his country’s war on Ukraine.`\
 https://www.nytimes.com/2026/09/26/world/europe/russia-germany-lavrov-ukraine-war.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/podcasts/100000011166200/it-was-insane-sylvester-s
 **‘It Really Hurt Me’: Sylvester Stallone on His Mother Not Attending the Oscars**\
 `In 1977, Sylvester Stallone was nominated for two Academy Awards for “Rocky,” but his mother chose not to attend the ceremony. He talked about that experience on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011166197/it-really-hurt-me-sylvester-stallone-on-his-mother-not-attending-the-oscars.html
-
-**Sylvester Stallone on Arnold Schwarzenegger: ‘We Almost Came to Blows’**\
-`“He was a thorn in my side.” Sylvester Stallone talked about his former nemesis Arnold Schwarzenegger on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011166186/sylvester-stallone-on-arnold-schwarzenegger-we-almost-came-to-blows.html
 
