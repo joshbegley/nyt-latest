@@ -1,3 +1,7 @@
+**Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Flooding Threat Continues**\
+`Rising waters inundated communities up and down the East Coast, and emergency crews worked to restore power knocked out by lashing winds. The gradually weakening storm remains a threat through Monday, forecasters said.`\
+https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
+
 **Nor’easter Continues to Batter Its Way Up the Northeast**\
 `Heavy winds from the storm brought down utility lines and trees across the region. A 56-year-old Brooklyn man walking near a playground was killed by a falling tree, city officials said.`\
 https://www.nytimes.com/video/weather/100000011178174/noreaster-weather-storm-surge-floods.html
