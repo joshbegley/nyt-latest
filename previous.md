@@ -1,3 +1,7 @@
+**Woman Found Dead in Central Park**\
+`Investigators are questioning a man in the death. The woman, who appeared to be homeless, was stabbed multiple times, according to officials with knowledge of the matter.`\
+https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
+
 **Nor’easter Continues to Batter Its Way Up the Northeast**\
 `Heavy winds from the storm brought down utility lines and trees across the region. A 56-year-old Brooklyn man walking near a playground was killed by a falling tree, city officials said.`\
 https://www.nytimes.com/video/weather/100000011178174/noreaster-weather-storm-surge-floods.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/nyregion/metropolitan-diary.html
 **Maybe We Should Leave Birds Alone**\
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
-
-**The Surprising Reasons China Is Skeptical of A.I. Safety Calls**\
-`In China, A.I. doomsday warnings can feel distinctly Western or like a ploy to stop Chinese A.I. companies from trying to overtake their U.S. rivals.`\
-https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
 
