@@ -1,3 +1,7 @@
+**Did Anthropic’s A.I. Really Make a Scientific Discovery on Its Own?**\
+`An expert at the University of Copenhagen said his team had been sharing its research with the company’s A.I. model, Claude, and that its new finding matched their work.`\
+https://www.nytimes.com/2026/09/27/science/anthropic-biology-enzyme-mestre.html
+
 **A Growing North Korea Problem**\
 `In an interview with The New York Times, South Korea’s president dropped a bold proposal for how to curb North Korea’s nuclear program.`\
 https://www.nytimes.com/2026/09/27/world/lee-jae-myung-north-korea-sanctions.html
