@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/09/27/crosswords/connections-companion-1205.html
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
 https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
 
-**The Super El Niño Comes Bearing One Gift: Time to Prepare**\
+**The Super El Niño Is About to Unleash Weather Chaos. Get Ready Now.**\
 `There’s still time to prepare.`\
 https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
 

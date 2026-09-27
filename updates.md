@@ -1,3 +1,7 @@
+**The Super El Niño Is About to Unleash Weather Chaos. Get Ready Now.**\
+`There’s still time to prepare.`\
+https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
+
 **Woman Found Dead in Central Park**\
 `Investigators are questioning a man in the death. The woman, who appeared to be homeless, was stabbed multiple times, according to officials with knowledge of the matter.`\
 https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
