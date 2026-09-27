@@ -1,3 +1,7 @@
+**‘S.N.L.’ Season Premiere: Buckets of Rain, With Jalen Brunson Reigning**\
+`Brunson, captain of the N.B.A. champion New York Knicks, hosted a “Saturday Night Live” show that satirized President Trump’s recent visit to Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-brunson-mamdani.html
+
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
 https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-of-hormuz.html
