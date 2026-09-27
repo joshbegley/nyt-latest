@@ -1,3 +1,7 @@
+**Iran Seeks U.S. Clarification After Trump Rejects Cease-Fire Proposal**\
+`Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rebuff might not be a final position.`\
+https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-of-hormuz.html
+
 **Saturday Night, No Mask Required, at the Last Ditch Lesbian Bar in Massachusetts**\
 `Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
 https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/nyregion/times-square-stabbing-police-body-ca
 **TV Networks to Resume Trump Coverage, Even as White House Excludes CNN**\
 `The White House TV pool went dark this past week amid a standoff between CNN and the president. Network leaders, however, believe an indefinite suspension may be untenable.`\
 https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.html
-
-**Storm-tested New Jersey Braves Nor’easter With Waist-High Floods**\
-`The storm flooded homes and businesses, caused power outages and forced people to evacuate amid heavy winds and rain.`\
-https://www.nytimes.com/2026/09/26/nyregion/new-jersey-noreaster-floods.html
 
