@@ -1,3 +1,7 @@
+**27 killed in mass shootings in South Africa overnight**\
+`These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
+https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
+
 **After the Drug Laws**\
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/nyregion/new-jersey-noreaster-floods.html
 **Trump Administration Plans to Gut Clean Car Rules**\
 `New fuel-economy standards, which President Trump said he finalized Saturday, would kill a federal effort to speed the transition to electric vehicles.`\
 https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
-
-**700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
-`The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
-https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
 

@@ -1,3 +1,7 @@
+**27 killed in mass shootings in South Africa overnight**\
+`These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
+https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
+
 **After the Drug Laws**\
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
