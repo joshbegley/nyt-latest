@@ -1,3 +1,27 @@
+**The Best TV Shows of the 21st Century**\
+`More than 500 TV insiders submitted their ballots. Let the debate begin.`\
+https://www.nytimes.com/2026/09/27/podcasts/the-daily/the-best-tv-shows-of-the-21st-century.html
+
+**Donald Trump, Mean Girl**\
+`Our government is being run by a clique of middle-aged guys.`\
+https://www.nytimes.com/2026/09/27/opinion/donald-trump-administration-mean-girls.html
+
+**NYT Connections Answers for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/connections-companion-1205.html
+
+**Today’s Wordle Hints for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
+
+**The Super El Niño Comes Bearing One Gift: Time to Prepare**\
+`There’s still time to prepare.`\
+https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
+
+**NYT Strands Hints for September 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
+https://www.nytimes.com/2026/09/27/crosswords/strands-sidekick-939.html
+
 **A.I. Shortcuts Are Ruining How We Think**\
 `Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
 https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
