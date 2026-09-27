@@ -1,3 +1,11 @@
+**Dario Amodei of Anthropic to Dine With Trump at White House**\
+`Dario Amodei, who is also the company’s chief executive, will join the president at the White House for a private dinner. Mr. Trump has dismissed his cautions.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-amodei-anthropic-artificial-intelligence.html
+
+**Serbia’s Longtime President Aleksandar Vucic Resigns Post**\
+`Aleksandar Vucic, one of Europe’s longest-serving leaders, resigned as president, paving the way for him to become prime minister after elections next month.`\
+https://www.nytimes.com/2026/09/27/world/europe/serbia-president-aleksandar-vucicto-resigns.html
+
 **Did Anthropic’s A.I. Really Make a Scientific Discovery on Its Own?**\
 `An expert at the University of Copenhagen said his team had been sharing its research with the company’s A.I. model, Claude, and that its new finding matched their work.`\
 https://www.nytimes.com/2026/09/27/science/anthropic-biology-enzyme-mestre.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/27/books/review/may-we-feed-the-king-rebecca-per
 **Dazzling New Historical Fiction Books**\
 `Our columnist on four excellent recent novels.`\
 https://www.nytimes.com/2026/09/27/books/review/new-historical-fiction.html
-
-**Book Review: ‘Man in the Mirror,’ by Anand Giridharadas**\
-`“Man in the Mirror,” by Anand Giridharadas, is a searching investigation into the 2023 death of Jordan Neely and the trial of the man who held him in a chokehold.`\
-https://www.nytimes.com/2026/09/27/books/review/man-in-the-mirror-anand-giridharadas.html
-
-**Here’s Your New House. It Comes With Friends.**\
-`Fresh pies. Book groups. Puzzle challenges. Developers of master-planned communities see fear of social isolation and desire for friends as a business opportunity. Welcome to Amity Lane.`\
-https://www.nytimes.com/2026/09/27/business/heres-your-new-house-it-comes-with-friends.html
 

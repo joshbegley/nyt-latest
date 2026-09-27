@@ -1,3 +1,11 @@
+**Dario Amodei of Anthropic to Dine With Trump at White House**\
+`Dario Amodei, who is also the company’s chief executive, will join the president at the White House for a private dinner. Mr. Trump has dismissed his cautions.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-amodei-anthropic-artificial-intelligence.html
+
+**Serbia’s Longtime President Aleksandar Vucic Resigns Post**\
+`Aleksandar Vucic, one of Europe’s longest-serving leaders, resigned as president, paving the way for him to become prime minister after elections next month.`\
+https://www.nytimes.com/2026/09/27/world/europe/serbia-president-aleksandar-vucicto-resigns.html
+
 **Did Anthropic’s A.I. Really Make a Scientific Discovery on Its Own?**\
 `An expert at the University of Copenhagen said his team had been sharing its research with the company’s A.I. model, Claude, and that its new finding matched their work.`\
 https://www.nytimes.com/2026/09/27/science/anthropic-biology-enzyme-mestre.html
