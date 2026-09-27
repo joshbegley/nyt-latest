@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tave
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 
-**5 Men Arrested on Suspicion of Terrorism Near RAF Fairford, Air Base Used by U.S. in Iran War**\
-`British counterterrorism police said the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
+**5 Arrested on Suspicion of Terrorism Near RAF Fairford Air Base in UK**\
+`The British counterterrorism police say the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
 **Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Flooding Threat Continues**\

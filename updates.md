@@ -1,3 +1,7 @@
+**5 Arrested on Suspicion of Terrorism Near RAF Fairford Air Base in UK**\
+`The British counterterrorism police say the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
+https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
+
 **Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Flooding Threat Continues**\
 `Rising waters inundated communities up and down the East Coast, and emergency crews worked to restore power knocked out by lashing winds. The gradually weakening storm remains a threat through Monday, forecasters said.`\
 https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
