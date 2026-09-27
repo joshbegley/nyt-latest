@@ -1,3 +1,7 @@
+**After the Drug Laws**\
+`We look at what happened when New York changed its policies on marijuana.`\
+https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
+
 **UK Deploys Bomb Squad Near R.A.F. Fairford, Air Base Used by US**\
 `British police said they had arrested several men on suspicion of offenses under the Explosives Act and had evacuated local residents near the R.A.F. Fairford base.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/climate/trump-fuel-economy-car-rules.html
 **700-Pound Sea Lion Is Found to Have Been Shot at Least 12 Times**\
 `The California sea lion was found dead on a beach off the Duwamish River in West Seattle, Wash., this month. A motive for the shooting was unclear.`\
 https://www.nytimes.com/2026/09/26/us/sea-lion-shot-dead-west-seattle-700-pounds.html
-
-**The Full 12 Rounds**\
-`Adam Wagner’s Sunday puzzle will get solvers coming and going.`\
-https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
 
