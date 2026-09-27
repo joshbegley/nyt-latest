@@ -1,3 +1,11 @@
+**A Trump 2024 Campaign Ad Returns, Now Brought to You by the Government**\
+`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
+
+**Woman Who Had Been Stabbed Found Dead in Central Park**\
+`Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
+https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
+
 **A Trump 2024 Campaign Ad Returns, Now Brought to You by The Government**\
 `The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
