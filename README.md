@@ -1,3 +1,7 @@
+**Trump Promotes Criticism of Republican Who Broke With Him on Immigration**\
+`The president amplified negative social media comments about Representative María Elvira Salazar of Florida, a move that drew a rebuke from at least one Republican.`\
+https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-criticism.html
+
 **Likely Piece of 1884 Shipwreck Washes Ashore in Nantucket During Nor’easter**\
 `Powerful waves spat out a chunk of the wooden boat, one of hundreds that had wrecked around the island in the 19th century.`\
 https://www.nytimes.com/2026/09/26/nyregion/shipwreck-nantucket-noreaster.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/podcasts/100000011167471/sylvester-stallone-on-his
 **‘It Was Insane’: Sylvester Stallone on His Abusive Father**\
 `“There were some times I’ll never forget.” On “The Interview,” Sylvester Stallone talked about life with his violent father.`\
 https://www.nytimes.com/video/podcasts/100000011166200/it-was-insane-sylvester-stallone-on-his-abusive-father.html
-
-**‘It Really Hurt Me’: Sylvester Stallone on His Mother Not Attending the Oscars**\
-`In 1977, Sylvester Stallone was nominated for two Academy Awards for “Rocky,” but his mother chose not to attend the ceremony. He talked about that experience on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011166197/it-really-hurt-me-sylvester-stallone-on-his-mother-not-attending-the-oscars.html
 
