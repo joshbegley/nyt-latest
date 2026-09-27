@@ -1,3 +1,7 @@
+**Dee Brock, Who Created the Dallas Cowboys Cheerleaders, Dies at 96**\
+`As the first director of the troupe, she helped transform it from a high school squad into a global phenomenon.`\
+https://www.nytimes.com/2026/09/27/us/dee-brock-dead.html
+
 **Morris Ballen, Who Helped Spread Indie Artists’ Music, Dies at 88**\
 `Countless independent acts in every genre — punk, hip-hop, church choir — relied on him to create small runs of high-quality records and CDs.`\
 https://www.nytimes.com/2026/09/27/obituaries/morris-ballen-dead.html
@@ -22,13 +26,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
 **The State of Organ Donation**\
 `Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
 https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
 **Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
 `Quotation of the Day for Sunday, September 27, 2026.`\
 https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
-
-**Corrections: Sept. 27, 2026**\
-`Corrections that appeared in print on Sunday, Sept. 27, 2026.`\
-https://www.nytimes.com/2026/09/27/pageoneplus/corrections-sept-27-2026.html
 

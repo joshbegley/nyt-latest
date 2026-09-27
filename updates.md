@@ -1,3 +1,7 @@
+**Dee Brock, Who Created the Dallas Cowboys Cheerleaders, Dies at 96**\
+`As the first director of the troupe, she helped transform it from a high school squad into a global phenomenon.`\
+https://www.nytimes.com/2026/09/27/us/dee-brock-dead.html
+
 **Morris Ballen, Who Helped Spread Indie Artists’ Music, Dies at 88**\
 `Countless independent acts in every genre — punk, hip-hop, church choir — relied on him to create small runs of high-quality records and CDs.`\
 https://www.nytimes.com/2026/09/27/obituaries/morris-ballen-dead.html
