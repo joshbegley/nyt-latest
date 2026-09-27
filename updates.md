@@ -1,3 +1,7 @@
+**How Do You Describe the Ineffable?**\
+`In his new novel, “The Radiance,” the novelist and playwright Ayad Akhtar tries — with astonishing results.`\
+https://www.nytimes.com/2026/09/27/briefing/ayad-akhtar.html
+
 **At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html

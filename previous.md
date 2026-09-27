@@ -1,3 +1,7 @@
+**How Do You Describe the Ineffable?**\
+`In his new novel, “The Radiance,” the novelist and playwright Ayad Akhtar tries — with astonishing results.`\
+https://www.nytimes.com/2026/09/27/briefing/ayad-akhtar.html
+
 **‘S.N.L.’ Season Premiere: Buckets of Rain, With Jalen Brunson Reigning**\
 `Brunson, captain of the N.B.A. champion New York Knicks, hosted a “Saturday Night Live” show that satirized President Trump’s recent visit to Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/27/arts/television/snl-season-premiere-buckets-of-rain-with-jalen-brunson-reigning.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cock
 **On This Day | Sept. 27**\
 `In 1964, the Warren Commission issued a report concluding that Lee Harvey Oswald had acted alone in assassinating President John F. Kennedy.`\
 https://www.nytimes.com/2026/09/27/learning/on-this-day-sept-27.html
-
-**Trump Promotes Criticism of Republican Who Broke With Him on Immigration**\
-`The president amplified negative social media comments about Representative María Elvira Salazar of Florida, a move that drew a rebuke from at least one Republican.`\
-https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-criticism.html
 
