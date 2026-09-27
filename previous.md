@@ -1,3 +1,7 @@
+**Yotam Ottolenghi’s Spiced Pea Stew With Yogurt**\
+`And more cozy, autumnal recipes for shifting into soup mode.`\
+https://www.nytimes.com/2026/09/27/dining/yotam-ottolenghis-spiced-pea-stew-with-yogurt.html
+
 **How Do You Describe the Ineffable?**\
 `In his new novel, “The Radiance,” the novelist and playwright Ayad Akhtar tries — with astonishing results.`\
 https://www.nytimes.com/2026/09/27/briefing/ayad-akhtar.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
 **The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
 `You can still buy a Singapore Sling in the colonial-era hotel where it’s said to have been invented more than a century ago. Custom versions have arisen nearby.`\
 https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
-
-**On This Day | Sept. 27**\
-`In 1964, the Warren Commission issued a report concluding that Lee Harvey Oswald had acted alone in assassinating President John F. Kennedy.`\
-https://www.nytimes.com/2026/09/27/learning/on-this-day-sept-27.html
 

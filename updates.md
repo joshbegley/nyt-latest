@@ -1,3 +1,7 @@
+**Yotam Ottolenghi’s Spiced Pea Stew With Yogurt**\
+`And more cozy, autumnal recipes for shifting into soup mode.`\
+https://www.nytimes.com/2026/09/27/dining/yotam-ottolenghis-spiced-pea-stew-with-yogurt.html
+
 **How Do You Describe the Ineffable?**\
 `In his new novel, “The Radiance,” the novelist and playwright Ayad Akhtar tries — with astonishing results.`\
 https://www.nytimes.com/2026/09/27/briefing/ayad-akhtar.html
