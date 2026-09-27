@@ -1,3 +1,7 @@
+**Nor’easter Live Updates: Heavy Winds and Rain Cause Coastal Flooding in Northeast**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
+
 **The Best TV Shows of the 21st Century**\
 `More than 500 TV insiders submitted their ballots. Let the debate begin.`\
 https://www.nytimes.com/2026/09/27/podcasts/the-daily/the-best-tv-shows-of-the-21st-century.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/26/crosswords/daily-puzzle-2026-09-27.html
 **Nor’easter Hits East Coast With Strong Winds, Rain, Floods**\
 `High winds and heavy rain from a nor’easter have hit the East Coast, leaving thousands without power and hundreds of flights canceled.`\
 https://www.nytimes.com/video/weather/100000011177314/noreaster-east-coast-weather-winds-rain-floods.html
-
-**Heavy Rain and Wind Batter Northeast, Bringing Coastal Flooding**\
-`The storm flooded low-lying areas, knocked out power for thousands and forced the cancellation of several major events and hundreds of flights. Wind gusts exceeded 50 miles per hour in places.`\
-https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
 
