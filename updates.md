@@ -1,4 +1,8 @@
 **Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
+`President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the ambassador to China. The White House later said the U.S. had no plans for such a sale.`\
+https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
+
+**Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
 `President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the U.S. ambassador to China. Trump is withholding a $14 billion arms package to Taiwan.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
 
