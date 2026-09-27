@@ -1,3 +1,15 @@
+**‘You Could Serve Cardboard With This Sauce and It Would Be Good’**\
+`Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
+https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
 **Iran Seeks U.S. Clarification After Trump Rejects Cease-Fire Proposal**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rebuff might not be a final position.`\
 https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-of-hormuz.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-critici
 **Likely Piece of 1884 Shipwreck Washes Ashore in Nantucket During Nor’easter**\
 `Powerful waves spat out a chunk of the wooden boat, one of hundreds that had wrecked around the island in the 19th century.`\
 https://www.nytimes.com/2026/09/26/nyregion/shipwreck-nantucket-noreaster.html
-
-**Russian Foreign Minister Vows Russia Will See Ukraine War Through**\
-`Russia’s foreign minister met with his German counterpart during the U.N. General Assembly but spent part of his address defending his country’s war on Ukraine.`\
-https://www.nytimes.com/2026/09/26/world/europe/russia-germany-lavrov-ukraine-war.html
-
-**Woman Fatally Shot by Police in Times Square: ‘I’m Tired of This World’**\
-`Body camera footage released by the N.Y.P.D. shows officers trying to reason with Pamela Cisneros, who was armed with two knives.`\
-https://www.nytimes.com/2026/09/26/nyregion/times-square-stabbing-police-body-cam.html
-
-**TV Networks to Resume Trump Coverage, Even as White House Excludes CNN**\
-`The White House TV pool went dark this past week amid a standoff between CNN and the president. Network leaders, however, believe an indefinite suspension may be untenable.`\
-https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.html
 
