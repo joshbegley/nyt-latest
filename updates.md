@@ -1,3 +1,7 @@
+**5 Men Arrested on Suspicion of Terrorism Offenses Near RAF Fairford, Air Base Used by U.S.**\
+`British counterterrorism police said the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
+https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
+
 **‘S.N.L.’ Season Premiere: Buckets of Rain, With Jalen Brunson Reigning**\
 `Brunson, captain of the N.B.A. champion New York Knicks, hosted a “Saturday Night Live” show that satirized President Trump’s recent visit to Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/27/arts/television/snl-season-premiere-buckets-of-rain-with-jalen-brunson-reigning.html

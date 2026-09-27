@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-
 `Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
 https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
 
-**27 killed in mass shootings in South Africa overnight**\
+**At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
 

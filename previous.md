@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tave
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 
-**UK Deploys Bomb Squad Near R.A.F. Fairford, Air Base Used by US**\
-`British police said they had arrested several men on suspicion of offenses under the Explosives Act and had evacuated local residents near the R.A.F. Fairford base.`\
+**5 Men Arrested on Suspicion of Terrorism Offenses Near RAF Fairford, Air Base Used by U.S.**\
+`British counterterrorism police said the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
 **Nor’easter Live Updates: Heavy Winds and Rain Cause Coastal Flooding in Northeast**\
