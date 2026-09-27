@@ -1,3 +1,7 @@
+**Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
+`As their midterm picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
+https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
+
 **Yotam Ottolenghi’s Spiced Pea Stew With Yogurt**\
 `And more cozy, autumnal recipes for shifting into soup mode.`\
 https://www.nytimes.com/2026/09/27/dining/yotam-ottolenghis-spiced-pea-stew-with-yogurt.html
