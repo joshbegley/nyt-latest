@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/09/27/business/workplace-.html
 https://www.nytimes.com/2026/09/27/us/politics/mary-peltola-alaska-senate.html
 
 **Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
-`As their November picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
+`As their midterm picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
 https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
 
 **Dogs Will Fight Bears. But Not Because of the Reason You Might Think.**\
