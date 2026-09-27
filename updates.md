@@ -1,3 +1,7 @@
+**Woman Fatally Shot by Police in Times Square: ‘I’m Tired of This World’**\
+`Body camera footage released by the N.Y.P.D. shows officers trying to reason with Pamela Cisneros, who was armed with two knives.`\
+https://www.nytimes.com/2026/09/26/nyregion/times-square-stabbing-police-body-cam.html
+
 **TV Networks to Resume Trump Coverage, Even as White House Excludes CNN**\
 `The White House TV pool went dark this past week amid a standoff between CNN and the president. Network leaders, however, believe an indefinite suspension may be untenable.`\
 https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.html

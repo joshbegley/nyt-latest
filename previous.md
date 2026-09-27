@@ -1,3 +1,7 @@
+**Woman Fatally Shot by Police in Times Square: ‘I’m Tired of This World’**\
+`Body camera footage released by the N.Y.P.D. shows officers trying to reason with Pamela Cisneros, who was armed with two knives.`\
+https://www.nytimes.com/2026/09/26/nyregion/times-square-stabbing-police-body-cam.html
+
 **TV Networks to Resume Trump Coverage, Even as White House Excludes CNN**\
 `The White House TV pool went dark this past week amid a standoff between CNN and the president. Network leaders, however, believe an indefinite suspension may be untenable.`\
 https://www.nytimes.com/2026/09/26/business/media/trump-white-house-tv-pool-cnn.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/podcasts/100000011166186/sylvester-stallone-on-arn
 **Lola Petticrew Has Taken on the Troubles, Twice**\
 `Before playing a mesmerizing serial killer in “Furious,” the Belfast performer starred in two series set during the bloody conflict in Northern Ireland.`\
 https://www.nytimes.com/2026/09/26/arts/television/lola-petticrew-furious-say-nothing-trespasses.html
-
-**Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
-`Now 80, the actor and filmmaker is ready to examine his own life, his work and the impact it has had on our culture.`\
-https://www.nytimes.com/video/podcasts/100000011166181/sylvester-stallone-hid-his-struggles-for-decades-now-hes-coming-clean.html
 
