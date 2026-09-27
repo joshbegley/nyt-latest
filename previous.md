@@ -1,4 +1,4 @@
-**To Feed or Not to Feed the Birds?**\
+**Maybe We Should Leave Birds Alone**\
 `One of Britain’s favorite national pastimes is hurting as well as helping.`\
 https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
 
