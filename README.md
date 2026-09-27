@@ -1,3 +1,31 @@
+**Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
+`Quotation of the Day for Sunday, September 27, 2026.`\
+https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
+
+**The Surprising Reasons China Is Skeptical of A.I. Safety Calls**\
+`In China, A.I. doomsday warnings can feel distinctly Western or like a ploy to stop Chinese A.I. companies from trying to overtake their U.S. rivals.`\
+https://www.nytimes.com/2026/09/27/world/asia/china-us-ai-distrust.html
+
+**Corrections: Sept. 27, 2026**\
+`Corrections that appeared in print on Sunday, Sept. 27, 2026.`\
+https://www.nytimes.com/2026/09/27/pageoneplus/corrections-sept-27-2026.html
+
+**Recreational Aerial Craft Become Weapons in Myanmar’s War**\
+`Years after a coup, the military is increasingly using motorized paragliders and gyrocopters to bomb towns and villages in rebel-held territory.`\
+https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons.html
+
+**Women Sluggers Are No Longer in a League of Their Own**\
+`As a group of players from an all-women’s baseball league in the 1940s and ’50s gathered at a recent reunion, the future of women’s baseball looks bright again.`\
+https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
+
+**The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
+`The Singapore Sling was said to have been invented more than a century ago in a colonial-era hotel, where it now goes for about $40 a pop.`\
+https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
+
+**On This Day | Sept. 27**\
+`In 1964, the Warren Commission issued a report concluding that Lee Harvey Oswald had acted alone in assassinating President John F. Kennedy.`\
+https://www.nytimes.com/2026/09/27/learning/on-this-day-sept-27.html
+
 **Trump Promotes Criticism of Republican Who Broke With Him on Immigration**\
 `The president amplified negative social media comments about Representative María Elvira Salazar of Florida, a move that drew a rebuke from at least one Republican.`\
 https://www.nytimes.com/2026/09/26/us/politics/trump-salazar-immigration-criticism.html
@@ -157,32 +185,4 @@ https://www.nytimes.com/2026/09/26/briefing/free-rein.html
 **Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
 `The legendary actor on his disturbing childhood, his Hollywood missteps and the pain he caused to his loved ones, his body and himself.`\
 https://www.nytimes.com/2026/09/26/magazine/sylvester-stallone-interview.html
-
-**Milwaukee Museum Returns Pots by Enslaved Artist David Drake to Family**\
-`The museum restituted two of Drake’s stoneware jars to his heirs, but has found a way to keep both on display. It joins a growing number of institutions that are returning his work to his heirs.`\
-https://www.nytimes.com/2026/09/26/arts/design/milwaukee-museum-returns-pots-by-enslaved-artist-david-drake-to-family.html
-
-**A 7-Day Standoff That Said So Much About Trump and the Media**\
-`An abrupt decree, a network boycott, a legal intervention and an uneasy détente: This was no typical battle between a president and his press corps.`\
-https://www.nytimes.com/2026/09/26/business/media/trump-white-house-press-ban.html
-
-**Rahm Emanuel, Eyeing 2028, Makes His 2026 Play**\
-`The longtime Democratic insider has emerged as a behind-the-scenes force in his party’s push to win back Congress. After that, he’ll think about the next presidential race.`\
-https://www.nytimes.com/2026/09/26/us/politics/rahm-emanuel-midterms-house.html
-
-**Arthur Hancock III, Derby Breeder With a Flair for Bluegrass, Dies at 83**\
-`He raised more than one Kentucky Derby champion and wrote music recorded by the likes of Willie Nelson. He also spoke out against abuses in horse racing.`\
-https://www.nytimes.com/2026/09/26/sports/arthur-hancock-horse-racing-dead.html
-
-**High Gas and Rising Mortgage Rates Trouble Trump as Midterms Near**\
-`As the president extolled the strength of the economy on the global stage, Americans continued to feel the sting of rising prices stemming from the war in Iran.`\
-https://www.nytimes.com/2026/09/26/business/trump-economy-midterm-elections.html
-
-**Sylvester Stallone on His Fight to Play Rocky**\
-`Why did a young Sylvester Stallone insist on playing the lead role in “Rocky”? He talked about his mindset on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011167471/sylvester-stallone-on-his-fight-to-play-rocky.html
-
-**‘It Was Insane’: Sylvester Stallone on His Abusive Father**\
-`“There were some times I’ll never forget.” On “The Interview,” Sylvester Stallone talked about life with his violent father.`\
-https://www.nytimes.com/video/podcasts/100000011166200/it-was-insane-sylvester-stallone-on-his-abusive-father.html
 
