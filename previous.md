@@ -1,3 +1,7 @@
+**To Feed or Not to Feed the Birds?**\
+`One of Britain’s favorite national pastimes is hurting as well as helping.`\
+https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
+
 **Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
 `Quotation of the Day for Sunday, September 27, 2026.`\
 https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/live/2026/09/26/nyregion/noreaster-storm-rain-nyc-boston
 **Free Rein**\
 `Fall weekends bring an imperative to get things done, but we need not over-engineer our days to get the most out of them.`\
 https://www.nytimes.com/2026/09/26/briefing/free-rein.html
-
-**Sylvester Stallone Hid His Struggles for Decades. Now He’s Coming Clean.**\
-`The legendary actor on his disturbing childhood, his Hollywood missteps and the pain he caused to his loved ones, his body and himself.`\
-https://www.nytimes.com/2026/09/26/magazine/sylvester-stallone-interview.html
 

@@ -1,3 +1,7 @@
+**To Feed or Not to Feed the Birds?**\
+`One of Britain’s favorite national pastimes is hurting as well as helping.`\
+https://www.nytimes.com/2026/09/27/opinion/birds-feeding-britain-parasite.html
+
 **Quote of the Day: Kodiak Bears Are Beating a Path to the Junk Food in the Island Dump**\
 `Quotation of the Day for Sunday, September 27, 2026.`\
 https://www.nytimes.com/2026/09/27/pageoneplus/quote-of-the-day-kodiak-bears-are-beating-a-path-to-the-junk-food-in-the-island-dump.html
