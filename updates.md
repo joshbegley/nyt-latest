@@ -1,3 +1,7 @@
+**The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
+`You can still buy a Singapore Sling in the colonial-era hotel where it’s said to have been invented more than a century ago. Custom versions have arisen nearby.`\
+https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
+
 **Why Won’t My Co-Workers Acknowledge My Birthday?**\
 `Plus: What to do when your boss is nit-picking your work.`\
 https://www.nytimes.com/2026/09/27/business/workplace-.html

@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/09/27/world/asia/myanmar-light-aircraft-war-weapons
 https://www.nytimes.com/2026/09/27/business/women-baseball-league.html
 
 **The Raffles’ Singapore Sling Costs $40. There’s a Reason Tourists Still Love It.**\
-`The Singapore Sling was said to have been invented more than a century ago in a colonial-era hotel, where it now goes for about $40 a pop.`\
+`You can still buy a Singapore Sling in the colonial-era hotel where it’s said to have been invented more than a century ago. Custom versions have arisen nearby.`\
 https://www.nytimes.com/2026/09/27/world/asia/singapore-sling-raffles-hotel-cocktail.html
 
 **On This Day | Sept. 27**\
