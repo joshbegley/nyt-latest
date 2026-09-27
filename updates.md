@@ -1,3 +1,7 @@
+**Trump’s 2024 Campaign Ad Returns, With Taxpayers Paying For It**\
+`An ad nearly identical to one President Trump ran during his 2024 campaign returned on Saturday, paid for using public money. Several ethics lawyers it may violate federal law.`\
+https://www.nytimes.com/video/us/politics/100000011178196/trumps-2024-campaign-ad-taxpayers.html
+
 **NYT Crossword Answers for Sept. 28, 2026**\
 `Helen Chen’s crossword is in a league of its own.`\
 https://www.nytimes.com/2026/09/27/crosswords/daily-puzzle-2026-09-28.html
