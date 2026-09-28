@@ -1,3 +1,7 @@
+**Couple Accused of Killing Their Son-in-Law in Bay Area Park**\
+`Jonathan McKinsey, an engineer who worked in the games department for The New York Times, was fatally shot Saturday in a San Francisco suburb. Police have accused his parents-in-law, both 76.`\
+https://www.nytimes.com/2026/09/28/us/jonathan-mckinsey-new-york-times-shooting-california.html
+
 **The Coal Industry Asked for a Rescue. Trump Obliged.**\
 `In a previously unreported letter, a top lobbyist floated the idea of using emergency powers to keep aging coal plants open.`\
 https://www.nytimes.com/2026/09/28/climate/coal-industry-power-plants-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-
 **Nvidia Adds $150 Billion to Massive Stock Buyback, the Largest Ever**\
 `The increase comes four months after the chip giant added $80 billion to its buyback program, bringing the total remaining authorized amount to $235 billion.`\
 https://www.nytimes.com/2026/09/28/business/nvidia-stock-buyback.html
-
-**Paxton, Trailing Talarico in Polls, Tacks Toward the Center in Texas**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/28/us/midterm-elections
 
