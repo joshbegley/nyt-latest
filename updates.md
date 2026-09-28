@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 7 Recap: Unboxing**\
+`This week’s installment dove deeper into Hal’s past, revealing a lot of half-buried trauma.`\
+https://www.nytimes.com/2026/09/27/arts/television/lanterns-recap-season-1-episode-7.html
+
 **The 10 Best Looks at the MTV Video Music Awards**\
 `With leather, lace and lots of skin, it was an over-the-top night on the red carpet.`\
 https://www.nytimes.com/2026/09/27/style/mtv-vmas-best-dressed.html

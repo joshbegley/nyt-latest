@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1, Episode 7 Recap: Unboxing**\
+`This week’s installment dove deeper into Hal’s past, revealing a lot of half-buried trauma.`\
+https://www.nytimes.com/2026/09/27/arts/television/lanterns-recap-season-1-episode-7.html
+
 **The 10 Best Looks at the MTV Video Music Awards**\
 `With leather, lace and lots of skin, it was an over-the-top night on the red carpet.`\
 https://www.nytimes.com/2026/09/27/style/mtv-vmas-best-dressed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/science/dogs-chasing-bears.html
 **As A.I. Accelerates, Governments Are Increasingly Being Left Behind**\
 `The gap between technology and policymaking has gotten wider than ever with artificial intelligence, leaving a global policy vacuum as A.I. models rapidly advance.`\
 https://www.nytimes.com/2026/09/27/technology/ai-government-regulation.html
-
-**Are You Ready for Your ‘Winter Arc’?**\
-`Whatever you call it — a “winter arc,” a “fall rebrand” — New Year’s resolutions aren’t waiting for January anymore.`\
-https://www.nytimes.com/2026/09/27/style/winter-arc.html
 
