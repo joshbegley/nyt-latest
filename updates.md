@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Character Analysis**\
+`What can the opening paragraphs of an essay about Katniss Everdeen teach students?`\
+https://www.nytimes.com/2026/09/28/learning/15-minute-lesson-plan-character-analysis.html
+
 **Possible Terror Plot at RAF Fairford Air Base in UK: What We Know**\
 `Five men were arrested Sunday as they approached R.A.F. Fairford, a British installation used by the U.S. in its war against Iran. The men are being held on suspicion of terrorism.`\
 https://www.nytimes.com/2026/09/28/world/europe/raf-fairford-incident-air-base-terrorism-uk.html

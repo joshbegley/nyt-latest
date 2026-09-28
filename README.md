@@ -1,3 +1,7 @@
+**Giant Pandas Land in Atlanta From China**\
+`Two pandas, Ping Ping and Fu Shuang, arrived in Atlanta on Sunday from China via a custom FedEx cargo shipment as a gesture of good will from Beijing.`\
+https://www.nytimes.com/video/world/100000011178929/china-pandas-atlanta-zoo-us.html
+
 **15-Minute Lesson Plan: Character Analysis**\
 `What can the opening paragraphs of an essay about Katniss Everdeen teach students?`\
 https://www.nytimes.com/2026/09/28/learning/15-minute-lesson-plan-character-analysis.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massach
 **At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
 `These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
 https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
-
-**After the Drug Laws**\
-`We look at what happened when New York changed its policies on marijuana.`\
-https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 
 **Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
 `Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\

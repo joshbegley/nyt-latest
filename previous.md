@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Character Analysis**\
+`What can the opening paragraphs of an essay about Katniss Everdeen teach students?`\
+https://www.nytimes.com/2026/09/28/learning/15-minute-lesson-plan-character-analysis.html
+
 **Possible Terror Plot at RAF Fairford Air Base in UK: What We Know**\
 `Five men were arrested Sunday as they approached R.A.F. Fairford, a British installation used by the U.S. in its war against Iran. The men are being held on suspicion of terrorism.`\
 https://www.nytimes.com/2026/09/28/world/europe/raf-fairford-incident-air-base-terrorism-uk.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tave
 **After the Drug Laws**\
 `We look at what happened when New York changed its policies on marijuana.`\
 https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
-
-**5 Arrested on Suspicion of Terrorism Near RAF Fairford Air Base in UK**\
-`The British counterterrorism police say the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
-https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
 **Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
 `Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
