@@ -1,3 +1,7 @@
+**The Coal Industry Asked for a Rescue. Trump Obliged.**\
+`In a previously unreported letter, a top lobbyist floated the idea of using emergency powers to keep aging coal plants open.`\
+https://www.nytimes.com/2026/09/28/climate/coal-industry-power-plants-trump.html
+
 **Justice Alito Recuses Himself Days Before Major Climate-Change Case**\
 `Justice Samuel A. Alito Jr. had faced pressure to recuse himself from the climate case because he owns stock in oil companies.`\
 https://www.nytimes.com/2026/09/28/us/politics/alito-suncor-supreme-court-recuse.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/business/nvidia-stock-buyback.html
 **Paxton, Trailing Talarico in Polls, Tacks Toward the Center in Texas**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/28/us/midterm-elections
-
-**Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
-`Speaking in France, the pontiff lauded postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
-https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
 
