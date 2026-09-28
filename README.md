@@ -1,3 +1,19 @@
+**Mamdani’s Shadow Looms Over Hochul’s Bid for Re-election**\
+`Gov. Kathy Hochul is counting on Mayor Zohran Mamdani to help her campaign in New York, but how he does so is still being worked out.`\
+https://www.nytimes.com/2026/09/28/nyregion/mamdanis-shadow-looms-over-hochuls-bid-for-re-election.html
+
+**After Taxi Driver Deaths, Union Pushes Mamdani for Health Fund**\
+`Several New York City cabbies were recently found dead in their cars. A taxi union is seeking to revive a fund that would provide medical screenings, disability insurance and other benefits.`\
+https://www.nytimes.com/2026/09/28/nyregion/nyc-taxi-drivers-mamdani-health-benefits.html
+
+**N.Y.P.D. Officers Used Flock Safety to Track License Plates**\
+`Public records show police officers used Flock Safety’s technology to make more than 1,700 searches. The department did not have a contract with the company.`\
+https://www.nytimes.com/2026/09/28/nyregion/nyc-flock-nypd-surveillance-cameras.html
+
+**NYT Spelling Bee Answers for September 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/28/crosswords/spelling-bee-forum.html
+
 **Why China Is Requiring Ninth Graders to Read ‘Jane Eyre’**\
 `The Victorian heroine has long been celebrated in China for her independence and insistence on equality.`\
 https://www.nytimes.com/2026/09/28/world/asia/china-jane-eyre-required-reading-literature.html
@@ -44,7 +60,7 @@ https://www.nytimes.com/interactive/2026/09/27/weather/rachel-map-path-tracker.h
 
 **Nor’easter Weakens but Remains a Threat**\
 `The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
-https://www.nytimes.com/2026/09/27/well/noreaster-weakens-but-remains-a-threat.html
+https://www.nytimes.com/2026/09/27/well/noreaster-storm-new-jersey-new-york-weather-forecast.html
 
 **Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
 `What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.htm
 **Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
 `Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
 https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
-
-**The Best TV Shows of the 21st Century**\
-`More than 500 TV insiders submitted their ballots. Let the debate begin.`\
-https://www.nytimes.com/2026/09/27/podcasts/the-daily/the-best-tv-shows-of-the-21st-century.html
-
-**The Mean Girls Presidency**\
-`Our government is being run by a clique of middle-aged guys.`\
-https://www.nytimes.com/2026/09/27/opinion/donald-trump-administration-mean-girls.html
-
-**NYT Connections Answers for September 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
-https://www.nytimes.com/2026/09/27/crosswords/connections-companion-1205.html
-
-**Today’s Wordle Hints for September 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
-https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
 
