@@ -1,3 +1,11 @@
+**Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
+`The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
+https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
+
+**New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
+`Arizona, New Mexico, Utah and Colorado prepared for heavy rain that could lead to life-threatening flooding.`\
+https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
+
 **Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
 `In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
 https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html

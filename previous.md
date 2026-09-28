@@ -1,3 +1,11 @@
+**Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
+`The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
+https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
+
+**New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
+`Arizona, New Mexico, Utah and Colorado prepared for heavy rain that could lead to life-threatening flooding.`\
+https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
+
 **Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
 `In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
 https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/business/ai-scientists-protests.html
 **Book Review: ‘Ply,’ by Hernan Diaz**\
 `“Ply,” by Hernan Diaz, is set in a dystopian future where the state has been dismantled and one company controls the energy supply.`\
 https://www.nytimes.com/2026/09/28/books/review/hernan-diaz-ply.html
-
-**How Do You Open a Dolly Parton Hotel Without Dolly Parton?**\
-`The country music star’s last hospitality project is opening in Nashville, dedicated to her career as a songwriter. Will Dolly being there in spirit be enough?`\
-https://www.nytimes.com/2026/09/28/travel/dolly-parton-songteller-hotel-nashville.html
-
-**How a Brooklyn Fashionista Lives on $67,000 a Year in Bay Ridge**\
-`Tim Victor works as a music teacher in Brooklyn but also goes thrifting and to fashion shows in New York and Paris.`\
-https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordability-victor.html
 
