@@ -1,3 +1,7 @@
+**Who Is Ahead in New York's 23rd Congressional District?**\
+`Track the latest polls in New York's 23rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
+
 **After a Career Reshaping the Museum of Modern Art, Its Influential Curator Steps Down**\
 `Ann Temkin, head of MoMA’s  painting and sculpture department, will transition to a new role for the museum’s 100th anniversary.`\
 https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-jasper-johns-retire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/fashion/chinese-wooden-signs-george-town-mala
 **A Club’s Furnishings Reflect Its Nigerian Setting**\
 `Ugoma Ebilah said she used work by artisans from throughout the region for her new venture, Mbari Kola.`\
 https://www.nytimes.com/2026/09/28/fashion/crafts-mbari-kola-lagos-nigeria.html
-
-**St. Paul’s Cathedral to Get a New Shine**\
-`Plans are being made to regild the ball and cross atop the London landmark with gold from an Australian mine.`\
-https://www.nytimes.com/2026/09/28/fashion/craftsmanship-st-pauls-cathedral-london.html
 
