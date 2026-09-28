@@ -1,3 +1,7 @@
+**The Local: Fancy cats**\
+`Also, the Lynx face a setback.`\
+https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
+
 **How Phoebe Bridgers’s Phone Ban Changes the Concert Experience**\
 `Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
 https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
