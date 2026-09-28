@@ -1,3 +1,7 @@
+**Nvidia Adds $150 Billion to Massive Stock Buyback, the Largest Ever**\
+`The increase comes four months after the chip giant added $80 billion to its buyback program, bringing the total remaining authorized amount to $235 billion.`\
+https://www.nytimes.com/2026/09/28/business/nvidia-stock-buyback.html
+
 **G.O.P. Plans $52 Million Ad Blitz This Week to Protect Turf in Ohio and Texas**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/28/us/midterm-elections
