@@ -1,3 +1,7 @@
+**G.O.P. Plans $52 Million Ad Blitz This Week to Protect Turf in Ohio and Texas**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/28/us/midterm-elections
+
 **Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
 `Speaking in France, the pontiff lauded postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
 https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
