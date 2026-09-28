@@ -1,3 +1,7 @@
+**A.I. Is Not a Doctor. We Need Human Ones.**\
+`Readers respond to a front-page article, “Doctor A.I. Will See You, in Spite of Misgivings.” Also: Canada won’t yield; the lasting value of collective joy.`\
+https://www.nytimes.com/2026/09/28/opinion/ai-doctor.html
+
 **In Ohio, a Humbling Question For Senator Jon Husted: Are You the Incumbent?**\
 `Even some devoted conservatives know more about Sherrod Brown, the Democratic challenger, than the Republican incumbent, who needs the MAGA base to turn out.`\
 https://www.nytimes.com/2026/09/28/us/politics/john-husted-ohio-president-trump-midterms.html
