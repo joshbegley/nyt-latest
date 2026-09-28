@@ -1,3 +1,15 @@
+**British Police Releases on Bail Five Men Arrested Over Possible Terror Plot**\
+`British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
+
+**With Kennedy Center Closed, National Symphony Starts Life on the Road**\
+`The orchestra, which was to have celebrated its 40th anniversary at the Kennedy Center, started its nomadic season in Bethesda, Md.`\
+https://www.nytimes.com/2026/09/28/arts/music/national-symphony-carlos-simon-bethesda.html
+
+**Russian Drone Strikes Ukraine’s Science Academy, Causing Fire in City Center**\
+`A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
+https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
+
 **The district attorney explained why he reopened the Cornell investigation. Read the document:**\
 `The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
 https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
