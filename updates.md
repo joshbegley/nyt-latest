@@ -1,3 +1,7 @@
+**How Phoebe Bridgers’s Phone Ban Changes the Concert Experience**\
+`Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
+https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
+
 **These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
 `As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
 https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
