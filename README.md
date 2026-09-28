@@ -1,3 +1,19 @@
+**Can You Match These Autumnal Quotes to the Correct Book?**\
+`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many seasonal observations you recognize from popular books.`\
+https://www.nytimes.com/quiz/2026/09/28/bookreview/autumn-literary-quotes.html
+
+**Lock-In Season**\
+`Plus, new books in October.`\
+https://www.nytimes.com/2026/09/28/briefing/lock-in-season.html
+
+**Last Call for Fresh Corn**\
+`Though this bright, hot-sauced chicken dinner will work just as well with the frozen kind.`\
+https://www.nytimes.com/2026/09/28/dining/last-call-for-fresh-corn.html
+
+**Trump Revealed Something Essential About Elites**\
+`There are always elites. The people get to decide which ones rule.`\
+https://www.nytimes.com/2026/09/28/opinion/political-elites-elections.html
+
 **Read the statement from the Tompkins County district attorney**\
 `The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
 https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/09/28/us/politics/cotton-trump-commodity-markets-cf
 **New Fantasy Football Punishments Include Meat Marathons and Tattoos**\
 `In a time of social-media stunts, leagues are coming up with creative penalties for last-place finishers.`\
 https://www.nytimes.com/2026/09/28/style/fantasy-football-punishments.html
-
-**5 Gastrointestinal Symptoms You Should Never Ignore**\
-`Experts say these warning signs should always prompt a chat with a doctor.`\
-https://www.nytimes.com/2026/09/28/well/gastrointestinal-symptoms-gut-health.html
-
-**Here’s What Fans Paid for Harry Styles Tickets at M.S.G.**\
-`What is a concert really worth? We asked 34 fans about the time, money and effort they spent getting tickets for the star’s New York City residency.`\
-https://www.nytimes.com/2026/09/28/arts/music/harry-styles-msg-ticket-prices-affordability.html
-
-**Kate Jenkins Knits and Crochets Almost Anything You Can Imagine**\
-`The British artist Kate Jenkins crochets and knits almost anything you can imagine.`\
-https://www.nytimes.com/2026/09/28/fashion/knitting-crocheting-kate-jenkins-hermes.html
-
-**In Ireland, Gowns That Tell a Story**\
-`Rachel Phelan, a textile conservator in Dublin, has been working on vintage styles once owned by an Irish countess.`\
-https://www.nytimes.com/2026/09/28/fashion/textile-conservation-rachel-phelan-dublin.html
 
