@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine’s National Academy of Sciences**\
+`A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
+https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
+
 **Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base**\
 `The British counterterrorism police said the five British nationals arrested near R.A.F. Fairford on Sunday were being released on bail but remained under investigation.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html

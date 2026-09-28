@@ -1,3 +1,7 @@
+**What We Gain, and Lose, at a Phone-Free Concert**\
+`Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
+https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
+
 **Russia Strikes Ukraine’s National Academy of Sciences**\
 `A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
 https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.
 https://www.nytimes.com/2026/09/28/business/dealbook/ai-safety-risks-ipo.html
 
 **China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
-`The two countries unveiled separate lists covering thousands of products as they seek to ease trade tensions and stabilize relations ahead of further negotiations.`\
+`The two countries unveiled separate lists covering thousands of products as they sought to ease trade tensions and stabilize relations before further negotiations.`\
 https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
 
 **Protein in Every Food**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
 **Who’s Winning the Race for Congress? 2026 Midterm Elections**\
 `It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
-
-**Juniper Lattes? Pine Sodas? Food Is Taking Us Back to the Forest.**\
-`Drinks and snacks are being tweaked to evoke woods and meadows, on the theory that frazzled consumers want to reconnect with nature.`\
-https://www.nytimes.com/2026/09/28/dining/forest-flavors-alpine-foraging.html
 

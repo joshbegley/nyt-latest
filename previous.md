@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine’s National Academy of Sciences**\
+`A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
+https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
+
 **Corrections: Sept. 26, 2026**\
 `Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
 **Juniper Lattes? Pine Sodas? Food Is Taking Us Back to the Forest.**\
 `Drinks and snacks are being tweaked to evoke woods and meadows, on the theory that frazzled consumers want to reconnect with nature.`\
 https://www.nytimes.com/2026/09/28/dining/forest-flavors-alpine-foraging.html
-
-**Designing a House That Defers to the Beauty of Telluride, Colo.**\
-`A couple built a single-story, horizontal home that seems to grow out of its natural surroundings.`\
-https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-the-beauty-of-telluride-colo.html
 
