@@ -1,3 +1,11 @@
+**These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
+`As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
+https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
+
+**Trump Administration Asks Justices to Allow It to Deny Hormones to Trans Inmates**\
+`The Bureau of Prisons policy, which has been blocked by lower courts, would give transgender prisoners access to psychotherapy and antidepressants instead of certain gender-transition medical treatments.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates.html
+
 **Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
 `The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
 https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
 **How Supermarkets Became Protein-Maxxed**\
 `Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
 https://www.nytimes.com/interactive/2026/09/28/upshot/protein.html
-
-**How Scientists Can Shape Public Opinion Over A.I. Risks**\
-`Artificial intelligence workers may have leverage to make the world safer.`\
-https://www.nytimes.com/2026/09/28/business/ai-scientists-protests.html
-
-**Book Review: ‘Ply,’ by Hernan Diaz**\
-`“Ply,” by Hernan Diaz, is set in a dystopian future where the state has been dismantled and one company controls the energy supply.`\
-https://www.nytimes.com/2026/09/28/books/review/hernan-diaz-ply.html
 
