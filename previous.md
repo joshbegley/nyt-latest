@@ -1,3 +1,7 @@
+**Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
+`What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
+https://www.nytimes.com/2026/09/27/arts/music/cleveland-orchestra-strike-deal.html
+
 **Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
 `President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the ambassador to China. The White House later said the U.S. had no plans for such a sale.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
@@ -94,13 +98,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
 **The State of Organ Donation**\
 `Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
 https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/business/members-of-technical-staff-artificia
 **Kyle MacLachlan: David Lynch’s Singular Weirdo Is Secretly a Normie**\
 `The actor still hasn’t come to grips with the loss of David Lynch. He talks about that, his hesitation about taking a role in “Sex and the City” and his new memoir.`\
 https://www.nytimes.com/2026/09/27/movies/kyle-maclachlan-memoir-david-lynch-twin-peaks-sex-and-the-city.html
-
-**How BrooklynVegan Went From Indie Rock Blog to Ghost Site**\
-`It started as an internet outpost for die-hard music fans. Then came success. Then came corporate ownership.`\
-https://www.nytimes.com/2026/09/27/style/brooklyn-vegan-indie-rock-website-corporate-ownership.html
 

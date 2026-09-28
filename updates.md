@@ -1,3 +1,7 @@
+**Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
+`What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
+https://www.nytimes.com/2026/09/27/arts/music/cleveland-orchestra-strike-deal.html
+
 **Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
 `President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the ambassador to China. The White House later said the U.S. had no plans for such a sale.`\
 https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
