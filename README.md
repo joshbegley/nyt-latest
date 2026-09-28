@@ -1,3 +1,7 @@
+**How Israel Has Taken Over More of Gaza Despite the Cease-Fire**\
+`The Israeli military has built new outposts and slowly encroached beyond the withdrawal line in Gaza. These are signs its troops may be preparing to stay for the time being.`\
+https://www.nytimes.com/interactive/2026/09/28/world/middleeast/israel-gaza-cease-fire-palestinian-territory.html
+
 **Giant Pandas Land in Atlanta From China**\
 `Two pandas, Ping Ping and Fu Shuang, arrived in Atlanta on Sunday from China via a custom FedEx cargo shipment as a gesture of good will from Beijing.`\
 https://www.nytimes.com/video/world/100000011178929/china-pandas-atlanta-zoo-us.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-
 **Saturday Night, No Mask Required, at the Last Ditch Lesbian Bar in Massachusetts**\
 `Last Ditch, a bar and art space, ended its Covid mask requirement as a way to attract more people. What it got instead was outsized attention.`\
 https://www.nytimes.com/2026/09/27/us/last-ditch-lesbian-bar-covid-masks-massachusetts.html
-
-**At Least 27 Killed in 2 Overnight Mass Shootings in South Africa**\
-`These were the latest deadly incidents at bars or taverns in a nation with one of the world’s highest murder rates.`\
-https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html
 
 **Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
 `Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
