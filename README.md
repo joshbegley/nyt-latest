@@ -1,3 +1,7 @@
+**Possible Foiled Terror Attack at U.S. Air Base in U.K. Raises Questions Over Security**\
+`Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
+https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
+
 **Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
 `Plus, the pro-Trump ads paid for by taxpayers.`\
 https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazon-drones-texas.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/09/28/podcasts/the-daily/deported-eswatini.html
 https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
 
 **Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
-`Oil/Stocks/Gas hed`\
+`President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
 https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
 
 **Trump’s Most Durable Lie: Election Rigging**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/movies/rinko-kikuchi-interview-ha-chan-shake-
 **Trump Sparked a Gold Rush, and Venezuelan Gangs Take a Cut of Profit**\
 `The administration is brokering deals in a notoriously corrupt industry, including one with a company that the United States deems a security threat.`\
 https://www.nytimes.com/2026/09/28/world/americas/venezuela-gold-trump.html
-
-**Smart Headlights Finally Trickle Down to Cars in the U.S.**\
-`Federal data shows that half of all traffic fatalities happen after dark, but only one-quarter of driving happens at night. So any help is welcome.`\
-https://www.nytimes.com/2026/09/28/business/smart-headlights-adaptive.html
 
