@@ -1,3 +1,11 @@
+**Justice Alito Recuses Himself Days Before Major Climate-Change Case**\
+`Justice Samuel A. Alito Jr. had faced pressure to recuse himself from the climate case because he owns stock in oil companies.`\
+https://www.nytimes.com/2026/09/28/us/politics/alito-suncor-supreme-court-recuse.html
+
+**Student News Quiz: World Leaders, Best TV Shows, Ella Langley**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/09/28/learning/28studentnewsquiz-ln.html
+
 **SpaceX’s Starship Splashes Down Early After Orbiting Earth for the First Time**\
 `SpaceX’s Starship on Monday launched into orbit for the first time, but had to return to Earth early due to engine problems.`\
 https://www.nytimes.com/video/science/space/100000011180119/spacexs-starship-splashes-down-early-after-orbiting-earth-for-the-first-time.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/live/2026/09/28/us/midterm-elections
 **Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
 `Speaking in France, the pontiff lauded postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
 https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
-
-**Could A.I. Safety Risks Derail the Sector’s I.P.O. Prospects?**\
-`Big liability questions lie ahead for the artificial intelligence labs Anthropic and OpenAI as they push ahead with plans to go public.`\
-https://www.nytimes.com/2026/09/28/business/dealbook/ai-safety-risks-ipo.html
-
-**China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
-`The two countries unveiled separate lists covering thousands of products as they sought to ease trade tensions and stabilize relations before further negotiations.`\
-https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
 

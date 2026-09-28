@@ -1,3 +1,7 @@
+**SpaceX’s Starship Splashes Down Early After Orbiting Earth for the First Time**\
+`SpaceX’s Starship on Monday launched into orbit for the first time, but had to return to Earth early due to engine problems.`\
+https://www.nytimes.com/video/science/space/100000011180119/spacexs-starship-splashes-down-early-after-orbiting-earth-for-the-first-time.html
+
 **Firefighter Dies in BASE Jump Attempt in Utah**\
 `Gabe Reilly, a Salt Lake City firefighter who was an experienced BASE jumper, died in an accident near Millville Canyon in northern Utah on Sunday, officials said.`\
 https://www.nytimes.com/2026/09/28/us/base-jumper-dead-utah.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/09/28/us/base-jumper-dead-utah.html
 https://www.nytimes.com/video/opinion/100000011172489/the-irony-of-trumps-economic-policies.html
 
 **Man Is Fatally Stabbed at Manhattan Homeless Shelter**\
-`Another man, Javed Tyghter, was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
+`Another man was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
 https://www.nytimes.com/2026/09/28/nyregion/fatal-stabbing-homeless-shelter-washington-heights.html
 
 **The Voices Behind ‘Made in China’**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/business/dealbook/ai-safety-risks-ipo.html
 **China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
 `The two countries unveiled separate lists covering thousands of products as they sought to ease trade tensions and stabilize relations before further negotiations.`\
 https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
-
-**Protein in Every Food**\
-`We look at the market for products with added protein.`\
-https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
 
