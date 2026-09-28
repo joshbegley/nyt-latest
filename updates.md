@@ -1,3 +1,7 @@
+**Paxton, Trailing Talarico in Polls, Tacks Toward the Center in Texas**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/28/us/midterm-elections
+
 **New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
 `It will likely be a very wet few days across the region.`\
 https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
