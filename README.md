@@ -1,3 +1,7 @@
+**The one outfit we agreed on this weekend**\
+`At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
+https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
+
 **Could Homeownership Reverse the Decline in Birthrates?**\
 `Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
 https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/books/review/whitney-houston-emily-lordi-hold
 **What We Saw in One Venezuelan Gold Town**\
 `With U.S. support, traders arrived and cut deals. That investment has so far failed to improve the bleak conditions in the mining industry.`\
 https://www.nytimes.com/2026/09/28/world/americas/what-we-saw-in-one-venezuelan-gold-town.html
-
-**6 Things Experts Wish Every Runner Did to Avoid Injury**\
-`These habits can help keep you healthy and strong.`\
-https://www.nytimes.com/2026/09/28/well/move/running-injury-prevention-tips.html
 
