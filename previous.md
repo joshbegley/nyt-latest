@@ -1,3 +1,7 @@
+**3 Egyptian Officials Convicted of Kidnapping Slain Italian Student**\
+`The verdict followed a decade-long effort in Italy to account for the killing of Giulio Regeni, an Italian researcher who disappeared in Cairo in 2016.`\
+https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html
+
 **What We Gain, and Lose, at a Phone-Free Concert**\
 `Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
 https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordabil
 **The Other Bond Market You Need to Worry About**\
 `The revival of Japan’s economy isn’t all good news.`\
 https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
-
-**Who’s Winning the Race for Congress? 2026 Midterm Elections**\
-`It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
 
