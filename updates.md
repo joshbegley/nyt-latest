@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Rachel**\
+`See the likely path and wind arrival times for Rachel`\
+https://www.nytimes.com/interactive/2026/09/27/weather/rachel-map-path-tracker.html
+
 **Nor’easter Weakens but Remains a Threat**\
 `The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
 https://www.nytimes.com/2026/09/27/well/noreaster-weakens-but-remains-a-threat.html
