@@ -1,3 +1,7 @@
+**Journalism Essentials: How to Write a News Story**\
+`Interested in journalistic writing? We discuss the key components of a news article.`\
+https://www.nytimes.com/2026/09/28/learning/journalism-essentials-how-to-write-a-news-story.html
+
 **Can You Match These Autumnal Quotes to the Correct Book?**\
 `Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many seasonal observations you recognize from popular books.`\
 https://www.nytimes.com/quiz/2026/09/28/bookreview/autumn-literary-quotes.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
 https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
 
 **Trump’s Most Durable Lie: Election Rigging**\
-`Trump’s most durable lie.`\
+`“Rigged.” “Fraud.” “Hoax.” The president is a broken record.`\
 https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
 
 **How Supermarkets Became Protein-Maxxed**\
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-t
 `We have built a culture that views a death in the I.C.U. as a failure.`\
 https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
 
-**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
-`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
-https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
-
 **Free OMNY Cards for 700 CUNY students**\
 `Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
 https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
+
+**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
+`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
+https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
 
 **What Have You Learned From Facing a Fear?**\
 `A writer signed up for a dizzying cliffside adventure to confront his fear of heights. What can you take away from his story?`\
@@ -166,7 +170,7 @@ https://www.nytimes.com/2026/09/28/learning/word-of-the-day-recitation.html
 `Shaken by tariffs and threats from the Trump administration, Canadian businesses are seeking markets and suppliers beyond the United States.`\
 https://www.nytimes.com/2026/09/28/business/trump-tariffs-canada-diversify.html
 
-**U.C.L.A.’s Bollywood Dance Team: Bonding and Battling**\
+**The U.C.L.A. Bollywood Dance Team That Inspired ‘Best of the Best’**\
 `“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
 https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/well/move/running-injury-prevention-tips.html
 **Under Trump, Commodity Futures Trading Commission Scales Back Enforcement, Worrying Farmers**\
 `The fate of two cotton brokers highlights how the Commodity Futures Trading Commission has scaled back its regulatory actions not just for crypto cases but also for the kinds of cases it has long policed.`\
 https://www.nytimes.com/2026/09/28/us/politics/cotton-trump-commodity-markets-cftc.html
-
-**New Fantasy Football Punishments Include Meat Marathons and Tattoos**\
-`In a time of social-media stunts, leagues are coming up with creative penalties for last-place finishers.`\
-https://www.nytimes.com/2026/09/28/style/fantasy-football-punishments.html
 

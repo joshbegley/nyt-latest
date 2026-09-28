@@ -1,3 +1,7 @@
+**Live Updates: Police to Release 5 Men Arrested Over Possible Terror Plot at U.K. Air Base**\
+`The suspects are being released on bail with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
 **Can You Match These Autumnal Quotes to the Correct Book?**\
 `Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many seasonal observations you recognize from popular books.`\
 https://www.nytimes.com/quiz/2026/09/28/bookreview/autumn-literary-quotes.html
