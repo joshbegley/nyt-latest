@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
 `The verdict followed a decade-long effort in Italy to account for the killing of Giulio Regeni, an Italian researcher who disappeared in Cairo in 2016.`\
 https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html
 
-**What We Gain, and Lose, at a Phone-Free Concert**\
+**How Phoebe Bridgers’ Phone Ban Changes the Concert Experience**\
 `Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
 https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
 

@@ -1,3 +1,7 @@
+**How Phoebe Bridgers’ Phone Ban Changes the Concert Experience**\
+`Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
+https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
+
 **Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
 `The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
 https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
