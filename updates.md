@@ -1,3 +1,7 @@
+**Tom Kean Jr. Backs Trump on Iran and Tariffs, if Not Local Issues**\
+`In a debate with the Democrat Rebecca Bennett, the New Jersey Republican said he was willing to take on the president over funding for a Hudson River tunnel project.`\
+https://www.nytimes.com/2026/09/28/nyregion/tom-kean-jr-rebecca-bennett-debate-trump.html
+
 **SpaceX’s Starship Is Set to Make Its First Orbital Flight**\
 `If successful, the 14th test flight will be a crucial milestone toward the company’s ambitions of sending people to the moon and Mars.`\
 https://www.nytimes.com/2026/09/28/science/space/spacex-starship-first-orbital-flight.html

@@ -1,3 +1,7 @@
+**Tom Kean Jr. Backs Trump on Iran and Tariffs, if Not Local Issues**\
+`In a debate with the Democrat Rebecca Bennett, the New Jersey Republican said he was willing to take on the president over funding for a Hudson River tunnel project.`\
+https://www.nytimes.com/2026/09/28/nyregion/tom-kean-jr-rebecca-bennett-debate-trump.html
+
 **SpaceX’s Starship Is Set to Make Its First Orbital Flight**\
 `If successful, the 14th test flight will be a crucial milestone toward the company’s ambitions of sending people to the moon and Mars.`\
 https://www.nytimes.com/2026/09/28/science/space/spacex-starship-first-orbital-flight.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-cha
 **NYT Strands Hints for September 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
 https://www.nytimes.com/2026/09/27/crosswords/strands-sidekick-939.html
-
-**A.I. Shortcuts Are Ruining How We Think**\
-`Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
-https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
 
