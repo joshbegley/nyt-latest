@@ -1,3 +1,7 @@
+**Pope Leo Electrifies French Crowd on Historic Europe Tour**\
+`The New York Times’s Rome Bureau Chief Motoko Rich calls Natalie Kitroeff from Metz, France, where she’s reporting from a massive crowd waiting for Pope Leo XIV to arrive for Mass. It’s the end of the pope’s tour of France, the first papal visit in over 18 years.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011180902/pope-leo-electrifies-french-crowd-on-historic-europe-tour.html
+
 **There Is a Word So Powerful It Need Be Spoken Only Once**\
 `The film that makes a powerful statement without ever raising its voice.`\
 https://www.nytimes.com/2026/09/28/opinion/naza-film-gaza-israel.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
 **Two of China’s EV Makers Announce a Deal as Auto Industry Moves Toward Consolidation**\
 `Two of the country’s leading makers of electric vehicles announced they are merging their battery swapping and charging operations.`\
 https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
-
-**Andrew Bailey, a Deputy Director at the F.B.I., Leaves His Job**\
-`Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
-https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 

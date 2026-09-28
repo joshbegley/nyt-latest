@@ -1,3 +1,7 @@
+**Pope Leo Electrifies French Crowd on Historic Europe Tour**\
+`The New York Times’s Rome Bureau Chief Motoko Rich calls Natalie Kitroeff from Metz, France, where she’s reporting from a massive crowd waiting for Pope Leo XIV to arrive for Mass. It’s the end of the pope’s tour of France, the first papal visit in over 18 years.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011180902/pope-leo-electrifies-french-crowd-on-historic-europe-tour.html
+
 **There Is a Word So Powerful It Need Be Spoken Only Once**\
 `The film that makes a powerful statement without ever raising its voice.`\
 https://www.nytimes.com/2026/09/28/opinion/naza-film-gaza-israel.html
