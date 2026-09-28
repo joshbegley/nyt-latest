@@ -1,3 +1,7 @@
+**Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
+`President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
+https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
+
 **Trump’s Most Durable Lie: Election Rigging**\
 `Trump’s most durable lie.`\
 https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/world/europe/ukraine-russia-war-soldiers-deat
 **Josef Kubota Wladyka’s New Film Pays Homage to His Mother’s Spirit**\
 `In Josef Kubota Wladyka’s newest film, ‘Ha-Chan, Shake Your Booty,’ much of the style, tone and acting choices were informed by his mother and her love of ballroom dancing.`\
 https://www.nytimes.com/video/arts/100000011164914/josef-kubota-wladykas-film-mother.html
-
-**How Israel Has Taken Over More of Gaza Despite the Cease-Fire**\
-`The Israeli military has built new outposts and slowly encroached beyond the withdrawal line in Gaza. These are signs its troops may be preparing to stay for the time being.`\
-https://www.nytimes.com/interactive/2026/09/28/world/middleeast/israel-gaza-cease-fire-palestinian-territory.html
 

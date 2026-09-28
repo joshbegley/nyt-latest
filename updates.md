@@ -1,3 +1,7 @@
+**Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
+`President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
+https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
+
 **Trump’s Most Durable Lie: Election Rigging**\
 `Trump’s most durable lie.`\
 https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
