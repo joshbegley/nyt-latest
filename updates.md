@@ -1,3 +1,7 @@
+**Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base**\
+`The British counterterrorism police said the five British nationals arrested near R.A.F. Fairford on Sunday were being released on bail but remained under investigation.`\
+https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
+
 **Corrections: Sept. 26, 2026**\
 `Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
