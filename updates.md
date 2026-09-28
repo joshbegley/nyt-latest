@@ -1,3 +1,7 @@
+**Protein in Every Food**\
+`We look at the market for products with added protein.`\
+https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
+
 **Possible Foiled Terror Attack at U.K Air Base Used by U.S. Raises Questions Over Security**\
 `Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html

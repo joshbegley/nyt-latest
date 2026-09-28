@@ -1,3 +1,7 @@
+**Protein in Every Food**\
+`We look at the market for products with added protein.`\
+https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
+
 **Possible Foiled Terror Attack at U.K Air Base Used by U.S. Raises Questions Over Security**\
 `Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/opinion/sittenfeld-marriage-nyt-175.html
 **Watch Rinko Kikuchi Dance in ‘Ha-Chan, Shake Your Booty!’**\
 `Kikuchi and the film’s director, Josef Kubota Wladyka, break down five key dance sequences from the film.`\
 https://www.nytimes.com/2026/09/28/movies/rinko-kikuchi-interview-ha-chan-shake-your-booty.html
-
-**Trump Sparked a Gold Rush, and Venezuelan Gangs Take a Cut of Profit**\
-`The administration is brokering deals in a notoriously corrupt industry, including one with a company that the United States deems a security threat.`\
-https://www.nytimes.com/2026/09/28/world/americas/venezuela-gold-trump.html
 
