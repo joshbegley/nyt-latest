@@ -1,3 +1,7 @@
+**Possible Terror Plot at RAF Fairford Air Base in UK: What We Know**\
+`Five men were arrested Sunday as they approached R.A.F. Fairford, a British installation used by the U.S. in its war against Iran. The men are being held on suspicion of terrorism.`\
+https://www.nytimes.com/2026/09/28/world/europe/raf-fairford-incident-air-base-terrorism-uk.html
+
 **Mamdani’s Shadow Looms Over Hochul’s Bid for Re-election**\
 `Gov. Kathy Hochul is counting on Mayor Zohran Mamdani to help her campaign in New York, but how he does so is still being worked out.`\
 https://www.nytimes.com/2026/09/28/nyregion/mamdanis-shadow-looms-over-hochuls-bid-for-re-election.html
