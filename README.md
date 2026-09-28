@@ -1,3 +1,7 @@
+**Best and Worst Moments of the 2026 MTV Video Music Awards**\
+`Madonna ruled on Sunday night as the ceremony tried to recall VMAs of the past.`\
+https://www.nytimes.com/2026/09/27/arts/music/best-and-worst-moments-mtv-video-music-awards.html
+
 **Bras Pretended to Be Tops at the V.M.A.s and on Fashion Week Runways**\
 `At Sunday night’s MTV Video Music Awards and on fashion week runways, a bit of underwear completed a full look.`\
 https://www.nytimes.com/2026/09/27/style/vmas-bra-tops-fashion-week-prada.html
@@ -118,13 +122,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/us/politics/mary-peltola-alaska-senate.html
 **Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
 `As their midterm picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
 https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
-
-**Dogs Will Fight Bears. But Not Because of the Reason You Might Think.**\
-`Scientists analyzed hundreds of encounters between bears and canines. The results raise the suggestion that dogs may not always protect people in the wild.`\
-https://www.nytimes.com/2026/09/27/science/dogs-chasing-bears.html
 
