@@ -1,3 +1,7 @@
+**Fire, Smoke and Desperation After a Strike in the Heart of Kyiv**\
+`A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
+https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
+
 **SpaceX Starship Launches Into Orbit for the First Time**\
 `SpaceX’s Starship made it into orbit for the first time on Monday. The 14th test flight was an important step toward the company’s goal to send people to the moon and Mars.`\
 https://www.nytimes.com/video/us/100000011179593/spacex-starship-launch-orbit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/business/trump-tariffs-canada-diversify.html
 **The U.C.L.A. Bollywood Dance Team That Inspired ‘Best of the Best’**\
 `“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
 https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
-
-**Brazil’s Biggest Election Question?: Donald Trump’s Next Move**\
-`As Brazil prepares to hold elections next month, Latin America’s biggest nation is taking steps to shield its democracy from potential American meddling.`\
-https://www.nytimes.com/2026/09/28/world/americas/brazil-election-bolsonaro-president-trump.html
 
