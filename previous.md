@@ -1,3 +1,7 @@
+**Nor’easter Weakens but Remains a Threat**\
+`The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
+https://www.nytimes.com/2026/09/27/well/noreaster-weakens-but-remains-a-threat.html
+
 **Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
 `What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
 https://www.nytimes.com/2026/09/27/arts/music/cleveland-orchestra-strike-deal.html
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -126,7 +130,7 @@ https://www.nytimes.com/2026/09/27/briefing/after-the-drug-laws.html
 `The British counterterrorism police say the men were arrested after three suspicious vehicles appeared to be traveling toward R.A.F. Fairford early on Sunday.`\
 https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html
 
-**Nor’easter Live Updates: Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
+**Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
 `Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
 https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/us/politics/white-house-fraud-task-force.html
 **Job Titles Are Out. Now We’re All ‘Members of the Technical Staff.’**\
 `Use of the generic title has risen by 50 percent in the last year among employees at Anthropic, OpenAI and other A.I. companies, an analysis found.`\
 https://www.nytimes.com/2026/09/27/business/members-of-technical-staff-artificial-intelligence.html
-
-**Kyle MacLachlan: David Lynch’s Singular Weirdo Is Secretly a Normie**\
-`The actor still hasn’t come to grips with the loss of David Lynch. He talks about that, his hesitation about taking a role in “Sex and the City” and his new memoir.`\
-https://www.nytimes.com/2026/09/27/movies/kyle-maclachlan-memoir-david-lynch-twin-peaks-sex-and-the-city.html
 

@@ -1,3 +1,11 @@
+**Nor’easter Weakens but Remains a Threat**\
+`The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
+https://www.nytimes.com/2026/09/27/well/noreaster-weakens-but-remains-a-threat.html
+
+**Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
+`Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
+https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
+
 **Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
 `What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
 https://www.nytimes.com/2026/09/27/arts/music/cleveland-orchestra-strike-deal.html
