@@ -1,3 +1,7 @@
+**China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
+`The two countries unveiled separate lists covering thousands of products as they seek to ease trade tensions and stabilize relations ahead of further negotiations.`\
+https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
+
 **Protein in Every Food**\
 `We look at the market for products with added protein.`\
 https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/upshot/ideas-fixing-schools-ranked.html
 **I Once Celebrated Marriage. Things Have Changed.**\
 `Eleven years later, the novelist revisits a guest essay she wrote about marriage.`\
 https://www.nytimes.com/2026/09/28/opinion/sittenfeld-marriage-nyt-175.html
-
-**Watch Rinko Kikuchi Dance in ‘Ha-Chan, Shake Your Booty!’**\
-`Kikuchi and the film’s director, Josef Kubota Wladyka, break down five key dance sequences from the film.`\
-https://www.nytimes.com/2026/09/28/movies/rinko-kikuchi-interview-ha-chan-shake-your-booty.html
 
