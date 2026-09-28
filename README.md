@@ -90,13 +90,13 @@ https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-t
 `We have built a culture that views a death in the I.C.U. as a failure.`\
 https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
 
-**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
-`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
-https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
-
 **Free OMNY Cards for 700 CUNY students**\
 `Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
 https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
+
+**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
+`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
+https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
 
 **What Have You Learned From Facing a Fear?**\
 `A writer signed up for a dizzying cliffside adventure to confront his fear of heights. What can you take away from his story?`\
