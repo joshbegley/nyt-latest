@@ -1,3 +1,79 @@
+**Trump’s Most Durable Lie: Election Rigging**\
+`Trump’s most durable lie.`\
+https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
+
+**How Supermarkets Became Protein-Maxxed**\
+`Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
+https://www.nytimes.com/interactive/2026/09/28/upshot/28up-protein.html
+
+**How Scientists Can Shape Public Opinion Over A.I. Risks**\
+`Artificial intelligence workers may have leverage to make the world safer.`\
+https://www.nytimes.com/2026/09/28/business/ai-scientists-protests.html
+
+**Book Review: ‘Ply,’ by Hernan Diaz**\
+`“Ply,” by Hernan Diaz, is set in a dystopian future where the state has been dismantled and one company controls the energy supply.`\
+https://www.nytimes.com/2026/09/28/books/review/hernan-diaz-ply.html
+
+**How Do You Open a Dolly Parton Hotel Without Dolly Parton?**\
+`The country music star’s last hospitality project is opening in Nashville, dedicated to her career as a songwriter. Will Dolly being there in spirit be enough?`\
+https://www.nytimes.com/2026/09/28/travel/dolly-parton-songteller-hotel-nashville.html
+
+**How a Brooklyn Fashionista Lives on $67,000 a Year in Bay Ridge**\
+`Tim Victor works as a music teacher in Brooklyn but also goes thrifting and to fashion shows in New York and Paris.`\
+https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordability-victor.html
+
+**The Other Bond Market You Need to Worry About**\
+`The revival of Japan’s economy isn’t all good news.`\
+https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
+
+**Who’s Winning the Race for Congress?**\
+`It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
+
+**Juniper Lattes? Pine Sodas? Food Is Taking Us Back to the Forest.**\
+`Drinks and snacks are being tweaked to evoke woods and meadows, on the theory that frazzled consumers want to reconnect with nature.`\
+https://www.nytimes.com/2026/09/28/dining/forest-flavors-alpine-foraging.html
+
+**Designing a House That Defers to the Beauty of Telluride, Colo.**\
+`A couple built a single-story, horizontal home that seems to grow out of its natural surroundings.`\
+https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-the-beauty-of-telluride-colo.html
+
+**A Good Death Isn’t Always at Home**\
+`We have built a culture that views a death in the I.C.U. as a failure.`\
+https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
+
+**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
+`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
+https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
+
+**Free OMNY Cards for 700 CUNY students**\
+`Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
+https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
+
+**What Have You Learned From Facing a Fear?**\
+`A writer signed up for a dizzying cliffside adventure to confront his fear of heights. What can you take away from his story?`\
+https://www.nytimes.com/2026/09/28/learning/what-have-you-learned-from-facing-a-fear.html
+
+**Affordability Is a Winning Message for Democrats. But There’s an Even Better One.**\
+`If Democrats can embrace what affordability is really about, they might do even more than win elections.`\
+https://www.nytimes.com/2026/09/28/opinion/affordability-democrats-midterms.html
+
+**Min Jin Lee Was Underestimated for Half Her Life. Then She Started to Write.**\
+`A torch bearer for the great 19th-century tradition of social realism, she’s become one of the most important novelists of her generation.`\
+https://www.nytimes.com/2026/09/28/magazine/min-jin-lee-american-hagwon.html
+
+**26 New Books to Read in October: Barbara Kingsolver, Bonnie Garmus, Stephen Graham Jones and More**\
+`Novels by Barbara Kingsolver, Imbolo Mbue and Stephen Graham Jones; biographies of Larry David and Frank Capra; spooky season horror; and more.`\
+https://www.nytimes.com/2026/09/28/books/new-books-october.html
+
+**Word of the Day: recitation**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/28/learning/word-of-the-day-recitation.html
+
+**Trump’s Tariffs Push Canadian Companies to Look Past American Links**\
+`Shaken by tariffs and threats from the Trump administration, Canadian businesses are seeking markets and suppliers beyond the United States.`\
+https://www.nytimes.com/2026/09/28/business/trump-tariffs-canada-diversify.html
+
 **U.C.L.A.’s Bollywood Dance Team: Bonding and Battling**\
 `“For a lot of South Asians, dance is the way we connect,” said a member of the team at U.C.L.A. Our photographer captured glimpses of the team, from audition to competitions.`\
 https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
@@ -121,80 +197,4 @@ https://www.nytimes.com/video/arts/100000011164914/josef-kubota-wladykas-film-mo
 **How Israel Has Taken Over More of Gaza Despite the Cease-Fire**\
 `The Israeli military has built new outposts and slowly encroached beyond the withdrawal line in Gaza. These are signs its troops may be preparing to stay for the time being.`\
 https://www.nytimes.com/interactive/2026/09/28/world/middleeast/israel-gaza-cease-fire-palestinian-territory.html
-
-**Giant Pandas Land in Atlanta From China**\
-`Two pandas, Ping Ping and Fu Shuang, arrived in Atlanta on Sunday from China via a custom FedEx cargo shipment as a gesture of good will from Beijing.`\
-https://www.nytimes.com/video/world/100000011178929/china-pandas-atlanta-zoo-us.html
-
-**15-Minute Lesson Plan: Character Analysis**\
-`What can the opening paragraphs of an essay about Katniss Everdeen teach students?`\
-https://www.nytimes.com/2026/09/28/learning/15-minute-lesson-plan-character-analysis.html
-
-**Possible Terror Plot at RAF Fairford Air Base in UK: What We Know**\
-`Five men were arrested Sunday as they approached R.A.F. Fairford, a British installation used by the U.S. in its war against Iran. The men are being held on suspicion of terrorism.`\
-https://www.nytimes.com/2026/09/28/world/europe/raf-fairford-incident-air-base-terrorism-uk.html
-
-**Mamdani’s Shadow Looms Over Hochul’s Bid for Re-election**\
-`Gov. Kathy Hochul is counting on Mayor Zohran Mamdani to help her campaign in New York, but how he does so is still being worked out.`\
-https://www.nytimes.com/2026/09/28/nyregion/mamdanis-shadow-looms-over-hochuls-bid-for-re-election.html
-
-**After Taxi Driver Deaths, Union Pushes Mamdani for Health Fund**\
-`Several New York City cabbies were recently found dead in their cars. A taxi union is seeking to revive a fund that would provide medical screenings, disability insurance and other benefits.`\
-https://www.nytimes.com/2026/09/28/nyregion/nyc-taxi-drivers-mamdani-health-benefits.html
-
-**N.Y.P.D. Officers Used Flock Safety to Track License Plates**\
-`Public records show police officers used Flock Safety’s technology to make more than 1,700 searches. The department did not have a contract with the company.`\
-https://www.nytimes.com/2026/09/28/nyregion/nyc-flock-nypd-surveillance-cameras.html
-
-**NYT Spelling Bee Answers for September 28, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/28/crosswords/spelling-bee-forum.html
-
-**Why China Is Requiring Ninth Graders to Read ‘Jane Eyre’**\
-`The Victorian heroine has long been celebrated in China for her independence and insistence on equality.`\
-https://www.nytimes.com/2026/09/28/world/asia/china-jane-eyre-required-reading-literature.html
-
-**‘Ghost Adventures,’ and 7 More Shows to Watch on TV This Week**\
-`The paranormal investigation series returns, and the 1952 John Steinbeck novel “East of Eden” comes to small screens.`\
-https://www.nytimes.com/2026/09/28/arts/television/ghost-adventures-east-of-eden-tv.html
-
-**Tom Kean Jr. Backs Trump on Iran and Tariffs, if Not Local Issues**\
-`In a debate with the Democrat Rebecca Bennett, the New Jersey Republican said he was willing to take on the president over funding for a Hudson River tunnel project.`\
-https://www.nytimes.com/2026/09/28/nyregion/tom-kean-jr-rebecca-bennett-debate-trump.html
-
-**SpaceX’s Starship Is Set to Make Its First Orbital Flight**\
-`If successful, the 14th test flight will be a crucial milestone toward the company’s ambitions of sending people to the moon and Mars.`\
-https://www.nytimes.com/2026/09/28/science/space/spacex-starship-first-orbital-flight.html
-
-**Quote of the Day: Victor Miller, 86, Dies; Wrote ‘Friday the 13th,’ Then Came a Plot Twist**\
-`Quotation of the Day for Monday, September 28, 2026.`\
-https://www.nytimes.com/2026/09/28/pageoneplus/quote-of-the-day-victor-miller-86-dies-wrote-friday-the-13th-then-came-a-plot-twist.html
-
-**On This Day | Sept. 28**\
-`In 1924, United States Army aviators landed in Seattle after completing the first flight around the world, a roughly 27,000-mile journey that took 175 days.`\
-https://www.nytimes.com/2026/09/28/learning/on-this-day-sept-28.html
-
-**Best and Worst Moments of the 2026 MTV Video Music Awards**\
-`Madonna ruled on Sunday night as the ceremony tried to recall VMAs of the past.`\
-https://www.nytimes.com/2026/09/27/arts/music/best-and-worst-moments-mtv-video-music-awards.html
-
-**Bras Pretended to Be Tops at the V.M.A.s and on Fashion Week Runways**\
-`At Sunday night’s MTV Video Music Awards and on fashion week runways, a bit of underwear completed a full look.`\
-https://www.nytimes.com/2026/09/27/style/vmas-bra-tops-fashion-week-prada.html
-
-**‘Lanterns’ Season 1, Episode 7 Recap: Unboxing**\
-`This week’s installment dove deeper into Hal’s past, revealing a lot of half-buried trauma.`\
-https://www.nytimes.com/2026/09/27/arts/television/lanterns-recap-season-1-episode-7.html
-
-**The 10 Best Looks at the MTV Video Music Awards**\
-`With leather, lace and lots of skin, it was an over-the-top night on the red carpet.`\
-https://www.nytimes.com/2026/09/27/style/mtv-vmas-best-dressed.html
-
-**Maps: Tracking Tropical Storm Rachel**\
-`See the likely path and wind arrival times for Rachel`\
-https://www.nytimes.com/interactive/2026/09/27/weather/rachel-map-path-tracker.html
-
-**Nor’easter Weakens but Remains a Threat**\
-`The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
-https://www.nytimes.com/2026/09/27/well/noreaster-storm-new-jersey-new-york-weather-forecast.html
 
