@@ -1,3 +1,7 @@
+**These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
+`As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
+https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
+
 **Trump Administration Asks Justices to Allow It to Deny Hormones to Trans Inmates**\
 `The Bureau of Prisons policy, which has been blocked by lower courts, would give transgender prisoners access to psychotherapy and antidepressants instead of certain gender-transition medical treatments.`\
 https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
 **How Supermarkets Became Protein-Maxxed**\
 `Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
 https://www.nytimes.com/interactive/2026/09/28/upshot/protein.html
-
-**How Scientists Can Shape Public Opinion Over A.I. Risks**\
-`Artificial intelligence workers may have leverage to make the world safer.`\
-https://www.nytimes.com/2026/09/28/business/ai-scientists-protests.html
 
