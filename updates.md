@@ -1,3 +1,11 @@
+**Justice Alito Recuses Himself Days Before Major Climate-Change Case**\
+`Justice Samuel A. Alito Jr. had faced pressure to recuse himself from the climate case because he owns stock in oil companies.`\
+https://www.nytimes.com/2026/09/28/us/politics/alito-suncor-supreme-court-recuse.html
+
+**Student News Quiz: World Leaders, Best TV Shows, Ella Langley**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/09/28/learning/28studentnewsquiz-ln.html
+
 **SpaceX’s Starship Splashes Down Early After Orbiting Earth for the First Time**\
 `SpaceX’s Starship on Monday launched into orbit for the first time, but had to return to Earth early due to engine problems.`\
 https://www.nytimes.com/video/science/space/100000011180119/spacexs-starship-splashes-down-early-after-orbiting-earth-for-the-first-time.html
