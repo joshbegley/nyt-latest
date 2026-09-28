@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
 `We look at the market for products with added protein.`\
 https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
 
-**Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base**\
-`The British counterterrorism police said the five British nationals arrested near R.A.F. Fairford on Sunday were being released on bail but remained under investigation.`\
-https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
-
