@@ -1,3 +1,11 @@
+**What We Gain, and Lose, at a Phone-Free Concert**\
+`Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
+https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
+
+**China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
+`The two countries unveiled separate lists covering thousands of products as they sought to ease trade tensions and stabilize relations before further negotiations.`\
+https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
+
 **Russia Strikes Ukraine’s National Academy of Sciences**\
 `A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
 https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
