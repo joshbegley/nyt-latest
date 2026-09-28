@@ -1,3 +1,7 @@
+**The Local: Fancy cats**\
+`Also, the Lynx face a setback.`\
+https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
+
 **These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
 `As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
 https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
 **Trump’s Most Durable Lie: Election Rigging**\
 `“Rigged.” “Fraud.” “Hoax.” The president is a broken record.`\
 https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
-
-**How Supermarkets Became Protein-Maxxed**\
-`Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
-https://www.nytimes.com/interactive/2026/09/28/upshot/protein.html
 
