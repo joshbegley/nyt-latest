@@ -1,3 +1,11 @@
+**The district attorney explained why he reopened the Cornell investigation. Read the document:**\
+`The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
+https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
+
+**Possible Terror Attack at U.K. Air Base Used by U.S. Raises Security Concerns**\
+`Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
+https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
+
 **German Town Votes to Stop Adding Memorials Outside Homes of Slain Jews**\
 `Councilors in an eastern German town voted to stop installing memorial plaques outside homes of Holocaust victims, saying they would instead build a memorial at a cemetery.`\
 https://www.nytimes.com/2026/09/28/world/europe/germany-stumbling-stones-holocaust-memorial-ban.html

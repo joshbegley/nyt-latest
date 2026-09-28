@@ -1,3 +1,11 @@
+**British Police Releases on Bail Five Men Arrested Over Possible Terror Plot**\
+`British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
+
+**With Kennedy Center Closed, National Symphony Starts Life on the Road**\
+`The orchestra, which was to have celebrated its 40th anniversary at the Kennedy Center, started its nomadic season in Bethesda, Md.`\
+https://www.nytimes.com/2026/09/28/arts/music/national-symphony-carlos-simon-bethesda.html
+
 **German Town Votes to Stop Adding Memorials Outside Homes of Slain Jews**\
 `Councilors in an eastern German town voted to stop installing memorial plaques outside homes of Holocaust victims, saying they would instead build a memorial at a cemetery.`\
 https://www.nytimes.com/2026/09/28/world/europe/germany-stumbling-stones-holocaust-memorial-ban.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/09/28/climate/trump-gas-cars-mileage-standards.html
 `Videos taken by the Nantucket Current show a fragment of a wooden boat on the island’s south shore during a nor’easter. An expert said the remains were most likely from the Warren Sawyer, a ship that had wrecked in 1884.`\
 https://www.nytimes.com/video/us/100000011179257/noreaster-storm-nantucket-shipwreck.html
 
-**Fire, Smoke and Desperation After a Strike in the Heart of Kyiv**\
+**Russian Drone Strikes Ukraine’s Science Academy, Causing Fire in City Center**\
 `A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
 https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-t
 **A Good Death Isn’t Always at Home**\
 `We have built a culture that views a death in the I.C.U. as a failure.`\
 https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
-
-**Our Power Grid Is Vulnerable. This Is How to Protect It.**\
-`The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
-https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
-
-**Free OMNY Cards for 700 CUNY students**\
-`Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
-https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
 
