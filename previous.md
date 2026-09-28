@@ -1,3 +1,7 @@
+**In Ohio, a Humbling Question For Senator Jon Husted: Are You the Incumbent?**\
+`Even some devoted conservatives know more about Sherrod Brown, the Democratic challenger, than the Republican incumbent, who needs the MAGA base to turn out.`\
+https://www.nytimes.com/2026/09/28/us/politics/john-husted-ohio-president-trump-midterms.html
+
 **Over 800 Killed in Renewed Houthi-Saudi War in Yemen, W.H.O. Says**\
 `The fighting between the Iran-backed Houthi militia and Saudi-backed government forces has exacerbated one of the world’s worst humanitarian crises, the World Health Organization said.`\
 https://www.nytimes.com/2026/09/28/world/middleeast/yemen-war-800-dead.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
 `Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
-**Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
+**Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
 `The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/opinion/affordability-democrats-midterms.html
 **Min Jin Lee Was Underestimated for Half Her Life. Then She Started to Write.**\
 `A torch bearer for the great 19th-century tradition of social realism, she’s become one of the most important novelists of her generation.`\
 https://www.nytimes.com/2026/09/28/magazine/min-jin-lee-american-hagwon.html
-
-**26 New Books to Read in October: Barbara Kingsolver, Bonnie Garmus, Stephen Graham Jones and More**\
-`Novels by Barbara Kingsolver, Imbolo Mbue and Stephen Graham Jones; biographies of Larry David and Frank Capra; spooky season horror; and more.`\
-https://www.nytimes.com/2026/09/28/books/new-books-october.html
 

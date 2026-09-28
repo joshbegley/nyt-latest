@@ -1,3 +1,11 @@
+**In Ohio, a Humbling Question For Senator Jon Husted: Are You the Incumbent?**\
+`Even some devoted conservatives know more about Sherrod Brown, the Democratic challenger, than the Republican incumbent, who needs the MAGA base to turn out.`\
+https://www.nytimes.com/2026/09/28/us/politics/john-husted-ohio-president-trump-midterms.html
+
+**Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
+`The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
 **Over 800 Killed in Renewed Houthi-Saudi War in Yemen, W.H.O. Says**\
 `The fighting between the Iran-backed Houthi militia and Saudi-backed government forces has exacerbated one of the world’s worst humanitarian crises, the World Health Organization said.`\
 https://www.nytimes.com/2026/09/28/world/middleeast/yemen-war-800-dead.html

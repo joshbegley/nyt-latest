@@ -1,3 +1,7 @@
+**A.I. Is Not a Doctor. We Need Human Ones.**\
+`Readers respond to a front-page article, “Doctor A.I. Will See You, in Spite of Misgivings.” Also: Canada won’t yield; the lasting value of collective joy.`\
+https://www.nytimes.com/2026/09/28/opinion/ai-doctor.html
+
 **In Ohio, a Humbling Question For Senator Jon Husted: Are You the Incumbent?**\
 `Even some devoted conservatives know more about Sherrod Brown, the Democratic challenger, than the Republican incumbent, who needs the MAGA base to turn out.`\
 https://www.nytimes.com/2026/09/28/us/politics/john-husted-ohio-president-trump-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/learning/what-have-you-learned-from-facing-a-
 **Affordability Is a Winning Message for Democrats. But There’s an Even Better One.**\
 `If Democrats can embrace what affordability is really about, they might do even more than win elections.`\
 https://www.nytimes.com/2026/09/28/opinion/affordability-democrats-midterms.html
-
-**Min Jin Lee Was Underestimated for Half Her Life. Then She Started to Write.**\
-`A torch bearer for the great 19th-century tradition of social realism, she’s become one of the most important novelists of her generation.`\
-https://www.nytimes.com/2026/09/28/magazine/min-jin-lee-american-hagwon.html
 
