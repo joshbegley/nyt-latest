@@ -1,3 +1,7 @@
+**SpaceX Starship Launches Into Orbit for the First Time**\
+`SpaceX’s Starship made it into orbit for the first time on Monday. The 14th test flight was an important step toward the company’s goal to send people to the moon and Mars.`\
+https://www.nytimes.com/video/us/100000011179593/spacex-starship-launch-orbit.html
+
 **This Virus Stole a Human Gene and Won’t Let Go of It**\
 `Scientists have found a human gene lurking in a virus that causes skin infections. It may be using our own DNA to infect us.`\
 https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of
 **Brazil’s Biggest Election Question?: Donald Trump’s Next Move**\
 `As Brazil prepares to hold elections next month, Latin America’s biggest nation is taking steps to shield its democracy from potential American meddling.`\
 https://www.nytimes.com/2026/09/28/world/americas/brazil-election-bolsonaro-president-trump.html
-
-**‘Showgirls’: The Gratuitous, Surreal Bomb That Was Maybe Brilliant**\
-`The reception to Paul Verhoeven’s lurid 1995 melodrama starring Elizabeth Berkley, Kyle MacLachlan and Gina Gershon was humiliating, but it’s since become a thought-provoking camp favorite.`\
-https://www.nytimes.com/2026/09/28/movies/showgirls-elizabeth-berkley-verhoeven.html
 
