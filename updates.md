@@ -1,3 +1,7 @@
+**The one outfit we agreed on this weekend**\
+`At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
+https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
+
 **Could Homeownership Reverse the Decline in Birthrates?**\
 `Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
 https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
