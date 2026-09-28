@@ -1,3 +1,7 @@
+**Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
+`Speaking in France, the pontiff praised postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
+https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
+
 **Could A.I. Safety Risks Derail the Sector’s I.P.O. Prospects?**\
 `Big liability questions lie ahead for the artificial intelligence labs Anthropic and OpenAI as they push ahead with plans to go public.`\
 https://www.nytimes.com/2026/09/28/business/dealbook/ai-safety-risks-ipo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/fashion/weaving-studio-jumi-berlin.html
 **Are Shirt Buttons Sexist?**\
 `A reader questions the point of having men’s and women’s shirt buttons on different sides.`\
 https://www.nytimes.com/2026/09/28/fashion/shirt-buttons-sexism.html
-
-**30 Ideas for Fixing U.S. Schools, Ranked by Experts**\
-`Math and reading scores are in a decade-long slump. We asked three dozen experts: What could turn things around?`\
-https://www.nytimes.com/2026/09/28/upshot/ideas-fixing-schools-ranked.html
 
