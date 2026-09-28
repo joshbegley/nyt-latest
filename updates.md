@@ -1,3 +1,7 @@
+**Possible Foiled Terror Attack at U.S. Air Base in U.K. Raises Questions Over Security**\
+`Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
+https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
+
 **Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
 `Plus, the pro-Trump ads paid for by taxpayers.`\
 https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazon-drones-texas.html
