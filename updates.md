@@ -1,3 +1,7 @@
+**New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
+`It will likely be a very wet few days across the region.`\
+https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
+
 **He Burned to Death in a Prison Cell. His Family Wants Answers.**\
 `New York State officials have yet to say what caused a fire that killed Marcos Alcaraz at Eastern Correctional Facility in July.`\
 https://www.nytimes.com/2026/09/28/nyregion/ny-prison-fire-death-questions.html

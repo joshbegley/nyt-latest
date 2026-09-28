@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates
 https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
 
 **New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
-`Arizona, New Mexico, Utah and Colorado prepared for heavy rain that could lead to life-threatening flooding.`\
+`It will likely be a very wet few days across the region.`\
 https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
 
 **Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
