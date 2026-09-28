@@ -1,3 +1,11 @@
+**German Town Votes to Stop Adding Memorials Outside Homes of Slain Jews**\
+`Councilors in an eastern German town voted to stop installing memorial plaques outside homes of Holocaust victims, saying they would instead build a memorial at a cemetery.`\
+https://www.nytimes.com/2026/09/28/world/europe/germany-stumbling-stones-holocaust-memorial-ban.html
+
+**Cornell Sexual Assault Investigation to Be Reopened**\
+`After outrage over allegations in a lawsuit, the Tompkins County district attorney will revisit the decision not to pursue criminal charges against seven fraternity members.`\
+https://www.nytimes.com/2026/09/28/nyregion/cornell-chi-phi-fraternity-assault.html
+
 **A.I. Is Not a Doctor. We Need Human Ones.**\
 `Readers respond to a front-page article, “Doctor A.I. Will See You, in Spite of Misgivings.” Also: Canada won’t yield; the lasting value of collective joy.`\
 https://www.nytimes.com/2026/09/28/opinion/ai-doctor.html
