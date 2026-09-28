@@ -1,3 +1,7 @@
+**Could Homeownership Reverse the Decline in Birthrates?**\
+`Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
+https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
+
 **Journalism Essentials: How to Write a News Story**\
 `Interested in journalistic writing? We discuss the key components of a news article.`\
 https://www.nytimes.com/2026/09/28/learning/journalism-essentials-how-to-write-a-news-story.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
 `Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
-**Live Updates: Police to Release 5 Men Arrested Over Possible Terror Plot at U.K. Air Base**\
-`The suspects are being released on bail with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+**Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
+`The suspects remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
 **Who Is Ahead in New York's 23rd Congressional District?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/world/americas/what-we-saw-in-one-venezuelan-
 **6 Things Experts Wish Every Runner Did to Avoid Injury**\
 `These habits can help keep you healthy and strong.`\
 https://www.nytimes.com/2026/09/28/well/move/running-injury-prevention-tips.html
-
-**Under Trump, Commodity Futures Trading Commission Scales Back Enforcement, Worrying Farmers**\
-`The fate of two cotton brokers highlights how the Commodity Futures Trading Commission has scaled back its regulatory actions not just for crypto cases but also for the kinds of cases it has long policed.`\
-https://www.nytimes.com/2026/09/28/us/politics/cotton-trump-commodity-markets-cftc.html
 
