@@ -1,3 +1,11 @@
+**He Burned to Death in a Prison Cell. His Family Wants Answers.**\
+`New York State officials have yet to say what caused a fire that killed Marcos Alcaraz at Eastern Correctional Facility in July.`\
+https://www.nytimes.com/2026/09/28/nyregion/ny-prison-fire-death-questions.html
+
+**UK Villages That Host US Bombers Are Abuzz Over Possible Terrorist Plot**\
+`Two villages and a town near R.A.F. Fairford were thrust into the spotlight after the authorities said they were investigating a possible terrorist plot targeting the base.`\
+https://www.nytimes.com/2026/09/28/world/europe/uk-fairford-base-terrorist-plot.html
+
 **Judge Blocks FEMA From Tying Antiterrorism Grants to Election Changes**\
 `The Trump administration had threatened to withhold some Homeland Security money unless states explored paper balloting and citizenship verification.`\
 https://www.nytimes.com/2026/09/28/climate/fema-grants-election-changes-ruling.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/crosswords/wordle-review-1928.html
 **He Was Deported to a Country He’d Never Heard Of**\
 `The Trump administration deported Robert Mosquera to Eswatini, and he has found himself with no way out.`\
 https://www.nytimes.com/2026/09/28/podcasts/the-daily/deported-eswatini.html
-
-**NYT Strands Hints for September 29, 2026.**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
-https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
-
-**Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
-`President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
-https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
 

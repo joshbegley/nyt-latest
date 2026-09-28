@@ -1,3 +1,11 @@
+**He Burned to Death in a Prison Cell. His Family Wants Answers.**\
+`New York State officials have yet to say what caused a fire that killed Marcos Alcaraz at Eastern Correctional Facility in July.`\
+https://www.nytimes.com/2026/09/28/nyregion/ny-prison-fire-death-questions.html
+
+**UK Villages That Host US Bombers Are Abuzz Over Possible Terrorist Plot**\
+`Two villages and a town near R.A.F. Fairford were thrust into the spotlight after the authorities said they were investigating a possible terrorist plot targeting the base.`\
+https://www.nytimes.com/2026/09/28/world/europe/uk-fairford-base-terrorist-plot.html
+
 **Judge Blocks FEMA From Tying Antiterrorism Grants to Election Changes**\
 `The Trump administration had threatened to withhold some Homeland Security money unless states explored paper balloting and citizenship verification.`\
 https://www.nytimes.com/2026/09/28/climate/fema-grants-election-changes-ruling.html
