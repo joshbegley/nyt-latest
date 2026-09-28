@@ -1,3 +1,19 @@
+**Andrew Bailey, a Deputy Director at the F.B.I., Leaves His Job**\
+`Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
+https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
+
+**Live Updates: Police Investigate Possible Terror Plot at U.K. Air Base**\
+`British counterterrorism police are scheduled to give a statement outside Scotland Yard.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
+**Who Is Ahead in New York's 23rd Congressional District?**\
+`Track the latest polls in New York's 23rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
+
+**U.C.L.A.’s Bollywood Dance Team: Bonding and Battling**\
+`“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
+https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
+
 **After a Career Reshaping the Museum of Modern Art, Its Influential Curator Steps Down**\
 `Ann Temkin, head of MoMA’s  painting and sculpture department, will transition to a new role for the museum’s 100th anniversary.`\
 https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-jasper-johns-retire.html
