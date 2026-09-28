@@ -1,3 +1,7 @@
+**Corrections: Sept. 26, 2026**\
+`Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
+
 **British Police Releases on Bail Five Men Arrested Over Possible Terror Plot**\
 `British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/dining/forest-flavors-alpine-foraging.html
 **Designing a House That Defers to the Beauty of Telluride, Colo.**\
 `A couple built a single-story, horizontal home that seems to grow out of its natural surroundings.`\
 https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-the-beauty-of-telluride-colo.html
-
-**A Good Death Isn’t Always at Home**\
-`We have built a culture that views a death in the I.C.U. as a failure.`\
-https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
 

@@ -1,3 +1,7 @@
+**Corrections: Sept. 26, 2026**\
+`Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
+https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
+
 **British Police Releases on Bail Five Men Arrested Over Possible Terror Plot**\
 `British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html

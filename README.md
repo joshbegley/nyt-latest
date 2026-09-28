@@ -130,8 +130,8 @@ https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
 `We look at the market for products with added protein.`\
 https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
 
-**Possible Terror Attack at U.K. Air Base Used by U.S. Raises Security Concerns**\
-`Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
+**Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base**\
+`The British counterterrorism police said the five British nationals arrested near R.A.F. Fairford on Sunday were being released on bail but remained under investigation.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
 
 **Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
