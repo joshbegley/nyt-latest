@@ -1,3 +1,15 @@
+**Over 800 Killed in Renewed Houthi-Saudi War in Yemen, W.H.O. Says**\
+`The fighting between the Iran-backed Houthi militia and Saudi-backed government forces has exacerbated one of the world’s worst humanitarian crises, the World Health Organization said.`\
+https://www.nytimes.com/2026/09/28/world/middleeast/yemen-war-800-dead.html
+
+**Trump Sharply Scales Back Fuel Economy Rules for New Cars**\
+`The move marked the final step in the administration’s efforts to dismantle policies aimed at speeding the shift to electric vehicles.`\
+https://www.nytimes.com/2026/09/28/climate/trump-gas-cars-mileage-standards.html
+
+**Nor’easter Reveals Likely Remains of 1884 Shipwreck in Nantucket**\
+`Videos taken by the Nantucket Current show a fragment of a wooden boat on the island’s south shore during a nor’easter. An expert said the remains were most likely from the Warren Sawyer, a ship that had wrecked in 1884.`\
+https://www.nytimes.com/video/us/100000011179257/noreaster-storm-nantucket-shipwreck.html
+
 **Fire, Smoke and Desperation After a Strike in the Heart of Kyiv**\
 `A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
 https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/28/magazine/min-jin-lee-american-hagwon.html
 **26 New Books to Read in October: Barbara Kingsolver, Bonnie Garmus, Stephen Graham Jones and More**\
 `Novels by Barbara Kingsolver, Imbolo Mbue and Stephen Graham Jones; biographies of Larry David and Frank Capra; spooky season horror; and more.`\
 https://www.nytimes.com/2026/09/28/books/new-books-october.html
-
-**Word of the Day: recitation**\
-`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/28/learning/word-of-the-day-recitation.html
-
-**Trump’s Tariffs Push Canadian Companies to Look Past American Links**\
-`Shaken by tariffs and threats from the Trump administration, Canadian businesses are seeking markets and suppliers beyond the United States.`\
-https://www.nytimes.com/2026/09/28/business/trump-tariffs-canada-diversify.html
-
-**The U.C.L.A. Bollywood Dance Team That Inspired ‘Best of the Best’**\
-`“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
-https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
 
