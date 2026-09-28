@@ -1,3 +1,7 @@
+**Trump Officials Revise How Title IX Sex Discrimination Rules Are Enforced**\
+`The change follows a court ruling barring Title IX from protecting L.G.B.T.Q. people and has angered advocates for sexual assault survivors.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-administration-revises-sex-discrimination-rules.html
+
 **Trump Officials Revise Biden-Era Sex Discrimination Rules**\
 `The change follows a court ruling barring Title IX from protecting L.G.B.T.Q. people and has angered advocates for sexual assault survivors.`\
 https://www.nytimes.com/2026/09/28/us/politics/trump-administration-revises-sex-discrimination-rules.html
