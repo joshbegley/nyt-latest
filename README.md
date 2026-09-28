@@ -1,3 +1,7 @@
+**After a Career Reshaping the Museum of Modern Art, Its Influential Curator Steps Down**\
+`Ann Temkin, head of MoMA’s  painting and sculpture department, will transition to a new role for the museum’s 100th anniversary.`\
+https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-jasper-johns-retire.html
+
 **Nvidia Adds $150 Billion to Massive Stock Buyback, the Largest Ever**\
 `The increase comes four months after the chip giant added $80 billion to its buyback program, bringing the total remaining authorized amount to $235 billion.`\
 https://www.nytimes.com/2026/09/28/business/nvidia-stock-buyback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/fashion/crafts-mbari-kola-lagos-nigeria.html
 **St. Paul’s Cathedral to Get a New Shine**\
 `Plans are being made to regild the ball and cross atop the London landmark with gold from an Australian mine.`\
 https://www.nytimes.com/2026/09/28/fashion/craftsmanship-st-pauls-cathedral-london.html
-
-**A Globe Maker Creates Worlds**\
-`Jonathan Wright makes globes — big ones, small ones and even some in between — in his workshop in England.`\
-https://www.nytimes.com/2026/09/28/fashion/craftsmanship-globe-maker-england.html
 
