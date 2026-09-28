@@ -1,3 +1,23 @@
+**Could Homeownership Reverse the Decline in Birthrates?**\
+`Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
+https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
+
+**Journalism Essentials: How to Write a News Story**\
+`Interested in journalistic writing? We discuss the key components of a news article.`\
+https://www.nytimes.com/2026/09/28/learning/journalism-essentials-how-to-write-a-news-story.html
+
+**Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
+`The suspects remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
+**Trump’s Most Durable Lie: Election Rigging**\
+`“Rigged.” “Fraud.” “Hoax.” The president is a broken record.`\
+https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
+
+**The U.C.L.A. Bollywood Dance Team That Inspired ‘Best of the Best’**\
+`“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
+https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
+
 **Live Updates: Police to Release 5 Men Arrested Over Possible Terror Plot at U.K. Air Base**\
 `The suspects are being released on bail with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
