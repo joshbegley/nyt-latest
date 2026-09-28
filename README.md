@@ -1,3 +1,11 @@
+**Firefighter Dies in BASE Jump Attempt in Utah**\
+`Gabe Reilly, a Salt Lake City firefighter who was an experienced BASE jumper, died in an accident near Millville Canyon in northern Utah on Sunday, officials said.`\
+https://www.nytimes.com/2026/09/28/us/base-jumper-dead-utah.html
+
+**The Irony of Trump’s Economic Policies**\
+`President Trump had an advantage with working-class voters, but that edge is starting to give way, argues E.J. Dionne on “The Opinions.” He and Tim Carney, a columnist for The Washington Examiner, discuss how Trump’s economic policies — which Carney believes are starting to resemble Democratic ones — could alienate the very voters who helped build Trump’s coalition.`\
+https://www.nytimes.com/video/opinion/100000011172489/the-irony-of-trumps-economic-policies.html
+
 **Man Is Fatally Stabbed at Manhattan Homeless Shelter**\
 `Another man, Javed Tyghter, was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
 https://www.nytimes.com/2026/09/28/nyregion/fatal-stabbing-homeless-shelter-washington-heights.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
 **Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base**\
 `The British counterterrorism police said the five British nationals arrested near R.A.F. Fairford on Sunday were being released on bail but remained under investigation.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
-
-**Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
-`Plus, the pro-Trump ads paid for by taxpayers.`\
-https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazon-drones-texas.html
-
-**NYT Connections Answers for September 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
-https://www.nytimes.com/2026/09/28/crosswords/connections-companion-1206.html
 
