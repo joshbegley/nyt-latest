@@ -1,3 +1,7 @@
+**Could A.I. Safety Risks Derail the Sector’s I.P.O. Prospects?**\
+`Big liability questions lie ahead for the artificial intelligence labs Anthropic and OpenAI as they push ahead with plans to go public.`\
+https://www.nytimes.com/2026/09/28/business/dealbook/ai-safety-risks-ipo.html
+
 **China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
 `The two countries unveiled separate lists covering thousands of products as they seek to ease trade tensions and stabilize relations ahead of further negotiations.`\
 https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
