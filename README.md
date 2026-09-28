@@ -1,3 +1,7 @@
+**Judge Blocks FEMA From Tying Antiterrorism Grants to Election Changes**\
+`The Trump administration had threatened to withhold some Homeland Security money unless states explored paper balloting and citizenship verification.`\
+https://www.nytimes.com/2026/09/28/climate/fema-grants-election-changes-ruling.html
+
 **The Local: Fancy cats**\
 `Also, the Lynx face a setback.`\
 https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
 **Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
 `President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
 https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
-
-**Trump’s Most Durable Lie: Election Rigging**\
-`“Rigged.” “Fraud.” “Hoax.” The president is a broken record.`\
-https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
 
