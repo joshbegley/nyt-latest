@@ -1,3 +1,23 @@
+**Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
+`Plus, the pro-Trump ads paid for by taxpayers.`\
+https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazon-drones-texas.html
+
+**NYT Connections Answers for September 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/connections-companion-1206.html
+
+**Today’s Wordle Hints for September 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/wordle-review-1928.html
+
+**He Was Deported to a Country He’d Never Heard Of**\
+`The Trump administration deported Robert Mosquera to Eswatini, and he has found himself with no way out.`\
+https://www.nytimes.com/2026/09/28/podcasts/the-daily/deported-eswatini.html
+
+**NYT Strands Hints for September 29, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
+
 **Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
 `President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
 https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/28/world/americas/venezuela-gold-trump.html
 **Smart Headlights Finally Trickle Down to Cars in the U.S.**\
 `Federal data shows that half of all traffic fatalities happen after dark, but only one-quarter of driving happens at night. So any help is welcome.`\
 https://www.nytimes.com/2026/09/28/business/smart-headlights-adaptive.html
-
-**Black Voters Are Warming to Talarico in Texas. Turnout Is the Bigger Test.**\
-`Black voters largely rejected James Talarico in the Democratic primary for U.S. Senate. Recent interviews suggest the hard feelings may be wearing off.`\
-https://www.nytimes.com/2026/09/28/us/black-voters-talarico-texas-turnout.html
-
-**A Norwegian Saga Told in Tapestry**\
-`The Bryggens Museum in Bergen wants visitors to rediscover the work of the textile artist Ragna Breivik.`\
-https://www.nytimes.com/2026/09/28/fashion/tapestry-ragna-breivik-bryggens-museum-norway.html
-
-**How ‘Glee’ Made Musical Theater Cool**\
-`The TV series, our critic writes, gave us a slew of talented stage performers and used pop songs to help turn musical theater into mass entertainment.`\
-https://www.nytimes.com/2026/09/28/theater/glee-musical-theater-broadway.html
-
-**Their Sons Are Dying on Battlefields in Ukraine. They Still Back Russia’s War.**\
-`The Russian region of North Ossetia has suffered a heavy toll, yet many accept the Kremlin’s line that the fighting must continue until victory is secured.`\
-https://www.nytimes.com/2026/09/28/world/europe/ukraine-russia-war-soldiers-deaths-north-ossetia.html
-
-**Josef Kubota Wladyka’s New Film Pays Homage to His Mother’s Spirit**\
-`In Josef Kubota Wladyka’s newest film, ‘Ha-Chan, Shake Your Booty,’ much of the style, tone and acting choices were informed by his mother and her love of ballroom dancing.`\
-https://www.nytimes.com/video/arts/100000011164914/josef-kubota-wladykas-film-mother.html
 

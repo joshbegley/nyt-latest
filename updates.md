@@ -1,3 +1,23 @@
+**Possible Terror Plot Thwarted at U.K. Base, and Amazon Drones Overwhelm a Texas Town**\
+`Plus, the pro-Trump ads paid for by taxpayers.`\
+https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazon-drones-texas.html
+
+**NYT Connections Answers for September 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/connections-companion-1206.html
+
+**Today’s Wordle Hints for September 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/wordle-review-1928.html
+
+**He Was Deported to a Country He’d Never Heard Of**\
+`The Trump administration deported Robert Mosquera to Eswatini, and he has found himself with no way out.`\
+https://www.nytimes.com/2026/09/28/podcasts/the-daily/deported-eswatini.html
+
+**NYT Strands Hints for September 29, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
+https://www.nytimes.com/2026/09/28/crosswords/strands-sidekick-940.html
+
 **Oil Prices Climb on Continued Impasse in U.S.-Iran Talks**\
 `President Trump rejected Iran’s proposal over the weekend, calling it “unacceptable,” but Iran said it was still waiting for “definitive news” from Washington.`\
 https://www.nytimes.com/2026/09/28/business/oil-stocks-gas-prices.html
