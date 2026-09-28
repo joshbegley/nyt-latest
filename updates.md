@@ -1,3 +1,19 @@
+**SpaceX’s Starship Is Set to Make Its First Orbital Flight**\
+`If successful, the 14th test flight will be a crucial milestone toward the company’s ambitions of sending people to the moon and Mars.`\
+https://www.nytimes.com/2026/09/28/science/space/spacex-starship-first-orbital-flight.html
+
+**Quote of the Day: Victor Miller, 86, Dies; Wrote ‘Friday the 13th,’ Then Came a Plot Twist**\
+`Quotation of the Day for Monday, September 28, 2026.`\
+https://www.nytimes.com/2026/09/28/pageoneplus/quote-of-the-day-victor-miller-86-dies-wrote-friday-the-13th-then-came-a-plot-twist.html
+
+**On This Day | Sept. 28**\
+`In 1924, United States Army aviators landed in Seattle after completing the first flight around the world, a roughly 27,000-mile journey that took 175 days.`\
+https://www.nytimes.com/2026/09/28/learning/on-this-day-sept-28.html
+
+**Best and Worst Moments of the 2026 MTV Video Music Awards**\
+`Madonna ruled on Sunday night as the ceremony tried to recall VMAs of the past.`\
+https://www.nytimes.com/2026/09/27/arts/music/best-and-worst-moments-mtv-video-music-awards.html
+
 **Bras Pretended to Be Tops at the V.M.A.s and on Fashion Week Runways**\
 `At Sunday night’s MTV Video Music Awards and on fashion week runways, a bit of underwear completed a full look.`\
 https://www.nytimes.com/2026/09/27/style/vmas-bra-tops-fashion-week-prada.html

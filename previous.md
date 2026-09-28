@@ -1,3 +1,19 @@
+**SpaceX’s Starship Is Set to Make Its First Orbital Flight**\
+`If successful, the 14th test flight will be a crucial milestone toward the company’s ambitions of sending people to the moon and Mars.`\
+https://www.nytimes.com/2026/09/28/science/space/spacex-starship-first-orbital-flight.html
+
+**Quote of the Day: Victor Miller, 86, Dies; Wrote ‘Friday the 13th,’ Then Came a Plot Twist**\
+`Quotation of the Day for Monday, September 28, 2026.`\
+https://www.nytimes.com/2026/09/28/pageoneplus/quote-of-the-day-victor-miller-86-dies-wrote-friday-the-13th-then-came-a-plot-twist.html
+
+**On This Day | Sept. 28**\
+`In 1924, United States Army aviators landed in Seattle after completing the first flight around the world, a roughly 27,000-mile journey that took 175 days.`\
+https://www.nytimes.com/2026/09/28/learning/on-this-day-sept-28.html
+
+**Best and Worst Moments of the 2026 MTV Video Music Awards**\
+`Madonna ruled on Sunday night as the ceremony tried to recall VMAs of the past.`\
+https://www.nytimes.com/2026/09/27/arts/music/best-and-worst-moments-mtv-video-music-awards.html
+
 **Bras Pretended to Be Tops at the V.M.A.s and on Fashion Week Runways**\
 `At Sunday night’s MTV Video Music Awards and on fashion week runways, a bit of underwear completed a full look.`\
 https://www.nytimes.com/2026/09/27/style/vmas-bra-tops-fashion-week-prada.html
@@ -118,13 +134,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/09/27/crosswords/strands-sidekick-939.html
 **A.I. Shortcuts Are Ruining How We Think**\
 `Anything worth remembering came from a person who did not know where she or he was going until arriving.`\
 https://www.nytimes.com/interactive/2026/09/27/opinion/ai-art-creativity.html
-
-**Why Won’t My Co-Workers Acknowledge My Birthday?**\
-`Plus: What to do when your boss is nit-picking your work.`\
-https://www.nytimes.com/2026/09/27/business/workplace-.html
-
-**‘She’s One of Us’: Mary Peltola’s Bumpy Rise to Political Power**\
-`Ms. Peltola, the Democratic Senate candidate in Alaska, has complicated politics: She is pro-gun, pro-oil and pro-gas — but also pro-environment and especially pro-fish.`\
-https://www.nytimes.com/2026/09/27/us/politics/mary-peltola-alaska-senate.html
-
-**Trump’s War With Iran Drags Down Republicans in Midterm Elections**\
-`As their midterm picture darkens, and gas and diesel prices soar, some Republicans who backed the war for months are now changing their tune.`\
-https://www.nytimes.com/2026/09/27/us/politics/iran-war-republicans-midterms-trump.html
-
-**Dogs Will Fight Bears. But Not Because of the Reason You Might Think.**\
-`Scientists analyzed hundreds of encounters between bears and canines. The results raise the suggestion that dogs may not always protect people in the wild.`\
-https://www.nytimes.com/2026/09/27/science/dogs-chasing-bears.html
 
