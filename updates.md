@@ -1,3 +1,23 @@
+**This Virus Stole a Human Gene and Won’t Let Go of It**\
+`Scientists have found a human gene lurking in a virus that causes skin infections. It may be using our own DNA to infect us.`\
+https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
+
+**Maps: Tracking Tropical Storm Hanna**\
+`See the likely path and wind arrival times for Hanna`\
+https://www.nytimes.com/interactive/2026/09/28/weather/hanna-map-path-tracker.html
+
+**The One Outfit We Agreed on This Weekend**\
+`At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
+https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
+
+**Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
+`The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
+**Who’s Winning the Race for Congress? 2026 Midterm Elections**\
+`It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
+
 **The one outfit we agreed on this weekend**\
 `At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
 https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html

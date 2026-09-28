@@ -1,4 +1,12 @@
-**The one outfit we agreed on this weekend**\
+**This Virus Stole a Human Gene and Won’t Let Go of It**\
+`Scientists have found a human gene lurking in a virus that causes skin infections. It may be using our own DNA to infect us.`\
+https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
+
+**Maps: Tracking Tropical Storm Hanna**\
+`See the likely path and wind arrival times for Hanna`\
+https://www.nytimes.com/interactive/2026/09/28/weather/hanna-map-path-tracker.html
+
+**The One Outfit We Agreed on This Weekend**\
 `At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
 https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
 
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
 **Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
-`The suspects remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+`The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
 **Who Is Ahead in New York's 23rd Congressional District?**\
@@ -130,7 +138,7 @@ https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordabil
 `The revival of Japan’s economy isn’t all good news.`\
 https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
 
-**Who’s Winning the Race for Congress?**\
+**Who’s Winning the Race for Congress? 2026 Midterm Elections**\
 `It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/world/americas/brazil-election-bolsonaro-pres
 **‘Showgirls’: The Gratuitous, Surreal Bomb That Was Maybe Brilliant**\
 `The reception to Paul Verhoeven’s lurid 1995 melodrama starring Elizabeth Berkley, Kyle MacLachlan and Gina Gershon was humiliating, but it’s since become a thought-provoking camp favorite.`\
 https://www.nytimes.com/2026/09/28/movies/showgirls-elizabeth-berkley-verhoeven.html
-
-**Book Review: ‘Holding Lightning’ by Emily Lordi**\
-`In “Holding Lightning,” the critic Emily Lordi takes on the complicated legacy and misunderstood artistry of the late singer.`\
-https://www.nytimes.com/2026/09/28/books/review/whitney-houston-emily-lordi-holding-lightning.html
-
-**What We Saw in One Venezuelan Gold Town**\
-`With U.S. support, traders arrived and cut deals. That investment has so far failed to improve the bleak conditions in the mining industry.`\
-https://www.nytimes.com/2026/09/28/world/americas/what-we-saw-in-one-venezuelan-gold-town.html
 
