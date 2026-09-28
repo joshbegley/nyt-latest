@@ -1,3 +1,119 @@
+**U.C.L.A.’s Bollywood Dance Team: Bonding and Battling**\
+`“For a lot of South Asians, dance is the way we connect,” said a member of the team at U.C.L.A. Our photographer captured glimpses of the team, from audition to competitions.`\
+https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
+
+**Brazil’s Biggest Election Question?: Donald Trump’s Next Move**\
+`As Brazil prepares to hold elections next month, Latin America’s biggest nation is taking steps to shield its democracy from potential American meddling.`\
+https://www.nytimes.com/2026/09/28/world/americas/brazil-election-bolsonaro-president-trump.html
+
+**‘Showgirls’: The Gratuitous, Surreal Bomb That Was Maybe Brilliant**\
+`The reception to Paul Verhoeven’s lurid 1995 melodrama starring Elizabeth Berkley, Kyle MacLachlan and Gina Gershon was humiliating, but it’s since become a thought-provoking camp favorite.`\
+https://www.nytimes.com/2026/09/28/movies/showgirls-elizabeth-berkley-verhoeven.html
+
+**Book Review: ‘Holding Lightning’ by Emily Lordi**\
+`In “Holding Lightning,” the critic Emily Lordi takes on the complicated legacy and misunderstood artistry of the late singer.`\
+https://www.nytimes.com/2026/09/28/books/review/whitney-houston-emily-lordi-holding-lightning.html
+
+**What We Saw in One Venezuelan Gold Town**\
+`With U.S. support, traders arrived and cut deals. That investment has so far failed to improve the bleak conditions in the mining industry.`\
+https://www.nytimes.com/2026/09/28/world/americas/what-we-saw-in-one-venezuelan-gold-town.html
+
+**6 Things Experts Wish Every Runner Did to Avoid Injury**\
+`These habits can help keep you healthy and strong.`\
+https://www.nytimes.com/2026/09/28/well/move/running-injury-prevention-tips.html
+
+**Under Trump, Commodity Futures Trading Commission Scales Back Enforcement, Worrying Farmers**\
+`The fate of two cotton brokers highlights how the Commodity Futures Trading Commission has scaled back its regulatory actions not just for crypto cases but also for the kinds of cases it has long policed.`\
+https://www.nytimes.com/2026/09/28/us/politics/cotton-trump-commodity-markets-cftc.html
+
+**New Fantasy Football Punishments Include Meat Marathons and Tattoos**\
+`In a time of social-media stunts, leagues are coming up with creative penalties for last-place finishers.`\
+https://www.nytimes.com/2026/09/28/style/fantasy-football-punishments.html
+
+**5 Gastrointestinal Symptoms You Should Never Ignore**\
+`Experts say these warning signs should always prompt a chat with a doctor.`\
+https://www.nytimes.com/2026/09/28/well/worrisome-gut-symptoms.html
+
+**Here’s What Fans Paid for Harry Styles Tickets at M.S.G.**\
+`What is a concert really worth? We asked 34 fans about the time, money and effort they spent getting tickets for the star’s New York City residency.`\
+https://www.nytimes.com/2026/09/28/arts/music/harry-styles-msg-ticket-prices-affordability.html
+
+**Kate Jenkins Knits and Crochets Almost Anything You Can Imagine**\
+`The British artist Kate Jenkins crochets and knits almost anything you can imagine.`\
+https://www.nytimes.com/2026/09/28/fashion/knitting-crocheting-kate-jenkins-hermes.html
+
+**In Ireland, Gowns That Tell a Story**\
+`Rachel Phelan, a textile conservator in Dublin, has been working on vintage styles once owned by an Irish countess.`\
+https://www.nytimes.com/2026/09/28/fashion/textile-conservation-rachel-phelan-dublin.html
+
+**Tiffany Designer’s Sketches to be Restored**\
+`Musée des Arts Décoratifs and Tiffany & Company plan to conserve the work of Jean Schlumberger, creator of such well-known pieces as Bird on a Rock.`\
+https://www.nytimes.com/2026/09/28/fashion/jewelry-jean-schlumberger-tiffany.html
+
+**After a Life in Isolation, a Tennessee Woman Waits for Her Execution**\
+`Christa Pike could be the first woman executed in Tennessee in more than 200 years. Her supporters say she has changed in isolation; her victim’s family wants her to die.`\
+https://www.nytimes.com/2026/09/28/us/christa-pike-tennessee-execution.html
+
+**Wood Carvers Preserve Signs of a City’s Heritage**\
+`Artisans in George Town, Malaysia, are restoring some of the Chinese business plaques in the city’s historic center.`\
+https://www.nytimes.com/2026/09/28/fashion/chinese-wooden-signs-george-town-malaysia.html
+
+**A Club’s Furnishings Reflect Its Nigerian Setting**\
+`Ugoma Ebilah said she used work by artisans from throughout the region for her new venture, Mbari Kola.`\
+https://www.nytimes.com/2026/09/28/fashion/crafts-mbari-kola-lagos-nigeria.html
+
+**St. Paul’s Cathedral to Get a New Shine**\
+`Plans are being made to regild the ball and cross atop the London landmark with gold from an Australian mine.`\
+https://www.nytimes.com/2026/09/28/fashion/craftsmanship-st-pauls-cathedral-london.html
+
+**A Globe Maker Creates Worlds**\
+`Jonathan Wright makes globes — big ones, small ones and even some in between — in his workshop in England.`\
+https://www.nytimes.com/2026/09/28/fashion/craftsmanship-globe-maker-england.html
+
+**In Berlin, Weaving That Is Anything but Ordinary**\
+`Bicycle tires were just one of the materials used by Studio Jumi in Berlin.`\
+https://www.nytimes.com/2026/09/28/fashion/weaving-studio-jumi-berlin.html
+
+**Are Shirt Buttons Sexist?**\
+`A reader questions the point of having men’s and women’s shirt buttons on different sides.`\
+https://www.nytimes.com/2026/09/28/fashion/shirt-buttons-sexism.html
+
+**30 Ideas for Fixing U.S. Schools, Ranked by Experts**\
+`Math and reading scores are in a decade-long slump. We asked three dozen experts: What could turn things around?`\
+https://www.nytimes.com/2026/09/28/upshot/ideas-fixing-schools-ranked.html
+
+**I Once Celebrated Marriage. Things Have Changed.**\
+`Eleven years later, the novelist revisits a guest essay she wrote about marriage.`\
+https://www.nytimes.com/2026/09/28/opinion/sittenfeld-marriage-nyt-175.html
+
+**Watch Rinko Kikuchi Dance in ‘Ha-Chan, Shake Your Booty!’**\
+`Kikuchi and the film’s director, Josef Kubota Wladyka, break down five key dance sequences from the film.`\
+https://www.nytimes.com/2026/09/28/movies/rinko-kikuchi-interview-ha-chan-shake-your-booty.html
+
+**Trump Sparked a Gold Rush, and Venezuelan Gangs Take a Cut of Profit**\
+`The administration is brokering deals in a notoriously corrupt industry, including one with a company that the United States deems a security threat.`\
+https://www.nytimes.com/2026/09/28/world/americas/venezuela-gold-trump.html
+
+**Smart Headlights Finally Trickle Down to Cars in the U.S.**\
+`Federal data shows that half of all traffic fatalities happen after dark, but only one-quarter of driving happens at night. So any help is welcome.`\
+https://www.nytimes.com/2026/09/28/business/smart-headlights-adaptive.html
+
+**Black Voters Are Warming to Talarico in Texas. Turnout Is the Bigger Test.**\
+`Black voters largely rejected James Talarico in the Democratic primary for U.S. Senate. Recent interviews suggest the hard feelings may be wearing off.`\
+https://www.nytimes.com/2026/09/28/us/black-voters-talarico-texas-turnout.html
+
+**A Norwegian Saga Told in Tapestry**\
+`The Bryggens Museum in Bergen wants visitors to rediscover the work of the textile artist Ragna Breivik.`\
+https://www.nytimes.com/2026/09/28/fashion/tapestry-ragna-breivik-bryggens-museum-norway.html
+
+**How ‘Glee’ Made Musical Theater Cool**\
+`The TV series, our critic writes, gave us a slew of talented stage performers and used pop songs to help turn musical theater into mass entertainment.`\
+https://www.nytimes.com/2026/09/28/theater/glee-musical-theater-broadway.html
+
+**Their Sons Are Dying on Battlefields in Ukraine. They Still Back Russia’s War.**\
+`The Russian region of North Ossetia has suffered a heavy toll, yet many accept the Kremlin’s line that the fighting must continue until victory is secured.`\
+https://www.nytimes.com/2026/09/28/world/europe/ukraine-russia-war-soldiers-deaths-north-ossetia.html
+
 **Josef Kubota Wladyka’s New Film Pays Homage to His Mother’s Spirit**\
 `In Josef Kubota Wladyka’s newest film, ‘Ha-Chan, Shake Your Booty,’ much of the style, tone and acting choices were informed by his mother and her love of ballroom dancing.`\
 https://www.nytimes.com/video/arts/100000011164914/josef-kubota-wladykas-film-mother.html
@@ -81,120 +197,4 @@ https://www.nytimes.com/interactive/2026/09/27/weather/rachel-map-path-tracker.h
 **Nor’easter Weakens but Remains a Threat**\
 `The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
 https://www.nytimes.com/2026/09/27/well/noreaster-storm-new-jersey-new-york-weather-forecast.html
-
-**Strike at Cleveland Orchestra Ends as Musicians Agree to a Deal**\
-`What was the second recent strike at a prestigious music institution had jeopardized a European tour. But “the musicians are packing their trunks,” one union rep said.`\
-https://www.nytimes.com/2026/09/27/arts/music/cleveland-orchestra-strike-deal.html
-
-**Trump Offered to Sell Arms to China, U.S. Ambassador Says**\
-`President Trump made the offer to Xi Jinping, China’s leader, said David Perdue, the ambassador to China. The White House later said the U.S. had no plans for such a sale.`\
-https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html
-
-**Trump’s 2024 Campaign Ad Returns, With Taxpayers Paying For It**\
-`An ad nearly identical to one President Trump ran during his 2024 campaign returned on Saturday, paid for using public money. Several ethics lawyers it may violate federal law.`\
-https://www.nytimes.com/video/us/politics/100000011178196/trumps-2024-campaign-ad-taxpayers.html
-
-**NYT Crossword Answers for Sept. 28, 2026**\
-`Helen Chen’s crossword is in a league of its own.`\
-https://www.nytimes.com/2026/09/27/crosswords/daily-puzzle-2026-09-28.html
-
-**The Mighty Sparrow, Trinidadian Titan of Calypso, Is Dead at 91**\
-`He was sometimes described as the last of the true calypso singers. But in fact he simultaneously preserved calypso tradition and invented it anew.`\
-https://www.nytimes.com/2026/09/27/arts/music/the-mighty-sparrow-dead.html
-
-**Dario Amodei of Anthropic to Dine With Trump at White House**\
-`Dario Amodei, who is also the company’s chief executive, will join the president at the White House for a private dinner. Mr. Trump has dismissed his cautions.`\
-https://www.nytimes.com/2026/09/27/us/politics/trump-amodei-anthropic-artificial-intelligence.html
-
-**Serbia’s Longtime President Aleksandar Vucic Resigns Post**\
-`Aleksandar Vucic, one of Europe’s longest-serving leaders, resigned as president, paving the way for him to become prime minister after elections next month.`\
-https://www.nytimes.com/2026/09/27/world/europe/serbia-president-aleksandar-vucicto-resigns.html
-
-**Did Anthropic’s A.I. Really Make a Scientific Discovery on Its Own?**\
-`An expert at the University of Copenhagen said his team had been sharing its research with the company’s A.I. model, Claude, and that its new finding matched their work.`\
-https://www.nytimes.com/2026/09/27/science/anthropic-biology-enzyme-mestre.html
-
-**A Growing North Korea Problem**\
-`In an interview with The New York Times, South Korea’s president dropped a bold proposal for how to curb North Korea’s nuclear program.`\
-https://www.nytimes.com/2026/09/27/world/lee-jae-myung-north-korea-sanctions.html
-
-**Five Men Arrested on Suspicion of Terrorism Near U.K. Military Base**\
-`The U.K. police arrested five men near a military base on Sunday on suspicion of preparing acts of terrorism. The R.A.F. Fairford base is used primarily by the U.S. Air Force to deploy some of its largest bombers.`\
-https://www.nytimes.com/video/world/europe/100000011178306/raf-fairford-airbase-arrests.html
-
-**A Transcript From The Times Interview with Prime Minister Mark Carney of Canada**\
-`New York Times journalists pressed the Canadian prime minister about a range of topics in an hourlong interview last week. Here’s a transcript of their conversation.`\
-https://www.nytimes.com/2026/09/27/world/canada/mark-carney-interview-transcript.html
-
-**Neil Patrick Harris to Star in ‘Damn Yankees’ Revival on Broadway**\
-`The Tony- and Emmy-winning actor will portray the Devil in a new production of the 1955 musical, performing alongside Julianne Hough and Austin Scott.`\
-https://www.nytimes.com/2026/09/27/theater/damn-yankees-broadway-neil-patrick-harris.html
-
-**For East Coast Surfers, the Nor’easter Is a Warm Weather Gift**\
-`‘This swell is like Christmas morning,’ said a surfer looking to catch the perfect wave.`\
-https://www.nytimes.com/2026/09/27/nyregion/noreaster-surfing-northeast-waves.html
-
-**Standoff Rocks a Northern Irish Town Over Contentious Sectarian March**\
-`A court ruled that a parade by a Protestant group could pass through a largely Catholic area for the first time in three decades. Protesters blocked the route.`\
-https://www.nytimes.com/2026/09/27/world/europe/northern-ireland-protestant-parade-catholic.html
-
-**A Trump 2024 Campaign Ad Returns, Now Brought to You by the Government**\
-`The ad, which ethics experts said could violate federal law, shows Mr. Trump vowing to “expel the warmongers” from the government and fight the “deep state,” even as he wages a war with Iran.`\
-https://www.nytimes.com/2026/09/27/us/politics/trump-ad-government-campaign.html
-
-**Pennsylvania Measles Outbreak Grows to Nearly 900 Cases**\
-`State health officials said 55 new cases had been reported since Wednesday. In all, 890 measles cases have been reported across 39 counties so far this year.`\
-https://www.nytimes.com/2026/09/27/us/pennsylvania-measles-outbreak-cases.html
-
-**Woman Who Had Been Stabbed Is Found Dead in Central Park**\
-`Investigators are questioning a man. The woman, who appeared to be homeless, was found dead near the Central Park Boathouse, according to officials with knowledge of the matter.`\
-https://www.nytimes.com/2026/09/27/nyregion/woman-central-park-death-nyc.html
-
-**Nor’easter Continues to Batter Its Way Up the Northeast**\
-`Heavy winds from the storm brought down utility lines and trees across the region. A 56-year-old Brooklyn man walking near a playground was killed by a falling tree, city officials said.`\
-https://www.nytimes.com/video/weather/100000011178174/noreaster-weather-storm-surge-floods.html
-
-**Dee Brock, Who Created the Dallas Cowboys Cheerleaders, Dies at 96**\
-`As the first director of the troupe, she helped transform it from a high school squad into a global phenomenon.`\
-https://www.nytimes.com/2026/09/27/us/dee-brock-dead.html
-
-**Morris Ballen, Who Helped Spread Indie Artists’ Music, Dies at 88**\
-`Countless independent acts in every genre — punk, hip-hop, church choir — relied on him to create small runs of high-quality records and CDs.`\
-https://www.nytimes.com/2026/09/27/obituaries/morris-ballen-dead.html
-
-**Giant Pandas, Icons of China’s Soft Diplomacy, Arrive in Atlanta**\
-`A male named Ping Ping and a female named Fu Shuang landed on Sunday, days after China’s leader said he would dispatch “envoys of friendship” to the United States.`\
-https://www.nytimes.com/2026/09/27/us/panda-zoo-atlanta-china-xi.html
-
-**Yotam Ottolenghi’s Spiced Pea Stew With Yogurt**\
-`And more cozy, autumnal recipes for shifting into soup mode.`\
-https://www.nytimes.com/2026/09/27/dining/yotam-ottolenghis-spiced-pea-stew-with-yogurt.html
-
-**How Do You Describe the Ineffable?**\
-`In his new novel, “The Radiance,” the novelist and playwright Ayad Akhtar tries — with astonishing results.`\
-https://www.nytimes.com/2026/09/27/briefing/ayad-akhtar.html
-
-**‘S.N.L.’ Season Premiere: Buckets of Rain, With Jalen Brunson Reigning**\
-`Brunson, captain of the N.B.A. champion New York Knicks, hosted a “Saturday Night Live” show that satirized President Trump’s recent visit to Mayor Zohran Mamdani.`\
-https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-brunson-mamdani.html
-
-**‘You Could Serve Cardboard With This Sauce and It Would Be Good’**\
-`Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
-https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
-
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
-**Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
-`Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
-https://www.nytimes.com/2026/09/27/world/middleeast/iran-trump-ceasefire-strait-of-hormuz.html
-
-**Lumbering Storm Churns Off Coast as Power Starts Coming Back On**\
-`Utility crews have restored service to many of those who lost power because of the lashing winds, which drove flooding along the coast. The gradually weakening storm remains a threat through Monday, forecasters said.`\
-https://www.nytimes.com/live/2026/09/27/nyregion/noreaster-storm-rain-nyc-boston
 
