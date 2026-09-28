@@ -1,3 +1,7 @@
+**Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
+`In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
+https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
+
 **3 Egyptian Officials Convicted of Kidnapping Slain Italian Student**\
 `The verdict followed a decade-long effort in Italy to account for the killing of Giulio Regeni, an Italian researcher who disappeared in Cairo in 2016.`\
 https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/travel/dolly-parton-songteller-hotel-nashvill
 **How a Brooklyn Fashionista Lives on $67,000 a Year in Bay Ridge**\
 `Tim Victor works as a music teacher in Brooklyn but also goes thrifting and to fashion shows in New York and Paris.`\
 https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordability-victor.html
-
-**The Other Bond Market You Need to Worry About**\
-`The revival of Japan’s economy isn’t all good news.`\
-https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
 

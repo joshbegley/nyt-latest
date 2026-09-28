@@ -1,3 +1,7 @@
+**Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
+`In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
+https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
+
 **3 Egyptian Officials Convicted of Kidnapping Slain Italian Student**\
 `The verdict followed a decade-long effort in Italy to account for the killing of Giulio Regeni, an Italian researcher who disappeared in Cairo in 2016.`\
 https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html
