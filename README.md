@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/09/28/style/fantasy-football-punishments.html
 
 **5 Gastrointestinal Symptoms You Should Never Ignore**\
 `Experts say these warning signs should always prompt a chat with a doctor.`\
-https://www.nytimes.com/2026/09/28/well/worrisome-gut-symptoms.html
+https://www.nytimes.com/2026/09/28/well/gastrointestinal-symptoms-gut-health.html
 
 **Here’s What Fans Paid for Harry Styles Tickets at M.S.G.**\
 `What is a concert really worth? We asked 34 fans about the time, money and effort they spent getting tickets for the star’s New York City residency.`\
