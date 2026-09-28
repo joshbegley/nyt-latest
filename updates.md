@@ -1,3 +1,7 @@
+**Why China Is Requiring Ninth Graders to Read ‘Jane Eyre’**\
+`The Victorian heroine has long been celebrated in China for her independence and insistence on equality.`\
+https://www.nytimes.com/2026/09/28/world/asia/china-jane-eyre-required-reading-literature.html
+
 **‘Ghost Adventures,’ and 7 More Shows to Watch on TV This Week**\
 `The paranormal investigation series returns, and the 1952 John Steinbeck novel “East of Eden” comes to small screens.`\
 https://www.nytimes.com/2026/09/28/arts/television/ghost-adventures-east-of-eden-tv.html
