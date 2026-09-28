@@ -1,3 +1,7 @@
+**A Driver Desperate to Use the Bathroom Plows Into a Kroger in Texas, the Police Say**\
+`The driver, James Mansell Lancaster Jr., was upset to find the supermarket in Rosenberg, Texas, closed early Sunday morning, the police said.`\
+https://www.nytimes.com/2026/09/28/us/kroger-texas-crash-bathroom.html
+
 **Pope Leo Electrifies French Crowd on Historic Europe Tour**\
 `The New York Times’s Rome Bureau Chief Motoko Rich calls Natalie Kitroeff from Metz, France, where she’s reporting from a massive crowd waiting for Pope Leo XIV to arrive for Mass. It’s the end of the pope’s tour of France, the first papal visit in over 18 years.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011180902/pope-leo-electrifies-french-crowd-on-historic-europe-tour.html
