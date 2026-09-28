@@ -1,3 +1,23 @@
+**Mamdani’s Shadow Looms Over Hochul’s Bid for Re-election**\
+`Gov. Kathy Hochul is counting on Mayor Zohran Mamdani to help her campaign in New York, but how he does so is still being worked out.`\
+https://www.nytimes.com/2026/09/28/nyregion/mamdanis-shadow-looms-over-hochuls-bid-for-re-election.html
+
+**After Taxi Driver Deaths, Union Pushes Mamdani for Health Fund**\
+`Several New York City cabbies were recently found dead in their cars. A taxi union is seeking to revive a fund that would provide medical screenings, disability insurance and other benefits.`\
+https://www.nytimes.com/2026/09/28/nyregion/nyc-taxi-drivers-mamdani-health-benefits.html
+
+**N.Y.P.D. Officers Used Flock Safety to Track License Plates**\
+`Public records show police officers used Flock Safety’s technology to make more than 1,700 searches. The department did not have a contract with the company.`\
+https://www.nytimes.com/2026/09/28/nyregion/nyc-flock-nypd-surveillance-cameras.html
+
+**NYT Spelling Bee Answers for September 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/28/crosswords/spelling-bee-forum.html
+
+**Nor’easter Weakens but Remains a Threat**\
+`The weekend’s storm is expected to continue to bring rain and the threat of floods to parts of the northern East Coast through the beginning of the week.`\
+https://www.nytimes.com/2026/09/27/well/noreaster-storm-new-jersey-new-york-weather-forecast.html
+
 **Why China Is Requiring Ninth Graders to Read ‘Jane Eyre’**\
 `The Victorian heroine has long been celebrated in China for her independence and insistence on equality.`\
 https://www.nytimes.com/2026/09/28/world/asia/china-jane-eyre-required-reading-literature.html
