@@ -1,3 +1,7 @@
+**The 10 Best Looks at the MTV Video Music Awards**\
+`With leather, lace and lots of skin, it was an over-the-top night on the red carpet.`\
+https://www.nytimes.com/2026/09/27/style/mtv-vmas-best-dressed.html
+
 **Maps: Tracking Tropical Storm Rachel**\
 `See the likely path and wind arrival times for Rachel`\
 https://www.nytimes.com/interactive/2026/09/27/weather/rachel-map-path-tracker.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/technology/ai-government-regulation.html
 **Are You Ready for Your ‘Winter Arc’?**\
 `Whatever you call it — a “winter arc,” a “fall rebrand” — New Year’s resolutions aren’t waiting for January anymore.`\
 https://www.nytimes.com/2026/09/27/style/winter-arc.html
-
-**White House Claim of Finding $250 Billion in Fraud Uses Questionable Numbers**\
-`The ledger used by a task force created by President Trump is difficult to verify and includes cases that were identified and went to trial during the Biden administration.`\
-https://www.nytimes.com/2026/09/27/us/politics/white-house-fraud-task-force.html
 
