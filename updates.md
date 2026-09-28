@@ -1,3 +1,7 @@
+**Giant Pandas Land in Atlanta From China**\
+`Two pandas, Ping Ping and Fu Shuang, arrived in Atlanta on Sunday from China via a custom FedEx cargo shipment as a gesture of good will from Beijing.`\
+https://www.nytimes.com/video/world/100000011178929/china-pandas-atlanta-zoo-us.html
+
 **15-Minute Lesson Plan: Character Analysis**\
 `What can the opening paragraphs of an essay about Katniss Everdeen teach students?`\
 https://www.nytimes.com/2026/09/28/learning/15-minute-lesson-plan-character-analysis.html
