@@ -1,3 +1,7 @@
+**Kehinde Wiley Wants to Buy His Embassy Painting Back From Trump**\
+`Administration officials mocked his work, then removed it from the U.S. Embassy in the Dominican Republic, suggesting they would auction it. Wiley offered to buy it back.`\
+https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-wants-to-buy-his-embassy-painting-back-from-trump.html
+
 **Trump Sharply Scales Back Fuel Economy Rules**\
 `Also, Republicans plan a major ad blitz. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/09/28/briefing/trump-sharply-scales-back-fuel-economy-rules.html

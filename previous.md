@@ -1,3 +1,7 @@
+**Kehinde Wiley Wants to Buy His Embassy Painting Back From Trump**\
+`Administration officials mocked his work, then removed it from the U.S. Embassy in the Dominican Republic, suggesting they would auction it. Wiley offered to buy it back.`\
+https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-wants-to-buy-his-embassy-painting-back-from-trump.html
+
 **Trump Sharply Scales Back Fuel Economy Rules**\
 `Also, Republicans plan a major ad blitz. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/09/28/briefing/trump-sharply-scales-back-fuel-economy-rules.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 **Who Is Ahead in New York's 23rd Congressional District?**\
 `Track the latest polls in New York's 23rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
-
-**After a Career Reshaping the Museum of Modern Art, Its Influential Curator Steps Down**\
-`Ann Temkin, head of MoMA’s  painting and sculpture department, will transition to a new role for the museum’s 100th anniversary.`\
-https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-jasper-johns-retire.html
 
