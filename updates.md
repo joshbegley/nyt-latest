@@ -1,3 +1,11 @@
+**Trump Officials Revise Biden-Era Sex Discrimination Rules**\
+`The change follows a court ruling barring Title IX from protecting L.G.B.T.Q. people and has angered advocates for sexual assault survivors.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-administration-revises-sex-discrimination-rules.html
+
+**Kehinde Wiley Wants to Buy His Embassy Painting Back From Trump**\
+`Administration officials mocked his work, then removed it from the U.S. Embassy in the Dominican Republic, suggesting they would auction it. Wiley offered to buy it back.`\
+https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-painting-trump-embassy.html
+
 **Kehinde Wiley Wants to Buy His Embassy Painting Back From Trump**\
 `Administration officials mocked his work, then removed it from the U.S. Embassy in the Dominican Republic, suggesting they would auction it. Wiley offered to buy it back.`\
 https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-wants-to-buy-his-embassy-painting-back-from-trump.html

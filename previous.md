@@ -1,6 +1,10 @@
+**Trump Officials Revise Biden-Era Sex Discrimination Rules**\
+`The change follows a court ruling barring Title IX from protecting L.G.B.T.Q. people and has angered advocates for sexual assault survivors.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-administration-revises-sex-discrimination-rules.html
+
 **Kehinde Wiley Wants to Buy His Embassy Painting Back From Trump**\
 `Administration officials mocked his work, then removed it from the U.S. Embassy in the Dominican Republic, suggesting they would auction it. Wiley offered to buy it back.`\
-https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-wants-to-buy-his-embassy-painting-back-from-trump.html
+https://www.nytimes.com/2026/09/28/arts/design/kehinde-wiley-painting-trump-embassy.html
 
 **Trump Sharply Scales Back Fuel Economy Rules**\
 `Also, Republicans plan a major ad blitz. Here’s the latest at the end of Monday.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.h
 **Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
 `The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
-
-**Who Is Ahead in New York's 23rd Congressional District?**\
-`Track the latest polls in New York's 23rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
 
