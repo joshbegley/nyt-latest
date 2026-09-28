@@ -1,3 +1,7 @@
+**‘Ghost Adventures,’ and 7 More Shows to Watch on TV This Week**\
+`The paranormal investigation series returns, and the 1952 John Steinbeck novel “East of Eden” comes to small screens.`\
+https://www.nytimes.com/2026/09/28/arts/television/ghost-adventures-east-of-eden-tv.html
+
 **Tom Kean Jr. Backs Trump on Iran and Tariffs, if Not Local Issues**\
 `In a debate with the Democrat Rebecca Bennett, the New Jersey Republican said he was willing to take on the president over funding for a Hudson River tunnel project.`\
 https://www.nytimes.com/2026/09/28/nyregion/tom-kean-jr-rebecca-bennett-debate-trump.html

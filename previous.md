@@ -1,3 +1,7 @@
+**‘Ghost Adventures,’ and 7 More Shows to Watch on TV This Week**\
+`The paranormal investigation series returns, and the 1952 John Steinbeck novel “East of Eden” comes to small screens.`\
+https://www.nytimes.com/2026/09/28/arts/television/ghost-adventures-east-of-eden-tv.html
+
 **Tom Kean Jr. Backs Trump on Iran and Tariffs, if Not Local Issues**\
 `In a debate with the Democrat Rebecca Bennett, the New Jersey Republican said he was willing to take on the president over funding for a Hudson River tunnel project.`\
 https://www.nytimes.com/2026/09/28/nyregion/tom-kean-jr-rebecca-bennett-debate-trump.html
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The Id, the Ego and the Superintelligence**\
-`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
-https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
-
 **The State of Organ Donation**\
 `Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
 https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
+
+**The Id, the Ego and the Superintelligence**\
+`Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
+https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
 **The Super El Niño Is About to Unleash Weather Chaos. Get Ready Now.**\
 `There’s still time to prepare.`\
 https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
-
-**NYT Strands Hints for September 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
-https://www.nytimes.com/2026/09/27/crosswords/strands-sidekick-939.html
 
