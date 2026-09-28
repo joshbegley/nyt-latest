@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/09/28/dining/last-call-for-fresh-corn.html
 `There are always elites. The people get to decide which ones rule.`\
 https://www.nytimes.com/2026/09/28/opinion/political-elites-elections.html
 
-**Read the statement from the Tompkins County district attorney**\
+**The district attorney explained why he reopened the Cornell investigation. Read the document:**\
 `The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
 https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
 
@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
 `We look at the market for products with added protein.`\
 https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
 
-**Possible Foiled Terror Attack at U.K Air Base Used by U.S. Raises Questions Over Security**\
+**Possible Terror Attack at U.K. Air Base Used by U.S. Raises Security Concerns**\
 `Conflicting accounts from a bystander who called the police and from President Trump have led to questions about whether security services knew about the possible plot in advance.`\
 https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html
 
@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/09/28/realestate/designing-a-house-that-defers-to-t
 `We have built a culture that views a death in the I.C.U. as a failure.`\
 https://www.nytimes.com/2026/09/28/opinion/hospital-good-death.html
 
-**Free OMNY Cards for 700 CUNY students**\
-`Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
-https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
-
 **Our Power Grid Is Vulnerable. This Is How to Protect It.**\
 `The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
 https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
+
+**Free OMNY Cards for 700 CUNY students**\
+`Students at CUNY who were eligible were chosen at random to receive the OMNY passes in a City Council pilot program.`\
+https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
 
