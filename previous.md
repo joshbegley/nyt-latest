@@ -1,3 +1,7 @@
+**Trump Sharply Scales Back Fuel Economy Rules**\
+`Also, Republicans plan a major ad blitz. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/09/28/briefing/trump-sharply-scales-back-fuel-economy-rules.html
+
 **Couple Accused of Killing Their Son-in-Law in Bay Area Park**\
 `Jonathan McKinsey, an engineer who worked in the games department for The New York Times, was fatally shot Saturday in a San Francisco suburb. Police have accused his parents-in-law, both 76.`\
 https://www.nytimes.com/2026/09/28/us/jonathan-mckinsey-new-york-times-shooting-california.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
 **After a Career Reshaping the Museum of Modern Art, Its Influential Curator Steps Down**\
 `Ann Temkin, head of MoMA’s  painting and sculpture department, will transition to a new role for the museum’s 100th anniversary.`\
 https://www.nytimes.com/2026/09/28/arts/design/moma-ann-tempkin-curator-duchamp-jasper-johns-retire.html
-
-**Nvidia Adds $150 Billion to Massive Stock Buyback, the Largest Ever**\
-`The increase comes four months after the chip giant added $80 billion to its buyback program, bringing the total remaining authorized amount to $235 billion.`\
-https://www.nytimes.com/2026/09/28/business/nvidia-stock-buyback.html
 
