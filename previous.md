@@ -1,3 +1,11 @@
+**Man Is Fatally Stabbed at Manhattan Homeless Shelter**\
+`Another man, Javed Tyghter, was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
+https://www.nytimes.com/2026/09/28/nyregion/fatal-stabbing-homeless-shelter-washington-heights.html
+
+**The Voices Behind ‘Made in China’**\
+`In a faltering Chinese economy, working-class stories are striking a chord.`\
+https://www.nytimes.com/2026/09/28/world/china-workers-poetry-pope-leo.html
+
 **He Burned to Death in a Prison Cell. His Family Wants Answers.**\
 `New York State officials have yet to say what caused a fire that killed Marcos Alcaraz at Eastern Correctional Facility in July.`\
 https://www.nytimes.com/2026/09/28/nyregion/ny-prison-fire-death-questions.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/podcasts/the-headlines/terror-plot-base-amazo
 **NYT Connections Answers for September 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
 https://www.nytimes.com/2026/09/28/crosswords/connections-companion-1206.html
-
-**Today’s Wordle Hints for September 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 29, 2026.`\
-https://www.nytimes.com/2026/09/28/crosswords/wordle-review-1928.html
-
-**He Was Deported to a Country He’d Never Heard Of**\
-`The Trump administration deported Robert Mosquera to Eswatini, and he has found himself with no way out.`\
-https://www.nytimes.com/2026/09/28/podcasts/the-daily/deported-eswatini.html
 

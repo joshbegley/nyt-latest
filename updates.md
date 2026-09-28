@@ -1,3 +1,11 @@
+**Man Is Fatally Stabbed at Manhattan Homeless Shelter**\
+`Another man, Javed Tyghter, was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
+https://www.nytimes.com/2026/09/28/nyregion/fatal-stabbing-homeless-shelter-washington-heights.html
+
+**The Voices Behind ‘Made in China’**\
+`In a faltering Chinese economy, working-class stories are striking a chord.`\
+https://www.nytimes.com/2026/09/28/world/china-workers-poetry-pope-leo.html
+
 **Paxton, Trailing Talarico in Polls, Tacks Toward the Center in Texas**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/28/us/midterm-elections
