@@ -1,3 +1,7 @@
+**Why China Is Requiring Ninth Graders to Read ‘Jane Eyre’**\
+`The Victorian heroine has long been celebrated in China for her independence and insistence on equality.`\
+https://www.nytimes.com/2026/09/28/world/asia/china-jane-eyre-required-reading-literature.html
+
 **‘Ghost Adventures,’ and 7 More Shows to Watch on TV This Week**\
 `The paranormal investigation series returns, and the 1952 John Steinbeck novel “East of Eden” comes to small screens.`\
 https://www.nytimes.com/2026/09/28/arts/television/ghost-adventures-east-of-eden-tv.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/09/27/arts/television/snl-season-52-premiere-jalen-
 `Readers love Genevieve Ko’s new caramelized garlic fish, and so do I.`\
 https://www.nytimes.com/2026/09/27/dining/you-could-serve-cardboard-with-this-sauce-and-it-would-be-good.html
 
-**The State of Organ Donation**\
-`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
-https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
-
 **The Id, the Ego and the Superintelligence**\
 `Artificial intelligence isn’t coming for philosophers’ jobs — it needs philosophers, and always will.`\
 https://www.nytimes.com/2026/09/27/opinion/ai-philosophy-thinking-judgment.html
+
+**The State of Organ Donation**\
+`Readers respond to “Organ Donation Needs to Be Trustworthy,” an Opinion guest essay by Greg Segal. Also: Don’t eat beef.`\
+https://www.nytimes.com/2026/09/27/opinion/organ-donation.html
 
 **Iran Still Awaits ‘Official’ U.S. Response Despite Trump’s Rebuff of Cease-Fire Offer**\
 `Abbas Araghchi, Iran’s foreign minister, said a history of contradictory messaging meant that President Trump’s rejection might not be a final position.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/27/crosswords/connections-companion-1205.html
 **Today’s Wordle Hints for September 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 28, 2026.`\
 https://www.nytimes.com/2026/09/27/crosswords/wordle-review-1927.html
-
-**The Super El Niño Is About to Unleash Weather Chaos. Get Ready Now.**\
-`There’s still time to prepare.`\
-https://www.nytimes.com/2026/09/27/opinion/el-nino-weather-forecasts-climate-change.html
 
