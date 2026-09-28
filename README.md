@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
 **Live Updates: Police to Release 5 Men on Bail After Possible Terror Plot at U.K. Air Base**\
-`The suspects remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+`The men remain under investigation with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
 **Who Is Ahead in New York's 23rd Congressional District?**\
@@ -138,7 +138,7 @@ https://www.nytimes.com/interactive/2026/09/28/nyregion/nyc-budgeting-affordabil
 `The revival of Japan’s economy isn’t all good news.`\
 https://www.nytimes.com/2026/09/28/opinion/bond-market-japan-yen.html
 
-**Who’s Winning the Race for Congress?**\
+**Who’s Winning the Race for Congress? 2026 Midterm Elections**\
 `It’s Sept. 28 — 36 days away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/09/28/us/whos-winning-the-race-for-congress.html
 
