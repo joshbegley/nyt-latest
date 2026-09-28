@@ -1,3 +1,7 @@
+**Judge Blocks FEMA From Tying Antiterrorism Grants to Election Changes**\
+`The Trump administration had threatened to withhold some Homeland Security money unless states explored paper balloting and citizenship verification.`\
+https://www.nytimes.com/2026/09/28/climate/fema-grants-election-changes-ruling.html
+
 **The Local: Fancy cats**\
 `Also, the Lynx face a setback.`\
 https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
