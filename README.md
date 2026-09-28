@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
 **Live Updates: Police to Release 5 Men Arrested Over Possible Terror Plot at U.K. Air Base**\
-`The men remain under investigation with “stringent conditions,” a British counterterrorism official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+`The suspects are being released on bail with “stringent conditions,” a British official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
 **Who Is Ahead in New York's 23rd Congressional District?**\
