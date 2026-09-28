@@ -1,4 +1,16 @@
 **Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
+`Speaking in France, the pontiff lauded postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
+https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
+
+**How Supermarkets Became Protein-Maxxed**\
+`Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
+https://www.nytimes.com/interactive/2026/09/28/upshot/protein.html
+
+**5 Gastrointestinal Symptoms You Should Never Ignore**\
+`Experts say these warning signs should always prompt a chat with a doctor.`\
+https://www.nytimes.com/2026/09/28/well/gastrointestinal-symptoms-gut-health.html
+
+**Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
 `Speaking in France, the pontiff praised postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
 https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
 

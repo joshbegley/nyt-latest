@@ -1,5 +1,5 @@
 **Pope Leo Praises Europe’s Democracy, Diverging Once Again From Trump**\
-`Speaking in France, the pontiff praised postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
+`Speaking in France, the pontiff lauded postwar efforts to unify the continent. Experts saw it as a critique of President Trump’s repeated berating of European leaders.`\
 https://www.nytimes.com/2026/09/28/world/europe/pope-leo-trump-democracy-europe.html
 
 **Could A.I. Safety Risks Derail the Sector’s I.P.O. Prospects?**\
@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/09/28/opinion/trump-midterms-hoax.html
 
 **How Supermarkets Became Protein-Maxxed**\
 `Protein is everywhere — in chips, candy, cookies, even water. Does that make these products healthy?`\
-https://www.nytimes.com/interactive/2026/09/28/upshot/28up-protein.html
+https://www.nytimes.com/interactive/2026/09/28/upshot/protein.html
 
 **How Scientists Can Shape Public Opinion Over A.I. Risks**\
 `Artificial intelligence workers may have leverage to make the world safer.`\
@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/09/28/style/fantasy-football-punishments.html
 
 **5 Gastrointestinal Symptoms You Should Never Ignore**\
 `Experts say these warning signs should always prompt a chat with a doctor.`\
-https://www.nytimes.com/2026/09/28/well/worrisome-gut-symptoms.html
+https://www.nytimes.com/2026/09/28/well/gastrointestinal-symptoms-gut-health.html
 
 **Here’s What Fans Paid for Harry Styles Tickets at M.S.G.**\
 `What is a concert really worth? We asked 34 fans about the time, money and effort they spent getting tickets for the star’s New York City residency.`\
