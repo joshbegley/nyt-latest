@@ -1,9 +1,13 @@
+**Two of China’s EV Makers Announce a Deal as Auto Industry Moves Toward Consolidation**\
+`Two of the country’s leading makers of electric vehicles announced they are merging their battery swapping and charging operations.`\
+https://www.nytimes.com/2026/09/28/business/china-ev-geely-nio.html
+
 **Andrew Bailey, a Deputy Director at the F.B.I., Leaves His Job**\
 `Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
 https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
 
-**Live Updates: Police Investigate Possible Terror Plot at U.K. Air Base**\
-`British counterterrorism police are scheduled to give a statement outside Scotland Yard.`\
+**Live Updates: Police Officers Give Statement on Possible Terror Plot at U.K. Air Base**\
+`British counterterrorism police are providing an update on the incident at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
 
 **Who Is Ahead in New York's 23rd Congressional District?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/fashion/textile-conservation-rachel-phelan-du
 **Tiffany Designer’s Sketches to be Restored**\
 `Musée des Arts Décoratifs and Tiffany & Company plan to conserve the work of Jean Schlumberger, creator of such well-known pieces as Bird on a Rock.`\
 https://www.nytimes.com/2026/09/28/fashion/jewelry-jean-schlumberger-tiffany.html
-
-**After a Life in Isolation, a Tennessee Woman Waits for Her Execution**\
-`Christa Pike could be the first woman executed in Tennessee in more than 200 years. Her supporters say she has changed in isolation; her victim’s family wants her to die.`\
-https://www.nytimes.com/2026/09/28/us/christa-pike-tennessee-execution.html
 
