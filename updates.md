@@ -1,3 +1,7 @@
+**Bras Pretended to Be Tops at the V.M.A.s and on Fashion Week Runways**\
+`At Sunday night’s MTV Video Music Awards and on fashion week runways, a bit of underwear completed a full look.`\
+https://www.nytimes.com/2026/09/27/style/vmas-bra-tops-fashion-week-prada.html
+
 **‘Lanterns’ Season 1, Episode 7 Recap: Unboxing**\
 `This week’s installment dove deeper into Hal’s past, revealing a lot of half-buried trauma.`\
 https://www.nytimes.com/2026/09/27/arts/television/lanterns-recap-season-1-episode-7.html
