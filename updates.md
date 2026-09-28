@@ -1,3 +1,23 @@
+**Can You Match These Autumnal Quotes to the Correct Book?**\
+`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many seasonal observations you recognize from popular books.`\
+https://www.nytimes.com/quiz/2026/09/28/bookreview/autumn-literary-quotes.html
+
+**Lock-In Season**\
+`Plus, new books in October.`\
+https://www.nytimes.com/2026/09/28/briefing/lock-in-season.html
+
+**Last Call for Fresh Corn**\
+`Though this bright, hot-sauced chicken dinner will work just as well with the frozen kind.`\
+https://www.nytimes.com/2026/09/28/dining/last-call-for-fresh-corn.html
+
+**Trump Revealed Something Essential About Elites**\
+`There are always elites. The people get to decide which ones rule.`\
+https://www.nytimes.com/2026/09/28/opinion/political-elites-elections.html
+
+**Live Updates: Police to Release 5 Men Arrested Over Possible Terror Plot at U.K. Air Base**\
+`The men remain under investigation with “stringent conditions,” a British counterterrorism official said. The base, R.A.F. Fairford, is used by the United States in its war against Iran.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
 **Read the statement from the Tompkins County district attorney**\
 `The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
 https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
