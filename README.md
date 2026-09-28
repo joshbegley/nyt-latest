@@ -1,3 +1,11 @@
+**Andrew Bailey, a Deputy Director at the F.B.I., Leaves His Job**\
+`Mr. Bailey, who was part of a three-person leadership team atop the bureau, lasted barely a year.`\
+https://www.nytimes.com/2026/09/28/us/politics/andrew-bailey-fbi-patel-bongino.html
+
+**Live Updates: Police Investigate Possible Terror Plot at U.K. Air Base**\
+`British counterterrorism police are scheduled to give a statement outside Scotland Yard.`\
+https://www.nytimes.com/live/2026/09/28/world/uk-raf-fairford-base-terror-plot
+
 **Who Is Ahead in New York's 23rd Congressional District?**\
 `Track the latest polls in New York's 23rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-york-us-house-23-polls-2026.html
@@ -135,7 +143,7 @@ https://www.nytimes.com/2026/09/28/learning/word-of-the-day-recitation.html
 https://www.nytimes.com/2026/09/28/business/trump-tariffs-canada-diversify.html
 
 **U.C.L.A.’s Bollywood Dance Team: Bonding and Battling**\
-`“For a lot of South Asians, dance is the way we connect,” said a member of the team at U.C.L.A. Our photographer captured glimpses of the team, from audition to competitions.`\
+`“For a lot of South Asians, dance is the way we connect,” said a member of the U.C.L.A. team Nashaa. Our photographer captured glimpses of the team last year, from audition to competitions.`\
 https://www.nytimes.com/2026/09/28/arts/bonding-and-battling-the-college-life-of-a-bollywood-dance-team.html
 
 **Brazil’s Biggest Election Question?: Donald Trump’s Next Move**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/28/fashion/jewelry-jean-schlumberger-tiffany.htm
 **After a Life in Isolation, a Tennessee Woman Waits for Her Execution**\
 `Christa Pike could be the first woman executed in Tennessee in more than 200 years. Her supporters say she has changed in isolation; her victim’s family wants her to die.`\
 https://www.nytimes.com/2026/09/28/us/christa-pike-tennessee-execution.html
-
-**Wood Carvers Preserve Signs of a City’s Heritage**\
-`Artisans in George Town, Malaysia, are restoring some of the Chinese business plaques in the city’s historic center.`\
-https://www.nytimes.com/2026/09/28/fashion/chinese-wooden-signs-george-town-malaysia.html
-
-**A Club’s Furnishings Reflect Its Nigerian Setting**\
-`Ugoma Ebilah said she used work by artisans from throughout the region for her new venture, Mbari Kola.`\
-https://www.nytimes.com/2026/09/28/fashion/crafts-mbari-kola-lagos-nigeria.html
 
