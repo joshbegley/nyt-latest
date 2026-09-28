@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/09/28/us/base-jumper-dead-utah.html
 https://www.nytimes.com/video/opinion/100000011172489/the-irony-of-trumps-economic-policies.html
 
 **Man Is Fatally Stabbed at Manhattan Homeless Shelter**\
-`Another man, Javed Tyghter, was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
+`Another man was arrested in connection with the attack, which occurred at a shelter in Washington Heights for people dealing with mental illness and substance abuse.`\
 https://www.nytimes.com/2026/09/28/nyregion/fatal-stabbing-homeless-shelter-washington-heights.html
 
 **The Voices Behind ‘Made in China’**\
