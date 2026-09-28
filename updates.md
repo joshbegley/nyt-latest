@@ -1,3 +1,7 @@
+**China and the U.S. Pledge to Cut Tariffs on $60 Billion in Goods**\
+`The two countries unveiled separate lists covering thousands of products as they seek to ease trade tensions and stabilize relations ahead of further negotiations.`\
+https://www.nytimes.com/2026/09/28/business/china-us-summit-tariffs.html
+
 **Protein in Every Food**\
 `We look at the market for products with added protein.`\
 https://www.nytimes.com/2026/09/28/briefing/protein-in-every-food.html
