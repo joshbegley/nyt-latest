@@ -1,3 +1,7 @@
+**How Israel Has Taken Over More of Gaza Despite the Cease-Fire**\
+`The Israeli military has built new outposts and slowly encroached beyond the withdrawal line in Gaza. These are signs its troops may be preparing to stay for the time being.`\
+https://www.nytimes.com/interactive/2026/09/28/world/middleeast/israel-gaza-cease-fire-palestinian-territory.html
+
 **Giant Pandas Land in Atlanta From China**\
 `Two pandas, Ping Ping and Fu Shuang, arrived in Atlanta on Sunday from China via a custom FedEx cargo shipment as a gesture of good will from Beijing.`\
 https://www.nytimes.com/video/world/100000011178929/china-pandas-atlanta-zoo-us.html
