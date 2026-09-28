@@ -1,3 +1,7 @@
+**German Town Votes to Stop Adding Memorials Outside Homes of Slain Jews**\
+`Councilors in an eastern German town voted to stop installing memorial plaques outside homes of Holocaust victims, saying they would instead build a memorial at a cemetery.`\
+https://www.nytimes.com/2026/09/28/world/europe/germany-stumbling-stones-holocaust-memorial-ban.html
+
 **Cornell Sexual Assault Investigation to Be Reopened**\
 `After outrage over allegations in a lawsuit, the Tompkins County district attorney will revisit the decision not to pursue criminal charges against seven fraternity members.`\
 https://www.nytimes.com/2026/09/28/nyregion/cornell-chi-phi-fraternity-assault.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/28/nyregion/omny-cards-cuny-students.html
 **Our Power Grid Is Vulnerable. This Is How to Protect It.**\
 `The Trump administration should build a stronger alliance with clean energy companies in spite of its culture war with them.`\
 https://www.nytimes.com/2026/09/28/opinion/power-grid-national-security.html
-
-**What Have You Learned From Facing a Fear?**\
-`A writer signed up for a dizzying cliffside adventure to confront his fear of heights. What can you take away from his story?`\
-https://www.nytimes.com/2026/09/28/learning/what-have-you-learned-from-facing-a-fear.html
 
