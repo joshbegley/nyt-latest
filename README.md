@@ -1,3 +1,23 @@
+**Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
+`Plus, the new job title taking over LinkedIn.`\
+https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
+
+**NYT Connections Answers for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/connections-companion-1207.html
+
+**Today’s Wordle Hints for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/wordle-review-1929.html
+
+**Are Prediction Markets Gambling? A Lot Rides on the Answer.**\
+`In lawsuits across the country, Republican and Democratic states have united to take on prediction markets like Kalshi and Polymarket.`\
+https://www.nytimes.com/2026/09/29/podcasts/the-daily/are-prediction-markets-gambling-a-lot-rides-on-the-answer.html
+
+**NYT Strands Hints for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/strands-sidekick-941.html
+
 **Rubio Says Incident at UK Air Base RAF Fairford ‘Clearly Involved’ a Foreign Actor**\
 `The U.S. secretary of state, Marco Rubio, told Fox News that what happened at a base used by U.S. bombers flying to Iran was “very serious,” without providing details.`\
 https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-incident-rubio-us.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/29/travel/ireland-by-public-transportation.html
 **New Tests Claim to Diagnose Endometriosis. Here’s What to Know.**\
 `Patients and doctors are eager for a noninvasive way to diagnose the disease, and several start-ups are offering new options. Here’s what to know about them.`\
 https://www.nytimes.com/2026/09/29/well/live/endometriosis-diagnosis-tests.html
-
-**Why Are We Becoming So Entranced by Hypnotherapy?**\
-`Once considered a fringe practice, hypnotherapy is now praised by celebrities, offered at spas and even administered to treat depression and addiction. Does it work?`\
-https://www.nytimes.com/2026/09/29/style/hypnotherapy-hypnosis-jim-curtis.html
-
-**Bill Gates’s Blunt Warning on A.I.**\
-`As A.I. capabilities accelerate, the technologist is shocked by the “complete lack of engagement” with the question of how to manage its risks.`\
-https://www.nytimes.com/video/opinion/100000011179056/bill-gatess-blunt-warning-on-ai.html
-
-**Dennis Haskins, Principal Belding in ‘Saved by the Bell,’ Dies at 75**\
-`Dennis Haskins, the actor best known for playing Principal Richard Belding in “Saved by the Bell,” died on Sunday. He was 75.`\
-https://www.nytimes.com/video/obituaries/100000011181420/dennis-haskins-saved-by-the-bell.html
-
-**How Asia Has Survived the Energy Crisis**\
-`Seven months after the start of the Iran War, the biggest buyers of Middle Eastern energy have secured alternative supplies.`\
-https://www.nytimes.com/interactive/2026/09/29/business/iran-war-hormuz-asia-oil-gas.html
-
-**Bodies ‘Like Pieces of Charcoal’: Dozens Killed in Myanmar Military Bombing**\
-`An airstrike on a bustling market in rebel territory left at least 50 people dead, in one of the deadliest attacks on civilians in months.`\
-https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.html
 
