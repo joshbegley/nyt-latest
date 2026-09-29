@@ -1,3 +1,7 @@
+**Number of Guard Troops in Washington Drops Below 3,000**\
+`The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
+https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
+
 **Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
 `The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
 https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
@@ -137,10 +141,6 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 **Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
 `The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
-
-**Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
-`Republicans have called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjury, though the accusation appeared to be based on a misunderstanding.`\
-https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
 
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
 `Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\

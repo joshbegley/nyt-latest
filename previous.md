@@ -1,3 +1,11 @@
+**Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
+`The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
+https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
+
+**My Favorite Phone Songs**\
+`Stow your devices and listen to these telephone-themed songs from Blondie, Chuck Berry, R.E.M. and more.`\
+https://www.nytimes.com/2026/09/29/arts/music/amplifier-phone-songs-rem-blondie.html
+
 **In Nine Key Senate Races, Five Republicans Won’t Commit to Campaigning With Trump**\
 `Three campaigns left their positions unclear, and two said they would not join the president on the trail.`\
 https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump-campaign.html
@@ -28,7 +36,7 @@ https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 
 **Man Shot by ICE Agent in Austin Is Charged With Assault**\
 `Prosecutors say the man struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that has not been released.`\
-https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
 
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
 `Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-inciden
 **Your A.I. Questions Answered**\
 `Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
-
-**Trump’s Luck Is Finally Running Out**\
-`Voters are showing a growing determination to repudiate his presidency.`\
-https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
-
-**Pillow Talk**\
-`Waking up in aches? Our expert explains why your pillow is the problem and how to pick a new one.`\
-https://www.nytimes.com/2026/09/29/podcasts/pillow-talk.html
 

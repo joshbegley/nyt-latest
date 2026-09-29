@@ -1,3 +1,15 @@
+**Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
+`The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
+https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
+
+**My Favorite Phone Songs**\
+`Stow your devices and listen to these telephone-themed songs from Blondie, Chuck Berry, R.E.M. and more.`\
+https://www.nytimes.com/2026/09/29/arts/music/amplifier-phone-songs-rem-blondie.html
+
+**Man Shot by ICE Agent in Austin Is Charged With Assault**\
+`Prosecutors say the man struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that has not been released.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
+
 **Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
 `Some Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
