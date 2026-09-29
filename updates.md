@@ -1,3 +1,7 @@
+**Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
+`Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
+https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html
+
 **Bar CC, the Sister Space to Crane Club, Takes a Plus Approach**\
 `Baekjeong Black offers cocktails and Korean fare, Kythira NP reinterprets Greek classics and more restaurant news.`\
 https://www.nytimes.com/2026/09/29/dining/nyc-restaurant-news.html

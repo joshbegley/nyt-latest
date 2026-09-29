@@ -1,3 +1,7 @@
+**Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
+`In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
+https://www.nytimes.com/video/world/asia/100000011182398/turkey-doughnuts-lokma-honor-dead.html
+
 **Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
 `Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
 https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
 **Evicted Woman Set to Return Home as Spain Announces Plans to Fix Housing Crisis**\
 `The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government presented legislation to protect renters.`\
 https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
-
-**Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
-`Plus, the new job title taking over LinkedIn.`\
-https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
 
