@@ -1,3 +1,7 @@
+**In Nine Key Senate Races, Five Republicans Won’t Commit to Campaigning With Trump**\
+`Three campaigns left their positions unclear, and two said they would not join the president on the trail.`\
+https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump-campaign.html
+
 **Marco Rubio Reveals Redesigned U.S. Passport**\
 `Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
 https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
 **Pillow Talk**\
 `Waking up in aches? Our expert explains why your pillow is the problem and how to pick a new one.`\
 https://www.nytimes.com/2026/09/29/podcasts/pillow-talk.html
-
-**A Tough Ad Reminds Nebraska Voters About a Brutal Crime and a Pardon**\
-`A group supporting Dan Osborn, the independent Senate candidate in Nebraska, is airing an ad attacking Senator Pete Ricketts, a Republican, for pardoning a man convicted of sexual assault.`\
-https://www.nytimes.com/2026/09/29/us/politics/ad-watch-nebraska-senate-race.html
 
