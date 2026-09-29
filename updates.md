@@ -1,3 +1,7 @@
+**Estonia Says Arson at Defense Company Was ‘Deliberate’ Attack by Russia**\
+`A fire broke out at Milrem Robotics, which manufactures and supplies unmanned vehicles for Ukraine, in August.`\
+https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fire.html
+
 **‘Love Me’ Artist Demands Trump Stop Using Song**\
 `President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
 https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
