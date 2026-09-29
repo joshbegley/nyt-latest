@@ -1,3 +1,7 @@
+**Will A.I. Make Your Brain Lazy?**\
+`We’re starting to learn more about how the technology can change us.`\
+https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
+
 **No Bombs Found in U.K. Case, but Officials Say Threat to Bases Is Real**\
 `The prospect of an attack on an air base used by U.S. forces prompted stepped-up protections across Europe, but confusion shrouds the case, in which the suspects were released on bail.`\
 https://www.nytimes.com/2026/09/29/world/europe/britain-air-base-iran-threat.html

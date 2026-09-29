@@ -1,3 +1,11 @@
+**Morocco’s King Names a Female Prime Minister, in a Historic First**\
+`Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html
+
+**Book Review: ‘American Hagwon,’ by Min Jin Lee**\
+`The beloved author’s follow-up to “Pachinko” features a cram school that dares to promote students’ well-being over academic striving.`\
+https://www.nytimes.com/2026/09/29/books/review/american-hagwon-min-jin-lee.html
+
 **Will A.I. Make Your Brain Lazy?**\
 `We’re starting to learn more about how the technology can change us.`\
 https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
 `The new question, included on a draft version of the primary tax form, comes as part of an anti-immigrant turn at an agency that long prioritized tax administration.`\
 https://www.nytimes.com/2026/09/29/business/irs-tax-returns-citizenship.html
-
-**Is Claude Conscious? Inside Anthropic’s Quest to Instill Morality Into Its A.I. Models**\
-`In a series of private meetings, the company consulted religious scholars to help instill morality into its A.I. models — and make the case that Claude could be conscious.`\
-https://www.nytimes.com/2026/09/29/us/anthropic-claude-morals-ai.html
-
-**Sunkist Fruit Gems, Bar Mitzvah Staple, Get 2nd Chance After Discontinuation**\
-`The company said that Candyrific of Louisville, Ky., will produce the jelly candy that comes in a rainbow of colors and citrus flavors and is used in Jewish traditions.`\
-https://www.nytimes.com/2026/09/29/business/sunkist-fruit-gems-candy-candyrific.html
 
