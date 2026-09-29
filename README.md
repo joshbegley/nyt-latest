@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolit
 `Three friends turned out for a Brooklyn block party in celebration of what would have been Michael Jackson’s 68th birthday wearing their Jackson 5 finest.`\
 https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
 
-**Israeli Settler Attack in West Bank Blocks Palestinian Family From Returning Home**\
-`The Supreme Court ordered the military to ensure a family that fled after repeated attacks could go back. But settlers prevented the efforts, stoking criticism of Israeli policy in the territory.`\
+**Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
+`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to stop them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
 **Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
 `We look at a few compelling proposals.`\
 https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
 
-**Evicted Woman Set to Return Home as Spain Plans Fixes to Housing Crisis**\
-`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government said it would present laws to protect renters.`\
+**Evicted Woman Set to Return Home as Spain Announces Plans to Fix Housing Crisis**\
+`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government presented legislation to protect renters.`\
 https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
 
 **Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
