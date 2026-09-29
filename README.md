@@ -1,3 +1,7 @@
+**Netanyahu Visits Emirati Leader After Reports on Warning About Hamas Attack**\
+`Official statements said bilateral relations were discussed. But the question of who bears responsibility for failing to prevent the Oct. 7 attack is a major election issue in Israel.`\
+https://www.nytimes.com/2026/09/28/world/middleeast/netanyahu-emirati-leader-hamas-attack.html
+
 **In N.Y. Swing District, Candidates Debate Trump, Energy and Data Centers**\
 `Representative Mike Lawler, a vulnerable Republican in a suburban New York district, faced Cait Conley, a military veteran, for the first time onstage.`\
 https://www.nytimes.com/2026/09/28/nyregion/lawler-conley-debate-new-york.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
 **Could Homeownership Reverse the Decline in Birthrates?**\
 `Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
 https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
-
-**Journalism Essentials: How to Write a News Story**\
-`Interested in journalistic writing? We discuss the key components of a news article.`\
-https://www.nytimes.com/2026/09/28/learning/journalism-essentials-how-to-write-a-news-story.html
 
