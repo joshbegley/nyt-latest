@@ -1,3 +1,7 @@
+**Second Prosecutor Quits Trump’s ‘Grand Conspiracy’ Case**\
+`The resignation adds to the setbacks to the most sweeping effort by the Justice Department to fulfill the president’s desire to take revenge against the federal officials who have investigated him.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-grand-conspiracy-prosecutor-resigns.html
+
 **A Driver Desperate to Use the Bathroom Plows Into a Kroger in Texas, the Police Say**\
 `The driver, James Mansell Lancaster Jr., was upset to find the supermarket in Rosenberg, Texas, closed early Sunday morning, the police said.`\
 https://www.nytimes.com/2026/09/28/us/kroger-texas-crash-bathroom.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/dining/last-call-for-fresh-corn.html
 **Trump Revealed Something Essential About Elites**\
 `There are always elites. The people get to decide which ones rule.`\
 https://www.nytimes.com/2026/09/28/opinion/political-elites-elections.html
-
-**The district attorney explained why he reopened the Cornell investigation. Read the document:**\
-`The district attorney for Tompkins County in New York said he is reopening an investigation into a report of a sexual assault at Cornell University.`\
-https://www.nytimes.com/interactive/2026/09/28/nyregion/tompkinscornell.html
 

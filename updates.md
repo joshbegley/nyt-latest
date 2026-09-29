@@ -1,3 +1,7 @@
+**Second Prosecutor Quits Trump’s ‘Grand Conspiracy’ Case**\
+`The resignation adds to the setbacks to the most sweeping effort by the Justice Department to fulfill the president’s desire to take revenge against the federal officials who have investigated him.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-grand-conspiracy-prosecutor-resigns.html
+
 **A Driver Desperate to Use the Bathroom Plows Into a Kroger in Texas, the Police Say**\
 `The driver, James Mansell Lancaster Jr., was upset to find the supermarket in Rosenberg, Texas, closed early Sunday morning, the police said.`\
 https://www.nytimes.com/2026/09/28/us/kroger-texas-crash-bathroom.html
