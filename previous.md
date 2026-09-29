@@ -1,3 +1,11 @@
+**Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
+`Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
+https://www.nytimes.com/2026/09/29/us/chartering-a-boat-on-the-kuskokwim-river-to-reach-peltolas-alaska.html
+
+**Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
+`In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
+https://www.nytimes.com/video/world/asia/100000011182398/turkey-doughnuts-lokma-honor-dead.html
+
 **Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
 `Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
 https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html
@@ -47,7 +55,7 @@ https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-p
 https://www.nytimes.com/2026/09/29/technology/openai-dots-ai-agents.html
 
 **OpenAI Ignored Employees’ Warnings About Safely Testing A.I. Models**\
-`Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
+`Employees and security researchers said that they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but that OpenAI did not listen.`\
 https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
 
 **In ‘How Shakespeare Saved My Life,’ Tragedy Mingles With Comedy**\
@@ -63,7 +71,7 @@ https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-c
 https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 
 **Man Shot by ICE Agent in Austin Is Charged With Assault**\
-`Prosecutors say the man struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that has not been released.`\
+`Prosecutors say Wilber Garces Perez struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
 
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
 **How to Improve Schools**\
 `We look at a few compelling proposals.`\
 https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
-
-**Evicted Woman Set to Return Home as Spain Announces Plans to Fix Housing Crisis**\
-`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government presented legislation to protect renters.`\
-https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
-
-**Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
-`Plus, the new job title taking over LinkedIn.`\
-https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
 

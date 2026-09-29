@@ -1,3 +1,19 @@
+**Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
+`Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
+https://www.nytimes.com/2026/09/29/us/chartering-a-boat-on-the-kuskokwim-river-to-reach-peltolas-alaska.html
+
+**Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
+`In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
+https://www.nytimes.com/video/world/asia/100000011182398/turkey-doughnuts-lokma-honor-dead.html
+
+**OpenAI Ignored Employees’ Warnings About Safely Testing A.I. Models**\
+`Employees and security researchers said that they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but that OpenAI did not listen.`\
+https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
+
+**Man Shot by ICE Agent in Austin Is Charged With Assault**\
+`Prosecutors say Wilber Garces Perez struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
+
 **Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
 `Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
 https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html

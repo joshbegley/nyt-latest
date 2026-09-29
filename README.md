@@ -1,3 +1,7 @@
+**Trump Has Become Just Another Disappointing Politician**\
+`His winning brand — outsider businessman — has withered.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
+
 **Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
 `Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
 https://www.nytimes.com/2026/09/29/us/chartering-a-boat-on-the-kuskokwim-river-to-reach-peltolas-alaska.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fi
 **JMSN, ‘Love Me’ Artist, Demands Trump Stop Using Song**\
 `President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
 https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
-
-**How to Improve Schools**\
-`We look at a few compelling proposals.`\
-https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
 
