@@ -1,3 +1,7 @@
+**Live Updates: Jack Smith to Face Another Grilling Before Congress**\
+`The former special counsel is scheduled to testify before Republicans who have pressed for him to be criminally prosecuted. His appearance will be the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
 `Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
 https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
@@ -54,10 +58,6 @@ https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-inciden
 `Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
 
-**Jack Smith, Former Special Counsel, Will Appear Before Congress**\
-`Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
-https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
-
 **Trump’s Luck Is Finally Running Out**\
 `Voters are showing a growing determination to repudiate his presidency.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
@@ -82,13 +82,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**College Students Flex Their Power in A.I. Investment Frenzy**\
-`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
-https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
 **Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
 `Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
 https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\

@@ -1,3 +1,7 @@
+**Live Updates: Jack Smith to Face Another Grilling Before Congress**\
+`The former special counsel is scheduled to testify before Republicans who have pressed for him to be criminally prosecuted. His appearance will be the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
 `Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
 https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
