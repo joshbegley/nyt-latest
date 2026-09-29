@@ -1,3 +1,7 @@
+**I No Longer Have to Make Life Decisions Thanks to My Infinite Tins of Fish**\
+`Now I can’t even look at the word t*na.`\
+https://www.nytimes.com/2026/09/29/magazine/tinned-fish-craze.html
+
 **Is Claude Conscious? Inside Anthropic’s Quest to Instill Morality Into Its A.I. Models**\
 `In a series of private meetings, the company consulted religious scholars to help instill morality into its A.I. models — and make the case that Claude could be conscious.`\
 https://www.nytimes.com/2026/09/29/us/anthropic-claude-morals-ai.html
