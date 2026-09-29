@@ -1,3 +1,7 @@
+**Bodies ‘Like Pieces of Charcoal’: Dozens Killed in Myanmar Military Bombing**\
+`An airstrike on a bustling market in rebel territory left at least 50 people dead, in one of the deadliest attacks on civilians in months.`\
+https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.html
+
 **15-Minute Lesson Plan: The Role of the United Nations**\
 `What is the U.N., and what does it do? What happened when the General Assembly recently met?`\
 https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-the-united-nations.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
 **These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
 `As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
 https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
-
-**Trump Administration Asks Justices to Allow It to Deny Hormones to Trans Inmates**\
-`The Bureau of Prisons policy, which has been blocked by lower courts, would give transgender prisoners access to psychotherapy and antidepressants instead of certain gender-transition medical treatments.`\
-https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates.html
 

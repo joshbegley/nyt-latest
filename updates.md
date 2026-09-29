@@ -1,3 +1,7 @@
+**Bodies ‘Like Pieces of Charcoal’: Dozens Killed in Myanmar Military Bombing**\
+`An airstrike on a bustling market in rebel territory left at least 50 people dead, in one of the deadliest attacks on civilians in months.`\
+https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.html
+
 **15-Minute Lesson Plan: The Role of the United Nations**\
 `What is the U.N., and what does it do? What happened when the General Assembly recently met?`\
 https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-the-united-nations.html

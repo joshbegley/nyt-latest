@@ -1,3 +1,11 @@
+**Dennis Haskins, Principal Belding in ‘Saved by the Bell,’ Dies at 75**\
+`Dennis Haskins, the actor best known for playing Principal Richard Belding in “Saved by the Bell,” died on Sunday. He was 75.`\
+https://www.nytimes.com/video/obituaries/100000011181420/dennis-haskins-saved-by-the-bell.html
+
+**How Asia Has Survived the Energy Crisis**\
+`Seven months after the start of the Iran War, the biggest buyers of Middle Eastern energy have secured alternative supplies.`\
+https://www.nytimes.com/interactive/2026/09/29/business/iran-war-hormuz-asia-oil-gas.html
+
 **Bodies ‘Like Pieces of Charcoal’: Dozens Killed in Myanmar Military Bombing**\
 `An airstrike on a bustling market in rebel territory left at least 50 people dead, in one of the deadliest attacks on civilians in months.`\
 https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/28/world/europe/uk-fairford-base-terrorist-plot.
 **Judge Blocks FEMA From Tying Antiterrorism Grants to Election Changes**\
 `The Trump administration had threatened to withhold some Homeland Security money unless states explored paper balloting and citizenship verification.`\
 https://www.nytimes.com/2026/09/28/climate/fema-grants-election-changes-ruling.html
-
-**The Local: Fancy cats**\
-`Also, the Lynx face a setback.`\
-https://www.nytimes.com/2026/09/28/briefing/fancy-cats.html
-
-**These Republicans Have Called on Trump to Ban U.S. Diesel Exports**\
-`As record prices weigh on the G.O.P.’s midterm outlook, several Republicans have coalesced around an idea to block diesel from leaving the United States. Others are skeptical that doing so would lower costs.`\
-https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ban.html
 
