@@ -1,3 +1,7 @@
+**Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
+`Several Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
+https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
+
 **JMSN, ‘Love Me’ Artist, Demands Trump Stop Using Song**\
 `President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
 https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html

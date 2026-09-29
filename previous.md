@@ -1,3 +1,7 @@
+**Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
+`Several Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
+https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
+
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
 `The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
-`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
-https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
-
 **As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
 `Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
 https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
+
+**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
+`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
+https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/opinion/writing-thinking-college-ai.html
 **Irving Penn, Before and After**\
 `“Penn & Fashion” traces Irving Penn’s fashion and beauty photography over more than six decades.`\
 https://www.nytimes.com/2026/09/29/style/irving-penn-photography-american-vogue.html
-
-**Book Review: ‘The True Confessions of First Lady Freeman,’ by Deesha Philyaw**\
-`Deesha Philyaw’s debut novel is a rebellion disguised as a romp.`\
-https://www.nytimes.com/2026/09/29/books/review/the-true-confessions-of-first-lady-freeman-deesha-philyaw.html
 
