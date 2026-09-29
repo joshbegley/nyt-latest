@@ -1,3 +1,7 @@
+**Supreme Court Allows Rapid Third-Country Deportations, for Now**\
+`The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
+https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
+
 **Brooklyn Democratic Chair Accused of ‘Power Grab’ Won’t Seek Re-election**\
 `Assemblywoman Rodneyse Bichotte Hermelyn will not seek another term after the party was thrown into chaos after disputed rule changes.`\
 https://www.nytimes.com/2026/09/29/nyregion/rodneyse-bichotte-hermelyn-brooklyn-reelection.html

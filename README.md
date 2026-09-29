@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
-`The man, a 47-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+`The man, a 57-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
