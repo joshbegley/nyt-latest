@@ -1,3 +1,7 @@
+**Senate Resoundingly Approves Sweeping College Sports Measure**\
+`The outlook for the legislation, which seeks to stabilize the unsettled collegiate sports landscape, is uncertain in the House. It was one of the last congressional actions before the midterms.`\
+https://www.nytimes.com/2026/09/28/us/politics/senate-college-sports.html
+
 **NYT Crossword Answers for Sept. 29, 2026**\
 `Hanh Huynh wants to do this mano a mano.`\
 https://www.nytimes.com/2026/09/28/crosswords/daily-puzzle-2026-09-29.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011179593/spacex-starship-launch-orbit.ht
 **This Virus Stole a Human Gene and Won’t Let Go of It**\
 `Scientists have found a human gene lurking in a virus that causes skin infections. It may be using our own DNA to infect us.`\
 https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
-
-**Maps: Tracking Tropical Storm Hanna**\
-`See the likely path and wind arrival times for Hanna`\
-https://www.nytimes.com/interactive/2026/09/28/weather/hanna-map-path-tracker.html
 

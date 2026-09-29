@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 29, 2026**\
+`Hanh Huynh wants to do this mano a mano.`\
+https://www.nytimes.com/2026/09/28/crosswords/daily-puzzle-2026-09-29.html
+
 **Denée Benton and Patina Miller Help Give ‘School Girls’ a Broadway Glow-Up**\
 `Jocelyn Bioh’s breakthrough 2017 play about cliques and colorism is just as funny — and devastating — with a sharp ensemble and direction by Whitney White.`\
 https://www.nytimes.com/2026/09/28/theater/school-girls-or-the-african-mean-girls-play-review.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
 **Maps: Tracking Tropical Storm Hanna**\
 `See the likely path and wind arrival times for Hanna`\
 https://www.nytimes.com/interactive/2026/09/28/weather/hanna-map-path-tracker.html
-
-**The One Outfit We Agreed on This Weekend**\
-`At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
-https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
 
