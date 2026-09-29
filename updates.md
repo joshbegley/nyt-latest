@@ -1,3 +1,11 @@
+**Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
+`Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
+https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
+
+**Body Camera Captured Incident Between ICE Agent and Driver in Austin**\
+`The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
 **OpenAI Ignored Employees Who Warned It Wasn’t Doing Enough About Security**\
 `Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
 https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
