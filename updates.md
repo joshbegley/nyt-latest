@@ -1,3 +1,7 @@
+**JMSN, ‘Love Me’ Artist, Demands Trump Stop Using Song**\
+`President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
+https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
+
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
 `The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html

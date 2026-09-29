@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/09/29/world/asia/malaysia-repatriation-myanmar-migr
 `A fire broke out at Milrem Robotics, which manufactures and supplies unmanned vehicles for Ukraine, in August.`\
 https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fire.html
 
-**‘Love Me’ Artist Demands Trump Stop Using Song**\
+**JMSN, ‘Love Me’ Artist, Demands Trump Stop Using Song**\
 `President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
 https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
 
@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
 **In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
 `Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
 https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -166,13 +166,13 @@ https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico
 `The problems of technology were there before Trump and will be there after.`\
 https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
 
-**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
-`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
-https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
-
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
+
+**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
+`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
+https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
 
 **Corrections: Sept. 29, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 29, 2026.`\
