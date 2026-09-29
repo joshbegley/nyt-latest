@@ -1,3 +1,7 @@
+**Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
+`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own ‘fully autonomous magnetic levitation train.’`\
+https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
+
 **OpenAI Apologizes for Australia Medicare Hack**\
 `The company detailed how A.I. agents gained access to four government websites and acknowledged mishandling its response.`\
 https://www.nytimes.com/2026/09/29/world/asia/openai-australia-government-hack-apology.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-wee
 **Russia Strikes Ukraine’s National Academy of Sciences**\
 `A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
 https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
-
-**Corrections: Sept. 26, 2026**\
-`Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
-https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
 
