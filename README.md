@@ -1,3 +1,7 @@
+**Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
+`It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
+https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
+
 **Number of Guard Troops in Washington Drops Below 3,000**\
 `The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
 https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/crosswords/strands-sidekick-941.html
 **Rubio Says Incident at UK Air Base RAF Fairford ‘Clearly Involved’ a Foreign Actor**\
 `The U.S. secretary of state, Marco Rubio, told Fox News that what happened at a base used by U.S. bombers flying to Iran was “very serious,” without providing details.`\
 https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-incident-rubio-us.html
-
-**Your A.I. Questions Answered**\
-`Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
-https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
 
