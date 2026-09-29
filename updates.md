@@ -1,3 +1,11 @@
+**Man Killed After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
+**Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
+`The new question, included on a draft version of the primary tax form, comes as part of an anti-immigrant turn at an agency that long prioritized tax administration.`\
+https://www.nytimes.com/2026/09/29/business/irs-tax-returns-citizenship.html
+
 **I No Longer Have to Make Life Decisions Thanks to My Infinite Tins of Fish**\
 `Now I can’t even look at the word t*na.`\
 https://www.nytimes.com/2026/09/29/magazine/tinned-fish-craze.html
