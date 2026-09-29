@@ -1,3 +1,11 @@
+**Brooklyn Democratic Chair Accused of ‘Power Grab’ Won’t Seek Re-election**\
+`Assemblywoman Rodneyse Bichotte Hermelyn will not seek another term after the party was thrown into chaos after disputed rule changes.`\
+https://www.nytimes.com/2026/09/29/nyregion/rodneyse-bichotte-hermelyn-brooklyn-reelection.html
+
+**Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
+`Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
+https://www.nytimes.com/2026/09/29/us/mary-peltola-alaska-boat.html
+
 **Trump Has Become Just Another Disappointing Politician**\
 `His winning brand — outsider businessman — has withered.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
