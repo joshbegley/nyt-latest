@@ -1,3 +1,11 @@
+**Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
+`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to stop them.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
+
+**Evicted Woman Set to Return Home as Spain Announces Plans to Fix Housing Crisis**\
+`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government presented legislation to protect renters.`\
+https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
+
 **Man Killed After Bag Gets Stuck in Subway Doors, Police Say**\
 `The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
