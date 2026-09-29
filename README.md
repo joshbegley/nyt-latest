@@ -1,3 +1,7 @@
+**Accusations of Antisemitism Hit a Star of the French Far Right**\
+`Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
+https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
+
 **What’s In Anthropic’s I.P.O. Filing**\
 `The artificial intelligence giant reportedly believes that it’s on track for a record-breaking stock market listing, according to a prospectus seen by Reuters.`\
 https://www.nytimes.com/2026/09/29/business/dealbook/anthropic-ipo-filing-s1.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**College Students Flex Their Power in A.I. Investment Frenzy**\
-`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
-https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
 **Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
 `Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
 https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
 **In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
 `Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
 https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/europe/ukraine-donbas-emergency-workers
 **Book Review: ‘The Vanishing Family,’ by Robert Kolker**\
 `In “The Vanishing Family,” Robert Kolker paints a portrait of nine siblings under threat from a vicious form of Alzheimer’s disease.`\
 https://www.nytimes.com/2026/09/29/books/review/robert-kolker-the-vanishing-family.html
-
-**Behind His Great Novels, an Unbearable Family Secret**\
-`The Irish author Sebastian Barry has made a career of mining his family history. But he kept one story buried.`\
-https://www.nytimes.com/2026/09/29/magazine/sebastian-barry-family-ireland-secret.html
 

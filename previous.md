@@ -1,3 +1,11 @@
+**What’s In Anthropic’s I.P.O. Filing**\
+`The artificial intelligence giant reportedly believes that it’s on track for a record-breaking stock market listing, according to a prospectus seen by Reuters.`\
+https://www.nytimes.com/2026/09/29/business/dealbook/anthropic-ipo-filing-s1.html
+
+**The Migrants Being Shipped Back to a War Zone**\
+`Malaysia says it is repatriating undocumented migrants from Myanmar who want to return. Critics say it is putting their lives at risk.`\
+https://www.nytimes.com/2026/09/29/world/asia/malaysia-repatriation-myanmar-migrants-asylum.html
+
 **Estonia Says Arson at Defense Company Was ‘Deliberate’ Attack by Russia**\
 `A fire broke out at Milrem Robotics, which manufactures and supplies unmanned vehicles for Ukraine, in August.`\
 https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fire.html
@@ -70,13 +78,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
-`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
-https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
-
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
 https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/books/review/robert-kolker-the-vanishing-fami
 **Behind His Great Novels, an Unbearable Family Secret**\
 `The Irish author Sebastian Barry has made a career of mining his family history. But he kept one story buried.`\
 https://www.nytimes.com/2026/09/29/magazine/sebastian-barry-family-ireland-secret.html
-
-**Maine’s Opera Houses Are the Light on Main Street**\
-`With a distinctly American vision of communal life and entertainment, these theaters have survived fires and floods because they were always about more than classical music.`\
-https://www.nytimes.com/2026/09/29/arts/music/maine-opera-houses.html
-
-**Book Review: ‘The Radiance,’ by Ayad Akhtar**\
-`“The Radiance,” by Ayad Akhtar, blends campus satire, autofiction and philosophical exploration into an explosive and timely brew.`\
-https://www.nytimes.com/2026/09/29/books/review/the-radiance-ayad-akhtar.html
 
