@@ -1,3 +1,7 @@
+**Prison Officials Suspended After Inmates Are Found Living in Luxury**\
+`At an Indonesian prison complex near Jakarta, inspectors found expensive cars, spacious quarters with flat-screen TVs and a golf simulator under construction.`\
+https://www.nytimes.com/2026/09/29/world/asia/indonesia-prison-luxury.html
+
 **A Very American Makeover for the State Department’s ‘Hall of Flags’**\
 `The flags of dozens of countries had hung above the State Department’s main atrium. A red, white and blue change has sparked a debate.`\
 https://www.nytimes.com/2026/09/29/us/politics/state-department-flags.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
 **ICE Plans 5,000 New Hires to Help With Deportation Drive**\
 `A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
 https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html
-
-**Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
-`He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
-https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
