@@ -1,3 +1,7 @@
+**Ohio Woman Sues Hospital After Wrong Leg Is Amputated**\
+`Sharon Jacks, 74, said she went into surgery for the amputation of her lower right leg last year, but her left leg was removed instead. She has accused Selby General Hospital of negligence.`\
+https://www.nytimes.com/2026/09/29/us/amputee-wrong-leg-lawsuit-ohio.html
+
 **Prison Officials Suspended After Inmates Are Found Living in Luxury**\
 `At an Indonesian prison complex near Jakarta, inspectors found expensive cars, spacious quarters with flat-screen TVs and a golf simulator under construction.`\
 https://www.nytimes.com/2026/09/29/world/asia/indonesia-prison-luxury.html
