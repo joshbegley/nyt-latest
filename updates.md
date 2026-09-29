@@ -1,3 +1,7 @@
+**Senate Resoundingly Approves Sweeping College Sports Measure**\
+`The outlook for the legislation, which seeks to stabilize the unsettled collegiate sports landscape, is uncertain in the House. It was one of the last congressional actions before the midterms.`\
+https://www.nytimes.com/2026/09/28/us/politics/senate-college-sports.html
+
 **NYT Crossword Answers for Sept. 29, 2026**\
 `Hanh Huynh wants to do this mano a mano.`\
 https://www.nytimes.com/2026/09/28/crosswords/daily-puzzle-2026-09-29.html
