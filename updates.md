@@ -1,3 +1,27 @@
+**Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
+`Plus, the new job title taking over LinkedIn.`\
+https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
+
+**NYT Connections Answers for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/connections-companion-1207.html
+
+**Today’s Wordle Hints for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/wordle-review-1929.html
+
+**Are Prediction Markets Gambling? A Lot Rides on the Answer.**\
+`In lawsuits across the country, Republican and Democratic states have united to take on prediction markets like Kalshi and Polymarket.`\
+https://www.nytimes.com/2026/09/29/podcasts/the-daily/are-prediction-markets-gambling-a-lot-rides-on-the-answer.html
+
+**NYT Strands Hints for September 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/29/crosswords/strands-sidekick-941.html
+
+**Rubio Says Incident at UK Air Base RAF Fairford ‘Clearly Involved’ a Foreign Actor**\
+`The U.S. secretary of state, Marco Rubio, told Fox News that what happened at a base used by U.S. bombers flying to Iran was “very serious,” without providing details.`\
+https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-incident-rubio-us.html
+
 **Your A.I. Questions Answered**\
 `Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
