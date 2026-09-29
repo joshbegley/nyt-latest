@@ -1,3 +1,7 @@
+**Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
+`The former special counsel is appearing before Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Sunkist Fruit Gems, Bar Mitzvah Staple, Get 2nd Chance After Discontinuation**\
 `The company said that Candyrific of Louisville, Ky., will produce the jelly candy that comes in a rainbow of colors and citrus flavors and is used in Jewish traditions.`\
 https://www.nytimes.com/2026/09/29/business/sunkist-fruit-gems-candy-candyrific.html
