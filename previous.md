@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: The Role of the United Nations**\
+`What is the U.N., and what does it do? What happened when the General Assembly recently met?`\
+https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-the-united-nations.html
+
 **Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
 `Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
 https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/us/republicans-trump-us-diesel-fuel-export-ba
 **Trump Administration Asks Justices to Allow It to Deny Hormones to Trans Inmates**\
 `The Bureau of Prisons policy, which has been blocked by lower courts, would give transgender prisoners access to psychotherapy and antidepressants instead of certain gender-transition medical treatments.`\
 https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates.html
-
-**Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
-`The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
-https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
 

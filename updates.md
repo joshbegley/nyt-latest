@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: The Role of the United Nations**\
+`What is the U.N., and what does it do? What happened when the General Assembly recently met?`\
+https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-the-united-nations.html
+
 **Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
 `Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
 https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
