@@ -1,3 +1,7 @@
+**F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
+`“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
+https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
+
 **Mamdani Announces Plan to Fight Antisemitism, Without Discussing Israel**\
 `A report issued by Mayor Zohran Mamdani describes ways that New York City is funding hate crime prevention and celebrating the contributions of Jewish New Yorkers.`\
 https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/vivek-ramaswamy-amy-acton-wealth-class-ohi
 **What World Record Would You Like to Set?**\
 `A 6-year-old in China solved a Rubik’s Cube in a record time. What skills or talents do you have, or wish you had, that might get your name in the record book one day?`\
 https://www.nytimes.com/2026/09/29/learning/what-world-record-would-you-like-to-set.html
-
-**Dartmouth Provost Is the Latest College Professor Examined for A.I. Use**\
-`Dartmouth said it would investigate its provost over A.I. accusations. Similar controversies on other campuses have prompted frustration among students.`\
-https://www.nytimes.com/2026/09/29/us/college-professors-administrators-ai-dartmouth.html
 
