@@ -1,3 +1,23 @@
+**MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
+`The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
+https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
+
+**Black Voting Groups Prepare for Disinformation Campaigns in the Midterms**\
+`A new “propaganda playbook” aims to demystify common techniques used to target Black Americans, long a powerful voting bloc, with election-related disinformation.`\
+https://www.nytimes.com/2026/09/29/business/media/black-voters-disinformation-midterm-elections.html
+
+**What to Know About the Hacking Group ShinyHunters and Its F.B.I. Breach**\
+`The bureau was the latest target of the notorious gang of cybercriminals that steals sensitive personal data and sells it online.`\
+https://www.nytimes.com/2026/09/29/us/politics/shinyhunters-fbi-hacking-cybercriminal-group.html
+
+**Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
+`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
+
+**Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
+`The former special counsel is appearing before Senate Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Anthropic’s Quest for Humanlike A.I.**\
 `Elizabeth Dias, our national religion correspondent, and Cade Metz, one of our technology reporters, discuss Anthropic’s approach for instilling morality into Claude — which has involved consultations with religious leaders, including ones at the Vatican — and why it’s raising questions.`\
 https://www.nytimes.com/video/us/100000011159357/anthropic-claude-ai-religion.html
