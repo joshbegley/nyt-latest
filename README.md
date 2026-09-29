@@ -82,13 +82,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
-`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
-https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
-
 **As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
 `Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
 https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
+
+**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
+`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
+https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
