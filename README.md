@@ -1,3 +1,7 @@
+**Assault Charge Reveals Existence of Body Camera Footage of ICE Shooting in Austin**\
+`Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
 `Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
 https://www.nytimes.com/2026/09/29/business/oil-saudi-east-west-pipeline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
 https://www.nytimes.com/2026/09/29/nyregion/floyd-bennett-field-school.html
-
-**At Tiny’s Burger in Costa Mesa, a Chef Tinkers With His Legacy**\
-`At Tiny’s Burger in Costa Mesa, the chef Sang Yoon, of Father’s Office fame, tinkers with the burger again.`\
-https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-california.html
 
