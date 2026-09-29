@@ -1,3 +1,11 @@
+**How to Improve Schools**\
+`We look at a few compelling proposals.`\
+https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
+
+**Evicted Woman Set to Return Home as Spain Plans Fixes to Housing Crisis**\
+`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government said it would present laws to protect renters.`\
+https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
+
 **Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
 `Plus, the new job title taking over LinkedIn.`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
