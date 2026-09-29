@@ -1,3 +1,7 @@
+**‘Love Me’ Artist Demands Trump Stop Using Song**\
+`President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
+https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
+
 **How to Improve Schools**\
 `We look at a few compelling proposals.`\
 https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
@@ -62,13 +66,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
-`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
-https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
-
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
 https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
 **In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
 `Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
 https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/books/review/the-radiance-ayad-akhtar.html
 **What If A.D.H.D. Isn’t About Attention at All?**\
 `Evidence suggests that it really affects what psychiatrists like me call sustained engagement — an important difference in understanding how to think about the condition.`\
 https://www.nytimes.com/2026/09/29/science/adhd-attention-motivation.html
-
-**Do I Really Need to Eat 30 Different Plants Each Week?**\
-`The 30-plant goal has crept into the lexicon of the online wellness world. We asked experts where it came from, and whether it’s legitimate.`\
-https://www.nytimes.com/2026/09/29/well/eat/nutrition-30-plants-a-week.html
 
