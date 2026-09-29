@@ -1,3 +1,7 @@
+**In N.Y. Swing District, Candidates Debate Trump, Energy and Data Centers**\
+`Representative Mike Lawler, a vulnerable Republican in a suburban New York district, faced Cait Conley, a military veteran, for the first time onstage.`\
+https://www.nytimes.com/2026/09/28/nyregion/lawler-conley-debate-new-york.html
+
 **OpenAI Says It Will Not Release Newest Astra A.I. Model Over Safety Concerns**\
 `The company's researchers raised questions about the security of the model, known as GPT-6.1 Astra.`\
 https://www.nytimes.com/2026/09/28/technology/openai-astra-safety.html
