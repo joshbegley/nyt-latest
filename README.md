@@ -1,3 +1,7 @@
+**MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
+`The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
+https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
+
 **Black Voting Groups Prepare for Disinformation Campaigns in the Midterms**\
 `A new “propaganda playbook” aims to demystify common techniques used to target Black Americans, long a powerful voting bloc, with election-related disinformation.`\
 https://www.nytimes.com/2026/09/29/business/media/black-voters-disinformation-midterm-elections.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolit
 https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
 
 **Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
-`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to stop them.`\
+`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
 **Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 **As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
 `Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
 https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
-**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
-`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
-https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
 
