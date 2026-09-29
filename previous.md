@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting
 https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
 
 **Cornell University Rape Investigation: What We Know**\
-`Prosecutors have said they will reopen the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
+`Prosecutors have reopened the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
 https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
 
 **Who Else Is LARPing?**\

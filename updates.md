@@ -1,3 +1,7 @@
+**Cornell University Rape Investigation: What We Know**\
+`Prosecutors have reopened the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
+
 **MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
 `The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
 https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
