@@ -1,3 +1,39 @@
+**How A.I. Super PACs Are Trying to Influence the Midterms**\
+`See how groups aligned with Anthropic and OpenAI have funneled millions into the fight for control of Congress.`\
+https://www.nytimes.com/interactive/2026/09/29/us/politics/ai-super-pac-money-midterm-elections.html
+
+**Prime Minister Andy Burnham’s Labour Conference Speech Will Aim to Reset UK Mood**\
+`Prime Minister Andy Burnham is expected to lay out his policy plans in an address on Tuesday at the Labour Party’s annual conference.`\
+https://www.nytimes.com/2026/09/29/world/europe/andy-burnham-labour-conference-uk.html
+
+**Quote of the Day: California Needs Water. El Niño May Test the Limit.**\
+`Quotation of the Day for Tuesday, September 29th, 2026.`\
+https://www.nytimes.com/2026/09/29/pageoneplus/quote-of-the-day-california-needs-water-el-nino-may-test-the-limit.html
+
+**US Hits Canada With Ban on Some Dairy and Liquor Products**\
+`An outright ban on certain Canadian products took effect Tuesday, escalating a damaging trade fight between the two North American allies.`\
+https://www.nytimes.com/2026/09/29/business/economy/canada-tariffs-ban.html
+
+**A Turkish Doughnut Maker Whose Sweets Honor the Dead**\
+`For one Istanbul confectioner, distributing fried dough balls as memorials is not just a job. It’s personal.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/doughnuts-istanbul.html
+
+**The Russian Prison That Evan Gershkovich Carried Home**\
+`In an interview, Mr. Gershkovich, a Wall Street Journal reporter who was imprisoned in Russia for 16 months, described his ordeal and the moment that nearly broke him.`\
+https://www.nytimes.com/2026/09/29/us/politics/evan-gershkovich-interview.html
+
+**For Japan’s Young Singles, Romance Gets a Corporate Middleman**\
+`A generation exhausted by dating apps is embracing a corporate reinvention of traditional matchmaking, fueling an industry that promises a fast track to marriage.`\
+https://www.nytimes.com/2026/09/29/business/japan-marriage-matchmaking.html
+
+**On This Day | Sept. 29**\
+`In 1988, the space shuttle Discovery launched from Cape Canaveral. It was NASA’s first shuttle mission since the Challenger disaster 32 months earlier.`\
+https://www.nytimes.com/2026/09/29/learning/on-this-day-sept-29.html
+
+**CNN, MS NOW and Politico Seek a Longer Reprieve From White House Ban**\
+`A federal court temporarily lifted the ban last week. The outlets want a longer pause while they sue to restore their access.`\
+https://www.nytimes.com/2026/09/28/business/trump-cnn-ms-now-politico-white-house-ban.html
+
 **V.A. Institutes New Consent Requirements for Some Psychiatric Drugs**\
 `Veterans under 30 will have to sign forms before being given antidepressants. Medical groups fear the moves may stigmatize mental health treatment.`\
 https://www.nytimes.com/2026/09/28/science/veterans-psychiatric-drugs-consent.html

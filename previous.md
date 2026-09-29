@@ -1,3 +1,39 @@
+**How A.I. Super PACs Are Trying to Influence the Midterms**\
+`See how groups aligned with Anthropic and OpenAI have funneled millions into the fight for control of Congress.`\
+https://www.nytimes.com/interactive/2026/09/29/us/politics/ai-super-pac-money-midterm-elections.html
+
+**Prime Minister Andy Burnham’s Labour Conference Speech Will Aim to Reset UK Mood**\
+`Prime Minister Andy Burnham is expected to lay out his policy plans in an address on Tuesday at the Labour Party’s annual conference.`\
+https://www.nytimes.com/2026/09/29/world/europe/andy-burnham-labour-conference-uk.html
+
+**Quote of the Day: California Needs Water. El Niño May Test the Limit.**\
+`Quotation of the Day for Tuesday, September 29th, 2026.`\
+https://www.nytimes.com/2026/09/29/pageoneplus/quote-of-the-day-california-needs-water-el-nino-may-test-the-limit.html
+
+**US Hits Canada With Ban on Some Dairy and Liquor Products**\
+`An outright ban on certain Canadian products took effect Tuesday, escalating a damaging trade fight between the two North American allies.`\
+https://www.nytimes.com/2026/09/29/business/economy/canada-tariffs-ban.html
+
+**A Turkish Doughnut Maker Whose Sweets Honor the Dead**\
+`For one Istanbul confectioner, distributing fried dough balls as memorials is not just a job. It’s personal.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/doughnuts-istanbul.html
+
+**The Russian Prison That Evan Gershkovich Carried Home**\
+`In an interview, Mr. Gershkovich, a Wall Street Journal reporter who was imprisoned in Russia for 16 months, described his ordeal and the moment that nearly broke him.`\
+https://www.nytimes.com/2026/09/29/us/politics/evan-gershkovich-interview.html
+
+**For Japan’s Young Singles, Romance Gets a Corporate Middleman**\
+`A generation exhausted by dating apps is embracing a corporate reinvention of traditional matchmaking, fueling an industry that promises a fast track to marriage.`\
+https://www.nytimes.com/2026/09/29/business/japan-marriage-matchmaking.html
+
+**On This Day | Sept. 29**\
+`In 1988, the space shuttle Discovery launched from Cape Canaveral. It was NASA’s first shuttle mission since the Challenger disaster 32 months earlier.`\
+https://www.nytimes.com/2026/09/29/learning/on-this-day-sept-29.html
+
+**CNN, MS NOW and Politico Seek a Longer Reprieve From White House Ban**\
+`A federal court temporarily lifted the ban last week. The outlets want a longer pause while they sue to restore their access.`\
+https://www.nytimes.com/2026/09/28/business/trump-cnn-ms-now-politico-white-house-ban.html
+
 **V.A. Institutes New Consent Requirements for Some Psychiatric Drugs**\
 `Veterans under 30 will have to sign forms before being given antidepressants. Medical groups fear the moves may stigmatize mental health treatment.`\
 https://www.nytimes.com/2026/09/28/science/veterans-psychiatric-drugs-consent.html
@@ -157,40 +193,4 @@ https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
 **British Police Release on Bail Five Men Arrested Over Possible Terror Plot**\
 `British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
-
-**With Kennedy Center Closed, National Symphony Starts Life on the Road**\
-`The orchestra, which was to have celebrated its 40th anniversary at the Kennedy Center, started its nomadic season in Bethesda, Md.`\
-https://www.nytimes.com/2026/09/28/arts/music/national-symphony-carlos-simon-bethesda.html
-
-**German Town Votes to Stop Adding Memorials Outside Homes of Slain Jews**\
-`Councilors in an eastern German town voted to stop installing memorial plaques outside homes of Holocaust victims, saying they would instead build a memorial at a cemetery.`\
-https://www.nytimes.com/2026/09/28/world/europe/germany-stumbling-stones-holocaust-memorial-ban.html
-
-**Cornell Sexual Assault Investigation to Be Reopened**\
-`After outrage over allegations in a lawsuit, the Tompkins County district attorney will revisit the decision not to pursue criminal charges against seven fraternity members.`\
-https://www.nytimes.com/2026/09/28/nyregion/cornell-chi-phi-fraternity-assault.html
-
-**A.I. Is Not a Doctor. We Need Human Ones.**\
-`Readers respond to a front-page article, “Doctor A.I. Will See You, in Spite of Misgivings.” Also: Canada won’t yield; the lasting value of collective joy.`\
-https://www.nytimes.com/2026/09/28/opinion/ai-doctor.html
-
-**In Ohio, a Humbling Question For Senator Jon Husted: Are You the Incumbent?**\
-`Even some devoted conservatives know more about Sherrod Brown, the Democratic challenger, than the Republican incumbent, who needs the MAGA base to turn out.`\
-https://www.nytimes.com/2026/09/28/us/politics/john-husted-ohio-president-trump-midterms.html
-
-**Over 800 Killed in Renewed Houthi-Saudi War in Yemen, W.H.O. Says**\
-`The fighting between the Iran-backed Houthi militia and Saudi-backed government forces has exacerbated one of the world’s worst humanitarian crises, the World Health Organization said.`\
-https://www.nytimes.com/2026/09/28/world/middleeast/yemen-war-800-dead.html
-
-**Trump Sharply Scales Back Fuel Economy Rules for New Cars**\
-`The move marked the final step in the administration’s efforts to dismantle policies aimed at speeding the shift to electric vehicles.`\
-https://www.nytimes.com/2026/09/28/climate/trump-gas-cars-mileage-standards.html
-
-**Nor’easter Reveals Likely Remains of 1884 Shipwreck in Nantucket**\
-`Videos taken by the Nantucket Current show a fragment of a wooden boat on the island’s south shore during a nor’easter. An expert said the remains were most likely from the Warren Sawyer, a ship that had wrecked in 1884.`\
-https://www.nytimes.com/video/us/100000011179257/noreaster-storm-nantucket-shipwreck.html
-
-**Russian Drone Strikes Ukraine’s Science Academy, Causing Fire in City Center**\
-`A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
-https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
 
