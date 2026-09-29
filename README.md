@@ -1,3 +1,7 @@
+**Cornell Sexual Assault Case From 2024 to Be Reopened**\
+`Two weeks after a woman filed a lawsuit accusing the school and law enforcement officials of not doing enough to investigate her sexual assault case on campus, a New York prosecutor is reopening the investigation.`\
+https://www.nytimes.com/video/us/100000011182778/cornell-university-gang-sexual-assault-ny.html
+
 **Judge Orders New York to Scrap Rollout of Second-Home Tax and Start Over**\
 `A Staten Island judge sided with a group of homeowners who had sued the city over its introduction of the tax, dealing a blow to Mayor Zohran Mamdani.`\
 https://www.nytimes.com/2026/09/29/nyregion/nyc-second-home-tax-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 **Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
 `The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
-
-**Accusations of Antisemitism Hit a Star of the French Far Right**\
-`Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
-https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
 
