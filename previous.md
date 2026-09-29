@@ -1,3 +1,7 @@
+**Despite Setbacks, NASA Gives Boeing’s Starliner Spacecraft a Boost**\
+`A previous mission left two astronauts stuck in space for months. Still, the space agency is investing $359 million to keep the craft flying.`\
+https://www.nytimes.com/2026/09/28/science/space/nasa-starliner-investment.html
+
 **Second Prosecutor Quits Trump’s ‘Grand Conspiracy’ Case**\
 `The resignation adds to the setbacks to the most sweeping effort by the Justice Department to fulfill the president’s desire to take revenge against the federal officials who have investigated him.`\
 https://www.nytimes.com/2026/09/28/us/politics/trump-grand-conspiracy-prosecutor-resigns.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/briefing/lock-in-season.html
 **Last Call for Fresh Corn**\
 `Though this bright, hot-sauced chicken dinner will work just as well with the frozen kind.`\
 https://www.nytimes.com/2026/09/28/dining/last-call-for-fresh-corn.html
-
-**Trump Revealed Something Essential About Elites**\
-`There are always elites. The people get to decide which ones rule.`\
-https://www.nytimes.com/2026/09/28/opinion/political-elites-elections.html
 

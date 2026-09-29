@@ -1,3 +1,7 @@
+**Despite Setbacks, NASA Gives Boeing’s Starliner Spacecraft a Boost**\
+`A previous mission left two astronauts stuck in space for months. Still, the space agency is investing $359 million to keep the craft flying.`\
+https://www.nytimes.com/2026/09/28/science/space/nasa-starliner-investment.html
+
 **Second Prosecutor Quits Trump’s ‘Grand Conspiracy’ Case**\
 `The resignation adds to the setbacks to the most sweeping effort by the Justice Department to fulfill the president’s desire to take revenge against the federal officials who have investigated him.`\
 https://www.nytimes.com/2026/09/28/us/politics/trump-grand-conspiracy-prosecutor-resigns.html
