@@ -1,3 +1,23 @@
+**Marco Rubio Reveals Redesigned U.S. Passport**\
+`Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
+https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html
+
+**OpenAI Unveils Dots, New A.I. Agents to Rival Meta’s Muse**\
+`The ChatGPT maker unveiled agents that act as assistants, just weeks after Meta released Muse, as it faces scrutiny over incidents involving its technology.`\
+https://www.nytimes.com/2026/09/29/technology/openai-dots-ai-agents.html
+
+**OpenAI Ignored Employees’ Warnings About Safely Testing A.I. Models**\
+`Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
+https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
+
+**Man Shot by ICE Agent in Austin Is Charged With Assault**\
+`The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
+**Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
+`Republicans have called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjury, though the accusation appeared to be based on a misunderstanding.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
 `Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html

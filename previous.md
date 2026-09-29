@@ -1,4 +1,12 @@
-**OpenAI Ignored Employees Who Warned It Wasn’t Doing Enough About Security**\
+**Marco Rubio Reveals Redesigned U.S. Passport**\
+`Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
+https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html
+
+**OpenAI Unveils Dots, New A.I. Agents to Rival Meta’s Muse**\
+`The ChatGPT maker unveiled agents that act as assistants, just weeks after Meta released Muse, as it faces scrutiny over incidents involving its technology.`\
+https://www.nytimes.com/2026/09/29/technology/openai-dots-ai-agents.html
+
+**OpenAI Ignored Employees’ Warnings About Safely Testing A.I. Models**\
 `Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
 https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
 
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-c
 `Readers respond to a column by David French about Heritage Americans. Also: President Trump’s mental fitness; Amazon’s drone invasion; A.I. and the job market.`\
 https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 
-**Body Camera Captured Incident Between ICE Agent and Driver in Austin**\
+**Man Shot by ICE Agent in Austin Is Charged With Assault**\
 `The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
 
@@ -119,7 +127,7 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
 **Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
-`Republicans have repeatedly called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjuring himself, but the accusation appeared to be based on a misunderstanding.`\
+`Republicans have called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjury, though the accusation appeared to be based on a misunderstanding.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
 
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/podcasts/pillow-talk.html
 **A Tough Ad Reminds Nebraska Voters About a Brutal Crime and a Pardon**\
 `A group supporting Dan Osborn, the independent Senate candidate in Nebraska, is airing an ad attacking Senator Pete Ricketts, a Republican, for pardoning a man convicted of sexual assault.`\
 https://www.nytimes.com/2026/09/29/us/politics/ad-watch-nebraska-senate-race.html
-
-**Top Democrats Start to Fund James Talarico in Texas Senate Race**\
-`The main super PAC for Senate Democrats will begin to run digital ads in the state’s Senate race, in a sign of the party’s growing confidence.`\
-https://www.nytimes.com/2026/09/29/us/politics/james-talarico-ken-paxton-texas-senate-race-money.html
-
-**Bill Gates’s Blunt Warning on A.I.**\
-`As A.I. capabilities accelerate, the technologist is shocked by the “complete lack of engagement” with the question of how to manage its risks.`\
-https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 
