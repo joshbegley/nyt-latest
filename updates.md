@@ -1,3 +1,7 @@
+**Anthropic’s Quest for Humanlike A.I.**\
+`Elizabeth Dias, our national religion correspondent, and Cade Metz, one of our technology reporters, discuss Anthropic’s approach for instilling morality into Claude — which has involved consultations with religious leaders, including ones at the Vatican — and why it’s raising questions.`\
+https://www.nytimes.com/video/us/100000011159357/anthropic-claude-ai-religion.html
+
 **F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
 `“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
 https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
