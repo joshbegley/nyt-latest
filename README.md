@@ -1,3 +1,7 @@
+**He Says He Killed a Man and Cast Out Demons. He Wants to Run Colorado.**\
+`Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
+https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
+
 **Taking the True Measure of America’s Heritage**\
 `Readers respond to a column by David French about Heritage Americans. Also: President Trump’s mental fitness; Amazon’s drone invasion; A.I. and the job market.`\
 https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 **I’m Exhausted. You’re Demoralized. We Weren’t Built for a World Like This.**\
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
-
-**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
-`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
-https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
