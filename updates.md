@@ -1,3 +1,11 @@
+**Netanyahu Visits Emirati Leader After Reports on Warning About Hamas Attack**\
+`Official statements said bilateral relations were discussed. But the question of who bears responsibility for failing to prevent the Oct. 7 attack is a major election issue in Israel.`\
+https://www.nytimes.com/2026/09/28/world/middleeast/netanyahu-emirati-leader-hamas-attack.html
+
+**OpenAI Says It Will Not Release Newest Astra A.I. Model Over Safety Concerns**\
+`The company’s researchers raised questions about the security of the model, known as GPT-6.1 Astra.`\
+https://www.nytimes.com/2026/09/28/technology/openai-astra-safety.html
+
 **In N.Y. Swing District, Candidates Debate Trump, Energy and Data Centers**\
 `Representative Mike Lawler, a vulnerable Republican in a suburban New York district, faced Cait Conley, a military veteran, for the first time onstage.`\
 https://www.nytimes.com/2026/09/28/nyregion/lawler-conley-debate-new-york.html
