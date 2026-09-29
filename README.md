@@ -1,3 +1,7 @@
+**Facebook v. IRS**\
+`The I.R.S. challenge to Facebook’s use of research tax credit for Mark Zuckerberg’s compensation.`\
+https://www.nytimes.com/interactive/2026/09/29/us/facebook-2025-05-300041motion-for-partial-summary-judgment.html
+
 **Map: 4.2-Magnitude Earthquake Strikes Near Seattle**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/09/29/us/quake-tracker-washington-seattle.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/business/media/black-voters-disinformation-mi
 **What to Know About the Hacking Group ShinyHunters and Its F.B.I. Breach**\
 `The bureau was the latest target of the notorious gang of cybercriminals that steals sensitive personal data and sells it online.`\
 https://www.nytimes.com/2026/09/29/us/politics/shinyhunters-fbi-hacking-cybercriminal-group.html
-
-**Anthropic’s Quest for Humanlike A.I.**\
-`Elizabeth Dias, our national religion correspondent, and Cade Metz, one of our technology reporters, discuss Anthropic’s approach for instilling morality into Claude — which has involved consultations with religious leaders, including ones at the Vatican — and why it’s raising questions.`\
-https://www.nytimes.com/video/us/100000011159357/anthropic-claude-ai-religion.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

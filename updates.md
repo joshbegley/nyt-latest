@@ -1,3 +1,15 @@
+**Map: 4.2-Magnitude Earthquake Strikes Near Seattle**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/09/29/us/quake-tracker-washington-seattle.html
+
+**Read the document**\
+`A tax court ruling from 2021 on a disputed research tax credit claim.`\
+https://www.nytimes.com/interactive/2026/09/29/us/little-sandy-coal-tc-memo.html
+
+**Supreme Court Allows Trump Administration’s Third-Country Deportations, for Now**\
+`The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
+https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
+
 **The Trump Brand Has Tanked. The G.O.P. May Pay the Price.**\
 `He went from outsider businessman to disappointing politician.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html

@@ -1,3 +1,11 @@
+**Map: 4.2-Magnitude Earthquake Strikes Near Seattle**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/09/29/us/quake-tracker-washington-seattle.html
+
+**Read the document**\
+`A tax court ruling from 2021 on a disputed research tax credit claim.`\
+https://www.nytimes.com/interactive/2026/09/29/us/little-sandy-coal-tc-memo.html
+
 **Ohio Woman Sues Hospital After Wrong Leg Is Amputated**\
 `Sharon Jacks, 74, said she went into surgery for the amputation of her lower right leg last year, but her left leg was removed instead. She has accused Selby General Hospital of negligence.`\
 https://www.nytimes.com/2026/09/29/us/amputee-wrong-leg-lawsuit-ohio.html
@@ -74,7 +82,7 @@ https://www.nytimes.com/2026/09/29/nyregion/nyc-second-home-tax-lawsuit.html
 `President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
 https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
 
-**Supreme Court Allows Rapid Third-Country Deportations, for Now**\
+**Supreme Court Allows Trump Administration’s Third-Country Deportations, for Now**\
 `The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
 https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/us/politics/shinyhunters-fbi-hacking-cybercri
 **Anthropic’s Quest for Humanlike A.I.**\
 `Elizabeth Dias, our national religion correspondent, and Cade Metz, one of our technology reporters, discuss Anthropic’s approach for instilling morality into Claude — which has involved consultations with religious leaders, including ones at the Vatican — and why it’s raising questions.`\
 https://www.nytimes.com/video/us/100000011159357/anthropic-claude-ai-religion.html
-
-**F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
-`“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
-https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
-
-**Mamdani Announces Plan to Fight Antisemitism, Without Discussing Israel**\
-`A report issued by Mayor Zohran Mamdani describes ways that New York City is funding hate crime prevention and celebrating the contributions of Jewish New Yorkers.`\
-https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
