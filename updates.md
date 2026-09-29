@@ -1,3 +1,7 @@
+**Facebook v. IRS**\
+`The I.R.S. challenge to Facebook’s use of research tax credit for Mark Zuckerberg’s compensation.`\
+https://www.nytimes.com/interactive/2026/09/29/us/facebook-2025-05-300041motion-for-partial-summary-judgment.html
+
 **Map: 4.2-Magnitude Earthquake Strikes Near Seattle**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/09/29/us/quake-tracker-washington-seattle.html
