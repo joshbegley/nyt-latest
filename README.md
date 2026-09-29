@@ -36,7 +36,7 @@ https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-
 
 **Ad About Welfare Fraud Draws MAGA Backlash**\
 `In racist online posts,`\
-https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
+https://www.nytimes.com/2026/09/29/us/sarah-huckabee-sanders-campaign-ad.html
 
 **Trump Hosts A.I. Executives at the White House**\
 `Also, ICE is planning a hiring surge. Here’s the latest at the end of Tuesday.`\

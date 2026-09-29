@@ -1,3 +1,11 @@
+**A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
+`The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
+https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
+
+**Jack Smith Defends Against Republican’s Perjury Claim**\
+`Senator Eric Schmitt, a Republican, appeared to confuse basketball teams as he accused former special counsel Jack Smith of perjury at a Senate Judiciary Committee hearing on Tuesday.`\
+https://www.nytimes.com/video/us/politics/100000011181747/jack-smith-senate-hearing-eric-schmitt.html
+
 **Trump Launches Government Chatbot That Contradicts Some of His Claims**\
 `Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
 https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html

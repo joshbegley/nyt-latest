@@ -1,3 +1,11 @@
+**A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
+`The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
+https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
+
+**Jack Smith Defends Against Republican’s Perjury Claim**\
+`Senator Eric Schmitt, a Republican, appeared to confuse basketball teams as he accused former special counsel Jack Smith of perjury at a Senate Judiciary Committee hearing on Tuesday.`\
+https://www.nytimes.com/video/us/politics/100000011181747/jack-smith-senate-hearing-eric-schmitt.html
+
 **Trump Launches Government Chatbot That Contradicts Some of His Claims**\
 `Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
 https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid
 **My Favorite Phone Songs**\
 `Stow your devices and listen to these telephone-themed songs from Blondie, Chuck Berry, R.E.M. and more.`\
 https://www.nytimes.com/2026/09/29/arts/music/amplifier-phone-songs-rem-blondie.html
-
-**In Nine Key Senate Races, Five Republicans Won’t Commit to Campaigning With Trump**\
-`Three campaigns left their positions unclear, and two said they would not join the president on the trail.`\
-https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump-campaign.html
-
-**Marco Rubio Reveals Redesigned U.S. Passport**\
-`Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
-https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
