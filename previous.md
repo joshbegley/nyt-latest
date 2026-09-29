@@ -1,3 +1,11 @@
+**Paramount’s Streaming Chief Leaves Ahead of Warner Bros. Deal**\
+`Cindy Holland’s departure clears the way for Casey Bloys, the HBO chairman, to have a leading role in the combined company’s streaming services.`\
+https://www.nytimes.com/2026/09/29/business/media/paramount-holland-bloys-hbo.html
+
+**At A.I. Event, Trump Asks Meta, OpenAI and Microsoft to Make Safety Decisions Themselves**\
+`President Trump’s meetings with tech leaders produced some voluntary safeguards and a commitment to rebrand artificial intelligence as “super intelligence,” the term that Mr. Trump prefers.`\
+https://www.nytimes.com/2026/09/29/us/politics/ai-trump-meta-microsoft-openai.html
+
 **Facebook v. IRS**\
 `The I.R.S. challenge to Facebook’s use of research tax credit for Mark Zuckerberg’s compensation.`\
 https://www.nytimes.com/interactive/2026/09/29/us/facebook-2025-05-300041motion-for-partial-summary-judgment.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/us/puerto-rico-boat-capsized.html
 **MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
 `The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
 https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
-
-**Black Voting Groups Prepare for Disinformation Campaigns in the Midterms**\
-`A new “propaganda playbook” aims to demystify common techniques used to target Black Americans, long a powerful voting bloc, with election-related disinformation.`\
-https://www.nytimes.com/2026/09/29/business/media/black-voters-disinformation-midterm-elections.html
-
-**What to Know About the Hacking Group ShinyHunters and Its F.B.I. Breach**\
-`The bureau was the latest target of the notorious gang of cybercriminals that steals sensitive personal data and sells it online.`\
-https://www.nytimes.com/2026/09/29/us/politics/shinyhunters-fbi-hacking-cybercriminal-group.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

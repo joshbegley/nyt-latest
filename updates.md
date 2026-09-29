@@ -1,3 +1,11 @@
+**Paramount’s Streaming Chief Leaves Ahead of Warner Bros. Deal**\
+`Cindy Holland’s departure clears the way for Casey Bloys, the HBO chairman, to have a leading role in the combined company’s streaming services.`\
+https://www.nytimes.com/2026/09/29/business/media/paramount-holland-bloys-hbo.html
+
+**At A.I. Event, Trump Asks Meta, OpenAI and Microsoft to Make Safety Decisions Themselves**\
+`President Trump’s meetings with tech leaders produced some voluntary safeguards and a commitment to rebrand artificial intelligence as “super intelligence,” the term that Mr. Trump prefers.`\
+https://www.nytimes.com/2026/09/29/us/politics/ai-trump-meta-microsoft-openai.html
+
 **Facebook v. IRS**\
 `The I.R.S. challenge to Facebook’s use of research tax credit for Mark Zuckerberg’s compensation.`\
 https://www.nytimes.com/interactive/2026/09/29/us/facebook-2025-05-300041motion-for-partial-summary-judgment.html
