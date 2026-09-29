@@ -1,3 +1,11 @@
+**Denée Benton and Patina Miller Help Give ‘School Girls’ a Broadway Glow-Up**\
+`Jocelyn Bioh’s breakthrough 2017 play about cliques and colorism is just as funny — and devastating — with a sharp ensemble and direction by Whitney White.`\
+https://www.nytimes.com/2026/09/28/theater/school-girls-or-the-african-mean-girls-play-review.html
+
+**British Police Release on Bail Five Men Arrested Over Possible Terror Plot**\
+`British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
+
 **Netanyahu Visits Emirati Leader After Reports on Warning About Hamas Attack**\
 `Official statements said bilateral relations were discussed. But the question of who bears responsibility for failing to prevent the Oct. 7 attack is a major election issue in Israel.`\
 https://www.nytimes.com/2026/09/28/world/middleeast/netanyahu-emirati-leader-hamas-attack.html

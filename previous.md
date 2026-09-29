@@ -1,3 +1,7 @@
+**Denée Benton and Patina Miller Help Give ‘School Girls’ a Broadway Glow-Up**\
+`Jocelyn Bioh’s breakthrough 2017 play about cliques and colorism is just as funny — and devastating — with a sharp ensemble and direction by Whitney White.`\
+https://www.nytimes.com/2026/09/28/theater/school-girls-or-the-african-mean-girls-play-review.html
+
 **Netanyahu Visits Emirati Leader After Reports on Warning About Hamas Attack**\
 `Official statements said bilateral relations were discussed. But the question of who bears responsibility for failing to prevent the Oct. 7 attack is a major election issue in Israel.`\
 https://www.nytimes.com/2026/09/28/world/middleeast/netanyahu-emirati-leader-hamas-attack.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-d
 `Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
 
-**British Police Releases on Bail Five Men Arrested Over Possible Terror Plot**\
+**British Police Release on Bail Five Men Arrested Over Possible Terror Plot**\
 `British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/09/28/weather/hanna-map-path-tracker.ht
 **The One Outfit We Agreed on This Weekend**\
 `At Bottega Veneta, a single look was a lesson in what didn’t work about the others.`\
 https://www.nytimes.com/2026/09/28/style/paris-fashon-week-bottega-veneta.html
-
-**Could Homeownership Reverse the Decline in Birthrates?**\
-`Researchers looked back at the baby-boom era and found that federal mortgage programs played a part in the country’s population upswing after World War II.`\
-https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.html
 
