@@ -1,3 +1,7 @@
+**Trump Launches Government Chatbot That Contradicts Some of His Claims**\
+`Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
+https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
+
 **X2, the Troubled California Six Flags Roller Coaster, Reaches Its End**\
 `The ride at Magic Mountain near Los Angeles has fueled lawsuits claiming that it had caused brain injuries, including two that were fatal.`\
 https://www.nytimes.com/2026/09/29/us/six-flags-magic-mountain-x2-roller-coaster-closed.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/video/opinion/100000011182541/why-bill-gates-is-proposin
 `The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
 https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
 
-**An ad about welfare fraud draws a MAGA backlash.**\
+**Ad About Welfare Fraud Draws MAGA Backlash**\
 `In racist online posts,`\
 https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump
 **Marco Rubio Reveals Redesigned U.S. Passport**\
 `Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
 https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html
-
-**OpenAI Unveils Dots, New A.I. Agents to Rival Meta’s Muse**\
-`The ChatGPT maker unveiled agents that act as assistants, just weeks after Meta released Muse, as it faces scrutiny over incidents involving its technology.`\
-https://www.nytimes.com/2026/09/29/technology/openai-dots-ai-agents.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

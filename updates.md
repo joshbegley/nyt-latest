@@ -1,3 +1,11 @@
+**Trump Launches Government Chatbot That Contradicts Some of His Claims**\
+`Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
+https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
+
+**Ad About Welfare Fraud Draws MAGA Backlash**\
+`In racist online posts,`\
+https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
+
 **X2, the Troubled California Six Flags Roller Coaster, Reaches Its End**\
 `The ride at Magic Mountain near Los Angeles has fueled lawsuits claiming that it had caused brain injuries, including two that were fatal.`\
 https://www.nytimes.com/2026/09/29/us/six-flags-magic-mountain-x2-roller-coaster-closed.html
