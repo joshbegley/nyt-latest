@@ -1,3 +1,11 @@
+**6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
+`The technologist and philanthropist offers a blunt warning on A.I. risks.`\
+https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html
+
+**Inside a Data Center Industry Conference**\
+`At Data Center World last week, public backlash, and how to deal with it, was a popular topic.`\
+https://www.nytimes.com/2026/09/29/climate/datacenters-public-comment.html
+
 **A Teacher Told My Brother He Was Adopted**\
 `The writer Kelly McWilliams joins Anna Martin, the host of “Modern Love,” to talk about the reactions people had to her mixed race family.`\
 https://www.nytimes.com/video/podcasts/100000011181994/a-teacher-told-my-brother-he-was-adopted.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigatio
 **Who Else Is LARPing?**\
 `Plus, an investigation at Cornell University.`\
 https://www.nytimes.com/2026/09/29/briefing/who-else-is-larping.html
-
-**Smart, Versatile Noodles for Cozy Season**\
-`Hetty Lui McKinnon’s red curry noodles come together in just half an hour and welcome whichever leafy greens you’ve got.`\
-https://www.nytimes.com/2026/09/29/dining/smart-versatile-noodles-for-cozy-season.html
-
-**Where High Rents Drive People Into Poverty**\
-`A new study identified 10 locations where higher-than-average housing costs have impacted poverty the most.`\
-https://www.nytimes.com/2026/09/29/realestate/housing-shortage-poverty-link-pew-study.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
