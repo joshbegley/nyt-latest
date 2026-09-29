@@ -1,3 +1,11 @@
+**How to Improve Schools**\
+`We look at a few compelling proposals.`\
+https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
+
+**Evicted Woman Set to Return Home as Spain Plans Fixes to Housing Crisis**\
+`The eviction of an 87-year-old set off protests in the country, which has an acute housing shortage. The government said it would present laws to protect renters.`\
+https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarmen-abascal-madrid-protests.html
+
 **Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
 `Plus, the new job title taking over LinkedIn.`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
@@ -54,13 +62,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**College Students Flex Their Power in A.I. Investment Frenzy**\
-`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
-https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
 **Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
 `Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
 https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/science/adhd-attention-motivation.html
 **Do I Really Need to Eat 30 Different Plants Each Week?**\
 `The 30-plant goal has crept into the lexicon of the online wellness world. We asked experts where it came from, and whether it’s legitimate.`\
 https://www.nytimes.com/2026/09/29/well/eat/nutrition-30-plants-a-week.html
-
-**Seeing Ireland Without a Car**\
-`Following a slow scenic route, the author traveled by public transportation and on foot beneath moody fall skies.`\
-https://www.nytimes.com/2026/09/29/travel/ireland-by-public-transportation.html
-
-**New Tests Claim to Diagnose Endometriosis. Here’s What to Know.**\
-`Patients and doctors are eager for a noninvasive way to diagnose the disease, and several start-ups are offering new options. Here’s what to know about them.`\
-https://www.nytimes.com/2026/09/29/well/live/endometriosis-diagnosis-tests.html
 
