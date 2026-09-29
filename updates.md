@@ -1,3 +1,7 @@
+**Dozens Killed in Myanmar Military Airstrike**\
+`At least 50 people were killed and 58 injured when a military jet dropped two bombs on a market in rebel territory in Myanmar on Monday.`\
+https://www.nytimes.com/video/world/asia/100000011181513/myanmar-airstrike-rakhine-market.html
+
 **Live Updates: Jack Smith Faces Another Grilling Before Congress**\
 `The former special counsel is appearing before Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony

@@ -1,3 +1,7 @@
+**Dozens Killed in Myanmar Military Airstrike**\
+`At least 50 people were killed and 58 injured when a military jet dropped two bombs on a market in rebel territory in Myanmar on Monday.`\
+https://www.nytimes.com/video/world/asia/100000011181513/myanmar-airstrike-rakhine-market.html
+
 **A Knockout Show Resets the Record With ‘Krasner and Pollock’**\
 `She had to settle for the kitchen as her studio but Lee Krasner finally gets her share of the spotlight at the Metropolitan Museum of Art.`\
 https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolitan-museum-art.html
@@ -94,13 +98,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**College Students Flex Their Power in A.I. Investment Frenzy**\
-`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
-https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
 **Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
 `Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
 https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/science/space/exoplanet-magnetic-field.html
 **Word of the Day: nondescript**\
 `This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/29/learning/word-of-the-day-nondescript.html
-
-**Bomb by Bomb, the Slow Death of My Hometown in Ukraine**\
-`It was possible, for a time, to think that Kramatorsk, where I was born and raised, would survive the war mostly unscathed. Not any more.`\
-https://www.nytimes.com/2026/09/29/world/europe/ukraine-kramatorsk.html
 
