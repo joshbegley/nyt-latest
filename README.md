@@ -1,3 +1,11 @@
+**A Very American Makeover for the State Department’s ‘Hall of Flags’**\
+`The flags of dozens of countries had hung above the State Department’s main atrium. A red, white and blue change has sparked a debate.`\
+https://www.nytimes.com/2026/09/29/us/politics/state-department-flags.html
+
+**Students at Cornell Daily Sun Pursued Sexual Assault Case for Two Years**\
+`The student newspaper, The Cornell Daily Sun, covered the allegations of rape at a fraternity party since they were first made in 2024 and led the reporting on the case.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-daily-sun-newspaper-rape.html
+
 **6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
 `The technologist and philanthropist offers a blunt warning on A.I. risks.`\
 https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting
 **Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
 `He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
 https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
-
-**Cornell University Rape Investigation: What We Know**\
-`Prosecutors have reopened the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
-https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
-
-**Who Else Is LARPing?**\
-`Plus, an investigation at Cornell University.`\
-https://www.nytimes.com/2026/09/29/briefing/who-else-is-larping.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
