@@ -1,3 +1,11 @@
+**Trump Launches A.I.-Powered Government Website**\
+`President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
+https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
+
+**Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 57-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
 **Supreme Court Allows Rapid Third-Country Deportations, for Now**\
 `The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
 https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html

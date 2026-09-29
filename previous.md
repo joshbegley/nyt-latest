@@ -1,3 +1,7 @@
+**Trump Launches A.I.-Powered Government Website**\
+`President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
+https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
+
 **Supreme Court Allows Rapid Third-Country Deportations, for Now**\
 `The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
 https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
@@ -155,7 +159,7 @@ https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
-`The man, a 47-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+`The man, a 57-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-fra
 **What’s In Anthropic’s I.P.O. Filing**\
 `The artificial intelligence giant reportedly believes that it’s on track for a record-breaking stock market listing, according to a prospectus seen by Reuters.`\
 https://www.nytimes.com/2026/09/29/business/dealbook/anthropic-ipo-filing-s1.html
-
-**The Migrants Being Shipped Back to a War Zone**\
-`Malaysia says it is repatriating undocumented migrants from Myanmar who want to return. Critics say it is putting their lives at risk.`\
-https://www.nytimes.com/2026/09/29/world/asia/malaysia-repatriation-myanmar-migrants-asylum.html
 
