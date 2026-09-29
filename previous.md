@@ -1,3 +1,7 @@
+**Your A.I. Questions Answered**\
+`Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
+https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
+
 **Jack Smith, Former Special Counsel, Will Appear Before Congress**\
 `Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.h
 **15-Minute Lesson Plan: The Role of the United Nations**\
 `What is the U.N., and what does it do? What happened when the General Assembly recently met?`\
 https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-the-united-nations.html
-
-**Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
-`Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
-https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
 

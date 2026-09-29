@@ -1,3 +1,7 @@
+**Your A.I. Questions Answered**\
+`Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
+https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
+
 **Jack Smith, Former Special Counsel, Will Appear Before Congress**\
 `Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
