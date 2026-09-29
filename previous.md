@@ -1,3 +1,19 @@
+**6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
+`The technologist and philanthropist offers a blunt warning on A.I. risks.`\
+https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html
+
+**Inside a Data Center Industry Conference**\
+`At Data Center World last week, public backlash, and how to deal with it, was a popular topic.`\
+https://www.nytimes.com/2026/09/29/climate/datacenters-public-comment.html
+
+**A Teacher Told My Brother He Was Adopted**\
+`The writer Kelly McWilliams joins Anna Martin, the host of “Modern Love,” to talk about the reactions people had to her mixed race family.`\
+https://www.nytimes.com/video/podcasts/100000011181994/a-teacher-told-my-brother-he-was-adopted.html
+
+**Trump Is Going Viral in the Worst Ways**\
+`On the technological, diplomatic and biological fronts, Trump is creating a disaster.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-mideast-diplomacy-iran-ai.html
+
 **Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
 `Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
 https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigatio
 **Who Else Is LARPing?**\
 `Plus, an investigation at Cornell University.`\
 https://www.nytimes.com/2026/09/29/briefing/who-else-is-larping.html
-
-**Smart, Versatile Noodles for Cozy Season**\
-`Hetty Lui McKinnon’s red curry noodles come together in just half an hour and welcome whichever leafy greens you’ve got.`\
-https://www.nytimes.com/2026/09/29/dining/smart-versatile-noodles-for-cozy-season.html
-
-**Where High Rents Drive People Into Poverty**\
-`A new study identified 10 locations where higher-than-average housing costs have impacted poverty the most.`\
-https://www.nytimes.com/2026/09/29/realestate/housing-shortage-poverty-link-pew-study.html
-
-**$6 Diesel Is Hurting Small Truckers. It Could Hurt Trump, Too.**\
-`When fuel costs rise, the price of everything rises.`\
-https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
-
-**Hachette Book Group Names New C.E.O.**\
-`Ben Sevier, who has led the publishing house’s Grand Central division since 2017, will succeed chief executive David Shelley in January.`\
-https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

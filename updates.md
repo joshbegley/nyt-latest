@@ -1,3 +1,19 @@
+**6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
+`The technologist and philanthropist offers a blunt warning on A.I. risks.`\
+https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html
+
+**Inside a Data Center Industry Conference**\
+`At Data Center World last week, public backlash, and how to deal with it, was a popular topic.`\
+https://www.nytimes.com/2026/09/29/climate/datacenters-public-comment.html
+
+**A Teacher Told My Brother He Was Adopted**\
+`The writer Kelly McWilliams joins Anna Martin, the host of “Modern Love,” to talk about the reactions people had to her mixed race family.`\
+https://www.nytimes.com/video/podcasts/100000011181994/a-teacher-told-my-brother-he-was-adopted.html
+
+**Trump Is Going Viral in the Worst Ways**\
+`On the technological, diplomatic and biological fronts, Trump is creating a disaster.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-mideast-diplomacy-iran-ai.html
+
 **Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
 `Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
 https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
