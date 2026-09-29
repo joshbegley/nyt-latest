@@ -1,3 +1,7 @@
+**Ad About Welfare Fraud Draws MAGA Backlash**\
+`In racist online posts,`\
+https://www.nytimes.com/2026/09/29/us/sarah-huckabee-sanders-campaign-ad.html
+
 **A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
 `The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
 https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
