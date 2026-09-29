@@ -1,3 +1,15 @@
+**Central Park Was Her Home and Her Studio. She Was Killed There.**\
+`Francis Lee Rogers painted birds in the park, her home for decades. She was found dead on Sunday, beaten and stabbed, shaking a community of friends and collectors of her art.`\
+https://www.nytimes.com/2026/09/29/nyregion/central-park-was-her-home-and-her-studio-she-was-killed-there.html
+
+**Beagles Are Bred for Research. Activists Are Pushing Back.**\
+`Marshall BioResources, in western New York, is the nation’s largest breeder of dogs for biomedical research. It is facing a campaign against using animals for that purpose.`\
+https://www.nytimes.com/2026/09/29/nyregion/marshall-bioresources-beagle-breeding-new-york.html
+
+**NYT Spelling Bee Answers for September 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/29/crosswords/spelling-bee-forum.html
+
 **Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
 `“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own ‘fully autonomous magnetic levitation train.’`\
 https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
