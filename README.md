@@ -1,3 +1,7 @@
+**Taking the True Measure of America’s Heritage**\
+`Readers respond to a column by David French about Heritage Americans. Also: President Trump’s mental fitness; Amazon’s drone invasion; A.I. and the job market.`\
+https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
+
 **Assault Charge Reveals Existence of Body Camera Footage of ICE Shooting in Austin**\
 `Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
 https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
-**Turning an Airfield in Brooklyn Into a High School**\
-`Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
-https://www.nytimes.com/2026/09/29/nyregion/floyd-bennett-field-school.html
 

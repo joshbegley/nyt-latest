@@ -1,3 +1,7 @@
+**Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
+`Republicans have repeatedly called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjuring himself, but the accusation appeared to be based on a misunderstanding.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **Assault Charge Reveals Existence of Body Camera Footage of ICE Shooting in Austin**\
 `Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
