@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
-`The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+`The man, a 49-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
@@ -146,13 +146,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
-`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
-https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
-
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
 https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
