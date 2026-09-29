@@ -1,3 +1,15 @@
+**Prison Officials Suspended After Inmates Are Found Living in Luxury**\
+`At an Indonesian prison complex near Jakarta, inspectors found expensive cars, spacious quarters with flat-screen TVs and a golf simulator under construction.`\
+https://www.nytimes.com/2026/09/29/world/asia/indonesia-prison-luxury.html
+
+**A Very American Makeover for the State Department’s ‘Hall of Flags’**\
+`The flags of dozens of countries had hung above the State Department’s main atrium. A red, white and blue change has sparked a debate.`\
+https://www.nytimes.com/2026/09/29/us/politics/state-department-flags.html
+
+**Students at Cornell Daily Sun Pursued Sexual Assault Case for Two Years**\
+`The student newspaper, The Cornell Daily Sun, covered the allegations of rape at a fraternity party since they were first made in 2024 and led the reporting on the case.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-daily-sun-newspaper-rape.html
+
 **6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
 `The technologist and philanthropist offers a blunt warning on A.I. risks.`\
 https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html

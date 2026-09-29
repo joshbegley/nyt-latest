@@ -1,3 +1,7 @@
+**Ohio Woman Sues Hospital After Wrong Leg Is Amputated**\
+`Sharon Jacks, 74, said she went into surgery for the amputation of her lower right leg last year, but her left leg was removed instead. She has accused Selby General Hospital of negligence.`\
+https://www.nytimes.com/2026/09/29/us/amputee-wrong-leg-lawsuit-ohio.html
+
 **Prison Officials Suspended After Inmates Are Found Living in Luxury**\
 `At an Indonesian prison complex near Jakarta, inspectors found expensive cars, spacious quarters with flat-screen TVs and a golf simulator under construction.`\
 https://www.nytimes.com/2026/09/29/world/asia/indonesia-prison-luxury.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherla
 **Mamdani Announces Plan to Fight Antisemitism, Without Discussing Israel**\
 `A report issued by Mayor Zohran Mamdani describes ways that New York City is funding hate crime prevention and celebrating the contributions of Jewish New Yorkers.`\
 https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
-
-**ICE Plans 5,000 New Hires to Help With Deportation Drive**\
-`A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
-https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
