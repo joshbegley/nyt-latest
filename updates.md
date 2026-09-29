@@ -1,3 +1,23 @@
+**X2, the Troubled California Six Flags Roller Coaster, Reaches Its End**\
+`The ride at Magic Mountain near Los Angeles has fueled lawsuits claiming that it had caused brain injuries, including two that were fatal.`\
+https://www.nytimes.com/2026/09/29/us/six-flags-magic-mountain-x2-roller-coaster-closed.html
+
+**Why Bill Gates Thinks A.I. Will Take Away Jobs**\
+`How will A.I. affect the labor market? On “The Ezra Klein Show,” the technologist and philanthropist Bill Gates argues that A.I. will significantly reduce the availability of jobs.`\
+https://www.nytimes.com/video/opinion/100000011179059/why-bill-gates-thinks-ai-will-take-away-jobs.html
+
+**A Timeline of the Cornell University Rape Investigation**\
+`Prosecutors have reopened an investigation into a former student’s claims that several men sexually assaulted her in a campus fraternity house.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-rape-chi-phi-investigation.html
+
+**University of Michigan Halts New Grading Plan After Backlash From Critics**\
+`The program was intended to address what the university called a “mental health crisis.” But the plan was met with criticism that it was coddling students.`\
+https://www.nytimes.com/2026/09/29/us/university-michigan-grades-freshmen.html
+
+**Why Bill Gates Is Proposing an A.I. Tax**\
+`The technologist and philanthropist Bill Gates thinks A.I. labor should be taxed. He explains why and how on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011182541/why-bill-gates-is-proposing-an-ai-tax.html
+
 **Bill Gates Thinks Relying on A.I. Self-Regulation Is ‘Insane’**\
 `The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
 https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
