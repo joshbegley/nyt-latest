@@ -1,3 +1,11 @@
+**Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
+`Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
+https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
+
+**The Latin American Right’s Big Bet**\
+`The Trump administration is exerting new levels of control over the region. What’s the next move?`\
+https://www.nytimes.com/2026/09/29/world/latin-america-brazil-election-trump-openai.html
+
 **Morocco’s King Names a Female Prime Minister, in a Historic First**\
 `Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html

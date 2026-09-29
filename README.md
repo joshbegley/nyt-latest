@@ -1,3 +1,11 @@
+**A Teacher Told My Brother He Was Adopted**\
+`The writer Kelly McWilliams joins Anna Martin, the host of “Modern Love,” to talk about the reactions people had to her mixed race family.`\
+https://www.nytimes.com/video/podcasts/100000011181994/a-teacher-told-my-brother-he-was-adopted.html
+
+**Trump Is Going Viral in the Worst Ways**\
+`On the technological, diplomatic and biological fronts, Trump is creating a disaster.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-mideast-diplomacy-iran-ai.html
+
 **Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
 `Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
 https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/dining/smart-versatile-noodles-for-cozy-seaso
 **Where High Rents Drive People Into Poverty**\
 `A new study identified 10 locations where higher-than-average housing costs have impacted poverty the most.`\
 https://www.nytimes.com/2026/09/29/realestate/housing-shortage-poverty-link-pew-study.html
-
-**$6 Diesel Is Hurting Small Truckers. It Could Hurt Trump, Too.**\
-`When fuel costs rise, the price of everything rises.`\
-https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
-
-**Hachette Book Group Names New C.E.O.**\
-`Ben Sevier, who has led the publishing house’s Grand Central division since 2017, will succeed chief executive David Shelley in January.`\
-https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

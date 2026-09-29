@@ -1,3 +1,11 @@
+**Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
+`Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
+https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
+
+**The Latin American Right’s Big Bet**\
+`The Trump administration is exerting new levels of control over the region. What’s the next move?`\
+https://www.nytimes.com/2026/09/29/world/latin-america-brazil-election-trump-openai.html
+
 **Morocco’s King Names a Female Prime Minister, in a Historic First**\
 `Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
 https://www.nytimes.com/live/2026/09/29/us/midterms-elections
-
-**Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
-`Some Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
-https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
-
-**Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
-`The man, a 57-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
-https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 
