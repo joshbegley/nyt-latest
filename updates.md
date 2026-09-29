@@ -1,3 +1,7 @@
+**‘Love Me’ Artist Demands Trump Stop Using Song**\
+`President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
+https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
+
 **How to Improve Schools**\
 `We look at a few compelling proposals.`\
 https://www.nytimes.com/2026/09/29/briefing/how-to-improve-schools.html
