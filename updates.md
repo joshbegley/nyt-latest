@@ -1,3 +1,7 @@
+**ICE Plans 5,000 New Hires to Help With Deportation Drive**\
+`A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
+https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html
+
 **Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
 `He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
 https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
