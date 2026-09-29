@@ -1,3 +1,27 @@
+**Cornell University Rape Investigation: What We Know**\
+`Prosecutors have said they will reopen the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
+
+**Who Else Is LARPing?**\
+`Plus, an investigation at Cornell University.`\
+https://www.nytimes.com/2026/09/29/briefing/who-else-is-larping.html
+
+**Smart, Versatile Noodles for Cozy Season**\
+`Hetty Lui McKinnon’s red curry noodles come together in just half an hour and welcome whichever leafy greens you’ve got.`\
+https://www.nytimes.com/2026/09/29/dining/smart-versatile-noodles-for-cozy-season.html
+
+**Where High Rents Drive People Into Poverty**\
+`A new study identified 10 locations where higher-than-average housing costs have impacted poverty the most.`\
+https://www.nytimes.com/2026/09/29/realestate/housing-shortage-poverty-link-pew-study.html
+
+**$6 Diesel Is Hurting Small Truckers. It Could Hurt Trump, Too.**\
+`When fuel costs rise, the price of everything rises.`\
+https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
+
+**Hachette Book Group Names New C.E.O.**\
+`Ben Sevier, who has led the publishing house’s Grand Central division since 2017, will succeed chief executive David Shelley in January.`\
+https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
+
 **Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
 `Several Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html

@@ -1,3 +1,27 @@
+**Cornell University Rape Investigation: What We Know**\
+`Prosecutors have said they will reopen the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
+
+**Who Else Is LARPing?**\
+`Plus, an investigation at Cornell University.`\
+https://www.nytimes.com/2026/09/29/briefing/who-else-is-larping.html
+
+**Smart, Versatile Noodles for Cozy Season**\
+`Hetty Lui McKinnon’s red curry noodles come together in just half an hour and welcome whichever leafy greens you’ve got.`\
+https://www.nytimes.com/2026/09/29/dining/smart-versatile-noodles-for-cozy-season.html
+
+**Where High Rents Drive People Into Poverty**\
+`A new study identified 10 locations where higher-than-average housing costs have impacted poverty the most.`\
+https://www.nytimes.com/2026/09/29/realestate/housing-shortage-poverty-link-pew-study.html
+
+**$6 Diesel Is Hurting Small Truckers. It Could Hurt Trump, Too.**\
+`When fuel costs rise, the price of everything rises.`\
+https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
+
+**Hachette Book Group Names New C.E.O.**\
+`Ben Sevier, who has led the publishing house’s Grand Central division since 2017, will succeed chief executive David Shelley in January.`\
+https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
+
 **Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
 `Several Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
@@ -138,13 +162,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
 **In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
 `Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
 https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.ht
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
-
-**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
-`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
-https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
-
-**Corrections: Sept. 29, 2026**\
-`Corrections that appeared in print on Tuesday, Sept. 29, 2026.`\
-https://www.nytimes.com/2026/09/29/pageoneplus/corrections-sept-29-2026.html
-
-**A Dining Room Set for Conversation and Quirky Collections**\
-`The architect Michael K. Chen works and entertains from his dining room in a Brutalist building in Manhattan’s Chinatown.`\
-https://www.nytimes.com/2026/09/29/realestate/michael-chen-design-finds.html
-
-**With a ‘Box-Bed,’ a Family in a Brooklyn Loft Found (Semi) Privacy**\
-`A couple built a box inside their condo that gives everyone in the family a customized space to hang out.`\
-https://www.nytimes.com/2026/09/29/realestate/small-living-brooklyn.html
-
-**I’m a College Professor. Writing Isn’t as Important as We Think.**\
-`If I do not treat writing as essential for achieving thought, it is not clear why I should force my students to.`\
-https://www.nytimes.com/2026/09/29/opinion/writing-thinking-college-ai.html
-
-**Irving Penn, Before and After**\
-`“Penn & Fashion” traces Irving Penn’s fashion and beauty photography over more than six decades.`\
-https://www.nytimes.com/2026/09/29/style/irving-penn-photography-american-vogue.html
 

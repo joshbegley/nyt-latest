@@ -1,3 +1,7 @@
+**Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
+`He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
+https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
+
 **Cornell University Rape Investigation: What We Know**\
 `Prosecutors have said they will reopen the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
 https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
@@ -162,13 +166,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
-`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
-https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
-
 **As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
 `Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
 https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
+
+**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
+`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
+https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico
 **It Won’t Be So Easy for Democrats to Make Data Centers Their Issue**\
 `The problems of technology were there before Trump and will be there after.`\
 https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
-
-**Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
-`A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
-https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
 
