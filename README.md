@@ -1,3 +1,7 @@
+**Review: Matières Fécale’s Parisian Fashion Dream**\
+`Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
+https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
+
 **Central Park Was Her Home and Her Studio. She Was Killed There.**\
 `Francis Lee Rogers painted birds in the park, her home for decades. She was found dead on Sunday, beaten and stabbed, shaking a community of friends and collectors of her art.`\
 https://www.nytimes.com/2026/09/29/nyregion/central-park-was-her-home-and-her-studio-she-was-killed-there.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-j
 **New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
 `It will likely be a very wet few days across the region.`\
 https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
-
-**Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
-`In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
-https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
 
