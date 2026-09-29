@@ -1,3 +1,7 @@
+**Bill Gates Thinks Relying on A.I. Self-Regulation Is ‘Insane’**\
+`The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
+https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
+
 **An ad about welfare fraud draws a MAGA backlash.**\
 `In racist online posts,`\
 https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html

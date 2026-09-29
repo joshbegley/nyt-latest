@@ -1,3 +1,11 @@
+**University of Michigan Halts New Grading Plan After Backlash From Critics**\
+`The program was intended to address what the university called a “mental health crisis.” But the plan was met with criticism that it was coddling students.`\
+https://www.nytimes.com/2026/09/29/us/university-michigan-grades-freshmen.html
+
+**Why Bill Gates Is Proposing an A.I. Tax**\
+`The technologist and philanthropist Bill Gates thinks A.I. labor should be taxed. He explains why and how on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011182541/why-bill-gates-is-proposing-an-ai-tax.html
+
 **Bill Gates Thinks Relying on A.I. Self-Regulation Is ‘Insane’**\
 `The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
 https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.
 **Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
 `Some Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
-
-**Taking the True Measure of America’s Heritage**\
-`Readers respond to a column by David French about Heritage Americans. Also: President Trump’s mental fitness; Amazon’s drone invasion; A.I. and the job market.`\
-https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
-
-**Man Shot by ICE Agent in Austin Is Charged With Assault**\
-`Prosecutors say Wilber Garces Perez struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
-https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

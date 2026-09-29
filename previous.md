@@ -1,3 +1,7 @@
+**Bill Gates Thinks Relying on A.I. Self-Regulation Is ‘Insane’**\
+`The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
+https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
+
 **An ad about welfare fraud draws a MAGA backlash.**\
 `In racist online posts,`\
 https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 **Man Shot by ICE Agent in Austin Is Charged With Assault**\
 `Prosecutors say Wilber Garces Perez struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-camera.html
-
-**Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
-`Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
-https://www.nytimes.com/2026/09/29/business/oil-saudi-east-west-pipeline.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
