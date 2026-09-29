@@ -1,3 +1,11 @@
+**No Bombs Found in U.K. Case, but Officials Say Threat to Bases Is Real**\
+`The prospect of an attack on an air base used by U.S. forces prompted stepped-up protections across Europe, but confusion shrouds the case, in which the suspects were released on bail.`\
+https://www.nytimes.com/2026/09/29/world/europe/britain-air-base-iran-threat.html
+
+**Restaurant Review: Pizza Studio Tamaki in New York**\
+`The highly anticipated Pizza Studio Tamaki offers pricey pies with mixed results.`\
+https://www.nytimes.com/2026/09/29/dining/restaurant-review-pizza-studio-tamaki-nyc.html
+
 **After 37 Years on Death Row, Man Is Freed From Utah Jail**\
 `Douglas Carter was convicted in 1985 of murdering a 57-year-old woman. But new DNA testing led a judge to free him on Monday.`\
 https://www.nytimes.com/2026/09/29/us/douglas-carter-death-row-released-utah.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/business/sunkist-fruit-gems-candy-candyrific.
 **Dozens Killed in Myanmar Military Airstrike**\
 `At least 50 people were killed and 58 injured when a military jet dropped two bombs on a market in rebel territory in Myanmar on Monday.`\
 https://www.nytimes.com/video/world/asia/100000011181513/myanmar-airstrike-rakhine-market.html
-
-**A Knockout Show Resets the Record With ‘Krasner and Pollock’**\
-`She had to settle for the kitchen as her studio but Lee Krasner finally gets her share of the spotlight at the Metropolitan Museum of Art.`\
-https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolitan-museum-art.html
-
-**Street Style Look of the Week: Channeling Michael**\
-`Three friends turned out for a Brooklyn block party in celebration of what would have been Michael Jackson’s 68th birthday wearing their Jackson 5 finest.`\
-https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
 

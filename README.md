@@ -1,3 +1,7 @@
+**Will A.I. Make Your Brain Lazy?**\
+`We’re starting to learn more about how the technology can change us.`\
+https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
+
 **No Bombs Found in U.K. Case, but Officials Say Threat to Bases Is Real**\
 `The prospect of an attack on an air base used by U.S. forces prompted stepped-up protections across Europe, but confusion shrouds the case, in which the suspects were released on bail.`\
 https://www.nytimes.com/2026/09/29/world/europe/britain-air-base-iran-threat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/anthropic-claude-morals-ai.html
 **Sunkist Fruit Gems, Bar Mitzvah Staple, Get 2nd Chance After Discontinuation**\
 `The company said that Candyrific of Louisville, Ky., will produce the jelly candy that comes in a rainbow of colors and citrus flavors and is used in Jewish traditions.`\
 https://www.nytimes.com/2026/09/29/business/sunkist-fruit-gems-candy-candyrific.html
-
-**Dozens Killed in Myanmar Military Airstrike**\
-`At least 50 people were killed and 58 injured when a military jet dropped two bombs on a market in rebel territory in Myanmar on Monday.`\
-https://www.nytimes.com/video/world/asia/100000011181513/myanmar-airstrike-rakhine-market.html
 
