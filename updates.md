@@ -1,3 +1,15 @@
+**Morocco’s King Names a Female Prime Minister, in a Historic First**\
+`Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html
+
+**Book Review: ‘American Hagwon,’ by Min Jin Lee**\
+`The beloved author’s follow-up to “Pachinko” features a cram school that dares to promote students’ well-being over academic striving.`\
+https://www.nytimes.com/2026/09/29/books/review/american-hagwon-min-jin-lee.html
+
+**Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/29/us/midterms-elections
+
 **Will A.I. Make Your Brain Lazy?**\
 `We’re starting to learn more about how the technology can change us.`\
 https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
