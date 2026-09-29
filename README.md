@@ -1,3 +1,7 @@
+**In N.Y. Swing District, Candidates Debate Trump, Energy and Data Centers**\
+`Representative Mike Lawler, a vulnerable Republican in a suburban New York district, faced Cait Conley, a military veteran, for the first time onstage.`\
+https://www.nytimes.com/2026/09/28/nyregion/lawler-conley-debate-new-york.html
+
 **OpenAI Says It Will Not Release Newest Astra A.I. Model Over Safety Concerns**\
 `The company's researchers raised questions about the security of the model, known as GPT-6.1 Astra.`\
 https://www.nytimes.com/2026/09/28/technology/openai-astra-safety.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/us/home-mortgage-program-birthrate-decline.ht
 **Journalism Essentials: How to Write a News Story**\
 `Interested in journalistic writing? We discuss the key components of a news article.`\
 https://www.nytimes.com/2026/09/28/learning/journalism-essentials-how-to-write-a-news-story.html
-
-**Can You Match These Autumnal Quotes to the Correct Book?**\
-`Some lines stick in your mind long after you’ve finished reading. Try this short quiz to see how many seasonal observations you recognize from popular books.`\
-https://www.nytimes.com/quiz/2026/09/28/bookreview/autumn-literary-quotes.html
 

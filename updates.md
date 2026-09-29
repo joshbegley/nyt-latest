@@ -1,3 +1,11 @@
+**OpenAI Says It Will Not Release Newest Astra A.I. Model Over Safety Concerns**\
+`The company's researchers raised questions about the security of the model, known as GPT-6.1 Astra.`\
+https://www.nytimes.com/2026/09/28/technology/openai-astra-safety.html
+
+**How a Planned Steel Mill in Iowa Reveals Trump’s Midterm Strategy**\
+`As President Trump travels the country, he is expected to focus on his economic accomplishments at a time when Americans have expressed deep frustration with his policies.`\
+https://www.nytimes.com/2026/09/28/us/politics/trump-steel-plant-iowa-midterms.html
+
 **Despite Setbacks, NASA Gives Boeing’s Starliner Spacecraft a Boost**\
 `A previous mission left two astronauts stuck in space for months. Still, the space agency is investing $359 million to keep the craft flying.`\
 https://www.nytimes.com/2026/09/28/science/space/nasa-starliner-investment.html
