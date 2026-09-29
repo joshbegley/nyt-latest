@@ -1,3 +1,15 @@
+**Central Park Was Her Home and Her Studio. She Was Killed There.**\
+`Francis Lee Rogers painted birds in the park, her home for decades. She was found dead on Sunday, beaten and stabbed, shaking a community of friends and collectors of her art.`\
+https://www.nytimes.com/2026/09/29/nyregion/central-park-was-her-home-and-her-studio-she-was-killed-there.html
+
+**Beagles Are Bred for Research. Activists Are Pushing Back.**\
+`Marshall BioResources, in western New York, is the nation’s largest breeder of dogs for biomedical research. It is facing a campaign against using animals for that purpose.`\
+https://www.nytimes.com/2026/09/29/nyregion/marshall-bioresources-beagle-breeding-new-york.html
+
+**NYT Spelling Bee Answers for September 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/29/crosswords/spelling-bee-forum.html
+
 **Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
 `“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own ‘fully autonomous magnetic levitation train.’`\
 https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.ht
 **Embarrassing Breach at F.B.I. Fuels Fears of Harm to Its Employees**\
 `In an internal memo, the F.B.I. said it believed the hackers may have stolen sensitive information on all of its employees.`\
 https://www.nytimes.com/2026/09/28/us/politics/fbi-shinyhunters-damage.html
-
-**3 Egyptian Officials Convicted of Kidnapping Slain Italian Student**\
-`The verdict followed a decade-long effort in Italy to account for the killing of Giulio Regeni, an Italian researcher who disappeared in Cairo in 2016.`\
-https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html
-
-**How Phoebe Bridgers’s Phone Ban Changes the Concert Experience**\
-`Phoebe Bridgers banned phones from her tour, forcing — or allowing — fans to be fully present in the moment.`\
-https://www.nytimes.com/2026/09/28/arts/music/phoebe-bridgers-phone-ban-lost-weekend-tour.html
-
-**Russia Strikes Ukraine’s National Academy of Sciences**\
-`A Russian drone strike on Ukraine’s National Academy of Sciences in Kyiv on Monday killed at least one person and injured six, local officials said.`\
-https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-drone-strike-war.html
 
