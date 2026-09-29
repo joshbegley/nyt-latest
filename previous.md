@@ -154,13 +154,13 @@ https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico
 `The problems of technology were there before Trump and will be there after.`\
 https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
 
-**Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
-`A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
-https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
-
 **Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
 `More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
 https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
+
+**Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
+`A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
+https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
 
 **Corrections: Sept. 29, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 29, 2026.`\

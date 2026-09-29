@@ -1,3 +1,7 @@
+**Is Claude Conscious? Inside Anthropic’s Quest to Instill Morality Into Its A.I. Models**\
+`In a series of private meetings, the company consulted religious scholars to help instill morality into its A.I. models — and make the case that Claude could be conscious.`\
+https://www.nytimes.com/2026/09/29/us/anthropic-claude-morals-ai.html
+
 **Sunkist Fruit Gems, Bar Mitzvah Staple, Get 2nd Chance After Discontinuation**\
 `The company said that Candyrific of Louisville, Ky., will produce the jelly candy that comes in a rainbow of colors and citrus flavors and is used in Jewish traditions.`\
 https://www.nytimes.com/2026/09/29/business/sunkist-fruit-gems-candy-candyrific.html
@@ -154,13 +158,13 @@ https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico
 `The problems of technology were there before Trump and will be there after.`\
 https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
 
-**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
-`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
-https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
-
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
+
+**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
+`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
+https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
 
 **Corrections: Sept. 29, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 29, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/style/larp-slang-meaning-tiktok.html
 **I Surrendered All My Decisions and Desires. All It Took Was Many, Many Tins of Fish.**\
 `Now I can’t even look at the word t*na.`\
 https://www.nytimes.com/2026/09/29/magazine/tinned-fish-craze.html
-
-**Radio Waves Coming From an Alien Planet May Be a Cosmic First**\
-`Beta Pictoris b appears to have an aurora caused by a powerful magnetic field. If confirmed, it would be the first such field known outside our solar system.`\
-https://www.nytimes.com/2026/09/29/science/space/exoplanet-magnetic-field.html
 
