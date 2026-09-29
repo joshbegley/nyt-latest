@@ -1,3 +1,7 @@
+**Woman Is Found Captive in Attic Near Boston, Leading to Charges for Man**\
+`The man, Jordende Pierre, 29, faces kidnapping, sex trafficking and other charges. He held the woman against her will for six weeks, officials said.`\
+https://www.nytimes.com/2026/09/29/us/massachusetts-sex-trafficking-kidnapping-charges.html
+
 **As Mr. Belding on “Saved by the Bell,” Dennis Haskins Made Principals Your Pal**\
 `As Mr. Belding on “Saved by the Bell,” Dennis Haskins helped change an onscreen dynamic that paved the way for principals to come.`\
 https://www.nytimes.com/2026/09/29/arts/television/mr-belding-dennis-haskins-saved-by-the-bell.html
