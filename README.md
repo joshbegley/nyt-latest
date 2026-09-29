@@ -1,3 +1,7 @@
+**After 37 Years on Death Row, Man Is Freed From Utah Jail**\
+`Douglas Carter was convicted in 1985 of murdering a 57-year-old woman. But new DNA testing led a judge to free him on Monday.`\
+https://www.nytimes.com/2026/09/29/us/douglas-carter-death-row-released-utah.html
+
 **Cornell Sexual Assault Case From 2024 to Be Reopened**\
 `Two weeks after a woman filed a lawsuit accusing the school and law enforcement officials of not doing enough to investigate her sexual assault case on campus, a New York prosecutor is reopening the investigation.`\
 https://www.nytimes.com/video/us/100000011182778/cornell-university-gang-sexual-assault-ny.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolit
 **Street Style Look of the Week: Channeling Michael**\
 `Three friends turned out for a Brooklyn block party in celebration of what would have been Michael Jackson’s 68th birthday wearing their Jackson 5 finest.`\
 https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
-
-**Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
-`The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
-https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
