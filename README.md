@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/09/29/nyregion/marshall-bioresources-beagle-breedin
 https://www.nytimes.com/2026/09/29/crosswords/spelling-bee-forum.html
 
 **Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
-`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own ‘fully autonomous magnetic levitation train.’`\
+`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own “fully autonomous magnetic levitation train.”`\
 https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
 
 **OpenAI Apologizes for Australia Medicare Hack**\

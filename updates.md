@@ -1,3 +1,7 @@
+**Review: Matières Fécale’s Parisian Fashion Dream**\
+`Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
+https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
+
 **Central Park Was Her Home and Her Studio. She Was Killed There.**\
 `Francis Lee Rogers painted birds in the park, her home for decades. She was found dead on Sunday, beaten and stabbed, shaking a community of friends and collectors of her art.`\
 https://www.nytimes.com/2026/09/29/nyregion/central-park-was-her-home-and-her-studio-she-was-killed-there.html
