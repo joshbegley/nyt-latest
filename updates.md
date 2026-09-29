@@ -1,3 +1,79 @@
+**Trump’s Luck Is Finally Running Out**\
+`Voters are showing a growing determination to repudiate his presidency.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
+
+**Pillow Talk**\
+`Waking up in aches? Our expert explains why your pillow is the problem and how to pick a new one.`\
+https://www.nytimes.com/2026/09/29/podcasts/pillow-talk.html
+
+**A Tough Ad Reminds Nebraska Voters About a Brutal Crime and a Pardon**\
+`A group supporting Dan Osborn, the independent Senate candidate in Nebraska, is airing an ad attacking Senator Pete Ricketts, a Republican, for pardoning a man convicted of sexual assault.`\
+https://www.nytimes.com/2026/09/29/us/politics/ad-watch-nebraska-senate-race.html
+
+**Top Democrats Start to Fund James Talarico in Texas Senate Race**\
+`The main super PAC for Senate Democrats will begin to run digital ads in the state’s Senate race, in a sign of the party’s growing confidence.`\
+https://www.nytimes.com/2026/09/29/us/politics/james-talarico-ken-paxton-texas-senate-race-money.html
+
+**Bill Gates’s Blunt Warning on A.I.**\
+`As A.I. capabilities accelerate, the technologist is shocked by the “complete lack of engagement” with the question of how to manage its risks.`\
+https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
+
+**I’m Exhausted. You’re Demoralized. We Weren’t Built for a World Like This.**\
+`A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
+https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**Turning an Airfield in Brooklyn Into a High School**\
+`Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
+https://www.nytimes.com/2026/09/29/nyregion/floyd-bennett-field-school.html
+
+**At Tiny’s Burger in Costa Mesa, a Chef Tinkers With His Legacy**\
+`At Tiny’s Burger in Costa Mesa, the chef Sang Yoon, of Father’s Office fame, tinkers with the burger again.`\
+https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-california.html
+
+**Kansas Hasn’t Elected a Democrat to the Senate Since 1932. Adam Hamilton Could Change That.**\
+`This campaign could be a compelling model for Democrats.`\
+https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
+
+**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
+`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
+https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**Designer Light Switches Are Here**\
+`A recent crop of new brands is pushing the design language of the light switch.`\
+https://www.nytimes.com/2026/09/29/realestate/designer-light-switches.html
+
+**His Jet vs. Her Jeep: How Wealth Is Playing in the Midterms**\
+`In the so-called affordability election, two candidates for governor of Ohio are sparring over whether billionaires are the problem or the solution.`\
+https://www.nytimes.com/2026/09/29/us/vivek-ramaswamy-amy-acton-wealth-class-ohio-midterms.html
+
+**What World Record Would You Like to Set?**\
+`A 6-year-old in China solved a Rubik’s Cube in a record time. What skills or talents do you have, or wish you had, that might get your name in the record book one day?`\
+https://www.nytimes.com/2026/09/29/learning/what-world-record-would-you-like-to-set.html
+
+**Dartmouth Provost Is the Latest College Professor Examined for A.I. Use**\
+`Dartmouth said it would investigate its provost over A.I. accusations. Similar controversies on other campuses have prompted frustration among students.`\
+https://www.nytimes.com/2026/09/29/us/college-professors-administrators-ai-dartmouth.html
+
+**AMLO Son Poses Political Problems for Mexico’s President Sheinbaum**\
+`Andrés Manuel López Beltrán has joined the list of figures who, critics say, may end up harming the left-wing movement his father founded, as well as the president who succeeded him.`\
+https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico-morena.html
+
+**It Won’t Be So Easy for Democrats to Make Data Centers Their Issue**\
+`The problems of technology were there before Trump and will be there after.`\
+https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
+
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html

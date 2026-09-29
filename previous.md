@@ -1,3 +1,79 @@
+**Trump’s Luck Is Finally Running Out**\
+`Voters are showing a growing determination to repudiate his presidency.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
+
+**Pillow Talk**\
+`Waking up in aches? Our expert explains why your pillow is the problem and how to pick a new one.`\
+https://www.nytimes.com/2026/09/29/podcasts/pillow-talk.html
+
+**A Tough Ad Reminds Nebraska Voters About a Brutal Crime and a Pardon**\
+`A group supporting Dan Osborn, the independent Senate candidate in Nebraska, is airing an ad attacking Senator Pete Ricketts, a Republican, for pardoning a man convicted of sexual assault.`\
+https://www.nytimes.com/2026/09/29/us/politics/ad-watch-nebraska-senate-race.html
+
+**Top Democrats Start to Fund James Talarico in Texas Senate Race**\
+`The main super PAC for Senate Democrats will begin to run digital ads in the state’s Senate race, in a sign of the party’s growing confidence.`\
+https://www.nytimes.com/2026/09/29/us/politics/james-talarico-ken-paxton-texas-senate-race-money.html
+
+**Bill Gates’s Blunt Warning on A.I.**\
+`As A.I. capabilities accelerate, the technologist is shocked by the “complete lack of engagement” with the question of how to manage its risks.`\
+https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
+
+**I’m Exhausted. You’re Demoralized. We Weren’t Built for a World Like This.**\
+`A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
+https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**Turning an Airfield in Brooklyn Into a High School**\
+`Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
+https://www.nytimes.com/2026/09/29/nyregion/floyd-bennett-field-school.html
+
+**At Tiny’s Burger in Costa Mesa, a Chef Tinkers With His Legacy**\
+`At Tiny’s Burger in Costa Mesa, the chef Sang Yoon, of Father’s Office fame, tinkers with the burger again.`\
+https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-california.html
+
+**Kansas Hasn’t Elected a Democrat to the Senate Since 1932. Adam Hamilton Could Change That.**\
+`This campaign could be a compelling model for Democrats.`\
+https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
+
+**In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
+`Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
+https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**Designer Light Switches Are Here**\
+`A recent crop of new brands is pushing the design language of the light switch.`\
+https://www.nytimes.com/2026/09/29/realestate/designer-light-switches.html
+
+**His Jet vs. Her Jeep: How Wealth Is Playing in the Midterms**\
+`In the so-called affordability election, two candidates for governor of Ohio are sparring over whether billionaires are the problem or the solution.`\
+https://www.nytimes.com/2026/09/29/us/vivek-ramaswamy-amy-acton-wealth-class-ohio-midterms.html
+
+**What World Record Would You Like to Set?**\
+`A 6-year-old in China solved a Rubik’s Cube in a record time. What skills or talents do you have, or wish you had, that might get your name in the record book one day?`\
+https://www.nytimes.com/2026/09/29/learning/what-world-record-would-you-like-to-set.html
+
+**Dartmouth Provost Is the Latest College Professor Examined for A.I. Use**\
+`Dartmouth said it would investigate its provost over A.I. accusations. Similar controversies on other campuses have prompted frustration among students.`\
+https://www.nytimes.com/2026/09/29/us/college-professors-administrators-ai-dartmouth.html
+
+**AMLO Son Poses Political Problems for Mexico’s President Sheinbaum**\
+`Andrés Manuel López Beltrán has joined the list of figures who, critics say, may end up harming the left-wing movement his father founded, as well as the president who succeeded him.`\
+https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico-morena.html
+
+**It Won’t Be So Easy for Democrats to Make Data Centers Their Issue**\
+`The problems of technology were there before Trump and will be there after.`\
+https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
+
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
 **Review: Matières Fécale’s Parisian Fashion Dream**\
 `Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
 https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
-
-**Central Park Was Her Home and Her Studio. She Was Killed There.**\
-`Francis Lee Rogers painted birds in the park, her home for decades. She was found dead on Sunday, beaten and stabbed, shaking a community of friends and collectors of her art.`\
-https://www.nytimes.com/2026/09/29/nyregion/central-park-was-her-home-and-her-studio-she-was-killed-there.html
-
-**Beagles Are Bred for Research. Activists Are Pushing Back.**\
-`Marshall BioResources, in western New York, is the nation’s largest breeder of dogs for biomedical research. It is facing a campaign against using animals for that purpose.`\
-https://www.nytimes.com/2026/09/29/nyregion/marshall-bioresources-beagle-breeding-new-york.html
-
-**NYT Spelling Bee Answers for September 29, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/29/crosswords/spelling-bee-forum.html
-
-**Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
-`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own “fully autonomous magnetic levitation train.”`\
-https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
-
-**OpenAI Apologizes for Australia Medicare Hack**\
-`The company detailed how A.I. agents gained access to four government websites and acknowledged mishandling its response.`\
-https://www.nytimes.com/2026/09/29/world/asia/openai-australia-government-hack-apology.html
-
-**How A.I. Super PACs Are Trying to Influence the Midterms**\
-`See how groups aligned with Anthropic and OpenAI have funneled millions into the fight for control of Congress.`\
-https://www.nytimes.com/interactive/2026/09/29/us/politics/ai-super-pac-money-midterm-elections.html
-
-**Prime Minister Andy Burnham’s Labour Conference Speech Will Aim to Reset UK Mood**\
-`Prime Minister Andy Burnham is expected to lay out his policy plans in an address on Tuesday at the Labour Party’s annual conference.`\
-https://www.nytimes.com/2026/09/29/world/europe/andy-burnham-labour-conference-uk.html
-
-**Quote of the Day: California Needs Water. El Niño May Test the Limit.**\
-`Quotation of the Day for Tuesday, September 29th, 2026.`\
-https://www.nytimes.com/2026/09/29/pageoneplus/quote-of-the-day-california-needs-water-el-nino-may-test-the-limit.html
-
-**US Hits Canada With Ban on Some Dairy and Liquor Products**\
-`An outright ban on certain Canadian products took effect Tuesday, escalating a damaging trade fight between the two North American allies.`\
-https://www.nytimes.com/2026/09/29/business/economy/canada-tariffs-ban.html
-
-**A Turkish Doughnut Maker Whose Sweets Honor the Dead**\
-`For one Istanbul confectioner, distributing fried dough balls as memorials is not just a job. It’s personal.`\
-https://www.nytimes.com/2026/09/29/world/middleeast/doughnuts-istanbul.html
-
-**The Russian Prison That Evan Gershkovich Carried Home**\
-`In an interview, Mr. Gershkovich, a Wall Street Journal reporter who was imprisoned in Russia for 16 months, described his ordeal and the moment that nearly broke him.`\
-https://www.nytimes.com/2026/09/29/us/politics/evan-gershkovich-interview.html
-
-**For Japan’s Young Singles, Romance Gets a Corporate Middleman**\
-`A generation exhausted by dating apps is embracing a corporate reinvention of traditional matchmaking, fueling an industry that promises a fast track to marriage.`\
-https://www.nytimes.com/2026/09/29/business/japan-marriage-matchmaking.html
-
-**On This Day | Sept. 29**\
-`In 1988, the space shuttle Discovery launched from Cape Canaveral. It was NASA’s first shuttle mission since the Challenger disaster 32 months earlier.`\
-https://www.nytimes.com/2026/09/29/learning/on-this-day-sept-29.html
-
-**CNN, MS NOW and Politico Seek a Longer Reprieve From White House Ban**\
-`A federal court temporarily lifted the ban last week. The outlets want a longer pause while they sue to restore their access.`\
-https://www.nytimes.com/2026/09/28/business/trump-cnn-ms-now-politico-white-house-ban.html
-
-**V.A. Institutes New Consent Requirements for Some Psychiatric Drugs**\
-`Veterans under 30 will have to sign forms before being given antidepressants. Medical groups fear the moves may stigmatize mental health treatment.`\
-https://www.nytimes.com/2026/09/28/science/veterans-psychiatric-drugs-consent.html
-
-**Gordon Johncock, Two-Time Indianapolis 500 Winner, Dies at 90**\
-`He was among the premier drivers in the Indy 500, competing in 24 races and finishing eight times in the top five.`\
-https://www.nytimes.com/2026/09/28/sports/autoracing/gordon-johncock-dead.html
-
-**Senate Resoundingly Approves Sweeping College Sports Measure**\
-`The outlook for the legislation, which seeks to stabilize the unsettled collegiate sports landscape, is uncertain in the House. It was one of the last congressional actions before the midterms.`\
-https://www.nytimes.com/2026/09/28/us/politics/senate-college-sports.html
-
-**NYT Crossword Answers for Sept. 29, 2026**\
-`Hanh Huynh wants to do this mano a mano.`\
-https://www.nytimes.com/2026/09/28/crosswords/daily-puzzle-2026-09-29.html
-
-**Denée Benton and Patina Miller Help Give ‘School Girls’ a Broadway Glow-Up**\
-`Jocelyn Bioh’s breakthrough 2017 play about cliques and colorism is just as funny — and devastating — with a sharp ensemble and direction by Whitney White.`\
-https://www.nytimes.com/2026/09/28/theater/school-girls-or-the-african-mean-girls-play-review.html
 
