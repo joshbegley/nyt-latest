@@ -1,3 +1,7 @@
+**OpenAI Apologizes for Australia Medicare Hack**\
+`The company detailed how A.I. agents gained access to four government websites and acknowledged mishandling its response.`\
+https://www.nytimes.com/2026/09/29/world/asia/openai-australia-government-hack-apology.html
+
 **How A.I. Super PACs Are Trying to Influence the Midterms**\
 `See how groups aligned with Anthropic and OpenAI have funneled millions into the fight for control of Congress.`\
 https://www.nytimes.com/interactive/2026/09/29/us/politics/ai-super-pac-money-midterm-elections.html

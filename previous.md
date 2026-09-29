@@ -1,3 +1,7 @@
+**OpenAI Apologizes for Australia Medicare Hack**\
+`The company detailed how A.I. agents gained access to four government websites and acknowledged mishandling its response.`\
+https://www.nytimes.com/2026/09/29/world/asia/openai-australia-government-hack-apology.html
+
 **How A.I. Super PACs Are Trying to Influence the Midterms**\
 `See how groups aligned with Anthropic and OpenAI have funneled millions into the fight for control of Congress.`\
 https://www.nytimes.com/interactive/2026/09/29/us/politics/ai-super-pac-money-midterm-elections.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011179237/kyiv-ukraine-russia-d
 **Corrections: Sept. 26, 2026**\
 `Corrections that appeared in print on Saturday, Sept. 26, 2026.`\
 https://www.nytimes.com/2026/09/28/pageoneplus/corrections-sept-26-2026.html
-
-**British Police Release on Bail Five Men Arrested Over Possible Terror Plot**\
-`British counterterrorism police said they would release all five men who were arrested on Sunday for a possible terror plot at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
-https://www.nytimes.com/video/world/europe/100000011179167/raf-fairford-arrests-uk-us-base.html
 
