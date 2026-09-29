@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.ht
 
 **Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
 `Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
-https://www.nytimes.com/2026/09/29/us/chartering-a-boat-on-the-kuskokwim-river-to-reach-peltolas-alaska.html
+https://www.nytimes.com/2026/09/29/us/mary-peltola-alaska-boat.html
 
 **Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
 `In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
