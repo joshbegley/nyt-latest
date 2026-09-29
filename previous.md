@@ -1,3 +1,7 @@
+**Bar CC, the Sister Space to Crane Club, Takes a Plus Approach**\
+`Baekjeong Black offers cocktails and Korean fare, Kythira NP reinterprets Greek classics and more restaurant news.`\
+https://www.nytimes.com/2026/09/29/dining/nyc-restaurant-news.html
+
 **Woman Is Found Captive in Attic Near Boston, Leading to Charges for Man**\
 `The man, Jordende Pierre, 29, faces kidnapping, sex trafficking and other charges. He held the woman against her will for six weeks, officials said.`\
 https://www.nytimes.com/2026/09/29/us/massachusetts-sex-trafficking-kidnapping-charges.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-
 `It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
 https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
 
-**Number of Guard Troops in Washington Drops Below 3,000**\
+**Number of National Guard Troops in Washington D.C. Drops Below 3,000**\
 `The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
 https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leave
 **NYT Connections Answers for September 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
 https://www.nytimes.com/2026/09/29/crosswords/connections-companion-1207.html
-
-**Today’s Wordle Hints for September 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
-https://www.nytimes.com/2026/09/29/crosswords/wordle-review-1929.html
 

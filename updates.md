@@ -1,3 +1,11 @@
+**Bar CC, the Sister Space to Crane Club, Takes a Plus Approach**\
+`Baekjeong Black offers cocktails and Korean fare, Kythira NP reinterprets Greek classics and more restaurant news.`\
+https://www.nytimes.com/2026/09/29/dining/nyc-restaurant-news.html
+
+**Number of National Guard Troops in Washington D.C. Drops Below 3,000**\
+`The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
+https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
+
 **Woman Is Found Captive in Attic Near Boston, Leading to Charges for Man**\
 `The man, Jordende Pierre, 29, faces kidnapping, sex trafficking and other charges. He held the woman against her will for six weeks, officials said.`\
 https://www.nytimes.com/2026/09/29/us/massachusetts-sex-trafficking-kidnapping-charges.html
