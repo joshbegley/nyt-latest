@@ -1,3 +1,11 @@
+**An ad about welfare fraud draws a MAGA backlash.**\
+`In racist online posts,`\
+https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
+
+**Trump Hosts A.I. Executives at the White House**\
+`Also, ICE is planning a hiring surge. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/29/briefing/trump-ai-ice-hiring-surge.html
+
 **Paramount’s Streaming Chief Leaves Ahead of Warner Bros. Deal**\
 `Cindy Holland’s departure clears the way for Casey Bloys, the HBO chairman, to have a leading role in the combined company’s streaming services.`\
 https://www.nytimes.com/2026/09/29/business/media/paramount-holland-bloys-hbo.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/us/ice-shooting-driver-austin-charges-body-ca
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
 `Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
 https://www.nytimes.com/2026/09/29/business/oil-saudi-east-west-pipeline.html
-
-**Coast Guard Searches for Passengers From Capsized Boat Near Puerto Rico**\
-`At least three people died after the vessel sank in the Mona Passage, a dangerous stretch of sea often traveled by migrants from Haiti and the Dominican Republic.`\
-https://www.nytimes.com/2026/09/29/us/puerto-rico-boat-capsized.html
-
-**MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
-`The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
-https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

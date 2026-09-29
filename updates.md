@@ -1,3 +1,11 @@
+**An ad about welfare fraud draws a MAGA backlash.**\
+`In racist online posts,`\
+https://www.nytimes.com/2026/09/29/us/an-ad-about-welfare-fraud-draws-a-maga-backlash.html
+
+**Trump Hosts A.I. Executives at the White House**\
+`Also, ICE is planning a hiring surge. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/09/29/briefing/trump-ai-ice-hiring-surge.html
+
 **Paramount’s Streaming Chief Leaves Ahead of Warner Bros. Deal**\
 `Cindy Holland’s departure clears the way for Casey Bloys, the HBO chairman, to have a leading role in the combined company’s streaming services.`\
 https://www.nytimes.com/2026/09/29/business/media/paramount-holland-bloys-hbo.html
