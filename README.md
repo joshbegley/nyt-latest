@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 `The Supreme Court ordered the military to ensure a family that fled after repeated attacks could go back. But settlers prevented the efforts, stoking criticism of Israeli policy in the territory.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
-**Live Updates: Jack Smith Faces Another Grilling Before Congress**\
+**Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
 `The former special counsel is appearing before Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
 
