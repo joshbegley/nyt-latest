@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
 `The actor Jacob Ming-Trent faced numerous rejections. But in this solo play at the Public, he tells how he found redemption through the playwright’s worlds and words.`\
 https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.html
 
-**He Says He Killed a Man and Cast Out Demons. He Wants to Run Colorado.**\
+**Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
 `Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
 
@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-c
 https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 
 **Body Camera Captured Incident Between ICE Agent and Driver in Austin**\
-`Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
+`The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
 
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\

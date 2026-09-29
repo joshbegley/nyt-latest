@@ -1,3 +1,15 @@
+**OpenAI Ignored Employees Who Warned It Wasn’t Doing Enough About Security**\
+`Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
+https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
+
+**In ‘How Shakespeare Saved My Life,’ Tragedy Mingles With Comedy**\
+`The actor Jacob Ming-Trent faced numerous rejections. But in this solo play at the Public, he tells how he found redemption through the playwright’s worlds and words.`\
+https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.html
+
+**Body Camera Captured Incident Between ICE Agent and Driver in Austin**\
+`Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
 **He Says He Killed a Man and Cast Out Demons. He Wants to Run Colorado.**\
 `Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
