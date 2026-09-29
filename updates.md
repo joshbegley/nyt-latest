@@ -1,3 +1,11 @@
+**Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
+`He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
+https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
+
+**Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 49-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
 **Cornell University Rape Investigation: What We Know**\
 `Prosecutors have said they will reopen the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
 https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html

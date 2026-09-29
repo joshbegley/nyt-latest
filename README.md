@@ -1,3 +1,7 @@
+**ICE Plans 5,000 New Hires to Help With Deportation Drive**\
+`A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
+https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html
+
 **Charles Trueheart, Who Wrote of a Diplomatic ‘Betrayal’ in Vietnam, Dies at 75**\
 `He was a young child when his father, the No. 2 envoy in Saigon, had a falling out with the ambassador during a pivotal moment in Vietnam.`\
 https://www.nytimes.com/2026/09/29/obituaries/charles-trueheart-dead.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**College Students Flex Their Power in A.I. Investment Frenzy**\
-`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
-https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
-
 **Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
 `Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
 https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
+
+**College Students Flex Their Power in A.I. Investment Frenzy**\
+`Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
+https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/college-professors-administrators-ai-dartm
 **AMLO Son Poses Political Problems for Mexico’s President Sheinbaum**\
 `Andrés Manuel López Beltrán has joined the list of figures who, critics say, may end up harming the left-wing movement his father founded, as well as the president who succeeded him.`\
 https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico-morena.html
-
-**It Won’t Be So Easy for Democrats to Make Data Centers Their Issue**\
-`The problems of technology were there before Trump and will be there after.`\
-https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
 
