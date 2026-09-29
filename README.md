@@ -1,3 +1,11 @@
+**A Knockout Show Resets the Record With ‘Krasner and Pollock’**\
+`She had to settle for the kitchen as her studio but Lee Krasner finally gets her share of the spotlight at the Metropolitan Museum of Art.`\
+https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolitan-museum-art.html
+
+**Street Style Look of the Week: Channeling Michael**\
+`Three friends turned out for a Brooklyn block party in celebration of what would have been Michael Jackson’s 68th birthday wearing their Jackson 5 finest.`\
+https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
+
 **Israeli Settler Attack in West Bank Blocks Palestinian Family From Returning Home**\
 `The Supreme Court ordered the military to ensure a family that fled after repeated attacks could go back. But settlers prevented the efforts, stoking criticism of Israeli policy in the territory.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/learning/word-of-the-day-nondescript.html
 **Bomb by Bomb, the Slow Death of My Hometown in Ukraine**\
 `It was possible, for a time, to think that Kramatorsk, where I was born and raised, would survive the war mostly unscathed. Not any more.`\
 https://www.nytimes.com/2026/09/29/world/europe/ukraine-kramatorsk.html
-
-**Book Review: ‘This Cursed Beautiful Land,’ by Evan Gershkovich**\
-`In “This Cursed Beautiful Land,” the journalist Evan Gershkovich explores what he learned while imprisoned in the country his parents fled.`\
-https://www.nytimes.com/2026/09/29/books/review/this-cursed-beautiful-land-evan-gershkovich.html
-
-**The Rescuers Keeping Two Ukrainian ‘Fortress Cities’ Alive**\
-`Emergency workers have to move fast after Russian attacks in eastern Ukraine. Another could come at any moment.`\
-https://www.nytimes.com/2026/09/29/world/europe/ukraine-donbas-emergency-workers.html
 
