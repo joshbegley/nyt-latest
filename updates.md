@@ -1,3 +1,7 @@
+**Gordon Johncock, Two-Time Indianapolis 500 Winner, Dies at 90**\
+`He was among the premier drivers in the Indy 500, competing in 24 races and finishing eight times in the top five.`\
+https://www.nytimes.com/2026/09/28/sports/autoracing/gordon-johncock-dead.html
+
 **Senate Resoundingly Approves Sweeping College Sports Measure**\
 `The outlook for the legislation, which seeks to stabilize the unsettled collegiate sports landscape, is uncertain in the House. It was one of the last congressional actions before the midterms.`\
 https://www.nytimes.com/2026/09/28/us/politics/senate-college-sports.html
