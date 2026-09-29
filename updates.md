@@ -1,3 +1,7 @@
+**Jack Smith, Former Special Counsel, Will Appear Before Congress**\
+`Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
+
 **Trump’s Luck Is Finally Running Out**\
 `Voters are showing a growing determination to repudiate his presidency.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
