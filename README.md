@@ -1,3 +1,7 @@
+**Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
+`Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
+https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html
+
 **Bar CC, the Sister Space to Crane Club, Takes a Plus Approach**\
 `Baekjeong Black offers cocktails and Korean fare, Kythira NP reinterprets Greek classics and more restaurant news.`\
 https://www.nytimes.com/2026/09/29/dining/nyc-restaurant-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/europe/spain-housing-eviction-maricarme
 **Huge Data Breach Leaves F.B.I. Scrambling, and Russian Attacks Destroy Millions of Books**\
 `Plus, the new job title taking over LinkedIn.`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/huge-data-breach-leaves-fbi-scrambling-and-russian-attacks-destroy-millions-of-books.html
-
-**NYT Connections Answers for September 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
-https://www.nytimes.com/2026/09/29/crosswords/connections-companion-1207.html
 
