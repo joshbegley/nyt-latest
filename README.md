@@ -186,6 +186,10 @@ https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
 `Ben Sevier, who has led the publishing house’s Grand Central division since 2017, will succeed chief executive David Shelley in January.`\
 https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 
+**Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
+`(No description)`\
+https://www.nytimes.com/live/2026/09/29/us/midterms-elections
+
 **Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
 `Some Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
 `The man, a 57-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
-
-**Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
-`The new question, included on a draft version of the primary tax form, comes as part of an anti-immigrant turn at an agency that long prioritized tax administration.`\
-https://www.nytimes.com/2026/09/29/business/irs-tax-returns-citizenship.html
 
