@@ -1,3 +1,7 @@
+**Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
+`Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
+https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
+
 **Review: Matières Fécale’s Parisian Fashion Dream**\
 `Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
 https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/us/politics/trump-supreme-transgender-inmates
 **Proud Boys Convicted Over Jan. 6 Go From Prosecutions to Pardons to Premiere**\
 `The gala screening of the documentary “American Martyrs” was the latest effort by Trump supporters to rewrite the history of the Capitol attack.`\
 https://www.nytimes.com/2026/09/28/us/politics/proud-boys-documenatry-premiere-jan-6.html
-
-**New Mexico and Arizona Face Heavy Rain From Hurricane Polo**\
-`It will likely be a very wet few days across the region.`\
-https://www.nytimes.com/2026/09/28/weather/new-mexico-arizona-rain-flood-polo.html
 
