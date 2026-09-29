@@ -1,3 +1,7 @@
+**Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
+`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own “fully autonomous magnetic levitation train.”`\
+https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
+
 **Review: Matières Fécale’s Parisian Fashion Dream**\
 `Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
 https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
