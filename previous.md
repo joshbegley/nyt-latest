@@ -1,3 +1,7 @@
+**Israeli Settler Attack in West Bank Blocks Palestinian Family From Returning Home**\
+`The Supreme Court ordered the military to ensure a family that fled after repeated attacks could go back. But settlers prevented the efforts, stoking criticism of Israeli policy in the territory.`\
+https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
+
 **Live Updates: Jack Smith to Face Another Grilling Before Congress**\
 `The former special counsel is scheduled to testify before Republicans who have pressed for him to be criminally prosecuted. His appearance will be the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
 `A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
 https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
-**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
-`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
-https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
-
 **College Students Flex Their Power in A.I. Investment Frenzy**\
 `Dorm Room Fund, a program that lets college students invest in their peers, raised a new $50 million fund as the competition for young founders ramps up.`\
 https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
+
+**Clancy Returns to Court as Lawyers Seek Investigation of Holdout Juror**\
+`Lawyers representing Lindsay Clancy have also asked a judge to find her not guilty, saying insufficient evidence was presented at her murder trial, which ended in a mistrial this month.`\
+https://www.nytimes.com/2026/09/29/us/lindsay-clancy-hearing.html
 
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/books/review/this-cursed-beautiful-land-evan-
 **The Rescuers Keeping Two Ukrainian ‘Fortress Cities’ Alive**\
 `Emergency workers have to move fast after Russian attacks in eastern Ukraine. Another could come at any moment.`\
 https://www.nytimes.com/2026/09/29/world/europe/ukraine-donbas-emergency-workers.html
-
-**Book Review: ‘The Vanishing Family,’ by Robert Kolker**\
-`In “The Vanishing Family,” Robert Kolker paints a portrait of nine siblings under threat from a vicious form of Alzheimer’s disease.`\
-https://www.nytimes.com/2026/09/29/books/review/robert-kolker-the-vanishing-family.html
 
