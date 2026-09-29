@@ -1,3 +1,7 @@
+**Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
+`“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own ‘fully autonomous magnetic levitation train.’`\
+https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
+
 **OpenAI Apologizes for Australia Medicare Hack**\
 `The company detailed how A.I. agents gained access to four government websites and acknowledged mishandling its response.`\
 https://www.nytimes.com/2026/09/29/world/asia/openai-australia-government-hack-apology.html
