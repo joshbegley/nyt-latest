@@ -1,3 +1,7 @@
+**Is Claude Conscious? Inside Anthropic’s Quest to Instill Morality Into Its A.I. Models**\
+`In a series of private meetings, the company consulted religious scholars to help instill morality into its A.I. models — and make the case that Claude could be conscious.`\
+https://www.nytimes.com/2026/09/29/us/anthropic-claude-morals-ai.html
+
 **Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
 `The former special counsel is appearing before Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
