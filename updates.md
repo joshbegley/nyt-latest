@@ -1,3 +1,7 @@
+**Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
+`Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
+https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
+
 **Late Night Doesn’t Buy That Xi Was Impressed by Trump’s Helipad**\
 `“Pretty sure he’s not blown away by ‘carved rock in shape of circle,’” Jon Stewart said, noting that China has its own “fully autonomous magnetic levitation train.”`\
 https://www.nytimes.com/2026/09/29/arts/television/late-night-xi-jinping-white-house-visit.html
