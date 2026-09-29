@@ -1,3 +1,7 @@
+**Man Killed After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
 `The new question, included on a draft version of the primary tax form, comes as part of an anti-immigrant turn at an agency that long prioritized tax administration.`\
 https://www.nytimes.com/2026/09/29/business/irs-tax-returns-citizenship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/style/irving-penn-photography-american-vogue.
 **Book Review: ‘The True Confessions of First Lady Freeman,’ by Deesha Philyaw**\
 `Deesha Philyaw’s debut novel is a rebellion disguised as a romp.`\
 https://www.nytimes.com/2026/09/29/books/review/the-true-confessions-of-first-lady-freeman-deesha-philyaw.html
-
-**How LARPing, a Gaming Term, Became a Word for Posers**\
-`Live-action role playing was associated with games like Dungeons & Dragons. Now, it’s a way to call someone out for being inauthentic.`\
-https://www.nytimes.com/2026/09/29/style/larp-slang-meaning-tiktok.html
 
