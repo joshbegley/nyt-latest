@@ -1,3 +1,11 @@
+**A Knockout Show Resets the Record With ‘Krasner and Pollock’**\
+`She had to settle for the kitchen as her studio but Lee Krasner finally gets her share of the spotlight at the Metropolitan Museum of Art.`\
+https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolitan-museum-art.html
+
+**Street Style Look of the Week: Channeling Michael**\
+`Three friends turned out for a Brooklyn block party in celebration of what would have been Michael Jackson’s 68th birthday wearing their Jackson 5 finest.`\
+https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson-5.html
+
 **Israeli Settler Attack in West Bank Blocks Palestinian Family From Returning Home**\
 `The Supreme Court ordered the military to ensure a family that fled after repeated attacks could go back. But settlers prevented the efforts, stoking criticism of Israeli policy in the territory.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
