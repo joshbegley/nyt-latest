@@ -1,3 +1,7 @@
+**Live Updates: Jack Smith Faces Another Grilling Before Congress**\
+`The former special counsel is appearing before Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
+
 **A Knockout Show Resets the Record With ‘Krasner and Pollock’**\
 `She had to settle for the kitchen as her studio but Lee Krasner finally gets her share of the spotlight at the Metropolitan Museum of Art.`\
 https://www.nytimes.com/2026/09/29/arts/design/krasner-pollock-review-metropolitan-museum-art.html
