@@ -1,3 +1,7 @@
+**In Nine Key Senate Races, Five Republicans Won’t Commit to Campaigning With Trump**\
+`Three campaigns left their positions unclear, and two said they would not join the president on the trail.`\
+https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump-campaign.html
+
 **Marco Rubio Reveals Redesigned U.S. Passport**\
 `Secretary of State Marco Rubio unveiled a new U.S. passport design that features a larger, “more gold” seal on the front cover.`\
 https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-passport-design.html

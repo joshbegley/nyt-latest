@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
 https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.html
 
 **Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
-`Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
+`Some Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
 https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
 
 **Taking the True Measure of America’s Heritage**\
@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-c
 https://www.nytimes.com/2026/09/29/opinion/heritage-americans.html
 
 **Man Shot by ICE Agent in Austin Is Charged With Assault**\
-`The charge reveals the existence of body camera footage of the shooting, though that video has not been released.`\
+`Prosecutors say the man struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that has not been released.`\
 https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
 
 **Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
