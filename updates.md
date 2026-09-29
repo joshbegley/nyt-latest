@@ -1,3 +1,7 @@
+**Accusations of Antisemitism Hit a Star of the French Far Right**\
+`Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
+https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
+
 **What’s In Anthropic’s I.P.O. Filing**\
 `The artificial intelligence giant reportedly believes that it’s on track for a record-breaking stock market listing, according to a prospectus seen by Reuters.`\
 https://www.nytimes.com/2026/09/29/business/dealbook/anthropic-ipo-filing-s1.html

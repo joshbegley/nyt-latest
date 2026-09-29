@@ -54,10 +54,6 @@ https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-inciden
 `Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
 https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
 
-**Jack Smith, Former Special Counsel, Will Appear Before Congress**\
-`Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
-https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
-
 **Trump’s Luck Is Finally Running Out**\
 `Voters are showing a growing determination to repudiate his presidency.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
@@ -102,13 +98,13 @@ https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-calif
 `This campaign could be a compelling model for Democrats.`\
 https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
 
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
-
 **In ‘Incorrect,’ Sam Morril Makes Being a Loser Look Like Fun**\
 `Sam Morril’s new Netflix special, “Incorrect,” is filled with lowlife stories that don’t always make him look good. That’s why they’re so funny.`\
 https://www.nytimes.com/2026/09/29/arts/television/sam-morril-incorrect-netflix.html
+
+**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
+`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
+https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 
 **Designer Light Switches Are Here**\
 `A recent crop of new brands is pushing the design language of the light switch.`\
