@@ -1,3 +1,15 @@
+**X2, the Troubled California Six Flags Roller Coaster, Reaches Its End**\
+`The ride at Magic Mountain near Los Angeles has fueled lawsuits claiming that it had caused brain injuries, including two that were fatal.`\
+https://www.nytimes.com/2026/09/29/us/six-flags-magic-mountain-x2-roller-coaster-closed.html
+
+**Why Bill Gates Thinks A.I. Will Take Away Jobs**\
+`How will A.I. affect the labor market? On “The Ezra Klein Show,” the technologist and philanthropist Bill Gates argues that A.I. will significantly reduce the availability of jobs.`\
+https://www.nytimes.com/video/opinion/100000011179059/why-bill-gates-thinks-ai-will-take-away-jobs.html
+
+**A Timeline of the Cornell University Rape Investigation**\
+`Prosecutors have reopened an investigation into a former student’s claims that several men sexually assaulted her in a campus fraternity house.`\
+https://www.nytimes.com/2026/09/29/nyregion/cornell-rape-chi-phi-investigation.html
+
 **University of Michigan Halts New Grading Plan After Backlash From Critics**\
 `The program was intended to address what the university called a “mental health crisis.” But the plan was met with criticism that it was coddling students.`\
 https://www.nytimes.com/2026/09/29/us/university-michigan-grades-freshmen.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/us/politics/100000011182241/rubio-reveals-new-us-p
 **OpenAI Unveils Dots, New A.I. Agents to Rival Meta’s Muse**\
 `The ChatGPT maker unveiled agents that act as assistants, just weeks after Meta released Muse, as it faces scrutiny over incidents involving its technology.`\
 https://www.nytimes.com/2026/09/29/technology/openai-dots-ai-agents.html
-
-**OpenAI Ignored Employees’ Warnings About Safely Testing A.I. Models**\
-`Employees and security researchers said that they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but that OpenAI did not listen.`\
-https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
-
-**In ‘How Shakespeare Saved My Life,’ Tragedy Mingles With Comedy**\
-`The actor Jacob Ming-Trent faced numerous rejections. But in this solo play at the Public, he tells how he found redemption through the playwright’s worlds and words.`\
-https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.html
-
-**Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
-`Some Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
-https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
