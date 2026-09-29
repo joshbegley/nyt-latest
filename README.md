@@ -1,3 +1,7 @@
+**Judge Orders New York to Scrap Rollout of Second-Home Tax and Start Over**\
+`A Staten Island judge sided with a group of homeowners who had sued the city over its introduction of the tax, dealing a blow to Mayor Zohran Mamdani.`\
+https://www.nytimes.com/2026/09/29/nyregion/nyc-second-home-tax-lawsuit.html
+
 **Trump Launches A.I.-Powered Government Website**\
 `President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
 https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-at
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
 `Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
 https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
-
-**What’s In Anthropic’s I.P.O. Filing**\
-`The artificial intelligence giant reportedly believes that it’s on track for a record-breaking stock market listing, according to a prospectus seen by Reuters.`\
-https://www.nytimes.com/2026/09/29/business/dealbook/anthropic-ipo-filing-s1.html
 
