@@ -1,3 +1,11 @@
+**As Mr. Belding on “Saved by the Bell,” Dennis Haskins Made Principals Your Pal**\
+`As Mr. Belding on “Saved by the Bell,” Dennis Haskins helped change an onscreen dynamic that paved the way for principals to come.`\
+https://www.nytimes.com/2026/09/29/arts/television/mr-belding-dennis-haskins-saved-by-the-bell.html
+
+**Why the U.S. Is Imposing New Visa Restrictions on South Africa**\
+`The Trump administration announced new visa restrictions on the country days after receiving a letter that South African officials had hoped would bring down the temperature.`\
+https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-racism.html
+
 **Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
 `It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
 https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
@@ -111,7 +119,7 @@ https://www.nytimes.com/2026/09/29/opinion/diesel-prices-truckers.html
 https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 
 **Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
-`Several Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
+`Some Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/crosswords/wordle-review-1929.html
 **Are Prediction Markets Gambling? A Lot Rides on the Answer.**\
 `In lawsuits across the country, Republican and Democratic states have united to take on prediction markets like Kalshi and Polymarket.`\
 https://www.nytimes.com/2026/09/29/podcasts/the-daily/are-prediction-markets-gambling-a-lot-rides-on-the-answer.html
-
-**NYT Strands Hints for September 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 30, 2026.`\
-https://www.nytimes.com/2026/09/29/crosswords/strands-sidekick-941.html
-
-**Rubio Says Incident at UK Air Base RAF Fairford ‘Clearly Involved’ a Foreign Actor**\
-`The U.S. secretary of state, Marco Rubio, told Fox News that what happened at a base used by U.S. bombers flying to Iran was “very serious,” without providing details.`\
-https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-incident-rubio-us.html
 

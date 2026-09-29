@@ -1,3 +1,11 @@
+**Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
+`It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
+https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
+
+**Number of Guard Troops in Washington Drops Below 3,000**\
+`The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
+https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
+
 **Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
 `The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
 https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html

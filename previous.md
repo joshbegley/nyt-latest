@@ -1,3 +1,11 @@
+**Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
+`It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
+https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
+
+**Number of Guard Troops in Washington Drops Below 3,000**\
+`The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
+https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
+
 **Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
 `The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
 https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
@@ -138,10 +146,6 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 `The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
-**Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
-`Republicans have called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjury, though the accusation appeared to be based on a misunderstanding.`\
-https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
-
 **Accusations of Antisemitism Hit a Star of the French Far Right**\
 `Jordan Bardella, the 31-year-old protégé of Marine Le Pen, is said to have made antisemitic statements as a teenage activist. He denies it.`\
 https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/crosswords/strands-sidekick-941.html
 **Rubio Says Incident at UK Air Base RAF Fairford ‘Clearly Involved’ a Foreign Actor**\
 `The U.S. secretary of state, Marco Rubio, told Fox News that what happened at a base used by U.S. bombers flying to Iran was “very serious,” without providing details.`\
 https://www.nytimes.com/2026/09/29/world/europe/uk-raf-fairford-air-base-incident-rubio-us.html
-
-**Your A.I. Questions Answered**\
-`Are you using artificial intelligence without even knowing it? And what’s behind the wave of doomsday warnings?`\
-https://www.nytimes.com/2026/09/29/podcasts/the-headlines/ai-questions-answers.html
 
