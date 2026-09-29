@@ -1,3 +1,7 @@
+**OpenAI Ignored Employees Who Warned It Wasn’t Doing Enough About Security**\
+`Employees and security researchers said they had cautioned the company on safely testing its A.I. models and strengthening its corporate infrastructure, but OpenAI did not listen.`\
+https://www.nytimes.com/2026/09/29/technology/openai-warnings-security.html
+
 **In ‘How Shakespeare Saved My Life,’ Tragedy Mingles With Comedy**\
 `The actor Jacob Ming-Trent faced numerous rejections. But in this solo play at the Public, he tells how he found redemption through the playwright’s worlds and words.`\
 https://www.nytimes.com/2026/09/29/theater/how-shakespeare-saved-my-life-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/us/politics/james-talarico-ken-paxton-texas-s
 **Bill Gates’s Blunt Warning on A.I.**\
 `As A.I. capabilities accelerate, the technologist is shocked by the “complete lack of engagement” with the question of how to manage its risks.`\
 https://www.nytimes.com/2026/09/29/opinion/ezra-klein-podcast-bill-gates.html
-
-**I’m Exhausted. You’re Demoralized. We Weren’t Built for a World Like This.**\
-`A greatly underappreciated virtue of other presidents was that you could forget about them for weeks at a time.`\
-https://www.nytimes.com/2026/09/29/opinion/boring-politics-exhaustion.html
 
