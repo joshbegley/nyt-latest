@@ -1,3 +1,7 @@
+**Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 49-year-old from the Bronx, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
 **Israeli Settlers Stop Soldiers From Returning Palestinians to Their Home**\
 `The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to stop them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
