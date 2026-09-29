@@ -1,3 +1,7 @@
+**Brooklyn Democratic Chair Accused of ‘Power Grab’ Won’t Seek Re-election**\
+`Assemblywoman Rodneyse Bichotte Hermelyn will not seek another term after the party was thrown into chaos after disputed rule changes.`\
+https://www.nytimes.com/2026/09/29/nyregion/rodneyse-bichotte-hermelyn-brooklyn-reelection.html
+
 **Trump Has Become Just Another Disappointing Politician**\
 `His winning brand — outsider businessman — has withered.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/world/asia/malaysia-repatriation-myanmar-migr
 **Estonia Says Arson at Defense Company Was ‘Deliberate’ Attack by Russia**\
 `A fire broke out at Milrem Robotics, which manufactures and supplies unmanned vehicles for Ukraine, in August.`\
 https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fire.html
-
-**JMSN, ‘Love Me’ Artist, Demands Trump Stop Using Song**\
-`President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
-https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
 

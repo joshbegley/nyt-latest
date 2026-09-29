@@ -1,3 +1,7 @@
+**Trump Has Become Just Another Disappointing Politician**\
+`His winning brand — outsider businessman — has withered.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
+
 **Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
 `Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
 https://www.nytimes.com/2026/09/29/us/chartering-a-boat-on-the-kuskokwim-river-to-reach-peltolas-alaska.html
