@@ -1,3 +1,7 @@
+**After 37 Years on Death Row, Man Is Freed From Utah Jail**\
+`Douglas Carter was convicted in 1985 of murdering a 57-year-old woman. But new DNA testing led a judge to free him on Monday.`\
+https://www.nytimes.com/2026/09/29/us/douglas-carter-death-row-released-utah.html
+
 **Cornell Sexual Assault Case From 2024 to Be Reopened**\
 `Two weeks after a woman filed a lawsuit accusing the school and law enforcement officials of not doing enough to investigate her sexual assault case on campus, a New York prosecutor is reopening the investigation.`\
 https://www.nytimes.com/video/us/100000011182778/cornell-university-gang-sexual-assault-ny.html
