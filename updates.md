@@ -1,3 +1,7 @@
+**V.A. Institutes New Consent Requirements for Some Psychiatric Drugs**\
+`Veterans under 30 will have to sign forms before being given antidepressants. Medical groups fear the moves may stigmatize mental health treatment.`\
+https://www.nytimes.com/2026/09/28/science/veterans-psychiatric-drugs-consent.html
+
 **Gordon Johncock, Two-Time Indianapolis 500 Winner, Dies at 90**\
 `He was among the premier drivers in the Indy 500, competing in 24 races and finishing eight times in the top five.`\
 https://www.nytimes.com/2026/09/28/sports/autoracing/gordon-johncock-dead.html

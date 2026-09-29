@@ -1,3 +1,7 @@
+**V.A. Institutes New Consent Requirements for Some Psychiatric Drugs**\
+`Veterans under 30 will have to sign forms before being given antidepressants. Medical groups fear the moves may stigmatize mental health treatment.`\
+https://www.nytimes.com/2026/09/28/science/veterans-psychiatric-drugs-consent.html
+
 **Gordon Johncock, Two-Time Indianapolis 500 Winner, Dies at 90**\
 `He was among the premier drivers in the Indy 500, competing in 24 races and finishing eight times in the top five.`\
 https://www.nytimes.com/2026/09/28/sports/autoracing/gordon-johncock-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011179257/noreaster-storm-nantucket-shipw
 **Russian Drone Strikes Ukraine’s Science Academy, Causing Fire in City Center**\
 `A Russian jet-powered drone hit Ukraine’s National Academy of Sciences, the source of almost all of the country’s major scientific discoveries.`\
 https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academy-sciences.html
-
-**SpaceX Starship Launches Into Orbit for the First Time**\
-`SpaceX’s Starship made it into orbit for the first time on Monday. The 14th test flight was an important step toward the company’s goal to send people to the moon and Mars.`\
-https://www.nytimes.com/video/us/100000011179593/spacex-starship-launch-orbit.html
 
