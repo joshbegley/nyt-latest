@@ -1,3 +1,7 @@
+**Estonia Says Arson at Defense Company Was ‘Deliberate’ Attack by Russia**\
+`A fire broke out at Milrem Robotics, which manufactures and supplies unmanned vehicles for Ukraine, in August.`\
+https://www.nytimes.com/2026/09/29/world/europe/estonia-russia-ukraine-milrem-fire.html
+
 **‘Love Me’ Artist Demands Trump Stop Using Song**\
 `President Trump used JMSN’s song in a recent self-promotional video that was paid for with public money.`\
 https://www.nytimes.com/2026/09/29/us/politics/jmsn-love-me-trump-ad.html
@@ -118,13 +122,13 @@ https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico
 `The problems of technology were there before Trump and will be there after.`\
 https://www.nytimes.com/2026/09/29/opinion/data-centers-democrats-republicans.html
 
-**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
-`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
-https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
-
 **Democratic Turnout Surged in the Primaries. Will It Matter in November?**\
 `A voter enthusiasm gap provides another signal that Democrats are favored this fall, though Republicans still have key advantages.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-voter-turnout.html
+
+**Mideast Oil Exports Rebound Even as Prices Remain Elevated**\
+`More tankers are moving through the Strait of Hormuz as shippers gain confidence, but the global supply of oil is still below demand.`\
+https://www.nytimes.com/2026/09/29/business/oil-exports-strait-of-hormuz.html
 
 **Corrections: Sept. 29, 2026**\
 `Corrections that appeared in print on Tuesday, Sept. 29, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/arts/music/maine-opera-houses.html
 **Book Review: ‘The Radiance,’ by Ayad Akhtar**\
 `“The Radiance,” by Ayad Akhtar, blends campus satire, autofiction and philosophical exploration into an explosive and timely brew.`\
 https://www.nytimes.com/2026/09/29/books/review/the-radiance-ayad-akhtar.html
-
-**What If A.D.H.D. Isn’t About Attention at All?**\
-`Evidence suggests that it really affects what psychiatrists like me call sustained engagement — an important difference in understanding how to think about the condition.`\
-https://www.nytimes.com/2026/09/29/science/adhd-attention-motivation.html
 
