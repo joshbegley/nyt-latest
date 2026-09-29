@@ -1,3 +1,7 @@
+**Jack Smith, Former Special Counsel, Will Appear Before Congress**\
+`Mr. Smith’s testimony will be the latest public clash over the use of prosecutorial power in American politics.`\
+https://www.nytimes.com/2026/09/29/us/politics/jack-smith-congress-testimony.html
+
 **Trump’s Luck Is Finally Running Out**\
 `Voters are showing a growing determination to repudiate his presidency.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-midterms-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/learning/15-minute-lesson-plan-the-role-of-th
 **Dennis Haskins, Principal Belding on ‘Saved by the Bell,’ Dies at 75**\
 `Mr. Haskins played the exasperated but well-meaning principal on the popular high school sitcom. He reprised the role in a long-running spinoff.`\
 https://www.nytimes.com/2026/09/29/arts/television/dennis-haskins-dead.html
-
-**Review: Matières Fécale’s Parisian Fashion Dream**\
-`Pregnant women, bodybuilders, punks, family — a heartfelt Matières Fécales show jolts Paris Fashion Week. But what about the clothes?`\
-https://www.nytimes.com/2026/09/29/style/matieres-fecales-ninety-nine-percent-show-pfw.html
 
