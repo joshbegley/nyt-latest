@@ -1,3 +1,11 @@
+**Victor Marx, Colorado Governor Nominee With Sensational Past, Splinters the G.O.P.**\
+`Some Republicans in the state fear that the sensational biography of Victor Marx, their party’s candidate for governor, could drag down the rest of the ticket.`\
+https://www.nytimes.com/2026/09/29/us/victor-marx-colorado-republican-governor-candidate.html
+
+**Man Shot by ICE Agent in Austin Is Charged With Assault**\
+`Prosecutors say the man struck an agent with his car’s mirror before another agent shot him. The charge reveals the existence of body camera footage of the shooting, though that has not been released.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
 **In Nine Key Senate Races, Five Republicans Won’t Commit to Campaigning With Trump**\
 `Three campaigns left their positions unclear, and two said they would not join the president on the trail.`\
 https://www.nytimes.com/2026/09/29/us/politics/republicans-senate-midterms-trump-campaign.html
