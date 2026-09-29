@@ -1,3 +1,15 @@
+**F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
+`“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
+https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
+
+**Mamdani Announces Plan to Fight Antisemitism, Without Discussing Israel**\
+`A report issued by Mayor Zohran Mamdani describes ways that New York City is funding hate crime prevention and celebrating the contributions of Jewish New Yorkers.`\
+https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
+
+**Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
+`The man, a 47-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
+
 **ICE Plans 5,000 New Hires to Help With Deportation Drive**\
 `A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
 https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html

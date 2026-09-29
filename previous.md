@@ -1,3 +1,11 @@
+**F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
+`“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
+https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
+
+**Mamdani Announces Plan to Fight Antisemitism, Without Discussing Israel**\
+`A report issued by Mayor Zohran Mamdani describes ways that New York City is funding hate crime prevention and celebrating the contributions of Jewish New Yorkers.`\
+https://www.nytimes.com/2026/09/29/nyregion/mamdani-antisemitism-report-nyc.html
+
 **ICE Plans 5,000 New Hires to Help With Deportation Drive**\
 `A similar surge last year resulted in undervetted officers initially being let in and then removed as the agency skipped basic checks for new recruits.`\
 https://www.nytimes.com/2026/09/29/us/ice-hiring-immigration-enforcement-vetting.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/09/29/books/hachette-book-group-ben-sevier.html
 https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
 
 **Man Killed In Brooklyn After Bag Gets Stuck in Subway Doors, Police Say**\
-`The man, a 49-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
+`The man, a 47-year-old from Brooklyn, was pulled by the train and found near the tracks at the Utica Avenue station.`\
 https://www.nytimes.com/2026/09/29/nyregion/subway-backpack-dragging-death.html
 
 **Trump Administration Prepares to Ask Tax Filers if They Are U.S. Citizens**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/us/vivek-ramaswamy-amy-acton-wealth-class-ohi
 **What World Record Would You Like to Set?**\
 `A 6-year-old in China solved a Rubik’s Cube in a record time. What skills or talents do you have, or wish you had, that might get your name in the record book one day?`\
 https://www.nytimes.com/2026/09/29/learning/what-world-record-would-you-like-to-set.html
-
-**Dartmouth Provost Is the Latest College Professor Examined for A.I. Use**\
-`Dartmouth said it would investigate its provost over A.I. accusations. Similar controversies on other campuses have prompted frustration among students.`\
-https://www.nytimes.com/2026/09/29/us/college-professors-administrators-ai-dartmouth.html
-
-**AMLO Son Poses Political Problems for Mexico’s President Sheinbaum**\
-`Andrés Manuel López Beltrán has joined the list of figures who, critics say, may end up harming the left-wing movement his father founded, as well as the president who succeeded him.`\
-https://www.nytimes.com/2026/09/29/world/americas/sheinbaum-lopez-beltran-mexico-morena.html
 
