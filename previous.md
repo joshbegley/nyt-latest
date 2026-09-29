@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-
 `Assemblywoman Rodneyse Bichotte Hermelyn will not seek another term after the party was thrown into chaos after disputed rule changes.`\
 https://www.nytimes.com/2026/09/29/nyregion/rodneyse-bichotte-hermelyn-brooklyn-reelection.html
 
-**Trump Has Become Just Another Disappointing Politician**\
-`His winning brand — outsider businessman — has withered.`\
+**The Trump Brand Has Tanked. The G.O.P. May Pay the Price.**\
+`He went from outsider businessman to disappointing politician.`\
 https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
 
 **Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\

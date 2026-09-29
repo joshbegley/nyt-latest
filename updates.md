@@ -1,3 +1,7 @@
+**The Trump Brand Has Tanked. The G.O.P. May Pay the Price.**\
+`He went from outsider businessman to disappointing politician.`\
+https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.html
+
 **Ohio Woman Sues Hospital After Wrong Leg Is Amputated**\
 `Sharon Jacks, 74, said she went into surgery for the amputation of her lower right leg last year, but her left leg was removed instead. She has accused Selby General Hospital of negligence.`\
 https://www.nytimes.com/2026/09/29/us/amputee-wrong-leg-lawsuit-ohio.html
