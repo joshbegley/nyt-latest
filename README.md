@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/09/29/style/street-style-look-1970s-vintage-jackson
 `The Supreme Court had ordered the military to ensure a West Bank family that fled violence could go back. But settlers blocked the effort, with the authorities accused of not doing enough to confront them.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html
 
-**Live Updates: Jack Smith, Who Charged Trump, Faces Another Grilling Before Congress**\
-`The former special counsel is appearing before Senate Republicans who have pressed for him to be criminally prosecuted. His appearance is the latest public clash over the use of prosecutorial power in American politics.`\
+**Live Updates: Jack Smith, Who Charged Trump, Testifies in Combative Hearing**\
+`Republicans have repeatedly called for the former special counsel to be criminally prosecuted. One Republican senator accused Mr. Smith of perjuring himself, but the accusation appeared to be based on a misunderstanding.`\
 https://www.nytimes.com/live/2026/09/29/us/trump-jack-smith-senate-testimony
 
 **Accusations of Antisemitism Hit a Star of the French Far Right**\

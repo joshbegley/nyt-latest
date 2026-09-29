@@ -1,3 +1,15 @@
+**Assault Charge Reveals Existence of Body Camera Footage of ICE Shooting in Austin**\
+`Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
+**Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
+`Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
+https://www.nytimes.com/2026/09/29/business/oil-saudi-east-west-pipeline.html
+
+**Coast Guard Searches for Passengers From Capsized Boat Near Puerto Rico**\
+`At least three people died after the vessel sank in the Mona Passage, a dangerous stretch of sea often traveled by migrants from Haiti and the Dominican Republic.`\
+https://www.nytimes.com/2026/09/29/us/puerto-rico-boat-capsized.html
+
 **MacArthur Foundation Announces 2026 ‘Genius Grant’ Winners**\
 `The 20 fellowship recipients across the arts, humanities and sciences will each receive an $800,000, no-strings-attached stipend for their work.`\
 https://www.nytimes.com/2026/09/29/arts/design/macarthur-foundation-announces-2026-genius-grant-winners.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/29/technology/dorm-room-fund-ai-investment.html
 **Turning an Airfield in Brooklyn Into a High School**\
 `Floyd Bennett Field is somewhat remote and underused. A nonprofit has big plans for the site.`\
 https://www.nytimes.com/2026/09/29/nyregion/floyd-bennett-field-school.html
-
-**At Tiny’s Burger in Costa Mesa, a Chef Tinkers With His Legacy**\
-`At Tiny’s Burger in Costa Mesa, the chef Sang Yoon, of Father’s Office fame, tinkers with the burger again.`\
-https://www.nytimes.com/2026/09/29/dining/tinys-burger-costa-mesa-southern-california.html
-
-**Kansas Hasn’t Elected a Democrat to the Senate Since 1932. Adam Hamilton Could Change That.**\
-`This campaign could be a compelling model for Democrats.`\
-https://www.nytimes.com/2026/09/29/opinion/adam-hamilton-kansas-senate.html
-
-**As A.I. Panic Grows, Javier Milei Is Pitching Argentina As a Rules-Free Haven**\
-`Mr. Milei wants to go all in on artificial intelligence even as other leaders struggle to get a handle on a technology many fear poses existential threats.`\
-https://www.nytimes.com/2026/09/29/world/americas/argentina-ai-rules-milei.html
 

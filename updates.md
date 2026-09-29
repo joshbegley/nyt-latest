@@ -1,3 +1,15 @@
+**Assault Charge Reveals Existence of Body Camera Footage of ICE Shooting in Austin**\
+`Prosecutors say the man who was shot, Wilber Rafael Garces Perez, struck an agent with his car’s mirror before another agent shot him.`\
+https://www.nytimes.com/2026/09/29/us/ice-shooting-doordash-driver-austin-body-camera.html
+
+**Tankers Are Loading Oil Again From a Vital Saudi Pipeline**\
+`Saudi authorities had taken the pipeline offline this month after it was damaged in a drone attack by an Iranian-backed Iraqi militia.`\
+https://www.nytimes.com/2026/09/29/business/oil-saudi-east-west-pipeline.html
+
+**Coast Guard Searches for Passengers From Capsized Boat Near Puerto Rico**\
+`At least three people died after the vessel sank in the Mona Passage, a dangerous stretch of sea often traveled by migrants from Haiti and the Dominican Republic.`\
+https://www.nytimes.com/2026/09/29/us/puerto-rico-boat-capsized.html
+
 **Cornell University Rape Investigation: What We Know**\
 `Prosecutors have reopened the case of a woman who said she was sexually assaulted on campus in 2024. The woman’s lawsuit brought renewed pressure to reopen the investigation.`\
 https://www.nytimes.com/2026/09/29/nyregion/cornell-university-rape-investigation-chi-phi-fraternity.html
