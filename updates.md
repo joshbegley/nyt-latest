@@ -1,3 +1,7 @@
+**Couple Accused of Killing Their Son-in-Law in Bay Area Park**\
+`Jonathan McKinsey, an engineer who worked in the games department for The New York Times, was fatally shot Saturday in a San Francisco suburb. The police have accused his parents-in-law, both 76.`\
+https://www.nytimes.com/2026/09/28/us/jonathan-mckinsey-new-york-times-shooting-california.html
+
 **Denée Benton and Patina Miller Help Give ‘School Girls’ a Broadway Glow-Up**\
 `Jocelyn Bioh’s breakthrough 2017 play about cliques and colorism is just as funny — and devastating — with a sharp ensemble and direction by Whitney White.`\
 https://www.nytimes.com/2026/09/28/theater/school-girls-or-the-african-mean-girls-play-review.html
