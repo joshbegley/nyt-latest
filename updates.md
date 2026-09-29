@@ -1,3 +1,15 @@
+**As Mr. Belding on “Saved by the Bell,” Dennis Haskins Made Principals Your Pal**\
+`As Mr. Belding on “Saved by the Bell,” Dennis Haskins helped change an onscreen dynamic that paved the way for principals to come.`\
+https://www.nytimes.com/2026/09/29/arts/television/mr-belding-dennis-haskins-saved-by-the-bell.html
+
+**Why the U.S. Is Imposing New Visa Restrictions on South Africa**\
+`The Trump administration announced new visa restrictions on the country days after receiving a letter that South African officials had hoped would bring down the temperature.`\
+https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-racism.html
+
+**Trump’s Push for AI Data Center Expansion Puts Some Republican Lawmakers in a Bind**\
+`Some Republicans in close races have distanced themselves from President Trump’s effort to speed the construction of A.I. data centers, citing concerns about rising electricity bills.`\
+https://www.nytimes.com/2026/09/29/us/republicans-trump-data-center-ai.html
+
 **Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
 `It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
 https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
