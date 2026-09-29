@@ -1,3 +1,7 @@
+**Anthropic’s Quest for Humanlike A.I.**\
+`Elizabeth Dias, our national religion correspondent, and Cade Metz, one of our technology reporters, discuss Anthropic’s approach for instilling morality into Claude — which has involved consultations with religious leaders, including ones at the Vatican — and why it’s raising questions.`\
+https://www.nytimes.com/video/us/100000011159357/anthropic-claude-ai-religion.html
+
 **F.B.I. Vows to Pursue ShinyHunters Hackers After Personnel Data Theft**\
 `“We know how to find you,” Brett Leatherman, a senior cyber official at the F.B.I., said in a video statement released Tuesday.`\
 https://www.nytimes.com/2026/09/29/us/politics/fbi-hackers-shinyhunters-netherlands.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/29/realestate/designer-light-switches.html
 **His Jet vs. Her Jeep: How Wealth Is Playing in the Midterms**\
 `In the so-called affordability election, two candidates for governor of Ohio are sparring over whether billionaires are the problem or the solution.`\
 https://www.nytimes.com/2026/09/29/us/vivek-ramaswamy-amy-acton-wealth-class-ohio-midterms.html
-
-**What World Record Would You Like to Set?**\
-`A 6-year-old in China solved a Rubik’s Cube in a record time. What skills or talents do you have, or wish you had, that might get your name in the record book one day?`\
-https://www.nytimes.com/2026/09/29/learning/what-world-record-would-you-like-to-set.html
 
