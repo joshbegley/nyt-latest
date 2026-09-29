@@ -1,3 +1,7 @@
+**Gordon Johncock, Two-Time Indianapolis 500 Winner, Dies at 90**\
+`He was among the premier drivers in the Indy 500, competing in 24 races and finishing eight times in the top five.`\
+https://www.nytimes.com/2026/09/28/sports/autoracing/gordon-johncock-dead.html
+
 **Senate Resoundingly Approves Sweeping College Sports Measure**\
 `The outlook for the legislation, which seeks to stabilize the unsettled collegiate sports landscape, is uncertain in the House. It was one of the last congressional actions before the midterms.`\
 https://www.nytimes.com/2026/09/28/us/politics/senate-college-sports.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/28/world/europe/urkaine-drone-attack-kyiv-academ
 **SpaceX Starship Launches Into Orbit for the First Time**\
 `SpaceX’s Starship made it into orbit for the first time on Monday. The 14th test flight was an important step toward the company’s goal to send people to the moon and Mars.`\
 https://www.nytimes.com/video/us/100000011179593/spacex-starship-launch-orbit.html
-
-**This Virus Stole a Human Gene and Won’t Let Go of It**\
-`Scientists have found a human gene lurking in a virus that causes skin infections. It may be using our own DNA to infect us.`\
-https://www.nytimes.com/2026/09/28/science/virus-molluscum-human-gene.html
 
