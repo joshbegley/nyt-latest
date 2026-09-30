@@ -1,3 +1,7 @@
+**Court Pauses Execution of Christa Pike, Tennessee’s Lone Woman on Death Row**\
+`Christa Pike tortured and murdered a classmate in 1995. She had been set to die on Wednesday, the first woman executed in the state in 200 years.`\
+https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html
+
 **Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
 `In a small Idaho town, a young mother is accused of killing her young twins. She blames the childhood vaccines they received.`\
 https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html

@@ -90,6 +90,10 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
+**Live Updates: Pilot May Have Attempted to Crash Flight to Israel, Netanyahu Says**\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
 https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/business/situational-awareness-stock-market-l
 **Critic’s Pick: ‘Degenerates’ Unmasks the Longing Disguised as Hate**\
 `In her play about a group of very online incels, Else Went reveals what happens to their rabid rhetoric when these people are offered love.`\
 https://www.nytimes.com/2026/09/30/theater/degenerates-review-the-longing-beneath-the-hate-and-self-hate.html
-
-**In N.Y.C.’s West Village, a Rooftop ‘Cottage’ Is For Sale**\
-`The asking price for the unique property, which sits atop a six-story brick co-op in a former warehouse, is $10.5 million.`\
-https://www.nytimes.com/2026/09/30/realestate/nyc-west-village-rooftop-cottage-real-estate.html
 
