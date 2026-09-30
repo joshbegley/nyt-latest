@@ -50,6 +50,10 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
+**Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
+`Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
 https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/john-maynard-keynes-ai-economist.html
 **Book Review: ‘Heavy Cream,’ by Sarah Blakley-Cartwright**\
 `In Sarah Blakley-Cartwright’s novel “Heavy Cream,” a teenager tries to fill the vacuum left behind by her unstable, unreachable mother.`\
 https://www.nytimes.com/2026/09/30/books/review/heavy-cream-sarah-blakley-cartwright.html
-
-**Word of the Day: cogitate**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/09/30/learning/word-of-the-day-cogitate.html
 
