@@ -1,3 +1,7 @@
+**Five Generations, One Newspaper**\
+`How on earth did The New York Times, a seemingly ossified institution in a dying industry, survive the most destabilizing period in its history — and emerge stronger?`\
+https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewardship.html
+
 **Live Updates: Pilot May Have Attempted to Crash Flight to Israel, Netanyahu Says**\
 `Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
