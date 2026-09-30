@@ -1,3 +1,15 @@
+**In Speech, Hegseth Targets Diversity and Transgender People**\
+`In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people`\
+https://www.nytimes.com/video/us/politics/100000011186245/hegseth-speech-targets-diversity-transgender-people.html
+
+**What New York’s Rape Laws Mean for the Cornell Case**\
+`State law makes it harder to prosecute when victims drank willingly. The prosecutor in the Cornell case said that kept him from charging students accused of sexual assault.`\
+https://www.nytimes.com/2026/09/30/nyregion/cornell-new-york-rape-laws.html
+
+**Hundreds of Catholic Clerics Abused Children in Massachusetts, Report Says**\
+`An investigation by the state’s attorney general found decades of sex abuse of nearly 1,000 children over a century across three Massachusetts dioceses.`\
+https://www.nytimes.com/2026/09/30/us/catholic-priests-sexual-abuse-massachusetts.html
+
 **Hegseth Talks Tough as Republican Doubts About His Leadership Grow**\
 `Pete Hegseth has held onto his job by projecting a tough guy image, but his relationship with Republican lawmakers has never been worse.`\
 https://www.nytimes.com/2026/09/30/us/politics/hegseth-leadership-republican-doubts.html
