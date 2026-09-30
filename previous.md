@@ -1,3 +1,11 @@
+**Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
+`A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. Attorney General.`\
+https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
+
+**Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
+`Senate Democrats were expected on Wednesday to block a measure that would encourage, but not require, states to protect consumers from power rate hikes as a result of data center growth.`\
+https://www.nytimes.com/2026/09/30/us/politics/congress-set-to-leave-washington-for-the-midterms-with-no-ai-progress.html
+
 **Court Pauses Tennessee Woman’s Death Row Execution**\
 `Tennessee paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in the state in 200 years.`\
 https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
@@ -70,13 +78,13 @@ https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 `This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
 https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 
-**The Scientific Case for Being Less in Touch With Your Friends**\
-`Prioritize the contact that really makes a difference.`\
-https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
-
 **Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
+
+**The Scientific Case for Being Less in Touch With Your Friends**\
+`Prioritize the contact that really makes a difference.`\
+https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 
 **Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
 `Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-wi
 **Trump Wants to Get His Hands on the Power of the Purse**\
 `The search for fraud in the federal government must always end in the same place.`\
 https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
-
-**‘Attention Infidelity’ Is Ruining Romance**\
-`Your full attention is a gift. Give it more often.`\
-https://www.nytimes.com/2026/09/30/opinion/attention-infidelity-ruin-romance.html
-
-**In Fractious France, Politicians Agree on One Thing: Pope Leo Was a Hit**\
-`In a four-day visit, Pope Leo XIV won praise across the political spectrum, even from its most avowedly secular figures.`\
-https://www.nytimes.com/2026/09/30/world/europe/leo-france-pope-macron.html
 

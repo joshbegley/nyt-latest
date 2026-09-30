@@ -78,13 +78,13 @@ https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 `This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
 https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 
-**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
-`Government enforcers have the laws and the experience to control A.I.`\
-https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
-
 **The Scientific Case for Being Less in Touch With Your Friends**\
 `Prioritize the contact that really makes a difference.`\
 https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
+
+**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
+`Government enforcers have the laws and the experience to control A.I.`\
+https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
 
 **Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
 `Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
