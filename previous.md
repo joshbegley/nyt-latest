@@ -1,3 +1,7 @@
+**Former Music Pastor Is Convicted of His Wife’s Murder**\
+`The trial in Ohio attracted outsize attention because the defendant, Caleb Flynn, auditioned on “American Idol” in 2013.`\
+https://www.nytimes.com/2026/09/29/us/caleb-flynn-verdict-murder-wife.html
+
 **NYT Crossword Answers for Sept. 30, 2026**\
 `Joel Woodford offers solvers a chance to speak up.`\
 https://www.nytimes.com/2026/09/29/crosswords/daily-puzzle-2026-09-30.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/opinion/trump-republicans-economy-midterms.ht
 **Chartering a Boat on the Kuskokwim River to Reach Peltola’s Alaska**\
 `Ms. Peltola, the Alaska Democrat running for Senate, was shaped by growing up in remote villages in southwestern Alaska.`\
 https://www.nytimes.com/2026/09/29/us/mary-peltola-alaska-boat.html
-
-**Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
-`In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
-https://www.nytimes.com/video/world/asia/100000011182398/turkey-doughnuts-lokma-honor-dead.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

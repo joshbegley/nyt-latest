@@ -1,3 +1,7 @@
+**Former Music Pastor Is Convicted of His Wife’s Murder**\
+`The trial in Ohio attracted outsize attention because the defendant, Caleb Flynn, auditioned on “American Idol” in 2013.`\
+https://www.nytimes.com/2026/09/29/us/caleb-flynn-verdict-murder-wife.html
+
 **NYT Crossword Answers for Sept. 30, 2026**\
 `Joel Woodford offers solvers a chance to speak up.`\
 https://www.nytimes.com/2026/09/29/crosswords/daily-puzzle-2026-09-30.html
