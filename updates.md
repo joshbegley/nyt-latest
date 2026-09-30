@@ -1,3 +1,27 @@
+**Hegseth Summons Troops for a ‘State of the Force’ Address**\
+`The gathering comes as the defense secretary is facing precarious times as the public face of the Trump administration’s unpopular war against Iran.`\
+https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
+
+**Butternut Squash Congee With Chile Oil**\
+`Congee comes in many textures and flavors and is eaten widely across East, South East and South Asia. This particular version is not traditional to any region or cuisine, but is a seasonal interpretation, incorporating butternut squash for a warming, earthy glow.`\
+https://www.nytimes.com/video/dining/100000011183364/butternut-squash-congee-with-chile-oil.html
+
+**Cabbage Caesar Salad**\
+`Substituting juicy, crunchy shredded cabbage for the usual romaine adds texture and sweetness to Caesar salad.`\
+https://www.nytimes.com/video/dining/100000011183261/cabbage-caesar-salad.html
+
+**Mango Basque Cheesecake**\
+`Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
+https://www.nytimes.com/video/dining/100000011182907/mango-basque-cheesecake.html
+
+**‘NAZA’ Review: Intimate Interviews About War’s Human Costs**\
+`The haunting documentary, by Yuval Abraham and Rachel Szor, interviews anonymous Israeli intelligence officers and soldiers as they recount their military actions in Gaza.`\
+https://www.nytimes.com/2026/09/30/movies/naza-review.html
+
+**Chi Phi Says It Acted Quickly in 2024 to Expel Cornell Members Named in Sexual Assault Lawsuit**\
+`The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
+https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
+
 **Legal Immigrants Lose Medicaid Coverage Under Trump’s Bill**\
 `Many immigrants without green cards will no longer be eligible for the health insurance program for low-income people.`\
 https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.html

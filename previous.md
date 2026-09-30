@@ -1,3 +1,23 @@
+**Hegseth Summons Troops for a ‘State of the Force’ Address**\
+`The gathering comes as the defense secretary is facing precarious times as the public face of the Trump administration’s unpopular war against Iran.`\
+https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
+
+**Butternut Squash Congee With Chile Oil**\
+`Congee comes in many textures and flavors and is eaten widely across East, South East and South Asia. This particular version is not traditional to any region or cuisine, but is a seasonal interpretation, incorporating butternut squash for a warming, earthy glow.`\
+https://www.nytimes.com/video/dining/100000011183364/butternut-squash-congee-with-chile-oil.html
+
+**Cabbage Caesar Salad**\
+`Substituting juicy, crunchy shredded cabbage for the usual romaine adds texture and sweetness to Caesar salad.`\
+https://www.nytimes.com/video/dining/100000011183261/cabbage-caesar-salad.html
+
+**Mango Basque Cheesecake**\
+`Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
+https://www.nytimes.com/video/dining/100000011182907/mango-basque-cheesecake.html
+
+**‘NAZA’ Review: Intimate Interviews About War’s Human Costs**\
+`The haunting documentary, by Yuval Abraham and Rachel Szor, interviews anonymous Israeli intelligence officers and soldiers as they recount their military actions in Gaza.`\
+https://www.nytimes.com/2026/09/30/movies/naza-review.html
+
 **Legal Immigrants Lose Medicaid Coverage Under Trump’s Bill**\
 `Many immigrants without green cards will no longer be eligible for the health insurance program for low-income people.`\
 https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.html
@@ -30,7 +50,7 @@ https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bil
 `Taylor Swift recently released “The Life of a Showgirl: The Encore,” a four-song extension of her 2025 album. Our critic Jon Caramanica breaks down why he feels “Babylon” is the best track and how the project as a whole fits into her current era.`\
 https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-holding-pattern.html
 
-**Chi Phi Fraternity Says It Acted Quickly to Expel Cornell Members**\
+**Chi Phi Says It Acted Quickly in 2024 to Expel Cornell Members Named in Sexual Assault Lawsuit**\
 `The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
 https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
 
@@ -173,26 +193,6 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell
 **Becerra and Hilton to Face Off in Televised California Governor Debate**\
 `Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
 https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
-
-**FlyDubai Provides Key Link for Israeli Air Travelers**\
-`The low-cost carrier operates up to 10 daily flights between Dubai and Tel Aviv.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flights-dubai-tel-aviv-israel.html
-
-**Bracing for More Inflation Volatility**\
-`Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
-https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
-
-**Passenger Describes Chaos Aboard FlyDubai Flight**\
-`The passenger, Miriam Ohayon, said people on board felt the jet lose control and heard screams. “When they opened the cockpit, there was a lot of blood,” she told Israeli television.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-israel-plane-passenger.html
-
-**Could Taking the Pressure Off Grades Improve Students’ Mental Health?**\
-`The University of Michigan is introducing pass/fail grades for first-semester students to ease them into college life. Do you wish your school would do the same?`\
-https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades-improve-students-mental-health.html
-
-**Cornell’s Sexual Assault Case**\
-`We talk to a reporter on campus about what we know.`\
-https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
