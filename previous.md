@@ -6,7 +6,7 @@ https://www.nytimes.com/interactive/2026/09/30/nyregion/canal-street-redesign-ny
 `The long-delayed project, which the developer has not yet formally greenlit, would deliver Alaskan gas to Asian markets but take several years to construct.`\
 https://www.nytimes.com/2026/09/30/business/economy/alaska-lng-south-korea-trump.html
 
-**Mattel Chief Named Co-CEO of Combined Paramount and Warner Bros.**\
+**Mattel Chief Named Co-C.E.O. of Combined Paramount and Warner Bros.**\
 `Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
 https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html
 
@@ -163,7 +163,7 @@ https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
 https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
 
 **In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
-`The defense secretary returned to culture-war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
+`In his “State of the Force” address, Defense Secretary Pete Hegseth focused on the culture war and accused reporters of “treason” over Iran war coverage.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
 
 **Butternut Squash Congee With Chile Oil**\

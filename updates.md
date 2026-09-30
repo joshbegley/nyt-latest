@@ -1,3 +1,11 @@
+**Mattel Chief Named Co-C.E.O. of Combined Paramount and Warner Bros.**\
+`Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
+https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html
+
+**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
+`In his “State of the Force” address, Defense Secretary Pete Hegseth focused on the culture war and accused reporters of “treason” over Iran war coverage.`\
+https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
+
 **Walking Through the Chaos on Canal Street as NYC Plans Its Redesign**\
 `Famous for sidewalk merchants and street traffic, Canal has long been a rumble-tumble corridor of commerce and creativity. The city wants to make it safer.`\
 https://www.nytimes.com/interactive/2026/09/30/nyregion/canal-street-redesign-nyc-traffic.html
