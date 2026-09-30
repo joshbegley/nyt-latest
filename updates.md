@@ -1,3 +1,7 @@
+**FlyDubai Flight to Tel Aviv Issues Distress Signal Before Landing in Saudi Arabia**\
+`The plane was traveling from Dubai to Israel when the pilot and co-pilot appear to have gotten into a fight, Israeli officials said.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-tel-aviv-israel-fz1073-diverted-pilots.html
+
 **15-Minute Lesson Plan: Weather Data**\
 `What do you notice when you compare the weather of 1978 with that of 2015?`\
 https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-weather-data.html
