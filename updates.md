@@ -1,3 +1,15 @@
+**Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
+`A Town Divided Over Andrea Shaw`\
+https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
+
+**Endangered Bogong Moths Swarm Southeastern Australia**\
+`Thousands of bogong moth sightings have been reported in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
+https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
+
+**Condé Nast C.E.O. Leaves to Run Mattel**\
+`Roger Lynch, who has led the publisher for more than seven years, will become the chief executive of the toy company, he said Wednesday.`\
+https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-down.html
+
 **Moth Swarms Sweep Across Australia. That’s Good News.**\
 `Bogong moths have been in decline since the 1980s, but this spring the insects have been sighted in the thousands across southeastern Australia, delighting scientists.`\
 https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html

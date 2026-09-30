@@ -1,12 +1,16 @@
+**Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
+`A Town Divided Over Andrea Shaw`\
+https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
+
 **Moth Swarms Sweep Across Australia. That’s Good News.**\
 `Bogong moths have been in decline since the 1980s, but this spring the insects have been sighted in the thousands across southeastern Australia, delighting scientists.`\
 https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html
 
 **Endangered Bogong Moths Swarm Southeastern Australia**\
-`Thousands of bogong moths sightings have been recording in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
+`Thousands of bogong moth sightings have been reported in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
 https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
 
-**Conde Nast C.E.O. Leaves to Run Mattel**\
+**Condé Nast C.E.O. Leaves to Run Mattel**\
 `Roger Lynch, who has led the publisher for more than seven years, will become the chief executive of the toy company, he said Wednesday.`\
 https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-down.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/realestate/nyc-west-village-rooftop-cottage-r
 **‘The Widower: ’Til Death Do Us Part’ Review: More True-Crime Sensationalism**\
 `A new Netflix documentary looks at the winding road to getting a conviction in a Las Vegas murder case.`\
 https://www.nytimes.com/2026/09/30/movies/the-widower-til-death-do-us-part-review.html
-
-**20 Years Later, Sofia Coppola’s ‘Marie Antoinette’ Is Back at Versailles**\
-`Once criticized for its modern soundtrack and pastel aesthetics, the director’s portrait of royal ennui is now being honored in the chateau where it was filmed.`\
-https://www.nytimes.com/2026/09/30/movies/marie-antoinette-versailles-sofia-coppola.html
 
