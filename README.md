@@ -1,3 +1,7 @@
+**U.S. Withdraws Military From Iraq**\
+`The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
+https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
+
 **Trump Wants to Get His Hands on the Power of the Purse**\
 `The search for fraud in the federal government must always end in the same place.`\
 https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/us/politics/texas-border-trump-voters.html
 **On Breakroom Chronicles, Safeway Workers Serve Nostalgia During Their Lunch Break**\
 `The viral social media account Breakroom Chronicles, created by two Safeway employees who lip-sync ’80s and ’90s pop favorites, is bringing campy joy to millions.`\
 https://www.nytimes.com/2026/09/30/style/breakroom-chronicles-lipsync-lunchladies-instagram.html
-
-**More American Communities Attempt to Regulate Rooster Crows**\
-`In Vermont, a single bird set off a feud over what, exactly, constitutes farm country, mirroring a battle dividing communities across America.`\
-https://www.nytimes.com/2026/09/30/realestate/rooster-noise-ordinances-rural-america.html
 
