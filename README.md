@@ -1,3 +1,7 @@
+**In Wooing Wavering Hispanic Voters, Trump Talks ICE, His Ballroom and Himself**\
+`President Trump veered off the topic at hand during a White House reception for Hispanic Heritage Month.`\
+https://www.nytimes.com/2026/09/30/us/politics/trump-hispanic-heritage-month.html
+
 **Bessent Settled Tax Issue That Had Put Him at Odds With I.R.S.**\
 `The Treasury Secretary had previously taken a position on his taxes that contradicted the views of the tax agency that he now oversees.`\
 https://www.nytimes.com/2026/09/30/business/bessent-settled-tax-issue-that-had-put-him-at-odds-with-irs.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/movies/naza-review.html
 **Legal Immigrants Lose Medicaid Coverage Under Trump’s Bill**\
 `Many immigrants without green cards will no longer be eligible for the health insurance program for low-income people.`\
 https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.html
-
-**Judge Questions Secrecy Around Trump Administration’s Memo on Boat Strikes**\
-`The judge also ordered the Justice Department to privately show the court the contested document, which blesses the disputed killings at sea.`\
-https://www.nytimes.com/2026/09/30/us/politics/judge-trump-memo-boat-strikes.html
 
