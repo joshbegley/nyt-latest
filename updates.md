@@ -1,3 +1,11 @@
+**Cornell’s Sexual Assault Case**\
+`We talk to a reporter on campus about what we know.`\
+https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
+
+**DeepSeek and Huawei Target a Key Source of Nvidia’s A.I. Dominance**\
+`In China’s push for self-reliance in artificial intelligence, DeepSeek and Huawei have teamed up to develop software tools for advanced chips.`\
+https://www.nytimes.com/2026/09/30/business/china-ai-deepseek-huawei.html
+
 **Inside the Devastating Hack of the F.B.I.**\
 `The theft, which hackers said involved a vast trove of personal data, is emerging as one of the worst breaches of sensitive government information.`\
 https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data.html
