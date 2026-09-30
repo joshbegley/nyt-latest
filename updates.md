@@ -1,3 +1,7 @@
+**Passenger Describes Chaos Aboard FlyDubai Flight**\
+`The passenger, Miriam Ohayon, said people on board felt the jet lose control and heard screams. “When they opened the cockpit, there was a lot of blood,” she told Israeli television.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-israel-plane-passenger.html
+
 **Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
 `Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots

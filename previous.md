@@ -1,3 +1,7 @@
+**Passenger Describes Chaos Aboard FlyDubai Flight**\
+`The passenger, Miriam Ohayon, said people on board felt the jet lose control and heard screams. “When they opened the cockpit, there was a lot of blood,” she told Israeli television.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-israel-plane-passenger.html
+
 **Could Taking the Pressure Off Grades Improve Students’ Mental Health?**\
 `The University of Michigan is introducing pass/fail grades for first-semester students to ease them into college life. Do you wish your school would do the same?`\
 https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades-improve-students-mental-health.html
@@ -41,10 +45,6 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 **After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future**\
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
-
-**Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
-`Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
-https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
