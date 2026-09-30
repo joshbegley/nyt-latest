@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Alone together, Keanu’s joy division and how to silence the doubt`\
+https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
+
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
 `A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilot
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
 https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
-
-**Trump Wants to Get His Hands on the Power of the Purse**\
-`The search for fraud in the federal government must always end in the same place.`\
-https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
 
