@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-what-happened.html
 
-**I Thought Things Had Gotten Better. The Cornell Case Breaks My Heart.**\
+**I Thought Things Had Gotten Better. The Cornell Case Shows How Bad They Really Are.**\
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
 
