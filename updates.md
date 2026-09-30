@@ -1,3 +1,7 @@
+**Troy Jackson Apologizes for Generalizing Jewish Mainers’ Views on Gaza**\
+`Mr. Jackson, the Democratic nominee for Senate in Maine, had told an interviewer that some Jews in the state choose not to accuse the Israeli government of carrying out a genocide “only because” they were Jewish.`\
+https://www.nytimes.com/2026/09/30/us/troy-jackson-maine-senate-jews-gaza.html
+
 **In Wooing Wavering Hispanic Voters, Trump Talks ICE, His Ballroom and Himself**\
 `President Trump veered off the topic at hand during a White House reception for Hispanic Heritage Month.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-hispanic-heritage-month.html
