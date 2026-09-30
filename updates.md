@@ -1,3 +1,7 @@
+**Los Angeles Mayoral Candidates Vie for Undecided Voters**\
+`Mayor Karen Bass and her onetime ally, Nithya Raman, made their case to voters with just five weeks left until the election.`\
+https://www.nytimes.com/2026/09/30/us/politics/los-angeles-mayor-bass-raman.html
+
 **Quote of the Day: OpenAI Failed to Heed Alerts About Security**\
 `Quotation of the Day for Wednesday, September 30, 2026.`\
 https://www.nytimes.com/2026/09/30/pageoneplus/quote-of-the-day-openai-failed-to-heed-alerts-about-security.html

@@ -1,3 +1,7 @@
+**Los Angeles Mayoral Candidates Vie for Undecided Voters**\
+`Mayor Karen Bass and her onetime ally, Nithya Raman, made their case to voters with just five weeks left until the election.`\
+https://www.nytimes.com/2026/09/30/us/politics/los-angeles-mayor-bass-raman.html
+
 **Quote of the Day: OpenAI Failed to Heed Alerts About Security**\
 `Quotation of the Day for Wednesday, September 30, 2026.`\
 https://www.nytimes.com/2026/09/30/pageoneplus/quote-of-the-day-openai-failed-to-heed-alerts-about-security.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powe
 **Supreme Court Allows Trump Administration’s Third-Country Deportations, for Now**\
 `The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
 https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
-
-**Brooklyn Democratic Chair Accused of ‘Power Grab’ Won’t Seek Re-election**\
-`Assemblywoman Rodneyse Bichotte Hermelyn will not seek another term after the party was thrown into chaos after disputed rule changes.`\
-https://www.nytimes.com/2026/09/29/nyregion/rodneyse-bichotte-hermelyn-brooklyn-reelection.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
