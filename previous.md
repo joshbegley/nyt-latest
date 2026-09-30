@@ -1,3 +1,7 @@
+**Another Day of Pounding Rain Raises Flooding Fears in Texas**\
+`Texas had a dry summer, and rain on Wednesday could run off the arid ground like water on concrete.`\
+https://www.nytimes.com/2026/09/30/weather/texas-flood-rain-forecast.html
+
 **Hundreds Detained in France as Some Student Protests Turn Violent**\
 `French high schoolers are protesting teacher shortages and overcrowded classrooms, in France’s latest flare-up over education and public services.`\
 https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/travel/national-park-fees-nonresident-trump.h
 **‘Ted Lasso’ Season 4, Episode 9 Recap: The Circle of Life**\
 `A promotion, a loss and news of an impending arrival.`\
 https://www.nytimes.com/2026/09/30/arts/television/ted-lasso-season-4-episode-9-recap.html
-
-**A Way Out of the A.I. Arms Race?**\
-`New research points to how the world could stop short of the brink of disaster. Even with the agreement signed at the White House by tech leaders, it won’t be easy.`\
-https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
 
