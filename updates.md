@@ -1,3 +1,15 @@
+**What Would John Maynard Keynes Say About A.I.?**\
+`Nearly a century ago, John Maynard Keynes predicted technology would revolutionize how we live and work. To find out what he would think of our current A.I. moment, a Princeton economist brought back the legendary thinker using the technology.`\
+https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-keynes-say-about-ai.html
+
+**Film Club: ‘The Frontier of Algorithmic Fashion’**\
+`How is A.I. reshaping the fashion world? Is it for better — or for worse?`\
+https://www.nytimes.com/2026/09/30/learning/film-club-the-frontier-of-algorithmic-fashion.html
+
+**Eiffel Tower Chief Resigns After Female Staff Moved for Hindu Group’s Visit**\
+`Patrick Branco Ruivo, who ran the tower’s operating company, will step down after an internal inquiry cited “problems and shortcomings” over the moving of female employees.`\
+https://www.nytimes.com/2026/09/30/world/europe/eiffel-tower-director-resigns.html
+
 **Google Wants Hollywood to Stop Being So Afraid of Technology**\
 `100 Zeros, a collaboration between Google and Range Media Partners, aims to give the tech giant a foothold in movies, TV and emerging forms of entertainment.`\
 https://www.nytimes.com/2026/09/30/business/media/google-hollywood-krya-sedgwick.html

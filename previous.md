@@ -1,3 +1,15 @@
+**What Would John Maynard Keynes Say About A.I.?**\
+`Nearly a century ago, John Maynard Keynes predicted technology would revolutionize how we live and work. To find out what he would think of our current A.I. moment, a Princeton economist brought back the legendary thinker using the technology.`\
+https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-keynes-say-about-ai.html
+
+**Film Club: ‘The Frontier of Algorithmic Fashion’**\
+`How is A.I. reshaping the fashion world? Is it for better — or for worse?`\
+https://www.nytimes.com/2026/09/30/learning/film-club-the-frontier-of-algorithmic-fashion.html
+
+**Eiffel Tower Chief Resigns After Female Staff Moved for Hindu Group’s Visit**\
+`Patrick Branco Ruivo, who ran the tower’s operating company, will step down after an internal inquiry cited “problems and shortcomings” over the moving of female employees.`\
+https://www.nytimes.com/2026/09/30/world/europe/eiffel-tower-director-resigns.html
+
 **Google Wants Hollywood to Stop Being So Afraid of Technology**\
 `100 Zeros, a collaboration between Google and Range Media Partners, aims to give the tech giant a foothold in movies, TV and emerging forms of entertainment.`\
 https://www.nytimes.com/2026/09/30/business/media/google-hollywood-krya-sedgwick.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-conventi
 **‘Begotten’: Rubbing Your Eyes in Disbelief**\
 `E. Elias Merhige’s digitally restored, black-and-white horror film has its first New York run in decades at the IFC Center. Its power is undiminished.`\
 https://www.nytimes.com/2026/09/30/arts/begotten-ifc-center-restoration.html
-
-**A Move to Quiet Down the Noisy Pedicabs of Midtown**\
-`Bills before the City Council would regulate the pedicabs, which often play loud songs outside theaters during performances.`\
-https://www.nytimes.com/2026/09/30/nyregion/pedicabs-theater-district-noise.html
-
-**How to Listen to Your Favorite Music, Online or Off the Grid**\
-`Streaming services can introduce you to a wonderland of nearly unlimited audio, but downloading your digital collection has advantages.`\
-https://www.nytimes.com/2026/09/30/technology/personaltech/how-to-listen-to-your-favorite-music-online-or-off-the-grid.html
-
-**Can Trump Legally Demolish the Kennedy Center? Experts Say Not Easily.**\
-`The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
-https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html
 
