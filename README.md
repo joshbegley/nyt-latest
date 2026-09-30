@@ -1,3 +1,7 @@
+**Who Attended Trump’s AI Luncheon, and Who Sat Where**\
+`A seating chart of the meeting illustrated growing divisions within the artificial intelligence industry and how it is viewed by the White House.`\
+https://www.nytimes.com/2026/09/29/us/politics/trump-ai-luncheon-guests-ceos.html
+
 **Settlers Block a Palestinian Family From Returning to Their Home**\
 `More than 100 Israeli settlers attacked and set fire to houses when the Israeli military tried to return the Toubassis, a Palestinian family, to their home in the West Bank village of Jalud on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000011183083/israel-settlers-west-bank-palestinian-family.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/arts/television/mr-belding-dennis-haskins-sav
 **Why the U.S. Is Imposing New Visa Restrictions on South Africa**\
 `The Trump administration announced new visa restrictions on the country days after receiving a letter that South African officials had hoped would bring down the temperature.`\
 https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-racism.html
-
-**Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
-`It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
-https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
