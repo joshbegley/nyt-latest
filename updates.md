@@ -1,3 +1,19 @@
+**Legal Immigrants Lose Medicaid Coverage Under Trump’s Bill**\
+`Many immigrants without green cards will no longer be eligible for the health insurance program for low-income people.`\
+https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.html
+
+**Judge Questions Secrecy Around Trump Administration’s Memo on Boat Strikes**\
+`The judge also ordered the Justice Department to privately show the court the contested document, which blesses the disputed killings at sea.`\
+https://www.nytimes.com/2026/09/30/us/politics/judge-trump-memo-boat-strikes.html
+
+**Kristi Noem Files for Divorce From Bryon Noem After 34 Years of Marriage**\
+`Ms. Noem, a former homeland security secretary and governor of South Dakota, filed court papers there seeking to end her marriage to Bryon Noem, an insurance salesman.`\
+https://www.nytimes.com/2026/09/30/us/kristi-noem-divorce-byron-husband.html
+
+**Andrew Cuomo Buys $10 Million Hamptons Home After Mayoral Loss**\
+`The former New York governor bought a compound on the South Shore of Long Island in June that includes a nine-bedroom main house, a guesthouse and a tennis court.`\
+https://www.nytimes.com/2026/09/30/nyregion/andrew-cuomo-hamptons-house.html
+
 **E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
 `The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that the agency said discriminated against white men.`\
 https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html

@@ -1,3 +1,19 @@
+**Legal Immigrants Lose Medicaid Coverage Under Trump’s Bill**\
+`Many immigrants without green cards will no longer be eligible for the health insurance program for low-income people.`\
+https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.html
+
+**Judge Questions Secrecy Around Trump Administration’s Memo on Boat Strikes**\
+`The judge also ordered the Justice Department to privately show the court the contested document, which blesses the disputed killings at sea.`\
+https://www.nytimes.com/2026/09/30/us/politics/judge-trump-memo-boat-strikes.html
+
+**Kristi Noem Files for Divorce From Bryon Noem After 34 Years of Marriage**\
+`Ms. Noem, a former homeland security secretary and governor of South Dakota, filed court papers there seeking to end her marriage to Bryon Noem, an insurance salesman.`\
+https://www.nytimes.com/2026/09/30/us/kristi-noem-divorce-byron-husband.html
+
+**Andrew Cuomo Buys $10 Million Hamptons Home After Mayoral Loss**\
+`The former New York governor bought a compound on the South Shore of Long Island in June that includes a nine-bedroom main house, a guesthouse and a tennis court.`\
+https://www.nytimes.com/2026/09/30/nyregion/andrew-cuomo-hamptons-house.html
+
 **Tiny Love Stories: ‘Close Your Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades
 **Cornell’s Sexual Assault Case**\
 `We talk to a reporter on campus about what we know.`\
 https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
-
-**DeepSeek and Huawei Target a Key Source of Nvidia’s A.I. Dominance**\
-`In China’s push for self-reliance in artificial intelligence, DeepSeek and Huawei have teamed up to develop software tools for advanced chips.`\
-https://www.nytimes.com/2026/09/30/business/china-ai-deepseek-huawei.html
-
-**Inside the Devastating Hack of the F.B.I.**\
-`The theft, which hackers said involved a vast trove of personal data, is emerging as one of the worst breaches of sensitive government information.`\
-https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data.html
-
-**NYT Connections Answers for October 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
-https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
-
-**U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
-`Plus, the nepo babies take Fat Bear Week.`\
-https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
