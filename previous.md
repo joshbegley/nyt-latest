@@ -1,3 +1,11 @@
+**Trump’s Voluntary A.I. Policing Echoes What Biden Did. But Is It Enough Today?**\
+`President Trump’s plan to let A.I. companies police themselves comes amid mounting examples that they are failing to put safeguards on the technology.`\
+https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
+
+**‘You Can See Everything,’ if You Could Only Secure a Ticket**\
+`The buzziest screening at the New York Film Festival is a three-hour documentary in which Nathan Fielder questions Elizabeth Holmes, the disgraced Theranos founder.`\
+https://www.nytimes.com/2026/09/30/movies/elizabeth-holmes-documentary-nathan-fielder-you-can-see-everything.html
+
 **Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
 `Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
 https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation
 **Panic and Heroics on FlyDubai Flight: ‘We Felt That This Was It’**\
 `A routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
-
-**Viper Image That Caused Alarm in California Was A.I.-Generated**\
-`A Gaboon viper, a venomous snake native to equatorial regions of Africa, was supposedly photographed in a tree in Santa Ana, Calif. How could that be? Well, it turns out it wasn’t.`\
-https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
-
-**E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
-`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that the agency said discriminated against white men.`\
-https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
 

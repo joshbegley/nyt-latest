@@ -1,3 +1,11 @@
+**Trump’s Voluntary A.I. Policing Echoes What Biden Did. But Is It Enough Today?**\
+`President Trump’s plan to let A.I. companies police themselves comes amid mounting examples that they are failing to put safeguards on the technology.`\
+https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
+
+**‘You Can See Everything,’ if You Could Only Secure a Ticket**\
+`The buzziest screening at the New York Film Festival is a three-hour documentary in which Nathan Fielder questions Elizabeth Holmes, the disgraced Theranos founder.`\
+https://www.nytimes.com/2026/09/30/movies/elizabeth-holmes-documentary-nathan-fielder-you-can-see-everything.html
+
 **Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
 `Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
 https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html

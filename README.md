@@ -1,3 +1,7 @@
+**While Surging to Records, Stocks Experience Some ‘Wobbles’**\
+`Beneath the S&P 500’s 2 percent gain in the third quarter, the rise in oil prices and bond yields led some investors to become more cautious about the outlook for A.I. profits.`\
+https://www.nytimes.com/2026/09/30/business/stocks-sp500-oil-bonds.html
+
 **Trump’s Voluntary A.I. Policing Echoes What Biden Did. But Is It Enough Today?**\
 `President Trump’s plan to let A.I. companies police themselves comes amid mounting examples that they are failing to put safeguards on the technology.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
@@ -22,9 +26,9 @@ https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documen
 `Salah Sarsour, a vocal supporter of Palestinian rights who leads the state’s largest Islamic group, says the case is politically motivated and plans to appeal the decision.`\
 https://www.nytimes.com/2026/09/30/us/salah-sarsour-deportation-wisconsin.html
 
-**Google Releases a New Flagship A.I. Model, With Limits**\
+**Google Releases New Gemini Model With Guardrails Amid A.I. Safety Debate**\
 `For safety reasons, Gemini 4 Argon will initially be available only to some companies and organizations focused on cybersecurity defense before it is more widely released, Google said.`\
-https://www.nytimes.com/2026/09/30/technology/google-releases-a-new-flagship-ai-model-with-limits.html
+https://www.nytimes.com/2026/09/30/technology/google-gemini-4-argon-ai-safety.html
 
 **Can Xbox Make a Comeback?**\
 `For a decade, Microsoft’s Xbox has placed third in the console wars. Now, as our reporter Zachary Small explains, Microsoft is placing its faith in a new C.E.O., Asha Sharma, an A.I. executive with no prior gaming experience. Can the shakeup help Xbox make a comeback?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.
 **F.T.C. Investigates OpenAI and Anthropic Over Potential Consumer Harms**\
 `The agency will examine whether A.I. labs have broken federal laws prohibiting companies from unfair and deceptive practices.`\
 https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation.html
-
-**Panic and Heroics on FlyDubai Flight: ‘We Felt That This Was It’**\
-`A routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
 
