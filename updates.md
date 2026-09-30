@@ -1,3 +1,11 @@
+**Why the Cornell Student Paper Published Names of Accused Men**\
+`Emma Goldberg, a reporter for The Times, tells Natalie Kitroeff, the host of “The Call,” about her coverage of the Cornell student newspaper and its decision to publish the names of seven men accused in a sexual assault case.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell-student-paper-published-names-of-accused-men.html
+
+**Trump’s New Tariffs Face a Familiar Court Challenge**\
+`For the third time in less than two years, the Trump administration is set to return to court on Wednesday to defend its power to wage a punishing global trade war.`\
+https://www.nytimes.com/2026/09/30/business/trump-tariffs-court-challenge.html
+
 **Becerra and Hilton to Face Off in Televised California Governor Debate**\
 `Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
 https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html

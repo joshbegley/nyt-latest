@@ -1,3 +1,7 @@
+**Why the Cornell Student Paper Published Names of Accused Men**\
+`Emma Goldberg, a reporter for The Times, tells Natalie Kitroeff, the host of “The Call,” about her coverage of the Cornell student newspaper and its decision to publish the names of seven men accused in a sexual assault case.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell-student-paper-published-names-of-accused-men.html
+
 **Becerra and Hilton to Face Off in Televised California Governor Debate**\
 `Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
 https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
@@ -92,7 +96,7 @@ https://www.nytimes.com/2026/09/30/pageoneplus/corrections-sept-30-2026.html
 
 **Trump’s New Tariffs Face a Familiar Court Challenge**\
 `For the third time in less than two years, the Trump administration is set to return to court on Wednesday to defend its power to wage a punishing global trade war.`\
-https://www.nytimes.com/2026/09/30/business/trumps-new-tariffs-face-a-familiar-court-challenge.html
+https://www.nytimes.com/2026/09/30/business/trump-tariffs-court-challenge.html
 
 **Kelly McWilliams on How Her Biracial Identity Shapes Her Relationships**\
 `Why the writer Kelly McWilliams tells everyone she meets who she really is.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/supreme-court-john-roberts-religion.h
 **Book Review: ‘Seasons of Fury,’ by Rozina Ali**\
 `A new book by Rozina Ali traces the rise of anti-Islamic sentiment in the wake of 9/11, showing how ordinary residents became targets of fear and suspicion.`\
 https://www.nytimes.com/2026/09/30/books/review/seasons-of-fury-rozina-ali.html
-
-**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
-`Nearly a century ago, Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist used A.I.`\
-https://www.nytimes.com/2026/09/30/opinion/john-maynard-keynes-ai-economist.html
 
