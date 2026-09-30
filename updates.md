@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Weather Data**\
+`What do you notice when you compare the weather of 1978 with that of 2015?`\
+https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-weather-data.html
+
 **Review: Anthony Vaccarello’s Maybe Last Saint Laurent Show**\
 `Anthony Vaccarello’s likely last show was a golden summation of his tenure.`\
 https://www.nytimes.com/2026/09/30/style/saint-laurent-anthony-vaccarello-final-show.html
