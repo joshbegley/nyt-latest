@@ -1,3 +1,119 @@
+**Critic’s Pick: ‘Degenerates’ Unmasks the Longing Disguised as Hate**\
+`In her play about a group of very online incels, Else Went reveals what happens to their rabid rhetoric when these people are offered love.`\
+https://www.nytimes.com/2026/09/30/theater/degenerates-review-the-longing-beneath-the-hate-and-self-hate.html
+
+**In N.Y.C.’s West Village, a Rooftop ‘Cottage’ Is For Sale**\
+`The asking price for the unique property, which sits atop a six-story brick co-op in a former warehouse, is $10.5 million.`\
+https://www.nytimes.com/2026/09/30/realestate/nyc-west-village-rooftop-cottage-real-estate.html
+
+**‘The Widower: ’Til Death Do Us Part’ Review: More True-Crime Sensationalism**\
+`A new Netflix documentary looks at the winding road to getting a conviction in a Las Vegas murder case.`\
+https://www.nytimes.com/2026/09/30/movies/the-widower-til-death-do-us-part-review.html
+
+**20 Years Later, Sofia Coppola’s ‘Marie Antoinette’ Is Back at Versailles**\
+`Once criticized for its modern soundtrack and pastel aesthetics, the director’s portrait of royal ennui is now being honored in the chateau where it was filmed.`\
+https://www.nytimes.com/2026/09/30/movies/marie-antoinette-versailles-sofia-coppola.html
+
+**55 Swatting Calls: A Couple’s Fight Against Online Stalkers and the Police**\
+`The city of Milwaukee agreed to a $575,000 settlement after months of heavily armed police responses to 911 calls to the couple’s home that officials knew were hoaxes.`\
+https://www.nytimes.com/2026/09/30/us/swatting-milwaukee-couple-settlement.html
+
+**Milwaukee Couple Receives $575,000 After 55 Swatting Calls**\
+`Over the course of three years, 55 swatting calls summoned the police to a Milwaukee couple’s home, and officers responded to nearly every one even though they knew they were made by pranksters. The couple received a $575,000 settlement from the city.`\
+https://www.nytimes.com/video/us/100000011171004/milwaukee-couple-police-swatting-calls.html
+
+**Book Review: ‘Artificial Intimacy,’ by Sherry Turkle**\
+`In “Artificial Intimacy,” Sherry Turkle warns that we seek comfort from A.I. devices at the peril of our well-being and even our democracy.`\
+https://www.nytimes.com/2026/09/30/books/review/artificial-intimacy-sherry-turkle.html
+
+**Religion Is the Roberts Court’s Unfinished Business**\
+`This case has flown under the radar, but it won’t stay there.`\
+https://www.nytimes.com/2026/09/30/opinion/supreme-court-john-roberts-religion.html
+
+**Book Review: ‘Seasons of Fury,’ by Rozina Ali**\
+`A new book by Rozina Ali traces the rise of anti-Islamic sentiment in the wake of 9/11, showing how ordinary residents became targets of fear and suspicion.`\
+https://www.nytimes.com/2026/09/30/books/review/seasons-of-fury-rozina-ali.html
+
+**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
+`Nearly a century ago, Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist used A.I.`\
+https://www.nytimes.com/2026/09/30/opinion/john-maynard-keynes-ai-economist.html
+
+**Book Review: ‘Heavy Cream,’ by Sarah Blakley-Cartwright**\
+`In Sarah Blakley-Cartwright’s novel “Heavy Cream,” a teenager tries to fill the vacuum left behind by her unstable, unreachable mother.`\
+https://www.nytimes.com/2026/09/30/books/review/heavy-cream-sarah-blakley-cartwright.html
+
+**Word of the Day: cogitate**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/09/30/learning/word-of-the-day-cogitate.html
+
+**See How El Niño Is Washing Ashore in California**\
+`An enormous pulse of wave energy will soon reach the coast and continue north, raising sea levels by half a foot and increasing threats from swells and tides.`\
+https://www.nytimes.com/2026/09/30/climate/el-nino-storm-flooding-kelvin-waves.html
+
+**Book Review: ‘The Bed Trick,’ by Izabella Scott**\
+`“The Bed Trick” details an extraordinary sexual deception case involving a “bamboozling plot,” “two implausible stories” and a world where no one behaves reasonably.`\
+https://www.nytimes.com/2026/09/30/books/review/the-bed-trick-izabella-scott.html
+
+**New Cancer Drugs Are Revolutionary. Why Don’t More Patients Get Them?**\
+`Targeted gene therapies are highly effective at stopping cancers, but the very abundance of the treatments, plus cost and sluggish change, are hindering access.`\
+https://www.nytimes.com/2026/09/30/science/new-cancer-drugs-are-revolutionary-why-dont-more-patients-get-them.html
+
+**Patek Philippe To Put More Than 500 Timepieces on Display**\
+`The watch brand plans to show almost everything it makes during an exhibition this week in Milan.`\
+https://www.nytimes.com/2026/09/30/fashion/watches-patek-philippe-milan.html
+
+**As Violence Falls, Crime Isn’t Paying as a Republican Line of Attack**\
+`Across the country, especially in the North Carolina Senate race, Republicans have charged opponents with being soft on crime, even as President Trump brags over plunging crime rates.`\
+https://www.nytimes.com/2026/09/30/us/politics/crime-midterm-elections-north-carolina.html
+
+**Yapping Her Way to Stardom**\
+`Ivy Wolk can be kind of a lot. If you lived her life, you might be too.`\
+https://www.nytimes.com/2026/09/30/style/ivy-wolk-broadway-debut.html
+
+**‘What Adorns Men’ to Be Displayed at a German Museum**\
+`‘What Adorns Men’ is the subject of an exhibition opening in Stuttgart, Germany.`\
+https://www.nytimes.com/2026/09/30/fashion/watches-exhibition-stuttgart-germany.html
+
+**Jennifer Archibald Is Bringing Fresh Moves to New York City Ballet**\
+`Jennifer Archibald creates ballets for the generations who grew up on hip-hop and electronic dance music. She makes her New York City Ballet debut at the fashion gala.`\
+https://www.nytimes.com/2026/09/30/arts/dance/new-york-city-ballet-fashion-gala-jennifer-archibald.html
+
+**Timex Goes Upmarket**\
+`The heritage American brand has been selling mechanical watches with four-figure prices.`\
+https://www.nytimes.com/2026/09/30/fashion/watches-timex.html
+
+**Xbox’s Millennial C.E.O., Asha Sharma, Isn’t Playing Around**\
+`“I think the industry will require disruption,” said Asha Sharma, who has overseen layoffs and divested studios since inheriting Microsoft’s flailing video game division.`\
+https://www.nytimes.com/2026/09/30/arts/xbox-microsoft-asha-sharma.html
+
+**How Meta Uses A.I. Data Centers to Avoid Billions in Federal Taxes**\
+`Meta is exploiting a lucrative tax break intended to support research and experimentation. Its own accountants say the gambit is risky.`\
+https://www.nytimes.com/2026/09/30/technology/meta-ai-data-centers-taxes.html
+
+**Hispanic Voters on the Texas Border Have Soured on Trump**\
+`In 2024, these voters were an essential part of the winning Republican coalition. Now, many feel abandoned and furious, complicating the party’s chances in November.`\
+https://www.nytimes.com/2026/09/30/us/politics/texas-border-trump-voters.html
+
+**On Breakroom Chronicles, Safeway Workers Serve Nostalgia During Their Lunch Break**\
+`The viral social media account Breakroom Chronicles, created by two Safeway employees who lip-sync ’80s and ’90s pop favorites, is bringing campy joy to millions.`\
+https://www.nytimes.com/2026/09/30/style/breakroom-chronicles-lipsync-lunchladies-instagram.html
+
+**More American Communities Attempt to Regulate Rooster Crows**\
+`In Vermont, a single bird set off a feud over what, exactly, constitutes farm country, mirroring a battle dividing communities across America.`\
+https://www.nytimes.com/2026/09/30/realestate/rooster-noise-ordinances-rural-america.html
+
+**A Watch That Tells More Than Time**\
+`Social media followers of Nikki Obispo say her decisions about a gift from a relationship gone wrong have influenced their lives too.`\
+https://www.nytimes.com/2026/09/30/fashion/watches-cartier-nikki-obispo-melbourne-australia.html
+
+**How Ukraine’s Naval Drones Are Remaking War at Sea**\
+`They began as modified motorboats. Now, Ukrainian sea drones act as miniature aircraft carriers, and other countries want in.`\
+https://www.nytimes.com/2026/09/30/world/europe/ukraine-naval-drones-russia.html
+
+**Do Families Have a Right to Hug Their Jailed Loved Ones?**\
+`A growing number of jails allow only virtual calls. Some families are suing for the right to see inmates in person.`\
+https://www.nytimes.com/2026/09/30/us/chesa-boudin-jail-visits-right-hug.html
+
 **Kawhi-Gate, Part XVII**\
 `Pablo uncovers internal financials and government records as the scandal deepens.`\
 https://www.nytimes.com/2026/09/30/podcasts/clippers-ballmer-kawhi-gate-part-xvii.html
@@ -81,120 +197,4 @@ https://www.nytimes.com/2026/09/29/us/politics/air-force-major-court-martial-tru
 **Alaska’s Fat Bear Week Winner Is 89 Backpack**\
 `Alaska’s Fat Bear Week finds its newest champion in a bear that overcame an injury in 2007 that nearly killed him.`\
 https://www.nytimes.com/2026/09/29/style/fat-bear-week-winner.html
-
-**Who Attended Trump’s AI Luncheon, and Who Sat Where**\
-`A seating chart of the meeting illustrated growing divisions within the artificial intelligence industry and how it is viewed by the White House.`\
-https://www.nytimes.com/2026/09/29/us/politics/trump-ai-luncheon-guests-ceos.html
-
-**Settlers Block a Palestinian Family From Returning to Their Home**\
-`More than 100 Israeli settlers attacked and set fire to houses when the Israeli military tried to return the Toubassis, a Palestinian family, to their home in the West Bank village of Jalud on Monday.`\
-https://www.nytimes.com/video/world/middleeast/100000011183083/israel-settlers-west-bank-palestinian-family.html
-
-**Democrats in Congress Embrace a More Punitive Posture Toward Israel**\
-`Nearly every Democratic senator voted to advance a measure calling for a human rights report on Israel’s conduct in the West Bank, as some in the party propose punishing settlement activity with sanctions.`\
-https://www.nytimes.com/2026/09/29/us/politics/democrats-congress-israel.html
-
-**Cornell’s Chi Phi Chapter Faces Scrutiny Over Assault Accusations**\
-`Chi Phi’s Cornell chapter was shuttered after a woman said its members sexually assaulted her. It was one of the oldest fraternities at the school, where Greek life has thrived.`\
-https://www.nytimes.com/2026/09/29/us/chi-phi-fraternity-scrutiny-cornell-accusations.html
-
-**A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
-`The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
-https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
-
-**Jack Smith Defends Against Republican’s Perjury Claim**\
-`Senator Eric Schmitt, a Republican, appeared to confuse basketball teams as he accused former special counsel Jack Smith of perjury at a Senate Judiciary Committee hearing on Tuesday.`\
-https://www.nytimes.com/video/us/politics/100000011181747/jack-smith-senate-hearing-eric-schmitt.html
-
-**Trump Launches America.gov, an AI Chatbot That Contradicts Some of His Claims**\
-`Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
-https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
-
-**X2, the Troubled California Six Flags Roller Coaster, Reaches Its End**\
-`The ride at Magic Mountain near Los Angeles has fueled lawsuits claiming that it had caused brain injuries, including two that were fatal.`\
-https://www.nytimes.com/2026/09/29/us/six-flags-magic-mountain-x2-roller-coaster-closed.html
-
-**Why Bill Gates Thinks A.I. Will Take Away Jobs**\
-`How will A.I. affect the labor market? On “The Ezra Klein Show,” the technologist and philanthropist Bill Gates argues that A.I. will significantly reduce the availability of jobs.`\
-https://www.nytimes.com/video/opinion/100000011179059/why-bill-gates-thinks-ai-will-take-away-jobs.html
-
-**A Timeline of the Cornell University Rape Investigation**\
-`Prosecutors have reopened an investigation into a former student’s claims that several men sexually assaulted her in a campus fraternity house.`\
-https://www.nytimes.com/2026/09/29/nyregion/cornell-rape-chi-phi-investigation.html
-
-**University of Michigan Halts New Grading Plan After Backlash From Critics**\
-`The program was intended to address what the university called a “mental health crisis.” But the plan was met with criticism that it was coddling students.`\
-https://www.nytimes.com/2026/09/29/us/university-michigan-grades-freshmen.html
-
-**Why Bill Gates Is Proposing an A.I. Tax**\
-`The technologist and philanthropist Bill Gates thinks A.I. labor should be taxed. He explains why and how on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011182541/why-bill-gates-is-proposing-an-ai-tax.html
-
-**Bill Gates Thinks Relying on A.I. Self-Regulation Is ‘Insane’**\
-`The Trump administration has largely rejected pleas for A.I. regulation. But as its capabilities have advanced, Bill Gates argues that the A.I. industry cannot be expected to self-regulate.`\
-https://www.nytimes.com/video/opinion/100000011179058/bill-gates-thinks-ai-self-regulation-is-insane.html
-
-**Ad About Welfare Fraud Draws MAGA Backlash**\
-`In racist online posts,`\
-https://www.nytimes.com/2026/09/29/us/sarah-huckabee-sanders-campaign-ad.html
-
-**Trump Hosts A.I. Executives at the White House**\
-`Also, ICE is planning a hiring surge. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/09/29/briefing/trump-ai-ice-hiring-surge.html
-
-**Paramount’s Streaming Chief Leaves Ahead of Warner Bros. Deal**\
-`Cindy Holland’s departure clears the way for Casey Bloys, the HBO chairman, to have a leading role in the combined company’s streaming services.`\
-https://www.nytimes.com/2026/09/29/business/media/paramount-holland-bloys-hbo.html
-
-**At A.I. Event, Trump Asks Meta, OpenAI and Microsoft to Make Safety Decisions Themselves**\
-`President Trump’s meetings with tech leaders produced some voluntary safeguards and a commitment to rebrand artificial intelligence as “super intelligence,” the term that Mr. Trump prefers.`\
-https://www.nytimes.com/2026/09/29/us/politics/ai-trump-meta-microsoft-openai.html
-
-**Facebook v. IRS**\
-`The I.R.S. challenge to Facebook’s use of research tax credit for Mark Zuckerberg’s compensation.`\
-https://www.nytimes.com/interactive/2026/09/29/us/facebook-2025-05-300041motion-for-partial-summary-judgment.html
-
-**Map: 4.2-Magnitude Earthquake Strikes Near Seattle**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/09/29/us/quake-tracker-washington-seattle.html
-
-**Read the document**\
-`A tax court ruling from 2021 on a disputed research tax credit claim.`\
-https://www.nytimes.com/interactive/2026/09/29/us/little-sandy-coal-tc-memo.html
-
-**Ohio Woman Sues Hospital After Wrong Leg Is Amputated**\
-`Sharon Jacks, 74, said she went into surgery for the amputation of her lower right leg last year, but her left leg was removed instead. She has accused Selby General Hospital of negligence.`\
-https://www.nytimes.com/2026/09/29/us/amputee-wrong-leg-lawsuit-ohio.html
-
-**Prison Officials Suspended After Inmates Are Found Living in Luxury**\
-`At an Indonesian prison complex near Jakarta, inspectors found expensive cars, spacious quarters with flat-screen TVs and a golf simulator under construction.`\
-https://www.nytimes.com/2026/09/29/world/asia/indonesia-prison-luxury.html
-
-**A Very American Makeover for the State Department’s ‘Hall of Flags’**\
-`The flags of dozens of countries had hung above the State Department’s main atrium. A red, white and blue change has sparked a debate.`\
-https://www.nytimes.com/2026/09/29/us/politics/state-department-flags.html
-
-**Students at Cornell Daily Sun Pursued Sexual Assault Case for Two Years**\
-`The student newspaper, The Cornell Daily Sun, covered the allegations of rape at a fraternity party since they were first made in 2024 and led the reporting on the case.`\
-https://www.nytimes.com/2026/09/29/nyregion/cornell-daily-sun-newspaper-rape.html
-
-**6 Takeaways From Ezra Klein’s Interview With Bill Gates**\
-`The technologist and philanthropist offers a blunt warning on A.I. risks.`\
-https://www.nytimes.com/2026/09/29/opinion/ezra-klein-bill-gates-interview.html
-
-**Inside a Data Center Industry Conference**\
-`At Data Center World last week, public backlash, and how to deal with it, was a popular topic.`\
-https://www.nytimes.com/2026/09/29/climate/datacenters-public-comment.html
-
-**A Teacher Told My Brother He Was Adopted**\
-`The writer Kelly McWilliams joins Anna Martin, the host of “Modern Love,” to talk about the reactions people had to her mixed race family.`\
-https://www.nytimes.com/video/podcasts/100000011181994/a-teacher-told-my-brother-he-was-adopted.html
-
-**Trump Is Going Viral in the Worst Ways**\
-`On the technological, diplomatic and biological fronts, Trump is creating a disaster.`\
-https://www.nytimes.com/2026/09/29/opinion/trump-mideast-diplomacy-iran-ai.html
-
-**Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
-`Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
-https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
 
