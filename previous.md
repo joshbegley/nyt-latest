@@ -1,3 +1,7 @@
+**E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
+`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that it said discriminated against white men.`\
+https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
+
 **What Would John Maynard Keynes Say About A.I.?**\
 `Nearly a century ago, John Maynard Keynes predicted technology would revolutionize how we live and work. To find out what he would think of our current A.I. moment, a Princeton economist brought back the legendary thinker using the technology.`\
 https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-keynes-say-about-ai.html
@@ -138,7 +142,7 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
-**Live Updates: Pilot May Have Attempted to Crash Flight to Israel, Netanyahu Says**\
+**Live Updates: Pilot May Have Tried to Crash Flight to Israel, Netanyahu Says**\
 `Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/travel/fall-foliage-leaf-peeping-water.html
 **Ken Paxton, G.O.P. Nominee in Texas, Privately Said Trump’s Convention Hurt Him**\
 `Ken Paxton, one of the party’s top Senate candidates and a Trump loyalist, said that “everybody’s numbers dropped” after the event, according to audio obtained by The Times.`\
 https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html
-
-**‘Begotten’: Rubbing Your Eyes in Disbelief**\
-`E. Elias Merhige’s digitally restored, black-and-white horror film has its first New York run in decades at the IFC Center. Its power is undiminished.`\
-https://www.nytimes.com/2026/09/30/arts/begotten-ifc-center-restoration.html
 

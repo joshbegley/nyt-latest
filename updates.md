@@ -1,3 +1,11 @@
+**E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
+`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that it said discriminated against white men.`\
+https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
+
+**Live Updates: Pilot May Have Tried to Crash Flight to Israel, Netanyahu Says**\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **What Would John Maynard Keynes Say About A.I.?**\
 `Nearly a century ago, John Maynard Keynes predicted technology would revolutionize how we live and work. To find out what he would think of our current A.I. moment, a Princeton economist brought back the legendary thinker using the technology.`\
 https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-keynes-say-about-ai.html

@@ -1,3 +1,11 @@
+**Passengers describe panic and heroics after the cockpit clash.**\
+`What began as a routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes.  Passengers subdued an knife-wielding attacker.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
+
+**A Viper That Caused Alarm in California Was A.I.-Generated**\
+`A Gaboon viper, a venomous snake native to equatorial regions of Africa, was supposedly photographed in a tree in Santa Ana, Calif. How could that be? Well, it turns out it wasn’t.`\
+https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
+
 **E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
 `The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that it said discriminated against white men.`\
 https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/30/podcasts/modern-love-kelly-mcwilliams.html
 **In a Small American City, a Story About Weed Reveals Much More**\
 `The fight to open a dispensary in Hudson, N.Y., exposes the toll of gentrification, the legacy of the Rockefellers and a hidden chapter in Mike Tyson’s life.`\
 https://www.nytimes.com/2026/09/30/insider/hudson-ny-journalism.html
-
-**The Best Places to See Fall Foliage From the Water: Cruises, River Tours and More**\
-`Amid record-setting gas prices, skip the road trip and bask in vibrant fall foliage from these aquatic vantage points.`\
-https://www.nytimes.com/2026/09/30/travel/fall-foliage-leaf-peeping-water.html
-
-**Ken Paxton, G.O.P. Nominee in Texas, Privately Said Trump’s Convention Hurt Him**\
-`Ken Paxton, one of the party’s top Senate candidates and a Trump loyalist, said that “everybody’s numbers dropped” after the event, according to audio obtained by The Times.`\
-https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html
 
