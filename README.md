@@ -1,3 +1,7 @@
+**FlyDubai Flight to Tel Aviv Issues Distress Signal Before Landing in Saudi Arabia**\
+`The plane was traveling from Dubai to Israel when the pilot and co-pilot appear to have gotten into a fight, Israeli officials said.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-tel-aviv-israel-fz1073-diverted-pilots.html
+
 **15-Minute Lesson Plan: Weather Data**\
 `What do you notice when you compare the weather of 1978 with that of 2015?`\
 https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-weather-data.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-ad
 **The Latin American Right’s Big Bet**\
 `The Trump administration is exerting new levels of control over the region. What’s the next move?`\
 https://www.nytimes.com/2026/09/29/world/latin-america-brazil-election-trump-openai.html
-
-**Morocco’s King Names a Female Prime Minister, in a Historic First**\
-`Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
-https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
