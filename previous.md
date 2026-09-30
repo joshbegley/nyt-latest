@@ -1,3 +1,11 @@
+**15-Minute Lesson Plan: Sports Articles That Teach Life and Leadership Skills**\
+`A baseball coach in Sacramento uses newspaper articles to inspire his team. What can your students, whether athletes or not, learn from them?`\
+https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-sports-articles-that-teach-life-and-leadership-skills.html
+
+**15-Minute Lesson Plan: A Visual History of the Harlem Renaissance**\
+`What can your students “see, think and wonder” about the artifacts in this rich collection?`\
+https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-a-visual-history-of-the-harlem-renaissance.html
+
 **Chaos at Jack Smith’s Senate Hearing**\
 `Readers respond to the high and low points of the Jack Smith Senate hearing. Also: reporters who made history; an ode to Pluto.`\
 https://www.nytimes.com/2026/09/30/opinion/jack-smith-senate-hearing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 **Three Great Documentaries to Stream**\
 `This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
 https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
-
-**The Scientific Case for Being Less in Touch With Your Friends**\
-`Prioritize the contact that really makes a difference.`\
-https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
-
-**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
-`Government enforcers have the laws and the experience to control A.I.`\
-https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
 

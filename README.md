@@ -1,3 +1,7 @@
+**Bruno Kramm, German Goth Musician Who Moonlighted in Politics, Dies at 58**\
+`When he wasn’t playing with the groundbreaking dark-wave band Das Ich, he was a prominent figure in his country’s fight for online free speech and digital privacy rights.`\
+https://www.nytimes.com/2026/09/30/arts/music/bruno-kramm-dead.html
+
 **15-Minute Lesson Plan: Sports Articles That Teach Life and Leadership Skills**\
 `A baseball coach in Sacramento uses newspaper articles to inspire his team. What can your students, whether athletes or not, learn from them?`\
 https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-sports-articles-that-teach-life-and-leadership-skills.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011184378/students-at-cor
 **The Fallout at Cornell**\
 `Plus, the U.S. formally withdraws from Iraq.`\
 https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
-https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 
