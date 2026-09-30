@@ -1,3 +1,15 @@
+**Do I Have to Tell My Partner I’m Not Sure I’ll Ever Want Kids?**\
+`I have never felt the delight that some people show around children.`\
+https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
+
+**This is the Winner of Alaska’s Fat Bear Week**\
+`89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
+https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
+
+**Live Updates: Passengers Arrive in Israel After Cockpit Clash on FlyDubai Flight**\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **F.T.C. Investigates OpenAI and Anthropic Over Potential Consumer Harms**\
 `The agency will examine whether A.I. labs have broken federal laws prohibiting companies from unfair and deceptive practices.`\
 https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation.html

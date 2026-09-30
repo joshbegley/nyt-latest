@@ -1,3 +1,11 @@
+**Do I Have to Tell My Partner I’m Not Sure I’ll Ever Want Kids?**\
+`I have never felt the delight that some people show around children.`\
+https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
+
+**This is the Winner of Alaska’s Fat Bear Week**\
+`89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
+https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
+
 **F.T.C. Investigates OpenAI and Anthropic Over Potential Consumer Harms**\
 `The agency will examine whether A.I. labs have broken federal laws prohibiting companies from unfair and deceptive practices.`\
 https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation.html
@@ -154,7 +162,7 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
-**Live Updates: Pilot May Have Tried to Crash Flight to Israel, Netanyahu Says**\
+**Live Updates: Passengers Arrive in Israel After Cockpit Clash on FlyDubai Flight**\
 `Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
 **Corrections: Sept. 30, 2026**\
 `Corrections that appeared in print on Wednesday, Sept. 30, 2026.`\
 https://www.nytimes.com/2026/09/30/pageoneplus/corrections-sept-30-2026.html
-
-**Trump’s New Tariffs Face a Familiar Court Challenge**\
-`For the third time in less than two years, the Trump administration is set to return to court on Wednesday to defend its power to wage a punishing global trade war.`\
-https://www.nytimes.com/2026/09/30/business/trump-tariffs-court-challenge.html
-
-**Kelly McWilliams on How Her Biracial Identity Shapes Her Relationships**\
-`Why the writer Kelly McWilliams tells everyone she meets who she really is.`\
-https://www.nytimes.com/2026/09/30/podcasts/modern-love-kelly-mcwilliams.html
 
