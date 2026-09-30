@@ -1,3 +1,11 @@
+**High Above Saudi Desert, a Bloody Attack in the Cockpit, and a Terrifying Plunge**\
+`“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
+
+**T.S.A. Agents Are Told to Get on Their Feet During Airport ID Checks**\
+`The agency said that requiring agents to stand while examining documents was a “welcome change.” The union representing them was less welcoming.`\
+https://www.nytimes.com/2026/09/30/us/tsa-airports-standing.html
+
 **Maps: Tracking Tropical Storm Choi-wan**\
 `See the likely path and wind arrival times for Choi-wan`\
 https://www.nytimes.com/interactive/2026/09/30/weather/choi-wan-map-path-tracker.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/30/weather/texas-flood-rain-forecast.html
 **Hundreds Detained in France as Some Student Protests Turn Violent**\
 `French high schoolers are protesting teacher shortages and overcrowded classrooms, in France’s latest flare-up over education and public services.`\
 https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.html
-
-**Do I Have to Tell My Partner I’m Not Sure I’ll Ever Want Kids?**\
-`I have never felt the delight that some people show around children.`\
-https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
-
-**Backpack is the Winner of Alaska’s Fat Bear Week**\
-`89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
-https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
 

@@ -1,3 +1,11 @@
+**High Above Saudi Desert, a Bloody Attack in the Cockpit, and a Terrifying Plunge**\
+`“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
+
+**T.S.A. Agents Are Told to Get on Their Feet During Airport ID Checks**\
+`The agency said that requiring agents to stand while examining documents was a “welcome change.” The union representing them was less welcoming.`\
+https://www.nytimes.com/2026/09/30/us/tsa-airports-standing.html
+
 **Maps: Tracking Tropical Storm Choi-wan**\
 `See the likely path and wind arrival times for Choi-wan`\
 https://www.nytimes.com/interactive/2026/09/30/weather/choi-wan-map-path-tracker.html
