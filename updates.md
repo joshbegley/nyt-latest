@@ -1,3 +1,15 @@
+**The Local: They Might Be Giants on playing 4 nights**\
+`Also, Lynx heartbreak and close encounters with Josh Hartnett.`\
+https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
+
+**No More Drugstore Head Shots: Passport Applications Go Digital**\
+`The process of getting a first U.S. passport will go fully online next year, said Secretary of State Marco Rubio, so if your picture is bad, it’ll be your fault.`\
+https://www.nytimes.com/2026/09/30/travel/passport-photos-digital-application.html
+
+**Passengers Intervene After Pilot Stabbing on FlyDubai Flight to Israel**\
+`Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
+https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
+
 **America Used to Be Cool. What Happened?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
