@@ -14,6 +14,10 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell
 `Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
 https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
 
+**FlyDubai Provides Key Link for Israeli Air Travelers**\
+`The low-cost carrier operates up to 10 daily flights between Dubai and Tel Aviv.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flights-dubai-tel-aviv-israel.html
+
 **Bracing for More Inflation Volatility**\
 `Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
 https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
@@ -65,10 +69,6 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 **After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future**\
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
-
-**Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
-`Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
-https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\

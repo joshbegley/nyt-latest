@@ -1,3 +1,7 @@
+**My Sister-in-Law Schedules Events Without Clearing the Dates With Us. Help!**\
+`A reader sees her husband’s sister’s go-it-alone approach to planning parties as a “power move,” leaving her fuming and scrambling to change plans.`\
+https://www.nytimes.com/2026/09/30/style/planning-schedule-coordination-inconsideration.html
+
 **Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
 `The Personal Consumption Expenditures price index showed little sign of easing in August.`\
 https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html

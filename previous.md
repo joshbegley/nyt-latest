@@ -1,3 +1,7 @@
+**My Sister-in-Law Schedules Events Without Clearing the Dates With Us. Help!**\
+`A reader sees her husband’s sister’s go-it-alone approach to planning parties as a “power move,” leaving her fuming and scrambling to change plans.`\
+https://www.nytimes.com/2026/09/30/style/planning-schedule-coordination-inconsideration.html
+
 **Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
 `The Personal Consumption Expenditures price index showed little sign of easing in August.`\
 https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011171004/milwaukee-couple-police-swattin
 **Book Review: ‘Artificial Intimacy,’ by Sherry Turkle**\
 `In “Artificial Intimacy,” Sherry Turkle warns that we seek comfort from A.I. devices at the peril of our well-being and even our democracy.`\
 https://www.nytimes.com/2026/09/30/books/review/artificial-intimacy-sherry-turkle.html
-
-**This Case Has Flown Under the Radar. It Won’t Stay There.**\
-`This case has flown under the radar, but it won’t stay there.`\
-https://www.nytimes.com/2026/09/30/opinion/supreme-court-john-roberts-religion.html
 
