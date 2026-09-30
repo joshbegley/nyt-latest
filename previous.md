@@ -1,3 +1,7 @@
+**Court Pauses Tennessee Woman’s Death Row Execution**\
+`Tennessee paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in the state in 200 years.`\
+https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
+
 **UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
 `The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
 https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.h
 `I have never felt the delight that some people show around children.`\
 https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
 
-**This is the Winner of Alaska’s Fat Bear Week**\
+**Backpack is the Winner of Alaska’s Fat Bear Week**\
 `89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
 https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
 
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 `Prioritize the contact that really makes a difference.`\
 https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 
-**Trump Wants Our A.I. Titans to Police Themselves. What Can Go Wrong?**\
+**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
 
@@ -175,7 +179,7 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
 **Live Updates: Passengers Arrive in Israel After Cockpit Clash on FlyDubai Flight**\
-`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
 **U.S. Withdraws Military From Iraq**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/attention-infidelity-ruin-romance.htm
 **In Fractious France, Politicians Agree on One Thing: Pope Leo Was a Hit**\
 `In a four-day visit, Pope Leo XIV won praise across the political spectrum, even from its most avowedly secular figures.`\
 https://www.nytimes.com/2026/09/30/world/europe/leo-france-pope-macron.html
-
-**Tour Company Sues to Undo Trump’s Nonresident Fees at National Parks**\
-`An Arizona guide service challenged rules that force foreigners to pay a $100 surcharge to visit 11 national parks, saying that only Congress can change pricing.`\
-https://www.nytimes.com/2026/09/30/travel/national-park-fees-nonresident-trump.html
 

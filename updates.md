@@ -1,3 +1,19 @@
+**Court Pauses Tennessee Woman’s Death Row Execution**\
+`Tennessee paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in the state in 200 years.`\
+https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
+
+**Backpack is the Winner of Alaska’s Fat Bear Week**\
+`89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
+https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
+
+**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
+`Government enforcers have the laws and the experience to control A.I.`\
+https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
+
+**Live Updates: Passengers Arrive in Israel After Cockpit Clash on FlyDubai Flight**\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
 `The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
 https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
