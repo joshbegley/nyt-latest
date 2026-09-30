@@ -1,3 +1,7 @@
+**DeepSeek and Huawei Target a Key Source of Nvidia’s A.I. Dominance**\
+`In China’s push for self-reliance in artificial intelligence, DeepSeek and Huawei have teamed up to develop software tools for advanced chips.`\
+https://www.nytimes.com/2026/09/30/business/china-ai-deepseek-huawei.html
+
 **Inside the Devastating Hack of the F.B.I.**\
 `The theft, which hackers said involved a vast trove of personal data, is emerging as one of the worst breaches of sensitive government information.`\
 https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/science/new-cancer-drugs-are-revolutionary-wh
 **Patek Philippe To Put More Than 500 Timepieces on Display**\
 `The watch brand plans to show almost everything it makes during an exhibition this week in Milan.`\
 https://www.nytimes.com/2026/09/30/fashion/watches-patek-philippe-milan.html
-
-**As Violence Falls, Crime Isn’t Paying as a Republican Line of Attack**\
-`Across the country, especially in the North Carolina Senate race, Republicans have charged opponents with being soft on crime, even as President Trump brags over plunging crime rates.`\
-https://www.nytimes.com/2026/09/30/us/politics/crime-midterm-elections-north-carolina.html
 
