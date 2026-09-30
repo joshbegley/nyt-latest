@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html
 `Thousands of bogong moth sightings have been reported in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
 https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
 
-**Conde Nast C.E.O. Leaves to Run Mattel**\
+**Condé Nast C.E.O. Leaves to Run Mattel**\
 `Roger Lynch, who has led the publisher for more than seven years, will become the chief executive of the toy company, he said Wednesday.`\
 https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-down.html
 
