@@ -1,3 +1,11 @@
+**Senator Marsha Blackburn Sues Over Jack Smith’s Subpoena During Trump Inquiry**\
+`The lawsuit, brought by Senator Marsha Blackburn of Tennessee, tests the reach of the Constitution’s “speech or debate” clause.`\
+https://www.nytimes.com/2026/09/30/us/politics/jack-smith-lawsuit-trump-blackburn.html
+
+**Driver Strikes 4 People Outside a Mall in British Columbia, Killing 2, Police Say**\
+`The accident occurred as hundreds of people were gathering nearby for a National Day of Truth and Reconciliation march near Delta, a city south of Vancouver, the authorities said.`\
+https://www.nytimes.com/2026/09/30/world/canada/british-columbia-crash-medical-emergency.html
+
 **OpenAI’s Greg Brockman Backs Out of Second $25 Million Donation to A.I. Super PAC**\
 `Greg Brockman, OpenAI’s president and co-founder, said internally that the super PAC, Leading the Future, had become a “distraction” for the A.I. company.`\
 https://www.nytimes.com/2026/09/30/technology/openai-brockman-super-pac-leading-the-future.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
 `A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
-
-**Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
-`Senate Democrats blocked a measure that would encourage, but not require, states to protect consumers from power rate hikes tied to data center growth, and had no limits on A.I. use or deployment.`\
-https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
-
-**Court Pauses Tennessee Woman’s Death Row Execution**\
-`A court paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in Tennessee in 200 years.`\
-https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
 
