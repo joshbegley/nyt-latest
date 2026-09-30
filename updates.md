@@ -1,3 +1,7 @@
+**Google Wants Hollywood to Stop Being So Afraid of Technology**\
+`100 Zeros, a collaboration between Google and Range Media Partners, aims to give the tech giant a foothold in movies, TV and emerging forms of entertainment.`\
+https://www.nytimes.com/2026/09/30/business/media/google-hollywood-krya-sedgwick.html
+
 **Calder Sculpture ‘Mountains and Clouds’ Is Restored in Senate Office**\
 `The effort to reunite two halves of Alexander Calder’s monumental “Mountains and Clouds” hit many snags, until donors and legislators from both parties stepped in.`\
 https://www.nytimes.com/2026/09/30/arts/design/calder-mountains-clouds-restoration-senate-building.html
