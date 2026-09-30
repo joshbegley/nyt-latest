@@ -1,3 +1,23 @@
+**The Fallout at Cornell**\
+`Plus, the U.S. formally withdraws from Iraq.`\
+https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
+
+**Three Great Documentaries to Stream**\
+`This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
+https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
+
+**Trump Wants Our A.I. Titans to Police Themselves. What Can Go Wrong?**\
+`Government enforcers have the laws and the experience to control A.I.`\
+https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
+
+**The Scientific Case for Low-Frequency Friendships**\
+`Prioritize the contact that really makes a difference.`\
+https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
+
+**Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
+`Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
+https://www.nytimes.com/2026/09/30/business/ai-epic-health-records-privacy.html
+
 **FlyDubai Flight to Israel Diverted After Clash Between Pilots: What We Know and Don’t Know**\
 `Prime Minister Benjamin Netanyahu of Israel said one pilot stabbed another and may have attempted to crash the flight from Dubai to Tel Aviv. The plane landed in Saudi Arabia and all passengers were safe.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-dubai-israel-flight-diverted.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/30/travel/south-france-new-restaurants.html
 **Which $2.6 Million House Would You Choose?**\
 `This week’s properties are in Pine Bush, N.Y..; Sedgwick, Maine; and Los Angeles.`\
 https://www.nytimes.com/2026/09/30/realestate/best-home-los-angeles-maine-pine-bush.html
-
-**Five Generations, One Newspaper**\
-`How on earth did The New York Times, a seemingly ossified institution in a dying industry, survive the most destabilizing period in its history — and emerge stronger?`\
-https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewardship.html
-
-**He Was a Tech Investor Before There Was a Silicon Valley**\
-`Bill Draper began funding start-ups in the early 1960s, when the Santa Clara Valley was better known for apricot orchards than microchips. He has died at 98.`\
-https://www.nytimes.com/2026/09/30/technology/william-draper-dead.html
-
-**Donor Gives $3 Billion to Carnegie Mellon, the Largest University Gift Ever**\
-`The donation by Kenneth Griffin, intended mostly to help build a campus in Miami, was the biggest single gift in the history of U.S. higher education.`\
-https://www.nytimes.com/2026/09/30/us/3-billion-donation-carnegie-mellon-largest-university-gift.html
-
-**Can Trump Demolish the Kennedy Center?**\
-`President Trump was photographed holding a rendering of the Kennedy Center being demolished. Our reporter Julia Jacobs explains how destroying the arts venue would face legal hurdles.`\
-https://www.nytimes.com/video/arts/100000011167965/can-trump-demolish-the-kennedy-center.html
-
-**Troubles at Situational Awareness Point to Record Stock Market Leverage**\
-`A meltdown at Situational Awareness, an A.I.-focused investment firm, is raising tough questions about the Wall Street banks that lent billions to the upstart firm.`\
-https://www.nytimes.com/2026/09/30/business/situational-awareness-stock-market-leverage.html
 
