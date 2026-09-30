@@ -1,3 +1,7 @@
+**Trump Plays Defense in Midterm Tour Across Republican Strongholds**\
+`Some deep-red areas are in need of a jolt.`\
+https://www.nytimes.com/2026/09/30/us/politics/trump-midterms-oklahoma-alabama-nebraska.html
+
 **Is American Culture Simply Bad Now?**\
 `American culture is not as globally dominant anymore. But what’s replacing it? On “The Opinions,” Euny Hong, an American expat and author, argues that multinational corporations now have more influence than cultural powerhouses like South Korea, Japan and the United States do.`\
 https://www.nytimes.com/video/opinion/100000011179562/is-american-culture-simply-bad-now.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bil
 **Is Taylor Swift in a Holding Pattern?**\
 `Taylor Swift recently released “The Life of a Showgirl: The Encore,” a four-song extension of her 2025 album. Our critic Jon Caramanica breaks down why he feels “Babylon” is the best track and how the project as a whole fits into her current era.`\
 https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-holding-pattern.html
-
-**Chi Phi Says It Acted Quickly in 2024 to Expel Cornell Members Named in Sexual Assault Lawsuit**\
-`The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
-https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
 

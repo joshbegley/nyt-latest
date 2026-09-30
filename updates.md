@@ -1,3 +1,7 @@
+**Is American Culture Simply Bad Now?**\
+`American culture is not as globally dominant anymore. But what’s replacing it? On “The Opinions,” Euny Hong, an American expat and author, argues that multinational corporations now have more influence than cultural powerhouses like South Korea, Japan and the United States do.`\
+https://www.nytimes.com/video/opinion/100000011179562/is-american-culture-simply-bad-now.html
+
 **Exasperated by Delays, Congress Tries to Speed Up Energy Permitting**\
 `Republican and Democratic senators struck a deal to vote on the largest overhaul of federal energy and environmental rules in decades.`\
 https://www.nytimes.com/2026/09/30/climate/congress-energy-permitting-reform.html
