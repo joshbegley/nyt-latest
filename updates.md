@@ -1,3 +1,7 @@
+**Review: Anthony Vaccarello’s Maybe Last Saint Laurent Show**\
+`Anthony Vaccarello’s likely last show was a golden summation of his tenure.`\
+https://www.nytimes.com/2026/09/30/style/saint-laurent-anthony-vaccarello-final-show.html
+
 **After Fatal Crashes, N.Y.C. Lawmakers Seek to Regulate E-Bikes**\
 `Lawmakers are expected on Wednesday to discuss a raft of proposals to regulate the use of electric bikes and scooters, after a series of fatal crashes.`\
 https://www.nytimes.com/2026/09/30/nyregion/city-council-ebikes-hearing.html

@@ -1,3 +1,7 @@
+**Review: Anthony Vaccarello’s Maybe Last Saint Laurent Show**\
+`Anthony Vaccarello’s likely last show was a golden summation of his tenure.`\
+https://www.nytimes.com/2026/09/30/style/saint-laurent-anthony-vaccarello-final-show.html
+
 **After Fatal Crashes, N.Y.C. Lawmakers Seek to Regulate E-Bikes**\
 `Lawmakers are expected on Wednesday to discuss a raft of proposals to regulate the use of electric bikes and scooters, after a series of fatal crashes.`\
 https://www.nytimes.com/2026/09/30/nyregion/city-council-ebikes-hearing.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-mi
 **Book Review: ‘American Hagwon,’ by Min Jin Lee**\
 `The beloved author’s follow-up to “Pachinko” features a cram school that dares to promote students’ well-being over academic striving.`\
 https://www.nytimes.com/2026/09/29/books/review/american-hagwon-min-jin-lee.html
-
-**Will A.I. Make Your Brain Lazy?**\
-`We’re starting to learn more about how the technology can change us.`\
-https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
