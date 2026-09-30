@@ -1,3 +1,7 @@
+**Settlers Block a Palestinian Family From Returning to Their Home**\
+`More than 100 Israeli settlers attacked and set fire to houses when the Israeli military tried to return the Toubassis, a Palestinian family, to their home in the West Bank village of Jalud on Monday.`\
+https://www.nytimes.com/video/world/middleeast/100000011183083/israel-settlers-west-bank-palestinian-family.html
+
 **Democrats in Congress Embrace a More Punitive Posture Toward Israel**\
 `Nearly every Democratic senator voted to advance a measure calling for a human rights report on Israel’s conduct in the West Bank, as some in the party propose punishing settlement activity with sanctions.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-congress-israel.html

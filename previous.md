@@ -1,3 +1,7 @@
+**Settlers Block a Palestinian Family From Returning to Their Home**\
+`More than 100 Israeli settlers attacked and set fire to houses when the Israeli military tried to return the Toubassis, a Palestinian family, to their home in the West Bank village of Jalud on Monday.`\
+https://www.nytimes.com/video/world/middleeast/100000011183083/israel-settlers-west-bank-palestinian-family.html
+
 **Democrats in Congress Embrace a More Punitive Posture Toward Israel**\
 `Nearly every Democratic senator voted to advance a measure calling for a human rights report on Israel’s conduct in the West Bank, as some in the party propose punishing settlement activity with sanctions.`\
 https://www.nytimes.com/2026/09/29/us/politics/democrats-congress-israel.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-
 **Tennessee Valley Authority Gets Approval to Build Small Nuclear Reactor**\
 `It’s only the second time that American regulators have approved a next-generation commercial reactor for construction. Big hurdles remain.`\
 https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-authority.html
-
-**Number of National Guard Troops in Washington D.C. Drops Below 3,000**\
-`The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
-https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
