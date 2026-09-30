@@ -1,3 +1,7 @@
+**Becerra and Hilton to Face Off in Televised California Governor Debate**\
+`Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
+https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
+
 **Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
 `Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
