@@ -1,3 +1,11 @@
+**Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
+`Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
+https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html
+
+**Trump Media’s Merger With Nuclear Fusion Company Moves Closer to Completion**\
+`A securities filing laid out the terms of the deal between Truth Social’s parent company and TAE Technologies, which was formally announced in December.`\
+https://www.nytimes.com/2026/09/30/business/trump-media-tae-technologies-merger.html
+
 **The Most Disturbing 2000s Reality Show Doesn’t Seem So Crazy Anymore**\
 `Erin Lee Carr’s new documentary revisits the 2004 makeover show “The Swan,” which gave 32 women extensive plastic surgery and anticipated where beauty culture was headed.`\
 https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documentary.html
@@ -5,10 +13,6 @@ https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documen
 **Salah Sarsour, Islamic Leader in Wisconsin, Can Be Deported, Judge Rules**\
 `Salah Sarsour, a vocal supporter of Palestinian rights who leads the state’s largest Islamic group, says the case is politically motivated and plans to appeal the decision.`\
 https://www.nytimes.com/2026/09/30/us/salah-sarsour-deportation-wisconsin.html
-
-**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
-`Nearly a century ago, John Maynard Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist brought him back to life — using A.I.`\
-https://www.nytimes.com/video/opinion/100000011186040/what-would-john-maynard-keynes-say-about-ai-the-keynes-bot-told-us.html
 
 **Google Releases a New Flagship A.I. Model, With Limits**\
 `For safety reasons, Gemini 4 Argon will initially be available only to some companies and organizations focused on cybersecurity defense before it is more widely released, Google said.`\
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
 **E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
 `The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that the agency said discriminated against white men.`\
 https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
-
-**What Would John Maynard Keynes Say About A.I.?**\
-`Nearly a century ago, John Maynard Keynes predicted technology would revolutionize how we live and work. To find out what he would think of our current A.I. moment, a Princeton economist brought back the legendary thinker using the technology.`\
-https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-keynes-say-about-ai.html
-
-**Film Club: ‘The Frontier of Algorithmic Fashion’**\
-`How is A.I. reshaping the fashion world? Is it for better — or for worse?`\
-https://www.nytimes.com/2026/09/30/learning/film-club-the-frontier-of-algorithmic-fashion.html
 

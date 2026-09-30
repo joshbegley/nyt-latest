@@ -1,3 +1,11 @@
+**Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
+`Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
+https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html
+
+**Trump Media’s Merger With Nuclear Fusion Company Moves Closer to Completion**\
+`A securities filing laid out the terms of the deal between Truth Social’s parent company and TAE Technologies, which was formally announced in December.`\
+https://www.nytimes.com/2026/09/30/business/trump-media-tae-technologies-merger.html
+
 **The Most Disturbing 2000s Reality Show Doesn’t Seem So Crazy Anymore**\
 `Erin Lee Carr’s new documentary revisits the 2004 makeover show “The Swan,” which gave 32 women extensive plastic surgery and anticipated where beauty culture was headed.`\
 https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documentary.html
