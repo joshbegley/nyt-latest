@@ -2,13 +2,13 @@
 `The theft, which hackers said involved a vast trove of personal data, is emerging as one of the worst breaches of sensitive government information.`\
 https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data.html
 
-**U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
-`Plus, the nepo babies take Fat Bear Week.`\
-https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
-
 **NYT Connections Answers for October 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
 https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
+
+**U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
+`Plus, the nepo babies take Fat Bear Week.`\
+https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
 
 **NYT Strands Hints for October 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
