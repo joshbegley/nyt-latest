@@ -1,3 +1,11 @@
+**Exasperated by Delays, Congress Tries to Speed Up Energy Permitting**\
+`Republican and Democratic senators struck a deal to vote on the largest overhaul of federal energy and environmental rules in decades.`\
+https://www.nytimes.com/2026/09/30/climate/congress-energy-permitting-reform.html
+
+**Plane to Israel Narrowly Averts Disaster**\
+`Also, a Kelvin wave is heading to California. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/30/briefing/plane-stabbing-israel-jd-vance-texas.html
+
 **Senator Marsha Blackburn Sues Over Jack Smith’s Subpoena During Trump Inquiry**\
 `The lawsuit, brought by Senator Marsha Blackburn of Tennessee, tests the reach of the Constitution’s “speech or debate” clause.`\
 https://www.nytimes.com/2026/09/30/us/politics/jack-smith-lawsuit-trump-blackburn.html

@@ -1,3 +1,11 @@
+**Exasperated by Delays, Congress Tries to Speed Up Energy Permitting**\
+`Republican and Democratic senators struck a deal to vote on the largest overhaul of federal energy and environmental rules in decades.`\
+https://www.nytimes.com/2026/09/30/climate/congress-energy-permitting-reform.html
+
+**Plane to Israel Narrowly Averts Disaster**\
+`Also, a Kelvin wave is heading to California. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/09/30/briefing/plane-stabbing-israel-jd-vance-texas.html
+
 **Senator Marsha Blackburn Sues Over Jack Smith’s Subpoena During Trump Inquiry**\
 `The lawsuit, brought by Senator Marsha Blackburn of Tennessee, tests the reach of the Constitution’s “speech or debate” clause.`\
 https://www.nytimes.com/2026/09/30/us/politics/jack-smith-lawsuit-trump-blackburn.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
 **Passengers Intervene After Pilot Stabbing on FlyDubai Flight to Israel**\
 `Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
 https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Alone together, Keanu’s joy division and how to silence the doubt`\
-https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
-
-**Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
-`A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
-https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
 
