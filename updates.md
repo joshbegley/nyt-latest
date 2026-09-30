@@ -1,3 +1,23 @@
+**Moth Swarms Sweep Across Australia. That’s Good News.**\
+`Bogong moths have been in decline since the 1980s, but this spring the insects have been sighted in the thousands across southeastern Australia, delighting scientists.`\
+https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html
+
+**Endangered Bogong Moths Swarm Southeastern Australia**\
+`Thousands of bogong moths sightings have been recording in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
+https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
+
+**Conde Nast C.E.O. Leaves to Run Mattel**\
+`Roger Lynch, who has led the publisher for more than seven years, will become the chief executive of the toy company, he said Wednesday.`\
+https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-down.html
+
+**Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
+`The Personal Consumption Expenditures price index showed little sign of easing in August, though revised data showed inflation had been slightly cooler than previously believed.`\
+https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html
+
+**FlyDubai Provides Key Link for Israeli Air Travelers**\
+`The low-cost carrier operates up to 10 daily flights between Dubai and Tel Aviv.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flights-dubai-tel-aviv-israel.html
+
 **My Sister-in-Law Schedules Events Without Clearing the Dates With Us. Help!**\
 `A reader sees her husband’s sister’s go-it-alone approach to planning parties as a “power move,” leaving her fuming and scrambling to change plans.`\
 https://www.nytimes.com/2026/09/30/style/planning-schedule-coordination-inconsideration.html
