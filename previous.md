@@ -1,3 +1,11 @@
+**Air Force Major Recommended for General Court-Martial After Protesting Trump**\
+`The recommendations are not binding, but it is rare for them to be ignored in the military justice system.`\
+https://www.nytimes.com/2026/09/29/us/politics/air-force-major-court-martial-trump.html
+
+**Alaska’s Fat Bear Week Winner Is 89 Backpack**\
+`Alaska’s Fat Bear Week finds its newest champion in a bear that overcame an injury in 2007 that nearly killed him.`\
+https://www.nytimes.com/2026/09/29/style/fat-bear-week-winner.html
+
 **Who Attended Trump’s AI Luncheon, and Who Sat Where**\
 `A seating chart of the meeting illustrated growing divisions within the artificial intelligence industry and how it is viewed by the White House.`\
 https://www.nytimes.com/2026/09/29/us/politics/trump-ai-luncheon-guests-ceos.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/29/dining/nyc-restaurant-news.html
 **Woman Is Found Captive in Attic Near Boston, Leading to Charges for Man**\
 `The man, Jordende Pierre, 29, faces kidnapping, sex trafficking and other charges. He held the woman against her will for six weeks, officials said.`\
 https://www.nytimes.com/2026/09/29/us/massachusetts-sex-trafficking-kidnapping-charges.html
-
-**As Mr. Belding on “Saved by the Bell,” Dennis Haskins Made Principals Your Pal**\
-`As Mr. Belding on “Saved by the Bell,” Dennis Haskins helped change an onscreen dynamic that paved the way for principals to come.`\
-https://www.nytimes.com/2026/09/29/arts/television/mr-belding-dennis-haskins-saved-by-the-bell.html
-
-**Why the U.S. Is Imposing New Visa Restrictions on South Africa**\
-`The Trump administration announced new visa restrictions on the country days after receiving a letter that South African officials had hoped would bring down the temperature.`\
-https://www.nytimes.com/2026/09/29/world/africa/south-africa-trump-letter-visas-racism.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

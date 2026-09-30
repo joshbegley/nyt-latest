@@ -1,3 +1,11 @@
+**Air Force Major Recommended for General Court-Martial After Protesting Trump**\
+`The recommendations are not binding, but it is rare for them to be ignored in the military justice system.`\
+https://www.nytimes.com/2026/09/29/us/politics/air-force-major-court-martial-trump.html
+
+**Alaska’s Fat Bear Week Winner Is 89 Backpack**\
+`Alaska’s Fat Bear Week finds its newest champion in a bear that overcame an injury in 2007 that nearly killed him.`\
+https://www.nytimes.com/2026/09/29/style/fat-bear-week-winner.html
+
 **Who Attended Trump’s AI Luncheon, and Who Sat Where**\
 `A seating chart of the meeting illustrated growing divisions within the artificial intelligence industry and how it is viewed by the White House.`\
 https://www.nytimes.com/2026/09/29/us/politics/trump-ai-luncheon-guests-ceos.html
