@@ -1,3 +1,7 @@
+**Becerra and Hilton to Face Off in Televised California Governor Debate**\
+`Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
+https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
+
 **Bracing for More Inflation Volatility**\
 `Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
 https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/books/review/seasons-of-fury-rozina-ali.html
 **What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
 `Nearly a century ago, Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist used A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/john-maynard-keynes-ai-economist.html
-
-**Book Review: ‘Heavy Cream,’ by Sarah Blakley-Cartwright**\
-`In Sarah Blakley-Cartwright’s novel “Heavy Cream,” a teenager tries to fill the vacuum left behind by her unstable, unreachable mother.`\
-https://www.nytimes.com/2026/09/30/books/review/heavy-cream-sarah-blakley-cartwright.html
 

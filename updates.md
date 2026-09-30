@@ -1,3 +1,7 @@
+**Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
+`Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Bracing for More Inflation Volatility**\
 `Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
 https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
