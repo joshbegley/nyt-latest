@@ -1,3 +1,7 @@
+**Federal Judge Orders Bureau of Prisons to Restore Union Protections**\
+`In his ruling, Judge Vernon D. Oliver cited public statements from the bureau’s director that hurt the agency’s case in court.`\
+https://www.nytimes.com/2026/09/30/us/politics/bureau-prisons-union-contract.html
+
 **Trump Plays Defense in Midterm Tour Across Republican Strongholds**\
 `Some deep-red areas are in need of a jolt.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-midterms-oklahoma-alabama-nebraska.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/science/pancreatic-cancer-drug-daraxonrasib-b
 **Democrats Block Stock-Trading Bill, Denying the G.O.P. a Pre-Midterm Win**\
 `A Republican measure to limit, but not bar, congressional stock trading faltered in the Senate as Democrats thwarted a G.O.P. bid to show progress on an issue that has rankled voters.`\
 https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bill.html
-
-**Is Taylor Swift in a Holding Pattern?**\
-`Taylor Swift recently released “The Life of a Showgirl: The Encore,” a four-song extension of her 2025 album. Our critic Jon Caramanica breaks down why he feels “Babylon” is the best track and how the project as a whole fits into her current era.`\
-https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-holding-pattern.html
 

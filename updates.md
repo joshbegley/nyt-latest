@@ -1,3 +1,7 @@
+**Federal Judge Orders Bureau of Prisons to Restore Union Protections**\
+`In his ruling, Judge Vernon D. Oliver cited public statements from the bureau’s director that hurt the agency’s case in court.`\
+https://www.nytimes.com/2026/09/30/us/politics/bureau-prisons-union-contract.html
+
 **Trump Plays Defense in Midterm Tour Across Republican Strongholds**\
 `Some deep-red areas are in need of a jolt.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-midterms-oklahoma-alabama-nebraska.html
