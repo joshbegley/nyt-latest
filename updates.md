@@ -1,3 +1,15 @@
+**Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
+`The Personal Consumption Expenditures price index showed little sign of easing in August.`\
+https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html
+
+**Donor Gives $3 Billion to Carnegie Mellon, the Largest University Gift Ever**\
+`The donation by Kenneth Griffin, intended mostly to help build a campus in Miami, was the biggest single gift in the history of U.S. higher education.`\
+https://www.nytimes.com/2026/09/30/us/3-billion-donation-carnegie-mellon-largest-university-gift.html
+
+**This Case Has Flown Under the Radar. It Won’t Stay There.**\
+`This case has flown under the radar, but it won’t stay there.`\
+https://www.nytimes.com/2026/09/30/opinion/supreme-court-john-roberts-religion.html
+
 **Can Trump Legally Demolish the Kennedy Center? Experts Say Not Easily.**\
 `The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
 https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html

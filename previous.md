@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
+`The Personal Consumption Expenditures price index showed little sign of easing in August.`\
+https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html
+
 **Why the Cornell Student Paper Published Names of Accused Men**\
 `Emma Goldberg, a reporter for The Times, tells Natalie Kitroeff, the host of “The Call,” about her coverage of the Cornell student newspaper and its decision to publish the names of seven men accused in a sexual assault case.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell-student-paper-published-names-of-accused-men.html
@@ -151,7 +155,7 @@ https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewa
 https://www.nytimes.com/2026/09/30/technology/william-draper-dead.html
 
 **Donor Gives $3 Billion to Carnegie Mellon, the Largest University Gift Ever**\
-`Kenneth C. Griffin, the hedge fund executive, pledged to give $3 billion, much of it to build a campus in Miami.`\
+`The donation by Kenneth Griffin, intended mostly to help build a campus in Miami, was the biggest single gift in the history of U.S. higher education.`\
 https://www.nytimes.com/2026/09/30/us/3-billion-donation-carnegie-mellon-largest-university-gift.html
 
 **Can Trump Demolish the Kennedy Center?**\
@@ -190,11 +194,7 @@ https://www.nytimes.com/video/us/100000011171004/milwaukee-couple-police-swattin
 `In “Artificial Intimacy,” Sherry Turkle warns that we seek comfort from A.I. devices at the peril of our well-being and even our democracy.`\
 https://www.nytimes.com/2026/09/30/books/review/artificial-intimacy-sherry-turkle.html
 
-**Religion Is the Roberts Court’s Unfinished Business**\
+**This Case Has Flown Under the Radar. It Won’t Stay There.**\
 `This case has flown under the radar, but it won’t stay there.`\
 https://www.nytimes.com/2026/09/30/opinion/supreme-court-john-roberts-religion.html
-
-**Book Review: ‘Seasons of Fury,’ by Rozina Ali**\
-`A new book by Rozina Ali traces the rise of anti-Islamic sentiment in the wake of 9/11, showing how ordinary residents became targets of fear and suspicion.`\
-https://www.nytimes.com/2026/09/30/books/review/seasons-of-fury-rozina-ali.html
 
