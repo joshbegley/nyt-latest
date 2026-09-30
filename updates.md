@@ -1,3 +1,11 @@
+**Hegseth Talks Tough as Republican Doubts About His Leadership Grow**\
+`Pete Hegseth has held onto his job by projecting a tough guy image, but his relationship with Republican lawmakers has never been worse.`\
+https://www.nytimes.com/2026/09/30/us/politics/hegseth-leadership-republican-doubts.html
+
+**Jonathan McKinsey’s In-Laws Charged With Murder in California Shooting**\
+`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer in the games department of The New York Times, near a park in Dublin, Calif.`\
+https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
+
 **Troy Jackson Apologizes for Generalizing Jewish Mainers’ Views on Gaza**\
 `Mr. Jackson, the Democratic nominee for Senate in Maine, had told an interviewer that some Jews in the state choose not to accuse the Israeli government of carrying out a genocide “only because” they were Jewish.`\
 https://www.nytimes.com/2026/09/30/us/troy-jackson-maine-senate-jews-gaza.html

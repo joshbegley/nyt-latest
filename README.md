@@ -1,3 +1,15 @@
+**In Speech, Hegseth Targets Diversity and Transgender People**\
+`In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people`\
+https://www.nytimes.com/video/us/politics/100000011186245/hegseth-speech-targets-diversity-transgender-people.html
+
+**What New York’s Rape Laws Mean for the Cornell Case**\
+`State law makes it harder to prosecute when victims drank willingly. The prosecutor in the Cornell case said that kept him from charging students accused of sexual assault.`\
+https://www.nytimes.com/2026/09/30/nyregion/cornell-new-york-rape-laws.html
+
+**Hundreds of Catholic Clerics Abused Children in Massachusetts, Report Says**\
+`An investigation by the state’s attorney general found decades of sex abuse of nearly 1,000 children over a century across three Massachusetts dioceses.`\
+https://www.nytimes.com/2026/09/30/us/catholic-priests-sexual-abuse-massachusetts.html
+
 **Hegseth Talks Tough as Republican Doubts About His Leadership Grow**\
 `Pete Hegseth has held onto his job by projecting a tough guy image, but his relationship with Republican lawmakers has never been worse.`\
 https://www.nytimes.com/2026/09/30/us/politics/hegseth-leadership-republican-doubts.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to
 **In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
 `In his “State of the Force” address, Defense Secretary Pete Hegseth focused on the culture war and accused reporters of “treason” over Iran war coverage.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
-
-**Butternut Squash Congee With Chile Oil**\
-`Congee comes in many textures and flavors and is eaten widely across East, South East and South Asia. This particular version is not traditional to any region or cuisine, but is a seasonal interpretation, incorporating butternut squash for a warming, earthy glow.`\
-https://www.nytimes.com/video/dining/100000011183364/butternut-squash-congee-with-chile-oil.html
-
-**Cabbage Caesar Salad**\
-`Substituting juicy, crunchy shredded cabbage for the usual romaine adds texture and sweetness to Caesar salad.`\
-https://www.nytimes.com/video/dining/100000011183261/cabbage-caesar-salad.html
-
-**Mango Basque Cheesecake**\
-`Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
-https://www.nytimes.com/video/dining/100000011182907/mango-basque-cheesecake.html
 

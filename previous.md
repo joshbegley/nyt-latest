@@ -1,3 +1,7 @@
+**Hegseth Talks Tough as Republican Doubts About His Leadership Grow**\
+`Pete Hegseth has held onto his job by projecting a tough guy image, but his relationship with Republican lawmakers has never been worse.`\
+https://www.nytimes.com/2026/09/30/us/politics/hegseth-leadership-republican-doubts.html
+
 **Troy Jackson Apologizes for Generalizing Jewish Mainers’ Views on Gaza**\
 `Mr. Jackson, the Democratic nominee for Senate in Maine, had told an interviewer that some Jews in the state choose not to accuse the Israeli government of carrying out a genocide “only because” they were Jewish.`\
 https://www.nytimes.com/2026/09/30/us/troy-jackson-maine-senate-jews-gaza.html
@@ -150,8 +154,8 @@ https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-wh
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
 
-**California Couple Charged With Murder in Shooting of Son-in-Law**\
-`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer who worked in the games department of The New York Times, near a park in Dublin, Calif.`\
+**Jonathan McKinsey’s In-Laws Charged With Murder in California Shooting**\
+`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer in the games department of The New York Times, near a park in Dublin, Calif.`\
 https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
 
 **Potato Pavé With Parmesan Crust**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/dining/100000011183261/cabbage-caesar-salad.html
 **Mango Basque Cheesecake**\
 `Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
 https://www.nytimes.com/video/dining/100000011182907/mango-basque-cheesecake.html
-
-**‘NAZA’ Review: Intimate Interviews About War’s Human Costs**\
-`The haunting documentary, by Yuval Abraham and Rachel Szor, interviews anonymous Israeli intelligence officers and soldiers as they recount their military actions in Gaza.`\
-https://www.nytimes.com/2026/09/30/movies/naza-review.html
 
