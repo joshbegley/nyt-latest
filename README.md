@@ -1,5 +1,5 @@
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
-`A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. Attorney General.`\
+`A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
 
 **Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
@@ -186,8 +186,8 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
-**Live Updates: Passengers Arrive in Israel After Cockpit Clash on FlyDubai Flight**\
-`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The motive for the attack was not clear.`\
+**Live Updates: Plane to Israel Narrowly Averts ‘Disaster’ After Pilot Stabbing**\
+`Prime Minister Benjamin Netanyahu said a passenger and a crew member broke into the cockpit and subdued the attacker. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
 **U.S. Withdraws Military From Iraq**\
