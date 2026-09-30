@@ -1,3 +1,11 @@
+**The Local: They Might Be Giants on playing 4 nights**\
+`Also, Lynx heartbreak and close encounters with Josh Hartnett.`\
+https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
+
+**No More Drugstore Head Shots: Passport Applications Go Digital**\
+`The process of getting a first U.S. passport will go fully online next year, said Secretary of State Marco Rubio, so if your picture is bad, it’ll be your fault.`\
+https://www.nytimes.com/2026/09/30/travel/passport-photos-digital-application.html
+
 **America Used to Be Cool. What Happened?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
@@ -90,7 +98,7 @@ https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-hold
 `The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
 https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
 
-**Flight to Israel Diverted After Cockpit Clash**\
+**Passengers Intervene After Pilot Stabbing on FlyDubai Flight to Israel**\
 `Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
 https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.h
 **Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
 `Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
 https://www.nytimes.com/2026/09/30/business/ai-epic-health-records-privacy.html
-
-**FlyDubai Flight to Israel Diverted After Clash Between Pilots: What We Know and Don’t Know**\
-`Prime Minister Benjamin Netanyahu of Israel said one pilot stabbed another and may have attempted to crash the flight from Dubai to Tel Aviv. The plane landed in Saudi Arabia and all passengers were safe.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-dubai-israel-flight-diverted.html
-
-**Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
-`Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
-https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
