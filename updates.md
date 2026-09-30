@@ -1,3 +1,7 @@
+**Could Taking the Pressure Off Grades Improve Students’ Mental Health?**\
+`The University of Michigan is introducing pass/fail grades for first-semester students to ease them into college life. Do you wish your school would do the same?`\
+https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades-improve-students-mental-health.html
+
 **Cornell’s Sexual Assault Case**\
 `We talk to a reporter on campus about what we know.`\
 https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
