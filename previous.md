@@ -1,3 +1,11 @@
+**America Used to Be Cool. What Happened?**\
+`The world order is changing. So is the United States’ place in it.`\
+https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
+
+**America Used to Be Cool. What Happened?**\
+`The world order is changing. So is the United States’ place in it.`\
+https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-what-happened.html
+
 **I Thought Things Had Gotten Better. The Cornell Case Breaks My Heart.**\
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/30/business/ai-epic-health-records-privacy.html
 **FlyDubai Flight to Israel Diverted After Clash Between Pilots: What We Know and Don’t Know**\
 `Prime Minister Benjamin Netanyahu of Israel said one pilot stabbed another and may have attempted to crash the flight from Dubai to Tel Aviv. The plane landed in Saudi Arabia and all passengers were safe.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-dubai-israel-flight-diverted.html
-
-**Court Pauses Execution of Christa Pike, Tennessee’s Lone Woman on Death Row**\
-`Christa Pike tortured and murdered a classmate in 1995. She had been set to die on Wednesday, the first woman executed in the state in 200 years.`\
-https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html
-
-**Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
-`In a small Idaho town, a young mother is accused of killing her young twins. She blames the childhood vaccines they received.`\
-https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\

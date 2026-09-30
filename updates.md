@@ -1,3 +1,11 @@
+**America Used to Be Cool. What Happened?**\
+`The world order is changing. So is the United States’ place in it.`\
+https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
+
+**America Used to Be Cool. What Happened?**\
+`The world order is changing. So is the United States’ place in it.`\
+https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-what-happened.html
+
 **I Thought Things Had Gotten Better. The Cornell Case Breaks My Heart.**\
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
