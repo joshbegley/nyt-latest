@@ -1,3 +1,7 @@
+**Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
+`Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Chi Phi Fraternity Says It Acted Quickly to Expel Cornell Members**\
 `The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
 https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html

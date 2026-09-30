@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/09/30/us/oakland-police-reform-federal-oversight.ht
 `The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
 
-**Live Updates: Plane to Israel Narrowly Averts ‘Disaster’ After Pilot Stabbing**\
+**Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
 
