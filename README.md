@@ -1,3 +1,7 @@
+**Cornell’s Sexual Assault Case**\
+`We talk to a reporter on campus about what we know.`\
+https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
+
 **DeepSeek and Huawei Target a Key Source of Nvidia’s A.I. Dominance**\
 `In China’s push for self-reliance in artificial intelligence, DeepSeek and Huawei have teamed up to develop software tools for advanced chips.`\
 https://www.nytimes.com/2026/09/30/business/china-ai-deepseek-huawei.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/books/review/the-bed-trick-izabella-scott.htm
 **New Cancer Drugs Are Revolutionary. Why Don’t More Patients Get Them?**\
 `Targeted gene therapies are highly effective at stopping cancers, but the very abundance of the treatments, plus cost and sluggish change, are hindering access.`\
 https://www.nytimes.com/2026/09/30/science/new-cancer-drugs-are-revolutionary-why-dont-more-patients-get-them.html
-
-**Patek Philippe To Put More Than 500 Timepieces on Display**\
-`The watch brand plans to show almost everything it makes during an exhibition this week in Milan.`\
-https://www.nytimes.com/2026/09/30/fashion/watches-patek-philippe-milan.html
 
