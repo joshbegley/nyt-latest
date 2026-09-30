@@ -1,3 +1,7 @@
+**Is American Culture Simply Bad Now?**\
+`American culture is not as globally dominant anymore. But what’s replacing it? On “The Opinions,” Euny Hong, an American expat and author, argues that multinational corporations now have more influence than cultural powerhouses like South Korea, Japan and the United States do.`\
+https://www.nytimes.com/video/opinion/100000011179562/is-american-culture-simply-bad-now.html
+
 **Exasperated by Delays, Congress Tries to Speed Up Energy Permitting**\
 `Republican and Democratic senators struck a deal to vote on the largest overhaul of federal energy and environmental rules in decades.`\
 https://www.nytimes.com/2026/09/30/climate/congress-energy-permitting-reform.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-hold
 **Chi Phi Says It Acted Quickly in 2024 to Expel Cornell Members Named in Sexual Assault Lawsuit**\
 `The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
 https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
-
-**Passengers Intervene After Pilot Stabbing on FlyDubai Flight to Israel**\
-`Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
-https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
 
