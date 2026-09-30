@@ -1,3 +1,11 @@
+**Kawhi-Gate, Part XVII**\
+`Pablo uncovers internal financials and government records as the scandal deepens.`\
+https://www.nytimes.com/2026/09/30/podcasts/clippers-ballmer-kawhi-gate-part-xvii.html
+
+**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
+`Nearly a century ago, John Maynard Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist brought him back to life — using A.I.`\
+https://www.nytimes.com/video/opinion/100000011156852/what-would-john-maynard-keynes-say-about-ai-the-keynes-bot-told-us.html
+
 **FlyDubai Flight to Tel Aviv Issues Distress Signal Before Landing in Saudi Arabia**\
 `The plane was traveling from Dubai to Israel when the pilot and co-pilot appear to have gotten into a fight, Israeli officials said.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-tel-aviv-israel-fz1073-diverted-pilots.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/09/29/opinion/trump-mideast-diplomacy-iran-ai.html
 **Justice Dept. Unlawfully Withheld Grants to Combat Domestic Violence, Judge Rules**\
 `Judge Melissa R. DuBose said the department had placed arbitrary conditions on grants created by the Violence Against Women Act.`\
 https://www.nytimes.com/2026/09/29/us/politics/grants-domestic-violence-trump-administration.html
-
-**The Latin American Right’s Big Bet**\
-`The Trump administration is exerting new levels of control over the region. What’s the next move?`\
-https://www.nytimes.com/2026/09/29/world/latin-america-brazil-election-trump-openai.html
-
-**Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
-`(No description)`\
-https://www.nytimes.com/live/2026/09/29/us/midterms-elections
 
