@@ -1,3 +1,7 @@
+**Democrats in Congress Embrace a More Punitive Posture Toward Israel**\
+`Nearly every Democratic senator voted to advance a measure calling for a human rights report on Israel’s conduct in the West Bank, as some in the party propose punishing settlement activity with sanctions.`\
+https://www.nytimes.com/2026/09/29/us/politics/democrats-congress-israel.html
+
 **Cornell’s Chi Phi Chapter Faces Scrutiny Over Assault Accusations**\
 `Chi Phi’s Cornell chapter was shuttered after a woman said its members sexually assaulted her. It was one of the oldest fraternities at the school, where Greek life has thrived.`\
 https://www.nytimes.com/2026/09/29/us/chi-phi-fraternity-scrutiny-cornell-accusations.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
 `Senator Eric Schmitt, a Republican, appeared to confuse basketball teams as he accused former special counsel Jack Smith of perjury at a Senate Judiciary Committee hearing on Tuesday.`\
 https://www.nytimes.com/video/us/politics/100000011181747/jack-smith-senate-hearing-eric-schmitt.html
 
-**Trump Launches Government Chatbot That Contradicts Some of His Claims**\
+**Trump Launches America.gov, an AI Chatbot That Contradicts Some of His Claims**\
 `Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
 https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/climate/nuclear-reactor-tennessee-valley-auth
 **Number of National Guard Troops in Washington D.C. Drops Below 3,000**\
 `The National Guard presence has dipped from a summertime high of more than 5,100 brought to the capital for July 4 celebrations.`\
 https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.html
-
-**Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
-`The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
-https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\

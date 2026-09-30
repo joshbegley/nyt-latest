@@ -1,3 +1,11 @@
+**Democrats in Congress Embrace a More Punitive Posture Toward Israel**\
+`Nearly every Democratic senator voted to advance a measure calling for a human rights report on Israel’s conduct in the West Bank, as some in the party propose punishing settlement activity with sanctions.`\
+https://www.nytimes.com/2026/09/29/us/politics/democrats-congress-israel.html
+
+**Trump Launches America.gov, an AI Chatbot That Contradicts Some of His Claims**\
+`Democrats amplified statements from America.gov that frequently contradict the president on tariffs, election fraud and other topics.`\
+https://www.nytimes.com/2026/09/29/us/politics/trump-ai-chatbot-america.html
+
 **Cornell’s Chi Phi Chapter Faces Scrutiny Over Assault Accusations**\
 `Chi Phi’s Cornell chapter was shuttered after a woman said its members sexually assaulted her. It was one of the oldest fraternities at the school, where Greek life has thrived.`\
 https://www.nytimes.com/2026/09/29/us/chi-phi-fraternity-scrutiny-cornell-accusations.html
