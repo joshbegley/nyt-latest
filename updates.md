@@ -1,3 +1,11 @@
+**Students at Cornell Divided Over Sexual Assault Investigation**\
+`In this episode of “The Call,” host Natalie Kitroeff calls the reporter Emma Goldberg, who’s on Cornell’s campus interviewing students as they grapple with the explosive news that prosecutors are reopening a 2024 sexual assault investigation into seven members of Cornell’s Chi Phi fraternity.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011184378/students-at-cornell-divided-over-sexual-assault-investigation.html
+
+**The Scientific Case for Being Less in Touch With Your Friends**\
+`Prioritize the contact that really makes a difference.`\
+https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
+
 **The Fallout at Cornell**\
 `Plus, the U.S. formally withdraws from Iraq.`\
 https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html

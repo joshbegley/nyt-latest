@@ -1,3 +1,7 @@
+**Students at Cornell Divided Over Sexual Assault Investigation**\
+`In this episode of “The Call,” host Natalie Kitroeff calls the reporter Emma Goldberg, who’s on Cornell’s campus interviewing students as they grapple with the explosive news that prosecutors are reopening a 2024 sexual assault investigation into seven members of Cornell’s Chi Phi fraternity.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011184378/students-at-cornell-divided-over-sexual-assault-investigation.html
+
 **The Fallout at Cornell**\
 `Plus, the U.S. formally withdraws from Iraq.`\
 https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 `This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
 https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 
+**The Scientific Case for Being Less in Touch With Your Friends**\
+`Prioritize the contact that really makes a difference.`\
+https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
+
 **Trump Wants Our A.I. Titans to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
-
-**The Scientific Case for Low-Frequency Friendships**\
-`Prioritize the contact that really makes a difference.`\
-https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 
 **Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
 `Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/dining/eric-ripert-buddhism-cooking.html
 **6 of the Best New Places to Eat in the South of France**\
 `The region’s ultra-fresh produce and high quality of life have drawn talented chefs from top restaurants in big cities to seek their own places in the sun.`\
 https://www.nytimes.com/2026/09/30/travel/south-france-new-restaurants.html
-
-**Which $2.6 Million House Would You Choose?**\
-`This week’s properties are in Pine Bush, N.Y..; Sedgwick, Maine; and Los Angeles.`\
-https://www.nytimes.com/2026/09/30/realestate/best-home-los-angeles-maine-pine-bush.html
 
