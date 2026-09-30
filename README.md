@@ -1,8 +1,12 @@
+**Hundreds Detained in France as Some Student Protests Turn Violent**\
+`Hundreds of people have been detained in France as some student protests turned violent. High schoolers across the country are frustrated by the state of the country’s education system.`\
+https://www.nytimes.com/video/world/europe/100000011185068/france-high-school-student-protests.html
+
 **The U.S. Departs Iraq**\
 `After two decades, American military forces formally withdrew from the battered nation. Our correspondent was there from the beginning.`\
 https://www.nytimes.com/2026/09/30/world/iraq-war-us-pilot-israel-flight.html
 
-**High Above Saudi Desert, a Bloody Attack in the Cockpit, and a Terrifying Plunge**\
+**Bloody Attack in the Cockpit of a Flight to Israel, and a Terrifying Plunge**\
 `“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-executio
 **UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
 `The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
 https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
-
-**Another Day of Pounding Rain Raises Flooding Fears in Texas**\
-`Texas had a dry summer, and rain on Wednesday could run off the arid ground like water on concrete.`\
-https://www.nytimes.com/2026/09/30/weather/texas-flood-rain-forecast.html
 
