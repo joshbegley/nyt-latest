@@ -1,3 +1,7 @@
+**Bracing for More Inflation Volatility**\
+`Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
+https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
+
 **Passenger Describes Chaos Aboard FlyDubai Flight**\
 `The passenger, Miriam Ohayon, said people on board felt the jet lose control and heard screams. “When they opened the cockpit, there was a lot of blood,” she told Israeli television.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-israel-plane-passenger.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/books/review/heavy-cream-sarah-blakley-cartwr
 **Word of the Day: cogitate**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/09/30/learning/word-of-the-day-cogitate.html
-
-**See How El Niño Is Washing Ashore in California**\
-`An enormous pulse of wave energy will soon reach the coast and continue north, raising sea levels by half a foot and increasing threats from swells and tides.`\
-https://www.nytimes.com/2026/09/30/climate/el-nino-storm-flooding-kelvin-waves.html
 
