@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘Close Your Eyes’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
+
+**Clues to Why a Breakthrough Pancreatic Cancer Drug Eventually Stops Working**\
+`Researchers are asking why patients, like former Senator Ben Sasse, inevitably develop resistance to the drug daraxonrasib.`\
+https://www.nytimes.com/2026/09/30/science/pancreatic-cancer-drug-daraxonrasib-ben-sasse-resistance.html
+
+**Democrats Block Stock-Trading Bill, Denying the G.O.P. a Pre-Midterm Win**\
+`A Republican measure to limit, but not bar, congressional stock trading faltered in the Senate as Democrats thwarted a G.O.P. bid to show progress on an issue that has rankled voters.`\
+https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bill.html
+
+**Is Taylor Swift in a Holding Pattern?**\
+`Taylor Swift recently released “The Life of a Showgirl: The Encore,” a four-song extension of her 2025 album. Our critic Jon Caramanica breaks down why he feels “Babylon” is the best track and how the project as a whole fits into her current era.`\
+https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-holding-pattern.html
+
 **Chi Phi Fraternity Says It Acted Quickly to Expel Cornell Members**\
 `The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
 https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
 **U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
 `Plus, the nepo babies take Fat Bear Week.`\
 https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
-
-**NYT Strands Hints for October 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
-https://www.nytimes.com/2026/09/30/crosswords/strands-sidekick-942.html
-
-**Today’s Wordle Hints for October 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
-https://www.nytimes.com/2026/09/30/crosswords/wordle-review-1930.html
-
-**Judge Ends Federal Oversight of Oakland Police After 23 Years**\
-`In ending the longest such monitoring in U.S. history, a federal court said the department had mostly complied with reforms mandated by a 2003 settlement after a police brutality lawsuit.`\
-https://www.nytimes.com/2026/09/30/us/oakland-police-reform-federal-oversight.html
-
-**American Forces Withdraw From Iraq 23 Years After Invading**\
-`The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\

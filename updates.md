@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘Close Your Eyes’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
+
+**Clues to Why a Breakthrough Pancreatic Cancer Drug Eventually Stops Working**\
+`Researchers are asking why patients, like former Senator Ben Sasse, inevitably develop resistance to the drug daraxonrasib.`\
+https://www.nytimes.com/2026/09/30/science/pancreatic-cancer-drug-daraxonrasib-ben-sasse-resistance.html
+
+**Democrats Block Stock-Trading Bill, Denying the G.O.P. a Pre-Midterm Win**\
+`A Republican measure to limit, but not bar, congressional stock trading faltered in the Senate as Democrats thwarted a G.O.P. bid to show progress on an issue that has rankled voters.`\
+https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bill.html
+
+**Is Taylor Swift in a Holding Pattern?**\
+`Taylor Swift recently released “The Life of a Showgirl: The Encore,” a four-song extension of her 2025 album. Our critic Jon Caramanica breaks down why he feels “Babylon” is the best track and how the project as a whole fits into her current era.`\
+https://www.nytimes.com/video/podcasts/100000011183423/is-taylor-swift-in-a-holding-pattern.html
+
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
