@@ -1,5 +1,5 @@
 **Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
-`A Town Divided Over Andrea Shaw`\
+`In a small Idaho town, a young mother is accused of killing her young twins. She blames the childhood vaccines they received.`\
 https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
 
 **Moth Swarms Sweep Across Australia. That’s Good News.**\
