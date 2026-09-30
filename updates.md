@@ -1,3 +1,7 @@
+**A Way Out of the A.I. Arms Race?**\
+`New research points to how the world could stop short of the brink of disaster. Even with the agreement signed at the White House by tech leaders, it won’t be easy.`\
+https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
+
 **American Forces Withdraw From Iraq 23 Years After Invading**\
 `The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
