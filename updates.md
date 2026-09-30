@@ -1,3 +1,7 @@
+**Live Updates: Flight to Israel Is Diverted After Pilots Clash in Cockpit**\
+`Passengers intervened after the pilot and co-pilot fought during a flight from Dubai to Tel Aviv, forcing the plane to make an emergency landing in Saudi Arabia. It was not clear what had prompted the clash.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Live Updates: Passengers Intervene After Clash in Cockpit on Israel-Bound Flight**\
 `The pilot and co-pilot of a flight from Dubai to Tel Aviv were hospitalized with injuries after the plane made an emergency landing in Saudi Arabia, Saudi officials said. The episode raised fears of a hijacking, though it was not immediately clear what had prompted the clash.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
