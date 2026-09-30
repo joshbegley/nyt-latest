@@ -1,3 +1,7 @@
+**After Mayoral Loss, Andrew Cuomo Buys $10 Million Hamptons Home**\
+`The former New York governor bought a compound on the South Shore of Long Island in June that includes a nine-bedroom main house, a guesthouse and a tennis court.`\
+https://www.nytimes.com/2026/09/30/nyregion/andrew-cuomo-hamptons-house.html
+
 **Tiny Love Stories: ‘Close Your Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data
 **NYT Connections Answers for October 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
 https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
-
-**U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
-`Plus, the nepo babies take Fat Bear Week.`\
-https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
