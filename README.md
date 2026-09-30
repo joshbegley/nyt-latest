@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Weather Data**\
+`What do you notice when you compare the weather of 1978 with that of 2015?`\
+https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-weather-data.html
+
 **Review: Anthony Vaccarello’s Maybe Last Saint Laurent Show**\
 `Anthony Vaccarello’s likely last show was a golden summation of his tenure.`\
 https://www.nytimes.com/2026/09/30/style/saint-laurent-anthony-vaccarello-final-show.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/world/latin-america-brazil-election-trump-ope
 **Morocco’s King Names a Female Prime Minister, in a Historic First**\
 `Fatima Ezzahra El Mansouri, a lawyer and politician from the centrist Authenticity and Modernity Party, is only the second woman to lead the government of a North African country.`\
 https://www.nytimes.com/2026/09/29/world/middleeast/morocco-first-woman-prime-minister.html
-
-**Book Review: ‘American Hagwon,’ by Min Jin Lee**\
-`The beloved author’s follow-up to “Pachinko” features a cram school that dares to promote students’ well-being over academic striving.`\
-https://www.nytimes.com/2026/09/29/books/review/american-hagwon-min-jin-lee.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
