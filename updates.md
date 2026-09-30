@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 30, 2026**\
+`Joel Woodford offers solvers a chance to speak up.`\
+https://www.nytimes.com/2026/09/29/crosswords/daily-puzzle-2026-09-30.html
+
 **Voice of America Cuts Hurt ‘U.S. National Interests,’ Internal Watchdog Says**\
 `The assessment by the State Department’s inspector general echoes concerns raised by critics of the move to shutter V.O.A., including some Republicans in Congress.`\
 https://www.nytimes.com/2026/09/29/us/politics/voice-of-america-report.html
