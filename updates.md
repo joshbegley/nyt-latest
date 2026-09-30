@@ -1,3 +1,15 @@
+**States That Ban Abortion Challenge Shield Laws for Providers Who Mail Pills**\
+`The lawsuit filed by Louisiana, Alabama and Arkansas to the Supreme Court escalates the battle between states that outlaw abortion and those that support nationwide access by mail.`\
+https://www.nytimes.com/2026/09/30/us/abortion-ban-shield-laws-supreme-court.html
+
+**Is Anything Provocative Anymore?**\
+`Searching for the subversive, surprising and even shocking in fashion.`\
+https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
+
+**Ask a Journalist: How to Craft Short Narratives**\
+`Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
+https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
+
 **Court Pauses Tennessee Woman’s Death Row Execution**\
 `A court paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in Tennessee in 200 years.`\
 https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html

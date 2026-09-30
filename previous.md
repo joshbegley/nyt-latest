@@ -1,3 +1,15 @@
+**States That Ban Abortion Challenge Shield Laws for Providers Who Mail Pills**\
+`The lawsuit filed by Louisiana, Alabama and Arkansas to the Supreme Court escalates the battle between states that outlaw abortion and those that support nationwide access by mail.`\
+https://www.nytimes.com/2026/09/30/us/abortion-ban-shield-laws-supreme-court.html
+
+**Is Anything Provocative Anymore?**\
+`Searching for the subversive, surprising and even shocking in fashion.`\
+https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
+
+**Ask a Journalist: How to Craft Short Narratives**\
+`Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
+https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
+
 **Hegseth Summons Troops for a ‘State of the Force’ Address**\
 `The gathering comes as the defense secretary is facing precarious times as the public face of the Trump administration’s unpopular war against Iran.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-d
 **My Sister-in-Law Schedules Events Without Clearing the Dates With Us. Help!**\
 `A reader sees her husband’s sister’s go-it-alone approach to planning parties as a “power move,” leaving her fuming and scrambling to change plans.`\
 https://www.nytimes.com/2026/09/30/style/planning-schedule-coordination-inconsideration.html
-
-**Fed’s Preferred Inflation Gauge Points to Continued Price Pressures**\
-`The Personal Consumption Expenditures price index showed little sign of easing in August, though revised data showed inflation had been slightly cooler than previously believed.`\
-https://www.nytimes.com/2026/09/30/business/pce-inflation-fed-interest-rates.html
-
-**Why the Cornell Student Paper Published Names of Accused Men**\
-`Emma Goldberg, a reporter for The Times, tells Natalie Kitroeff, the host of “The Call,” about her coverage of the Cornell student newspaper and its decision to publish the names of seven men accused in a sexual assault case.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell-student-paper-published-names-of-accused-men.html
-
-**Becerra and Hilton to Face Off in Televised California Governor Debate**\
-`Xavier Becerra, a Democrat who served in the Biden administration, will debate Steve Hilton, a Republican former talk show host, in what’s likely to be their only face-off before the election.`\
-https://www.nytimes.com/2026/09/30/us/california-governor-race-debate-becerra-hilton.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
