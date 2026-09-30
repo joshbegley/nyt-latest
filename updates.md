@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Choi-wan**\
+`See the likely path and wind arrival times for Choi-wan`\
+https://www.nytimes.com/interactive/2026/09/30/weather/choi-wan-map-path-tracker.html
+
 **While Surging to Records, Stocks Experience Some ‘Wobbles’**\
 `Beneath the S&P 500’s 2 percent gain in the third quarter, the rise in oil prices and bond yields led some investors to become more cautious about the outlook for A.I. profits.`\
 https://www.nytimes.com/2026/09/30/business/stocks-sp500-oil-bonds.html
