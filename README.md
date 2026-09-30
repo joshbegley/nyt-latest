@@ -1,3 +1,7 @@
+**Jimmy Fallon Pokes Fun at America’s New A.I. Chatbot**\
+`“Yeah, everyone’s afraid of A.I., and nobody trusts the federal government, so Trump was like, ‘Let’s combine them,’” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/09/30/arts/television/jimmy-fallon-trump-america-ai-chatbot.html
+
 **Los Angeles Mayoral Candidates Vie for Undecided Voters**\
 `Mayor Karen Bass and her onetime ally, Nithya Raman, made their case to voters with just five weeks left until the election.`\
 https://www.nytimes.com/2026/09/30/us/politics/los-angeles-mayor-bass-raman.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/nyregion/nyc-second-home-tax-lawsuit.html
 **Trump Launches A.I.-Powered Government Website**\
 `President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
 https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
-
-**Supreme Court Allows Trump Administration’s Third-Country Deportations, for Now**\
-`The court also announced it would hear arguments in December on the legality of the Trump administration policy to swiftly deport immigrants to countries not their own.`\
-https://www.nytimes.com/2026/09/29/us/politics/supreme-court-deportations-third-country.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
