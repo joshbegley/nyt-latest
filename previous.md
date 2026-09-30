@@ -1,5 +1,5 @@
 **In Speech, Hegseth Targets Diversity and Transgender People**\
-`In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people`\
+`In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people.`\
 https://www.nytimes.com/video/us/politics/100000011186245/hegseth-speech-targets-diversity-transgender-people.html
 
 **What New York’s Rape Laws Mean for the Cornell Case**\
