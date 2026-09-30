@@ -1,3 +1,15 @@
+**Hundreds Detained in France as Some Student Protests Turn Violent**\
+`Hundreds of people have been detained in France as some student protests turned violent. High schoolers across the country are frustrated by the state of the country’s education system.`\
+https://www.nytimes.com/video/world/europe/100000011185068/france-high-school-student-protests.html
+
+**The U.S. Departs Iraq**\
+`After two decades, American military forces formally withdrew from the battered nation. Our correspondent was there from the beginning.`\
+https://www.nytimes.com/2026/09/30/world/iraq-war-us-pilot-israel-flight.html
+
+**Bloody Attack in the Cockpit of a Flight to Israel, and a Terrifying Plunge**\
+`“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
+
 **High Above Saudi Desert, a Bloody Attack in the Cockpit, and a Terrifying Plunge**\
 `“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
