@@ -1,4 +1,12 @@
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
+`A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
+https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
+
+**Live Updates: Plane to Israel Narrowly Averts ‘Disaster’ After Pilot Stabbing**\
+`Prime Minister Benjamin Netanyahu said a passenger and a crew member broke into the cockpit and subdued the attacker. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
+**Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
 `A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. Attorney General.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
 
