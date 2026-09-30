@@ -1,3 +1,11 @@
+**Walking Through the Chaos on Canal Street as NYC Plans Its Redesign**\
+`Famous for sidewalk merchants and street traffic, Canal has long been a rumble-tumble corridor of commerce and creativity. The city wants to make it safer.`\
+https://www.nytimes.com/interactive/2026/09/30/nyregion/canal-street-redesign-nyc-traffic.html
+
+**Trump Dangles Alaska Gas Project as Part of Korean Investment Package**\
+`The long-delayed project, which the developer has not yet formally greenlit, would deliver Alaskan gas to Asian markets but take several years to construct.`\
+https://www.nytimes.com/2026/09/30/business/economy/alaska-lng-south-korea-trump.html
+
 **Mattel Chief Named Co-CEO of Combined Paramount and Warner Bros.**\
 `Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
 https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html
@@ -155,7 +163,7 @@ https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
 https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
 
 **In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
-`The defense secretary returned to culture war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
+`The defense secretary returned to culture-war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
 
 **Butternut Squash Congee With Chile Oil**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/09/30/us/politics/judge-trump-memo-boat-strikes.htm
 **Kristi Noem Files for Divorce From Bryon Noem After 34 Years of Marriage**\
 `Ms. Noem, a former homeland security secretary and governor of South Dakota, filed court papers there seeking to end her marriage to Bryon Noem, an insurance salesman.`\
 https://www.nytimes.com/2026/09/30/us/kristi-noem-divorce-byron-husband.html
-
-**Andrew Cuomo Buys $10 Million Hamptons Home After Mayoral Loss**\
-`The former New York governor bought a compound on the South Shore of Long Island in June that includes a nine-bedroom main house, a guesthouse and a tennis court.`\
-https://www.nytimes.com/2026/09/30/nyregion/andrew-cuomo-hamptons-house.html
-
-**Tiny Love Stories: ‘Close Your Eyes’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
 

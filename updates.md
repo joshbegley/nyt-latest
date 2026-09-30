@@ -1,3 +1,15 @@
+**Walking Through the Chaos on Canal Street as NYC Plans Its Redesign**\
+`Famous for sidewalk merchants and street traffic, Canal has long been a rumble-tumble corridor of commerce and creativity. The city wants to make it safer.`\
+https://www.nytimes.com/interactive/2026/09/30/nyregion/canal-street-redesign-nyc-traffic.html
+
+**Trump Dangles Alaska Gas Project as Part of Korean Investment Package**\
+`The long-delayed project, which the developer has not yet formally greenlit, would deliver Alaskan gas to Asian markets but take several years to construct.`\
+https://www.nytimes.com/2026/09/30/business/economy/alaska-lng-south-korea-trump.html
+
+**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
+`The defense secretary returned to culture-war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
+https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
+
 **Mattel Chief Named Co-CEO of Combined Paramount and Warner Bros.**\
 `Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
 https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html
