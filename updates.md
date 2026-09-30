@@ -1,3 +1,7 @@
+**Live Updates: Pilot May Have Attempted to Crash Flight to Israel, Netanyahu Says**\
+`Passengers intervened and “prevented a disaster” after one pilot stabbed another during a flight from Dubai, Prime Minister Benjamin Netanyahu said. The plane landed safely in Saudi Arabia. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Court Pauses Execution of Christa Pike, Tennessee’s Lone Woman on Death Row**\
 `Christa Pike tortured and murdered a classmate in 1995. She had been set to die on Wednesday, the first woman executed in the state in 200 years.`\
 https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html

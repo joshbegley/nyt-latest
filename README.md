@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/09/30/travel/south-france-new-restaurants.html
 `This week’s properties are in Pine Bush, N.Y..; Sedgwick, Maine; and Los Angeles.`\
 https://www.nytimes.com/2026/09/30/realestate/best-home-los-angeles-maine-pine-bush.html
 
-**So You Want to Publish a Newspaper**\
+**Five Generations, One Newspaper**\
 `How on earth did The New York Times, a seemingly ossified institution in a dying industry, survive the most destabilizing period in its history — and emerge stronger?`\
 https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewardship.html
 
