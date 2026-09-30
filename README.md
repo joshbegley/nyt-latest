@@ -1,3 +1,7 @@
+**Could Taking the Pressure Off Grades Improve Students’ Mental Health?**\
+`The University of Michigan is introducing pass/fail grades for first-semester students to ease them into college life. Do you wish your school would do the same?`\
+https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades-improve-students-mental-health.html
+
 **Cornell’s Sexual Assault Case**\
 `We talk to a reporter on campus about what we know.`\
 https://www.nytimes.com/2026/09/30/briefing/cornells-sexual-assault-case.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/climate/el-nino-storm-flooding-kelvin-waves.h
 **Book Review: ‘The Bed Trick,’ by Izabella Scott**\
 `“The Bed Trick” details an extraordinary sexual deception case involving a “bamboozling plot,” “two implausible stories” and a world where no one behaves reasonably.`\
 https://www.nytimes.com/2026/09/30/books/review/the-bed-trick-izabella-scott.html
-
-**New Cancer Drugs Are Revolutionary. Why Don’t More Patients Get Them?**\
-`Targeted gene therapies are highly effective at stopping cancers, but the very abundance of the treatments, plus cost and sluggish change, are hindering access.`\
-https://www.nytimes.com/2026/09/30/science/new-cancer-drugs-are-revolutionary-why-dont-more-patients-get-them.html
 
