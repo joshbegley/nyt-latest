@@ -1,3 +1,7 @@
+**Live Updates: Passengers Intervene After Clash in Cockpit on Israel-Bound Flight**\
+`The pilot and co-pilot of a flight from Dubai to Tel Aviv were hospitalized with injuries after the plane made an emergency landing in Saudi Arabia, Saudi officials said. The episode raised fears of a hijacking, though it was not immediately clear what had prompted the clash.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Could Taking the Pressure Off Grades Improve Students’ Mental Health?**\
 `The University of Michigan is introducing pass/fail grades for first-semester students to ease them into college life. Do you wish your school would do the same?`\
 https://www.nytimes.com/2026/09/30/learning/could-taking-the-pressure-off-grades-improve-students-mental-health.html

@@ -42,6 +42,10 @@ https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.htm
 `Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
 
+**Live Updates: Passengers Intervene After Clash in Cockpit on Israel-Bound Flight**\
+`The pilot and co-pilot of a flight from Dubai to Tel Aviv were hospitalized with injuries after the plane made an emergency landing in Saudi Arabia, Saudi officials said. The episode raised fears of a hijacking, though it was not immediately clear what had prompted the clash.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **U.S. Withdraws Military From Iraq**\
 `The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
 https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/learning/word-of-the-day-cogitate.html
 **See How El Niño Is Washing Ashore in California**\
 `An enormous pulse of wave energy will soon reach the coast and continue north, raising sea levels by half a foot and increasing threats from swells and tides.`\
 https://www.nytimes.com/2026/09/30/climate/el-nino-storm-flooding-kelvin-waves.html
-
-**Book Review: ‘The Bed Trick,’ by Izabella Scott**\
-`“The Bed Trick” details an extraordinary sexual deception case involving a “bamboozling plot,” “two implausible stories” and a world where no one behaves reasonably.`\
-https://www.nytimes.com/2026/09/30/books/review/the-bed-trick-izabella-scott.html
 
