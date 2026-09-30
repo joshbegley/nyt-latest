@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/09/30/travel/national-park-fees-nonresident-trump.h
 https://www.nytimes.com/2026/09/30/arts/television/ted-lasso-season-4-episode-9-recap.html
 
 **A Way Out of the A.I. Arms Race?**\
-`New research points to how the world could stop short of the brink of disaster. But it won’t be easy.`\
+`New research points to how the world could stop short of the brink of disaster. Even with the agreement signed at the White House by tech leaders, it won’t be easy.`\
 https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
 
 **Corrections: Sept. 30, 2026**\

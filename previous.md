@@ -1,3 +1,15 @@
+**American Forces Withdraw From Iraq 23 Years After Invading**\
+`The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
+
+**After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future**\
+`Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
+
+**U.S. Withdraws Military From Iraq**\
+`The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
+https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
+
 **Trump Wants to Get His Hands on the Power of the Purse**\
 `The search for fraud in the federal government must always end in the same place.`\
 https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/09/30/arts/xbox-microsoft-asha-sharma.html
 **How Meta Uses A.I. Data Centers to Avoid Billions in Federal Taxes**\
 `Meta is exploiting a lucrative tax break intended to support research and experimentation. Its own accountants say the gambit is risky.`\
 https://www.nytimes.com/2026/09/30/technology/meta-ai-data-centers-taxes.html
-
-**Hispanic Voters on the Texas Border Have Soured on Trump**\
-`In 2024, these voters were an essential part of the winning Republican coalition. Now, many feel abandoned and furious, complicating the party’s chances in November.`\
-https://www.nytimes.com/2026/09/30/us/politics/texas-border-trump-voters.html
-
-**On Breakroom Chronicles, Safeway Workers Serve Nostalgia During Their Lunch Break**\
-`The viral social media account Breakroom Chronicles, created by two Safeway employees who lip-sync ’80s and ’90s pop favorites, is bringing campy joy to millions.`\
-https://www.nytimes.com/2026/09/30/style/breakroom-chronicles-lipsync-lunchladies-instagram.html
-
-**More American Communities Attempt to Regulate Rooster Crows**\
-`In Vermont, a single bird set off a feud over what, exactly, constitutes farm country, mirroring a battle dividing communities across America.`\
-https://www.nytimes.com/2026/09/30/realestate/rooster-noise-ordinances-rural-america.html
 

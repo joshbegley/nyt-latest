@@ -1,3 +1,15 @@
+**American Forces Withdraw From Iraq 23 Years After Invading**\
+`The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
+
+**After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future**\
+`Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
+
+**U.S. Withdraws Military From Iraq**\
+`The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
+https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
+
 **Trump Wants to Get His Hands on the Power of the Purse**\
 `The search for fraud in the federal government must always end in the same place.`\
 https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
