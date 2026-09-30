@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/09/30/nyregion/pedicabs-theater-district-noise.html
 `Streaming services can introduce you to a wonderland of nearly unlimited audio, but downloading your digital collection has advantages.`\
 https://www.nytimes.com/2026/09/30/technology/personaltech/how-to-listen-to-your-favorite-music-online-or-off-the-grid.html
 
-**Can President Trump Demolish the Kennedy Center? Experts Say Not Easily.**\
+**Can Trump Legally Demolish the Kennedy Center? Experts Say Not Easily.**\
 `The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
 https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html
 

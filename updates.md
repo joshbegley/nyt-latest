@@ -1,3 +1,7 @@
+**Can Trump Legally Demolish the Kennedy Center? Experts Say Not Easily.**\
+`The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
+https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html
+
 **Why the Cornell Student Paper Published Names of Accused Men**\
 `Emma Goldberg, a reporter for The Times, tells Natalie Kitroeff, the host of “The Call,” about her coverage of the Cornell student newspaper and its decision to publish the names of seven men accused in a sexual assault case.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011184334/why-the-cornell-student-paper-published-names-of-accused-men.html
