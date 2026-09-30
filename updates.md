@@ -1,3 +1,11 @@
+**Quote of the Day: OpenAI Failed to Heed Alerts About Security**\
+`Quotation of the Day for Wednesday, September 30, 2026.`\
+https://www.nytimes.com/2026/09/30/pageoneplus/quote-of-the-day-openai-failed-to-heed-alerts-about-security.html
+
+**On This Day, Sept. 30: British and French leaders signed the Munich Agreement.**\
+`In 1938, British and French leaders signed the Munich Agreement, allowing Nazi Germany to annex the Sudetenland area of Czechoslovakia. The accord is held up as a prime example of the dangers of appeasement.`\
+https://www.nytimes.com/2026/09/30/learning/on-this-day-sept-30.html
+
 **Former Music Pastor Is Convicted of His Wife’s Murder**\
 `The trial in Ohio attracted outsize attention because the defendant, Caleb Flynn, auditioned on “American Idol” in 2013.`\
 https://www.nytimes.com/2026/09/29/us/caleb-flynn-verdict-murder-wife.html
