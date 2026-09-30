@@ -1,3 +1,7 @@
+**Judge Ends Federal Oversight of Oakland Police After 23 Years**\
+`In ending the longest such monitoring in U.S. history, a federal court said the department had mostly complied with reforms mandated by a 2003 settlement after a police brutality lawsuit.`\
+https://www.nytimes.com/2026/09/30/us/oakland-police-reform-federal-oversight.html
+
 **American Forces Withdraw From Iraq 23 Years After Invading**\
 `The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/fashion/watches-timex.html
 **Xbox’s Millennial C.E.O., Asha Sharma, Isn’t Playing Around**\
 `“I think the industry will require disruption,” said Asha Sharma, who has overseen layoffs and divested studios since inheriting Microsoft’s flailing video game division.`\
 https://www.nytimes.com/2026/09/30/arts/xbox-microsoft-asha-sharma.html
-
-**How Meta Uses A.I. Data Centers to Avoid Billions in Federal Taxes**\
-`Meta is exploiting a lucrative tax break intended to support research and experimentation. Its own accountants say the gambit is risky.`\
-https://www.nytimes.com/2026/09/30/technology/meta-ai-data-centers-taxes.html
 
