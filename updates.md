@@ -1,3 +1,7 @@
+**Bracing for More Inflation Volatility**\
+`Consumers, business owners and investors are growing increasingly concerned about rising inflation, and its potential repercussions.`\
+https://www.nytimes.com/2026/09/30/business/dealbook/inflation-pce-interest-rates.html
+
 **Passenger Describes Chaos Aboard FlyDubai Flight**\
 `The passenger, Miriam Ohayon, said people on board felt the jet lose control and heard screams. “When they opened the cockpit, there was a lot of blood,” she told Israeli television.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-israel-plane-passenger.html
