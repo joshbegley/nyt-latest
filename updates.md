@@ -1,3 +1,7 @@
+**Jimmy Fallon Pokes Fun at America’s New A.I. Chatbot**\
+`“Yeah, everyone’s afraid of A.I., and nobody trusts the federal government, so Trump was like, ‘Let’s combine them,’” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/09/30/arts/television/jimmy-fallon-trump-america-ai-chatbot.html
+
 **Los Angeles Mayoral Candidates Vie for Undecided Voters**\
 `Mayor Karen Bass and her onetime ally, Nithya Raman, made their case to voters with just five weeks left until the election.`\
 https://www.nytimes.com/2026/09/30/us/politics/los-angeles-mayor-bass-raman.html
