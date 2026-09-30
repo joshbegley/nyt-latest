@@ -1,3 +1,7 @@
+**Bessent Settled Tax Issue That Had Put Him at Odds With I.R.S.**\
+`The Treasury Secretary had previously taken a position on his taxes that contradicted the views of the tax agency that he now oversees.`\
+https://www.nytimes.com/2026/09/30/business/bessent-settled-tax-issue-that-had-put-him-at-odds-with-irs.html
+
 **Mattel Chief Named Co-C.E.O. of Combined Paramount and Warner Bros.**\
 `Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
 https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html

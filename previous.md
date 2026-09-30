@@ -1,3 +1,7 @@
+**Bessent Settled Tax Issue That Had Put Him at Odds With I.R.S.**\
+`The Treasury Secretary had previously taken a position on his taxes that contradicted the views of the tax agency that he now oversees.`\
+https://www.nytimes.com/2026/09/30/business/bessent-settled-tax-issue-that-had-put-him-at-odds-with-irs.html
+
 **Walking Through the Chaos on Canal Street as NYC Plans Its Redesign**\
 `Famous for sidewalk merchants and street traffic, Canal has long been a rumble-tumble corridor of commerce and creativity. The city wants to make it safer.`\
 https://www.nytimes.com/interactive/2026/09/30/nyregion/canal-street-redesign-nyc-traffic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/us/politics/immigrants-medicaid-trump-bill.ht
 **Judge Questions Secrecy Around Trump Administration’s Memo on Boat Strikes**\
 `The judge also ordered the Justice Department to privately show the court the contested document, which blesses the disputed killings at sea.`\
 https://www.nytimes.com/2026/09/30/us/politics/judge-trump-memo-boat-strikes.html
-
-**Kristi Noem Files for Divorce From Bryon Noem After 34 Years of Marriage**\
-`Ms. Noem, a former homeland security secretary and governor of South Dakota, filed court papers there seeking to end her marriage to Bryon Noem, an insurance salesman.`\
-https://www.nytimes.com/2026/09/30/us/kristi-noem-divorce-byron-husband.html
 
