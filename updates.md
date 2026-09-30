@@ -1,3 +1,11 @@
+**I Thought Things Had Gotten Better. The Cornell Case Breaks My Heart.**\
+`How could so little have changed?`\
+https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
+
+**California Couple Charged With Murder in Shooting of Son-in-Law**\
+`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer who worked in the games department of The New York Times, near a park in Dublin, Calif.`\
+https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
+
 **Potato Pavé With Parmesan Crust**\
 `While typically found on restaurant menus, potato pavé is perfectly doable at home with a little patience and effort.`\
 https://www.nytimes.com/video/dining/100000011183384/potato-pave-with-parmesan-crust.html
