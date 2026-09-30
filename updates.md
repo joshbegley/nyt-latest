@@ -1,3 +1,11 @@
+**Voice of America Cuts Hurt ‘U.S. National Interests,’ Internal Watchdog Says**\
+`The assessment by the State Department’s inspector general echoes concerns raised by critics of the move to shutter V.O.A., including some Republicans in Congress.`\
+https://www.nytimes.com/2026/09/29/us/politics/voice-of-america-report.html
+
+**D.A. in Cornell Case Hopes to Speak to Accuser as He Weighs New Evidence**\
+`District Attorney Matthew Van Houten said a woman’s report to police in 2024 saying she had been raped at a fraternity did not support a criminal case. But he said he is now reaching out to her.`\
+https://www.nytimes.com/2026/09/29/nyregion/van-houten-cornell-district-attorney.html
+
 **Air Force Major Recommended for General Court-Martial After Protesting Trump**\
 `The recommendations are not binding, but it is rare for them to be ignored in the military justice system.`\
 https://www.nytimes.com/2026/09/29/us/politics/air-force-major-court-martial-trump.html
