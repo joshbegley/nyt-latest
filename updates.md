@@ -1,3 +1,7 @@
+**OpenAI’s Greg Brockman Backs Out of Second $25 Million Donation to A.I. Super PAC**\
+`Greg Brockman, OpenAI’s president and co-founder, said internally that the super PAC, Leading the Future, had become a “distraction” for the A.I. company.`\
+https://www.nytimes.com/2026/09/30/technology/openai-brockman-super-pac-leading-the-future.html
+
 **A Bloody Attack on a FlyDubai Plane Headed to Israel, and a Terrifying Plunge**\
 `“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html

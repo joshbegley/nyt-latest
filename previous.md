@@ -1,3 +1,7 @@
+**OpenAI’s Greg Brockman Backs Out of Second $25 Million Donation to A.I. Super PAC**\
+`Greg Brockman, OpenAI’s president and co-founder, said internally that the super PAC, Leading the Future, had become a “distraction” for the A.I. company.`\
+https://www.nytimes.com/2026/09/30/technology/openai-brockman-super-pac-leading-the-future.html
+
 **Hundreds Detained in France as Some Student Protests Turn Violent**\
 `Hundreds of people have been detained in France as some student protests turned violent. High schoolers across the country are frustrated by the state of the country’s education system.`\
 https://www.nytimes.com/video/world/europe/100000011185068/france-high-school-student-protests.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
 **Court Pauses Tennessee Woman’s Death Row Execution**\
 `A court paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in Tennessee in 200 years.`\
 https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
-
-**UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
-`The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
-https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
 
