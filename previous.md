@@ -1,3 +1,7 @@
+**Chaos at Jack Smith’s Senate Hearing**\
+`Readers respond to the high and low points of the Jack Smith Senate hearing. Also: reporters who made history; an ode to Pluto.`\
+https://www.nytimes.com/2026/09/30/opinion/jack-smith-senate-hearing.html
+
 **The Local: They Might Be Giants on playing 4 nights**\
 `Also, Lynx heartbreak and close encounters with Josh Hartnett.`\
 https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 **Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
-
-**Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
-`Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\
-https://www.nytimes.com/2026/09/30/business/ai-epic-health-records-privacy.html
 

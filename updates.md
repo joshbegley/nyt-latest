@@ -1,3 +1,7 @@
+**Chaos at Jack Smith’s Senate Hearing**\
+`Readers respond to the high and low points of the Jack Smith Senate hearing. Also: reporters who made history; an ode to Pluto.`\
+https://www.nytimes.com/2026/09/30/opinion/jack-smith-senate-hearing.html
+
 **The Local: They Might Be Giants on playing 4 nights**\
 `Also, Lynx heartbreak and close encounters with Josh Hartnett.`\
 https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
