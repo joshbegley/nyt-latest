@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
 
 **Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
-`Senate Democrats were expected on Wednesday to block a measure that would encourage, but not require, states to protect consumers from power rate hikes as a result of data center growth.`\
+`Senate Democrats blocked a measure that would encourage, but not require, states to protect consumers from power rate hikes tied to data center growth, and had no limits on A.I. use or deployment.`\
 https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
 
 **Court Pauses Tennessee Woman’s Death Row Execution**\
@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 `This month’s picks feature an unfinished opera, an excavation of Chilean history and teen environmental sleuths.`\
 https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 
-**The Scientific Case for Being Less in Touch With Your Friends**\
-`Prioritize the contact that really makes a difference.`\
-https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
-
 **Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
+
+**The Scientific Case for Being Less in Touch With Your Friends**\
+`Prioritize the contact that really makes a difference.`\
+https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 
 **Medical Records Firm Uses AI Tool to Expose Flaws that Threaten Patient Privacy**\
 `Epic’s engineers deployed an Anthropic tool that exposed security risks that could allow undetected access to millions of patient records.`\

@@ -1,3 +1,7 @@
+**Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
+`Senate Democrats blocked a measure that would encourage, but not require, states to protect consumers from power rate hikes tied to data center growth, and had no limits on A.I. use or deployment.`\
+https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
+
 **Hegseth Summons Troops for a ‘State of the Force’ Address**\
 `The gathering comes as the defense secretary is facing precarious times as the public face of the Trump administration’s unpopular war against Iran.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
