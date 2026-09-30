@@ -1,3 +1,11 @@
+**Senator Marsha Blackburn Sues Over Jack Smith’s Subpoena During Trump Inquiry**\
+`The lawsuit, brought by Senator Marsha Blackburn of Tennessee, tests the reach of the Constitution’s “speech or debate” clause.`\
+https://www.nytimes.com/2026/09/30/us/politics/jack-smith-lawsuit-trump-blackburn.html
+
+**Driver Strikes 4 People Outside a Mall in British Columbia, Killing 2, Police Say**\
+`The accident occurred as hundreds of people were gathering nearby for a National Day of Truth and Reconciliation march near Delta, a city south of Vancouver, the authorities said.`\
+https://www.nytimes.com/2026/09/30/world/canada/british-columbia-crash-medical-emergency.html
+
 **OpenAI’s Greg Brockman Backs Out of Second $25 Million Donation to A.I. Super PAC**\
 `Greg Brockman, OpenAI’s president and co-founder, said internally that the super PAC, Leading the Future, had become a “distraction” for the A.I. company.`\
 https://www.nytimes.com/2026/09/30/technology/openai-brockman-super-pac-leading-the-future.html
