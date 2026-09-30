@@ -1,3 +1,7 @@
+**Cornell’s Chi Phi Chapter Faces Scrutiny Over Assault Accusations**\
+`Chi Phi’s Cornell chapter was shuttered after a woman said its members sexually assaulted her. It was one of the oldest fraternities at the school, where Greek life has thrived.`\
+https://www.nytimes.com/2026/09/29/us/chi-phi-fraternity-scrutiny-cornell-accusations.html
+
 **A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
 `The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
 https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
