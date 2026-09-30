@@ -1,3 +1,7 @@
+**Cornell Students Question Greek Life Culture After Sexual Assault Claim**\
+`With their university under fire in the wake of a sexual assault lawsuit, students are having difficult conversations about Greek life, campus rituals and the possibility for lasting changes.`\
+https://www.nytimes.com/2026/09/30/nyregion/cornell-university-students-jane-doe-case.html
+
 **In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
 `The defense secretary returned to culture war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html

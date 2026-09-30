@@ -1,3 +1,7 @@
+**Cornell Students Question Greek Life Culture After Sexual Assault Claim**\
+`With their university under fire in the wake of a sexual assault lawsuit, students are having difficult conversations about Greek life, campus rituals and the possibility for lasting changes.`\
+https://www.nytimes.com/2026/09/30/nyregion/cornell-university-students-jane-doe-case.html
+
 **Federal Judge Orders Bureau of Prisons to Restore Union Protections**\
 `In his ruling, Judge Vernon D. Oliver cited public statements from the bureau’s director that hurt the agency’s case in court.`\
 https://www.nytimes.com/2026/09/30/us/politics/bureau-prisons-union-contract.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eye
 **Clues to Why a Breakthrough Pancreatic Cancer Drug Eventually Stops Working**\
 `Researchers are asking why patients, like former Senator Ben Sasse, inevitably develop resistance to the drug daraxonrasib.`\
 https://www.nytimes.com/2026/09/30/science/pancreatic-cancer-drug-daraxonrasib-ben-sasse-resistance.html
-
-**Democrats Block Stock-Trading Bill, Denying the G.O.P. a Pre-Midterm Win**\
-`A Republican measure to limit, but not bar, congressional stock trading faltered in the Senate as Democrats thwarted a G.O.P. bid to show progress on an issue that has rankled voters.`\
-https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bill.html
 
