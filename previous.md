@@ -1,10 +1,22 @@
+**Chi Phi Fraternity Says It Acted Quickly to Expel Cornell Members**\
+`The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
+https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
+
+**Flight to Israel Diverted After Cockpit Clash**\
+`Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
+https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Alone together, Keanu’s joy division and how to silence the doubt`\
+https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
+
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
 `A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
 
 **Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
 `Senate Democrats were expected on Wednesday to block a measure that would encourage, but not require, states to protect consumers from power rate hikes as a result of data center growth.`\
-https://www.nytimes.com/2026/09/30/us/politics/congress-set-to-leave-washington-for-the-midterms-with-no-ai-progress.html
+https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
 
 **Court Pauses Tennessee Woman’s Death Row Execution**\
 `Tennessee paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in the state in 200 years.`\
@@ -38,7 +50,7 @@ https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation
 `A routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
 
-**A Viper That Caused Alarm in California Was A.I.-Generated**\
+**Viper Image That Caused Alarm in California Was A.I.-Generated**\
 `A Gaboon viper, a venomous snake native to equatorial regions of Africa, was supposedly photographed in a tree in Santa Ana, Calif. How could that be? Well, it turns out it wasn’t.`\
 https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
 
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/09/30/us/oakland-police-reform-federal-oversight.ht
 `The Americans did not understand the country when they invaded in 2003. Over a correspondent’s many trips there, it was not clear that this ever changed much.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html
 
-**After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future**\
-`Some Iraqis are celebrating the end of an American military presence that unleashed waves of bloodshed. Others fear what happens next for their country, trapped between Washington and Tehran.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html
-
 **Live Updates: Plane to Israel Narrowly Averts ‘Disaster’ After Pilot Stabbing**\
-`Prime Minister Benjamin Netanyahu said a passenger and a crew member broke into the cockpit and subdued the attacker. The motive for the attack was not clear.`\
+`Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
 https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
-
-**U.S. Withdraws Military From Iraq**\
-`The United States formally withdrew from Iraq on Wednesday after two decades of troubled military presence.`\
-https://www.nytimes.com/video/world/middleeast/100000011183845/us-iraq-troops-withdrawal.html
-
-**Trump Wants to Get His Hands on the Power of the Purse**\
-`The search for fraud in the federal government must always end in the same place.`\
-https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
 

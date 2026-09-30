@@ -1,3 +1,27 @@
+**Chi Phi Fraternity Says It Acted Quickly to Expel Cornell Members**\
+`The national organization of the Chi Phi fraternity at the center of a Cornell University sexual assault lawsuit explained publicly for the first time how it handled the episode.`\
+https://www.nytimes.com/2026/09/30/us/cornell-university-7-chi-phi.html
+
+**Flight to Israel Diverted After Cockpit Clash**\
+`Passengers intervened after a clash broke out in the cockpit of a flight to Tel Aviv from Dubai, forcing the plane to make an emergency landing in Saudi Arabia, according to accounts from those on board.`\
+https://www.nytimes.com/video/world/middleeast/100000011184318/flydubai-flight-tel-aviv-emergency-landing.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Alone together, Keanu’s joy division and how to silence the doubt`\
+https://www.nytimes.com/2026/09/30/briefing/30-the-good-list-keanu-stowaway.html
+
+**Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
+`Senate Democrats were expected on Wednesday to block a measure that would encourage, but not require, states to protect consumers from power rate hikes as a result of data center growth.`\
+https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
+
+**Viper Image That Caused Alarm in California Was A.I.-Generated**\
+`A Gaboon viper, a venomous snake native to equatorial regions of Africa, was supposedly photographed in a tree in Santa Ana, Calif. How could that be? Well, it turns out it wasn’t.`\
+https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
+
+**Live Updates: Plane to Israel Narrowly Averts ‘Disaster’ After Pilot Stabbing**\
+`Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
+https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots
+
 **Fed’s Watchdog Finds No Misconduct or Illegal Activity in Costly Renovations**\
 `A new report by the Federal Reserve’s independent inspector general concluded that a nearly $2.5 billion construction project was poorly managed but made no referrals to the U.S. attorney general.`\
 https://www.nytimes.com/2026/09/30/business/fed-renovations-trump-powell-report.html
