@@ -1,3 +1,23 @@
+**Inside the Devastating Hack of the F.B.I.**\
+`The theft, which hackers said involved a vast trove of personal data, is emerging as one of the worst breaches of sensitive government information.`\
+https://www.nytimes.com/2026/09/30/podcasts/the-daily/fbi-hack-shinyhunters-data.html
+
+**U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
+`Plus, the nepo babies take Fat Bear Week.`\
+https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
+
+**NYT Connections Answers for October 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
+https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
+
+**NYT Strands Hints for October 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
+https://www.nytimes.com/2026/09/30/crosswords/strands-sidekick-942.html
+
+**Today’s Wordle Hints for October 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
+https://www.nytimes.com/2026/09/30/crosswords/wordle-review-1930.html
+
 **Judge Ends Federal Oversight of Oakland Police After 23 Years**\
 `In ending the longest such monitoring in U.S. history, a federal court said the department had mostly complied with reforms mandated by a 2003 settlement after a police brutality lawsuit.`\
 https://www.nytimes.com/2026/09/30/us/oakland-police-reform-federal-oversight.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/09/30/fashion/watches-patek-philippe-milan.html
 **As Violence Falls, Crime Isn’t Paying as a Republican Line of Attack**\
 `Across the country, especially in the North Carolina Senate race, Republicans have charged opponents with being soft on crime, even as President Trump brags over plunging crime rates.`\
 https://www.nytimes.com/2026/09/30/us/politics/crime-midterm-elections-north-carolina.html
-
-**Yapping Her Way to Stardom**\
-`Ivy Wolk can be kind of a lot. If you lived her life, you might be too.`\
-https://www.nytimes.com/2026/09/30/style/ivy-wolk-broadway-debut.html
-
-**‘What Adorns Men’ to Be Displayed at a German Museum**\
-`‘What Adorns Men’ is the subject of an exhibition opening in Stuttgart, Germany.`\
-https://www.nytimes.com/2026/09/30/fashion/watches-exhibition-stuttgart-germany.html
-
-**Jennifer Archibald Is Bringing Fresh Moves to New York City Ballet**\
-`Jennifer Archibald creates ballets for the generations who grew up on hip-hop and electronic dance music. She makes her New York City Ballet debut at the fashion gala.`\
-https://www.nytimes.com/2026/09/30/arts/dance/new-york-city-ballet-fashion-gala-jennifer-archibald.html
-
-**Timex Goes Upmarket**\
-`The heritage American brand has been selling mechanical watches with four-figure prices.`\
-https://www.nytimes.com/2026/09/30/fashion/watches-timex.html
-
-**Xbox’s Millennial C.E.O., Asha Sharma, Isn’t Playing Around**\
-`“I think the industry will require disruption,” said Asha Sharma, who has overseen layoffs and divested studios since inheriting Microsoft’s flailing video game division.`\
-https://www.nytimes.com/2026/09/30/arts/xbox-microsoft-asha-sharma.html
 
