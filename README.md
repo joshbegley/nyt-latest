@@ -1,3 +1,7 @@
+**Google Wants Hollywood to Stop Being So Afraid of Technology**\
+`100 Zeros, a collaboration between Google and Range Media Partners, aims to give the tech giant a foothold in movies, TV and emerging forms of entertainment.`\
+https://www.nytimes.com/2026/09/30/business/media/google-hollywood-krya-sedgwick.html
+
 **Calder Sculpture ‘Mountains and Clouds’ Is Restored in Senate Office**\
 `The effort to reunite two halves of Alexander Calder’s monumental “Mountains and Clouds” hit many snags, until donors and legislators from both parties stepped in.`\
 https://www.nytimes.com/2026/09/30/arts/design/calder-mountains-clouds-restoration-senate-building.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/technology/personaltech/how-to-listen-to-your
 **Can Trump Legally Demolish the Kennedy Center? Experts Say Not Easily.**\
 `The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
 https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html
-
-**Eric Ripert Says Buddhism Can Make You a Better (and Happier) Cook**\
-`A new cookbook from the acclaimed Le Bernardin chef calls for mindfulness and gratitude in the kitchen — lessons he learned from a South Korean nun.`\
-https://www.nytimes.com/2026/09/30/dining/eric-ripert-buddhism-cooking.html
 
