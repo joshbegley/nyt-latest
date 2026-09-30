@@ -1,3 +1,19 @@
+**The Most Disturbing 2000s Reality Show Doesn’t Seem So Crazy Anymore**\
+`Erin Lee Carr’s new documentary revisits the 2004 makeover show “The Swan,” which gave 32 women extensive plastic surgery and anticipated where beauty culture was headed.`\
+https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documentary.html
+
+**Salah Sarsour, Islamic Leader in Wisconsin, Can Be Deported, Judge Rules**\
+`Salah Sarsour, a vocal supporter of Palestinian rights who leads the state’s largest Islamic group, says the case is politically motivated and plans to appeal the decision.`\
+https://www.nytimes.com/2026/09/30/us/salah-sarsour-deportation-wisconsin.html
+
+**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
+`Nearly a century ago, John Maynard Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist brought him back to life — using A.I.`\
+https://www.nytimes.com/video/opinion/100000011186040/what-would-john-maynard-keynes-say-about-ai-the-keynes-bot-told-us.html
+
+**Google Releases a New Flagship A.I. Model, With Limits**\
+`For safety reasons, Gemini 4 Argon will initially be available only to some companies and organizations focused on cybersecurity defense before it is more widely released, Google said.`\
+https://www.nytimes.com/2026/09/30/technology/google-releases-a-new-flagship-ai-model-with-limits.html
+
 **Can Xbox Make a Comeback?**\
 `For a decade, Microsoft’s Xbox has placed third in the console wars. Now, as our reporter Zachary Small explains, Microsoft is placing its faith in a new C.E.O., Asha Sharma, an A.I. executive with no prior gaming experience. Can the shakeup help Xbox make a comeback?`\
 https://www.nytimes.com/video/arts/100000011173098/can-xbox-make-a-comeback.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/opinion/100000011156856/what-would-john-maynard-ke
 **Film Club: ‘The Frontier of Algorithmic Fashion’**\
 `How is A.I. reshaping the fashion world? Is it for better — or for worse?`\
 https://www.nytimes.com/2026/09/30/learning/film-club-the-frontier-of-algorithmic-fashion.html
-
-**Eiffel Tower Chief Resigns After Female Staff Moved for Hindu Group’s Visit**\
-`Patrick Branco Ruivo, who ran the tower’s operating company, will step down after an internal inquiry cited “problems and shortcomings” over the moving of female employees.`\
-https://www.nytimes.com/2026/09/30/world/europe/eiffel-tower-director-resigns.html
-
-**Google Wants Hollywood to Stop Being So Afraid of Technology**\
-`100 Zeros, a collaboration between Google and Range Media Partners, aims to give the tech giant a foothold in movies, TV and emerging forms of entertainment.`\
-https://www.nytimes.com/2026/09/30/business/media/google-hollywood-krya-sedgwick.html
-
-**Calder Sculpture ‘Mountains and Clouds’ Is Restored in Senate Office**\
-`The effort to reunite two halves of Alexander Calder’s monumental “Mountains and Clouds” hit many snags, until donors and legislators from both parties stepped in.`\
-https://www.nytimes.com/2026/09/30/arts/design/calder-mountains-clouds-restoration-senate-building.html
-
-**Students at Cornell Divided Over Sexual Assault Investigation**\
-`In this episode of “The Call,” host Natalie Kitroeff calls the reporter Emma Goldberg, who’s on Cornell’s campus interviewing students as they grapple with the explosive news that prosecutors are reopening a 2024 sexual assault investigation into seven members of Cornell’s Chi Phi fraternity.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011184378/students-at-cornell-divided-over-sexual-assault-investigation.html
 

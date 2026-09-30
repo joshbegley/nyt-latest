@@ -1,3 +1,7 @@
+**Can Xbox Make a Comeback?**\
+`For a decade, Microsoft’s Xbox has placed third in the console wars. Now, as our reporter Zachary Small explains, Microsoft is placing its faith in a new C.E.O., Asha Sharma, an A.I. executive with no prior gaming experience. Can the shakeup help Xbox make a comeback?`\
+https://www.nytimes.com/video/arts/100000011173098/can-xbox-make-a-comeback.html
+
 **Bruno Kramm, German Goth Musician Who Moonlighted in Politics, Dies at 58**\
 `When he wasn’t playing with the groundbreaking dark-wave band Das Ich, he was a prominent figure in his country’s fight for online free speech and digital privacy rights.`\
 https://www.nytimes.com/2026/09/30/arts/music/bruno-kramm-dead.html

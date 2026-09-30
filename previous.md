@@ -1,3 +1,7 @@
+**Can Xbox Make a Comeback?**\
+`For a decade, Microsoft’s Xbox has placed third in the console wars. Now, as our reporter Zachary Small explains, Microsoft is placing its faith in a new C.E.O., Asha Sharma, an A.I. executive with no prior gaming experience. Can the shakeup help Xbox make a comeback?`\
+https://www.nytimes.com/video/arts/100000011173098/can-xbox-make-a-comeback.html
+
 **Bruno Kramm, German Goth Musician Who Moonlighted in Politics, Dies at 58**\
 `When he wasn’t playing with the groundbreaking dark-wave band Das Ich, he was a prominent figure in his country’s fight for online free speech and digital privacy rights.`\
 https://www.nytimes.com/2026/09/30/arts/music/bruno-kramm-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/arts/design/calder-mountains-clouds-restorati
 **Students at Cornell Divided Over Sexual Assault Investigation**\
 `In this episode of “The Call,” host Natalie Kitroeff calls the reporter Emma Goldberg, who’s on Cornell’s campus interviewing students as they grapple with the explosive news that prosecutors are reopening a 2024 sexual assault investigation into seven members of Cornell’s Chi Phi fraternity.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011184378/students-at-cornell-divided-over-sexual-assault-investigation.html
-
-**The Fallout at Cornell**\
-`Plus, the U.S. formally withdraws from Iraq.`\
-https://www.nytimes.com/2026/09/30/briefing/the-fallout-at-cornell.html
 
