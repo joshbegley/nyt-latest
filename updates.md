@@ -1,3 +1,11 @@
+**While Surging to Records, Stocks Experience Some ‘Wobbles’**\
+`Beneath the S&P 500’s 2 percent gain in the third quarter, the rise in oil prices and bond yields led some investors to become more cautious about the outlook for A.I. profits.`\
+https://www.nytimes.com/2026/09/30/business/stocks-sp500-oil-bonds.html
+
+**Google Releases New Gemini Model With Guardrails Amid A.I. Safety Debate**\
+`For safety reasons, Gemini 4 Argon will initially be available only to some companies and organizations focused on cybersecurity defense before it is more widely released, Google said.`\
+https://www.nytimes.com/2026/09/30/technology/google-gemini-4-argon-ai-safety.html
+
 **Trump’s Voluntary A.I. Policing Echoes What Biden Did. But Is It Enough Today?**\
 `President Trump’s plan to let A.I. companies police themselves comes amid mounting examples that they are failing to put safeguards on the technology.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
