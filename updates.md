@@ -1,3 +1,7 @@
+**Who Attended Trump’s AI Luncheon, and Who Sat Where**\
+`A seating chart of the meeting illustrated growing divisions within the artificial intelligence industry and how it is viewed by the White House.`\
+https://www.nytimes.com/2026/09/29/us/politics/trump-ai-luncheon-guests-ceos.html
+
 **Settlers Block a Palestinian Family From Returning to Their Home**\
 `More than 100 Israeli settlers attacked and set fire to houses when the Israeli military tried to return the Toubassis, a Palestinian family, to their home in the West Bank village of Jalud on Monday.`\
 https://www.nytimes.com/video/world/middleeast/100000011183083/israel-settlers-west-bank-palestinian-family.html
