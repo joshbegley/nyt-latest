@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Close Your Eyes’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
+
+**Clues to Why a Breakthrough Pancreatic Cancer Drug Eventually Stops Working**\
+`Researchers are asking why patients, like former Senator Ben Sasse, inevitably develop resistance to the drug daraxonrasib.`\
+https://www.nytimes.com/2026/09/30/science/pancreatic-cancer-drug-daraxonrasib-ben-sasse-resistance.html
+
 **Democrats Block Stock-Trading Bill, Denying the G.O.P. a Pre-Midterm Win**\
 `A Republican measure to limit, but not bar, congressional stock trading faltered in the Senate as Democrats thwarted a G.O.P. bid to show progress on an issue that has rankled voters.`\
 https://www.nytimes.com/2026/09/30/us/politics/democrats-block-stock-trading-bill.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/30/crosswords/connections-companion-1208.html
 **U.S. Withdraws From Iraq After Two Decades, and Trump Tells A.I. Giants to Police Themselves**\
 `Plus, the nepo babies take Fat Bear Week.`\
 https://www.nytimes.com/2026/09/30/podcasts/the-headlines/us-iraq-trump-ai.html
-
-**NYT Strands Hints for October 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
-https://www.nytimes.com/2026/09/30/crosswords/strands-sidekick-942.html
-
-**Today’s Wordle Hints for October 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 1, 2026.`\
-https://www.nytimes.com/2026/09/30/crosswords/wordle-review-1930.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
