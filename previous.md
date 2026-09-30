@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight
 https://www.nytimes.com/2026/09/30/us/santa-ana-viper-snake-ai-fake.html
 
 **E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
-`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that it said discriminated against white men.`\
+`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that the agency said discriminated against white men.`\
 https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
 
 **What Would John Maynard Keynes Say About A.I.?**\

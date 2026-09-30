@@ -1,3 +1,7 @@
+**E.E.O.C. Sues Harvard for Data on Diversity in Hiring Practices**\
+`The Equal Employment Opportunity Commission filed a lawsuit asking a judge to compel the university to provide information on hiring practices that the agency said discriminated against white men.`\
+https://www.nytimes.com/2026/09/30/business/economy/harvard-eeoc-diversity-hiring.html
+
 **Tiny Love Stories: ‘Close Your Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/09/30/style/tiny-modern-love-stories-close-your-eyes.html
