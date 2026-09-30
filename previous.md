@@ -1,3 +1,7 @@
+**UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
+`The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
+https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
+
 **Another Day of Pounding Rain Raises Flooding Fears in Texas**\
 `Texas had a dry summer, and rain on Wednesday could run off the arid ground like water on concrete.`\
 https://www.nytimes.com/2026/09/30/weather/texas-flood-rain-forecast.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/world/europe/leo-france-pope-macron.html
 **Tour Company Sues to Undo Trump’s Nonresident Fees at National Parks**\
 `An Arizona guide service challenged rules that force foreigners to pay a $100 surcharge to visit 11 national parks, saying that only Congress can change pricing.`\
 https://www.nytimes.com/2026/09/30/travel/national-park-fees-nonresident-trump.html
-
-**‘Ted Lasso’ Season 4, Episode 9 Recap: The Circle of Life**\
-`A promotion, a loss and news of an impending arrival.`\
-https://www.nytimes.com/2026/09/30/arts/television/ted-lasso-season-4-episode-9-recap.html
 

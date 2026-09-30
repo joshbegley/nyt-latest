@@ -1,3 +1,7 @@
+**UK Believes Iran Played a Part in RAF Fairford Air Base Incident, Burnham Says**\
+`The British prime minister, Andy Burnham, said there were “strong indications” Iran played a part in the events at R.A.F. Fairford on Sunday, without providing details why.`\
+https://www.nytimes.com/2026/09/30/world/europe/uk-iran-raf-fairford-burnham.html
+
 **Another Day of Pounding Rain Raises Flooding Fears in Texas**\
 `Texas had a dry summer, and rain on Wednesday could run off the arid ground like water on concrete.`\
 https://www.nytimes.com/2026/09/30/weather/texas-flood-rain-forecast.html

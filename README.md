@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.h
 `I have never felt the delight that some people show around children.`\
 https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
 
-**This is the Winner of Alaska’s Fat Bear Week**\
+**Backpack is the Winner of Alaska’s Fat Bear Week**\
 `89 Backpack, an adult male brown bear known for his gentle nature, was crowned the winner of Katmai National Park and Preserve’s Fat Bear Week.`\
 https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.html
 
@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/09/30/movies/documentaries-streaming.html
 `Prioritize the contact that really makes a difference.`\
 https://www.nytimes.com/2026/09/30/opinion/friendship-frequency-interaction.html
 
-**Trump Wants Our A.I. Titans to Police Themselves. What Can Go Wrong?**\
+**Trump Wants A.I. Companies to Police Themselves. What Can Go Wrong?**\
 `Government enforcers have the laws and the experience to control A.I.`\
 https://www.nytimes.com/2026/09/30/opinion/ai-anthropic-amodei-self-regulation.html
 
