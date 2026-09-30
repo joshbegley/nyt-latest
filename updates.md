@@ -1,3 +1,7 @@
+**Passengers Describe Panic and Heroics After Cockpit Stabbing**\
+`What began as a routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
+
 **Do I Have to Tell My Partner I’m Not Sure I’ll Ever Want Kids?**\
 `I have never felt the delight that some people show around children.`\
 https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html

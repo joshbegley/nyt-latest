@@ -1,3 +1,7 @@
+**Hundreds Detained in France as Some Student Protests Turn Violent**\
+`French high schoolers are protesting teacher shortages and overcrowded classrooms, in France’s latest flare-up over education and public services.`\
+https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.html
+
 **Do I Have to Tell My Partner I’m Not Sure I’ll Ever Want Kids?**\
 `I have never felt the delight that some people show around children.`\
 https://www.nytimes.com/2026/09/30/magazine/partner-dont-want-kids-ethics.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/video/style/100000011184167/fat-bear-week-winner-alaska.
 `The agency will examine whether A.I. labs have broken federal laws prohibiting companies from unfair and deceptive practices.`\
 https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation.html
 
-**Passengers Describe Panic and Heroics After Cockpit Stabbing**\
-`What began as a routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
+**Panic and Heroics on FlyDubai Flight: ‘We Felt That This Was It’**\
+`A routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
 
 **A Viper That Caused Alarm in California Was A.I.-Generated**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/arts/television/ted-lasso-season-4-episode-9-
 **A Way Out of the A.I. Arms Race?**\
 `New research points to how the world could stop short of the brink of disaster. Even with the agreement signed at the White House by tech leaders, it won’t be easy.`\
 https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
-
-**Corrections: Sept. 30, 2026**\
-`Corrections that appeared in print on Wednesday, Sept. 30, 2026.`\
-https://www.nytimes.com/2026/09/30/pageoneplus/corrections-sept-30-2026.html
 
