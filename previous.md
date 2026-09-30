@@ -1,3 +1,11 @@
+**Potato Pavé With Parmesan Crust**\
+`While typically found on restaurant menus, potato pavé is perfectly doable at home with a little patience and effort.`\
+https://www.nytimes.com/video/dining/100000011183384/potato-pave-with-parmesan-crust.html
+
+**Tahini Krispie Chocolate Bars**\
+`These sweet and salty bars are a low-effort, high-reward treat that upgrades your average Rice Krispies treat.`\
+https://www.nytimes.com/video/dining/100000011183403/tahini-krispie-chocolate-bars.html
+
 **States That Ban Abortion Challenge Shield Laws for Providers Who Mail Pills**\
 `The lawsuit filed by Louisiana, Alabama and Arkansas to the Supreme Court escalates the battle between states that outlaw abortion and those that support nationwide access by mail.`\
 https://www.nytimes.com/2026/09/30/us/abortion-ban-shield-laws-supreme-court.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html
 **Endangered Bogong Moths Swarm Southeastern Australia**\
 `Thousands of bogong moth sightings have been reported in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
 https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
-
-**Condé Nast C.E.O. Leaves to Run Mattel**\
-`Roger Lynch, who has led the publisher for more than seven years, will become the chief executive of the toy company, he said Wednesday.`\
-https://www.nytimes.com/2026/09/30/business/media/conde-nast-roger-lynch-steps-down.html
-
-**My Sister-in-Law Schedules Events Without Clearing the Dates With Us. Help!**\
-`A reader sees her husband’s sister’s go-it-alone approach to planning parties as a “power move,” leaving her fuming and scrambling to change plans.`\
-https://www.nytimes.com/2026/09/30/style/planning-schedule-coordination-inconsideration.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\

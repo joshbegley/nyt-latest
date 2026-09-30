@@ -1,3 +1,11 @@
+**I Thought Things Had Gotten Better. The Cornell Case Breaks My Heart.**\
+`How could so little have changed?`\
+https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
+
+**California Couple Charged With Murder in Shooting of Son-in-Law**\
+`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer who worked in the games department of The New York Times, near a park in Dublin, Calif.`\
+https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
+
 **Potato Pavé With Parmesan Crust**\
 `While typically found on restaurant menus, potato pavé is perfectly doable at home with a little patience and effort.`\
 https://www.nytimes.com/video/dining/100000011183384/potato-pave-with-parmesan-crust.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html
 **Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
 `In a small Idaho town, a young mother is accused of killing her young twins. She blames the childhood vaccines they received.`\
 https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
-
-**Moth Swarms Sweep Across Australia. That’s Good News.**\
-`Bogong moths have been in decline since the 1980s, but this spring the insects have been sighted in the thousands across southeastern Australia, delighting scientists.`\
-https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html
-
-**Endangered Bogong Moths Swarm Southeastern Australia**\
-`Thousands of bogong moth sightings have been reported in Australia this year as the insects migrate across the country’s southeast. Their population has risen after droughts reduced their numbers by about 99.5 percent several years ago.`\
-https://www.nytimes.com/video/world/australia/100000011184174/bogong-moth-australia-endangered.html
 
 **Live Updates: Plane to Israel Narrowly Averts Disaster After Pilot Stabbing**\
 `Passengers said that they broke into the cockpit and subdued the attacker, who Israeli officials said was one of the pilots. The motive for the attack was not clear.`\
