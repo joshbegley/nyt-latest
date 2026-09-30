@@ -1,3 +1,7 @@
+**Court Pauses Tennessee Woman’s Death Row Execution**\
+`A court paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in Tennessee in 200 years.`\
+https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
+
 **Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
 `Senate Democrats blocked a measure that would encourage, but not require, states to protect consumers from power rate hikes tied to data center growth, and had no limits on A.I. use or deployment.`\
 https://www.nytimes.com/2026/09/30/us/politics/congress-ai-safety.html
