@@ -1,3 +1,7 @@
+**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
+`The defense secretary returned to culture war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
+https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
+
 **Federal Judge Orders Bureau of Prisons to Restore Union Protections**\
 `In his ruling, Judge Vernon D. Oliver cited public statements from the bureau’s director that hurt the agency’s case in court.`\
 https://www.nytimes.com/2026/09/30/us/politics/bureau-prisons-union-contract.html

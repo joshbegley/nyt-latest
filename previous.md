@@ -146,8 +146,8 @@ https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
 `Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
 https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
 
-**Hegseth Summons Troops for a ‘State of the Force’ Address**\
-`The gathering comes as the defense secretary is facing precarious times as the public face of the Trump administration’s unpopular war against Iran.`\
+**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
+`The defense secretary returned to culture war themes and used coarse and offensive terms to describe people he believes have no place in the military.`\
 https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
 
 **Butternut Squash Congee With Chile Oil**\
