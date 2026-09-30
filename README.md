@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Sept. 30, 2026**\
+`Joel Woodford offers solvers a chance to speak up.`\
+https://www.nytimes.com/2026/09/29/crosswords/daily-puzzle-2026-09-30.html
+
 **Voice of America Cuts Hurt ‘U.S. National Interests,’ Internal Watchdog Says**\
 `The assessment by the State Department’s inspector general echoes concerns raised by critics of the move to shutter V.O.A., including some Republicans in Congress.`\
 https://www.nytimes.com/2026/09/29/us/politics/voice-of-america-report.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/09/29/us/mary-peltola-alaska-boat.html
 **Turkish Confectioner Hands Out Doughnuts to Honor the Dead**\
 `In Turkey, People who have recently lost loved ones hire doughnut makers to hand out fried dough balls, known as lokma, to honor the dead and spread their blessings.`\
 https://www.nytimes.com/video/world/asia/100000011182398/turkey-doughnuts-lokma-honor-dead.html
-
-**Ukrainian Science Academy, Struck by Drone, Played Key Role in Research**\
-`Over 90 percent of Ukraine’s scientific discoveries have been attributed to Ukraine’s National Academy of Sciences, including advancements in astronomy and military technology.`\
-https://www.nytimes.com/2026/09/29/science/ukraine-science-academy-russia-attack.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
