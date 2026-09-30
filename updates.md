@@ -1,3 +1,11 @@
+**Hundreds Detained in France as Some Student Protests Turn Violent**\
+`French high schoolers are protesting teacher shortages and overcrowded classrooms, in France’s latest flare-up over education and public services.`\
+https://www.nytimes.com/2026/09/30/world/europe/france-student-protest-arrests.html
+
+**Panic and Heroics on FlyDubai Flight: ‘We Felt That This Was It’**\
+`A routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
+
 **Passengers Describe Panic and Heroics After Cockpit Stabbing**\
 `What began as a routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes. Passengers subdued a knife-wielding attacker.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
