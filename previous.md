@@ -1,3 +1,99 @@
+**Trump Wants to Get His Hands on the Power of the Purse**\
+`The search for fraud in the federal government must always end in the same place.`\
+https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
+
+**‘Attention Infidelity’ Is Ruining Romance**\
+`Your full attention is a gift. Give it more often.`\
+https://www.nytimes.com/2026/09/30/opinion/attention-infidelity-ruin-romance.html
+
+**In Fractious France, Politicians Agree on One Thing: Pope Leo Was a Hit**\
+`In a four-day visit, Pope Leo XIV won praise across the political spectrum, even from its most avowedly secular figures.`\
+https://www.nytimes.com/2026/09/30/world/europe/leo-france-pope-macron.html
+
+**Tour Company Sues to Undo Trump’s Nonresident Fees at National Parks**\
+`An Arizona guide service challenged rules that force foreigners to pay a $100 surcharge to visit 11 national parks, saying that only Congress can change pricing.`\
+https://www.nytimes.com/2026/09/30/travel/national-park-fees-nonresident-trump.html
+
+**‘Ted Lasso’ Season 4, Episode 9 Recap: The Circle of Life**\
+`A promotion, a loss and news of an impending arrival.`\
+https://www.nytimes.com/2026/09/30/arts/television/ted-lasso-season-4-episode-9-recap.html
+
+**A Way Out of the A.I. Arms Race?**\
+`New research points to how the world could stop short of the brink of disaster. But it won’t be easy.`\
+https://www.nytimes.com/2026/09/30/world/europe/ai-arms-race.html
+
+**Corrections: Sept. 30, 2026**\
+`Corrections that appeared in print on Wednesday, Sept. 30, 2026.`\
+https://www.nytimes.com/2026/09/30/pageoneplus/corrections-sept-30-2026.html
+
+**Trump’s New Tariffs Face a Familiar Court Challenge**\
+`For the third time in less than two years, the Trump administration is set to return to court on Wednesday to defend its power to wage a punishing global trade war.`\
+https://www.nytimes.com/2026/09/30/business/trumps-new-tariffs-face-a-familiar-court-challenge.html
+
+**Kelly McWilliams on How Her Biracial Identity Shapes Her Relationships**\
+`Why the writer Kelly McWilliams tells everyone she meets who she really is.`\
+https://www.nytimes.com/2026/09/30/podcasts/modern-love-kelly-mcwilliams.html
+
+**In a Small American City, a Story About Weed Reveals Much More**\
+`The fight to open a dispensary in Hudson, N.Y., exposes the toll of gentrification, the legacy of the Rockefellers and a hidden chapter in Mike Tyson’s life.`\
+https://www.nytimes.com/2026/09/30/insider/hudson-ny-journalism.html
+
+**The Best Places to See Fall Foliage From the Water: Cruises, River Tours and More**\
+`Amid record-setting gas prices, skip the road trip and bask in vibrant fall foliage from these aquatic vantage points.`\
+https://www.nytimes.com/2026/09/30/travel/fall-foliage-leaf-peeping-water.html
+
+**Ken Paxton, G.O.P. Nominee in Texas, Privately Said Trump’s Convention Hurt Him**\
+`Ken Paxton, one of the party’s top Senate candidates and a Trump loyalist, said that “everybody’s numbers dropped” after the event, according to audio obtained by The Times.`\
+https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html
+
+**‘Begotten’: Rubbing Your Eyes in Disbelief**\
+`E. Elias Merhige’s digitally restored, black-and-white horror film has its first New York run in decades at the IFC Center. Its power is undiminished.`\
+https://www.nytimes.com/2026/09/30/arts/begotten-ifc-center-restoration.html
+
+**A Move to Quiet Down the Noisy Pedicabs of Midtown**\
+`Bills before the City Council would regulate the pedicabs, which often play loud songs outside theaters during performances.`\
+https://www.nytimes.com/2026/09/30/nyregion/pedicabs-theater-district-noise.html
+
+**How to Listen to Your Favorite Music, Online or Off the Grid**\
+`Streaming services can introduce you to a wonderland of nearly unlimited audio, but downloading your digital collection has advantages.`\
+https://www.nytimes.com/2026/09/30/technology/personaltech/how-to-listen-to-your-favorite-music-online-or-off-the-grid.html
+
+**Can President Trump Demolish the Kennedy Center? Experts Say Not Easily.**\
+`The president has entertained the idea of tearing down the performing arts venue. Analysts say any plan would face multiple daunting challenges.`\
+https://www.nytimes.com/2026/09/30/arts/trump-demolish-kennedy-center.html
+
+**Eric Ripert Says Buddhism Can Make You a Better (and Happier) Cook**\
+`A new cookbook from the acclaimed Le Bernardin chef calls for mindfulness and gratitude in the kitchen — lessons he learned from a South Korean nun.`\
+https://www.nytimes.com/2026/09/30/dining/eric-ripert-buddhism-cooking.html
+
+**6 of the Best New Places to Eat in the South of France**\
+`The region’s ultra-fresh produce and high quality of life have drawn talented chefs from top restaurants in big cities to seek their own places in the sun.`\
+https://www.nytimes.com/2026/09/30/travel/south-france-new-restaurants.html
+
+**Which $2.6 Million House Would You Choose?**\
+`This week’s properties are in Pine Bush, N.Y..; Sedgwick, Maine; and Los Angeles.`\
+https://www.nytimes.com/2026/09/30/realestate/best-home-los-angeles-maine-pine-bush.html
+
+**So You Want to Publish a Newspaper**\
+`How on earth did The New York Times, a seemingly ossified institution in a dying industry, survive the most destabilizing period in its history — and emerge stronger?`\
+https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewardship.html
+
+**He Was a Tech Investor Before There Was a Silicon Valley**\
+`Bill Draper began funding start-ups in the early 1960s, when the Santa Clara Valley was better known for apricot orchards than microchips. He has died at 98.`\
+https://www.nytimes.com/2026/09/30/technology/william-draper-dead.html
+
+**Donor Gives $3 Billion to Carnegie Mellon, the Largest University Gift Ever**\
+`Kenneth C. Griffin, the hedge fund executive, pledged to give $3 billion, much of it to build a campus in Miami.`\
+https://www.nytimes.com/2026/09/30/us/3-billion-donation-carnegie-mellon-largest-university-gift.html
+
+**Can Trump Demolish the Kennedy Center?**\
+`President Trump was photographed holding a rendering of the Kennedy Center being demolished. Our reporter Julia Jacobs explains how destroying the arts venue would face legal hurdles.`\
+https://www.nytimes.com/video/arts/100000011167965/can-trump-demolish-the-kennedy-center.html
+
+**Troubles at Situational Awareness Point to Record Stock Market Leverage**\
+`A meltdown at Situational Awareness, an A.I.-focused investment firm, is raising tough questions about the Wall Street banks that lent billions to the upstart firm.`\
+https://www.nytimes.com/2026/09/30/business/situational-awareness-stock-market-leverage.html
+
 **Critic’s Pick: ‘Degenerates’ Unmasks the Longing Disguised as Hate**\
 `In her play about a group of very online incels, Else Went reveals what happens to their rabid rhetoric when these people are offered love.`\
 https://www.nytimes.com/2026/09/30/theater/degenerates-review-the-longing-beneath-the-hate-and-self-hate.html
@@ -101,100 +197,4 @@ https://www.nytimes.com/2026/09/30/style/breakroom-chronicles-lipsync-lunchladie
 **More American Communities Attempt to Regulate Rooster Crows**\
 `In Vermont, a single bird set off a feud over what, exactly, constitutes farm country, mirroring a battle dividing communities across America.`\
 https://www.nytimes.com/2026/09/30/realestate/rooster-noise-ordinances-rural-america.html
-
-**A Watch That Tells More Than Time**\
-`Social media followers of Nikki Obispo say her decisions about a gift from a relationship gone wrong have influenced their lives too.`\
-https://www.nytimes.com/2026/09/30/fashion/watches-cartier-nikki-obispo-melbourne-australia.html
-
-**How Ukraine’s Naval Drones Are Remaking War at Sea**\
-`They began as modified motorboats. Now, Ukrainian sea drones act as miniature aircraft carriers, and other countries want in.`\
-https://www.nytimes.com/2026/09/30/world/europe/ukraine-naval-drones-russia.html
-
-**Do Families Have a Right to Hug Their Jailed Loved Ones?**\
-`A growing number of jails allow only virtual calls. Some families are suing for the right to see inmates in person.`\
-https://www.nytimes.com/2026/09/30/us/chesa-boudin-jail-visits-right-hug.html
-
-**Kawhi-Gate, Part XVII**\
-`Pablo uncovers internal financials and government records as the scandal deepens.`\
-https://www.nytimes.com/2026/09/30/podcasts/clippers-ballmer-kawhi-gate-part-xvii.html
-
-**What Would John Maynard Keynes Say About A.I.? The Keynes Bot Told Us.**\
-`Nearly a century ago, John Maynard Keynes predicted that technology would liberate us from work. To imagine what he would think of artificial intelligence today, a Princeton economist brought him back to life — using A.I.`\
-https://www.nytimes.com/video/opinion/100000011156852/what-would-john-maynard-keynes-say-about-ai-the-keynes-bot-told-us.html
-
-**FlyDubai Flight to Tel Aviv Issues Distress Signal Before Landing in Saudi Arabia**\
-`The plane was traveling from Dubai to Israel when the pilot and co-pilot appear to have gotten into a fight, Israeli officials said.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-flight-tel-aviv-israel-fz1073-diverted-pilots.html
-
-**15-Minute Lesson Plan: Weather Data**\
-`What do you notice when you compare the weather of 1978 with that of 2015?`\
-https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-weather-data.html
-
-**Review: Anthony Vaccarello’s Maybe Last Saint Laurent Show**\
-`Anthony Vaccarello’s likely last show was a golden summation of his tenure.`\
-https://www.nytimes.com/2026/09/30/style/saint-laurent-anthony-vaccarello-final-show.html
-
-**After Fatal Crashes, N.Y.C. Lawmakers Seek to Regulate E-Bikes**\
-`Lawmakers are expected on Wednesday to discuss a raft of proposals to regulate the use of electric bikes and scooters, after a series of fatal crashes.`\
-https://www.nytimes.com/2026/09/30/nyregion/city-council-ebikes-hearing.html
-
-**A Hasidic Jew Protested Against an Israeli Flag. He May Be Deported.**\
-`Yehonatan Ovadia, who opposed the mounting of the flag in a small New York town, belongs to a Hasidic branch that is anti-Zionist. He is now in ICE custody.`\
-https://www.nytimes.com/2026/09/30/nyregion/anti-israel-protest-ice-detention.html
-
-**U.S. News Shuffled Its N.Y. High School Rankings. An Uproar Ensued.**\
-`After the New York State Education Department denied a request from U.S. News for A.P. scores, perennially top-ranked schools plummeted.`\
-https://www.nytimes.com/2026/09/30/nyregion/us-news-ranking-ny-high-schools-lawsuit.html
-
-**NYT Spelling Bee Answers for September 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/09/30/crosswords/spelling-bee-forum.html
-
-**As E-Bikes and Scooters Surge on New York Streets, So Do Fatal Crashes**\
-`More than two dozen people have died in crashes involving electric bikes and scooters in New York City this year. Officials are moving to address a growing safety crisis.`\
-https://www.nytimes.com/2026/09/30/nyregion/e-bike-scooter-deaths-safety.html
-
-**What to Know About New York City’s Second-Home Tax**\
-`A judge added to confusion over a tax on high-end second homes, also known as pieds-à-terre, when he ordered the city to scrap and restart the rollout of the tax.`\
-https://www.nytimes.com/2026/09/30/nyregion/nyc-pieds-a-terre-home-tax.html
-
-**Jimmy Fallon Pokes Fun at America’s New A.I. Chatbot**\
-`“Yeah, everyone’s afraid of A.I., and nobody trusts the federal government, so Trump was like, ‘Let’s combine them,’” Jimmy Fallon said.`\
-https://www.nytimes.com/2026/09/30/arts/television/jimmy-fallon-trump-america-ai-chatbot.html
-
-**Los Angeles Mayoral Candidates Vie for Undecided Voters**\
-`Mayor Karen Bass and her onetime ally, Nithya Raman, made their case to voters with just five weeks left until the election.`\
-https://www.nytimes.com/2026/09/30/us/politics/los-angeles-mayor-bass-raman.html
-
-**Quote of the Day: OpenAI Failed to Heed Alerts About Security**\
-`Quotation of the Day for Wednesday, September 30, 2026.`\
-https://www.nytimes.com/2026/09/30/pageoneplus/quote-of-the-day-openai-failed-to-heed-alerts-about-security.html
-
-**On This Day, Sept. 30: British and French leaders signed the Munich Agreement.**\
-`In 1938, British and French leaders signed the Munich Agreement, allowing Nazi Germany to annex the Sudetenland area of Czechoslovakia. The accord is held up as a prime example of the dangers of appeasement.`\
-https://www.nytimes.com/2026/09/30/learning/on-this-day-sept-30.html
-
-**Former Music Pastor Is Convicted of His Wife’s Murder**\
-`The trial in Ohio attracted outsize attention because the defendant, Caleb Flynn, auditioned on “American Idol” in 2013.`\
-https://www.nytimes.com/2026/09/29/us/caleb-flynn-verdict-murder-wife.html
-
-**NYT Crossword Answers for Sept. 30, 2026**\
-`Joel Woodford offers solvers a chance to speak up.`\
-https://www.nytimes.com/2026/09/29/crosswords/daily-puzzle-2026-09-30.html
-
-**Voice of America Cuts Hurt ‘U.S. National Interests,’ Internal Watchdog Says**\
-`The assessment by the State Department’s inspector general echoes concerns raised by critics of the move to shutter V.O.A., including some Republicans in Congress.`\
-https://www.nytimes.com/2026/09/29/us/politics/voice-of-america-report.html
-
-**D.A. in Cornell Case Hopes to Speak to Accuser as He Weighs New Evidence**\
-`District Attorney Matthew Van Houten said a woman’s report to police in 2024 saying she had been raped at a fraternity did not support a criminal case. But he said he is now reaching out to her.`\
-https://www.nytimes.com/2026/09/29/nyregion/van-houten-cornell-district-attorney.html
-
-**Air Force Major Recommended for General Court-Martial After Protesting Trump**\
-`The recommendations are not binding, but it is rare for them to be ignored in the military justice system.`\
-https://www.nytimes.com/2026/09/29/us/politics/air-force-major-court-martial-trump.html
-
-**Alaska’s Fat Bear Week Winner Is 89 Backpack**\
-`Alaska’s Fat Bear Week finds its newest champion in a bear that overcame an injury in 2007 that nearly killed him.`\
-https://www.nytimes.com/2026/09/29/style/fat-bear-week-winner.html
 
