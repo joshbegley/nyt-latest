@@ -1,3 +1,7 @@
+**F.T.C. Investigates OpenAI and Anthropic Over Potential Consumer Harms**\
+`The agency will examine whether A.I. labs have broken federal laws prohibiting companies from unfair and deceptive practices.`\
+https://www.nytimes.com/2026/09/30/technology/ftc-openai-anthropic-investigation.html
+
 **Passengers describe panic and heroics after the cockpit clash.**\
 `What began as a routine flight turned terrifying when a violent altercation broke out inside the cockpit and the aircraft dropped 17,000 feet in two minutes.  Passengers subdued an knife-wielding attacker.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-israel-dubai-flight-pilots-attack.html
