@@ -1,3 +1,7 @@
+**Court Pauses Execution of Christa Pike, Tennessee’s Lone Woman on Death Row**\
+`Christa Pike tortured and murdered a classmate in 1995. She had been set to die on Wednesday, the first woman executed in the state in 200 years.`\
+https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html
+
 **Andrea Shaw Says Vaccines Killed Her Twins. Authorities Say She Suffocated Them.**\
 `In a small Idaho town, a young mother is accused of killing her young twins. She blames the childhood vaccines they received.`\
 https://www.nytimes.com/2026/09/30/well/andrea-shaw-twins-suffocation-vaccines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/theater/degenerates-review-the-longing-beneat
 **In N.Y.C.’s West Village, a Rooftop ‘Cottage’ Is For Sale**\
 `The asking price for the unique property, which sits atop a six-story brick co-op in a former warehouse, is $10.5 million.`\
 https://www.nytimes.com/2026/09/30/realestate/nyc-west-village-rooftop-cottage-real-estate.html
-
-**‘The Widower: ’Til Death Do Us Part’ Review: More True-Crime Sensationalism**\
-`A new Netflix documentary looks at the winding road to getting a conviction in a Las Vegas murder case.`\
-https://www.nytimes.com/2026/09/30/movies/the-widower-til-death-do-us-part-review.html
 
