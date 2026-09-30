@@ -1,3 +1,7 @@
+**Mattel Chief Named Co-CEO of Combined Paramount and Warner Bros.**\
+`Ynon Kreiz, who will work alongside David Ellison at the merged company, helped turn Barbie into a blockbuster movie.`\
+https://www.nytimes.com/2026/09/30/business/paramount-ellison-kreiz-mattel.html
+
 **Cornell Students Question Greek Life Culture After Sexual Assault Claim**\
 `With their university under fire in the wake of a sexual assault lawsuit, students are having difficult conversations about Greek life, campus rituals and the possibility for lasting changes.`\
 https://www.nytimes.com/2026/09/30/nyregion/cornell-university-students-jane-doe-case.html
