@@ -1,7 +1,3 @@
-**Cornell’s Chi Phi Chapter Faces Scrutiny Over Assault Accusations**\
-`Chi Phi’s Cornell chapter was shuttered after a woman said its members sexually assaulted her. It was one of the oldest fraternities at the school, where Greek life has thrived.`\
-https://www.nytimes.com/2026/09/29/us/chi-phi-fraternity-scrutiny-cornell-accusations.html
-
 **A.I. Is ‘Better Informed’ Than Doctors, Kennedy Tells Industry-Backed MAHA Summit**\
 `The health secretary, Vice President JD Vance and other top officials addressed a conference sponsored by corporations, including A.I. companies and others with business before the government.`\
 https://www.nytimes.com/2026/09/29/health/maha-summit-kennedy-vance.html
@@ -193,6 +189,10 @@ https://www.nytimes.com/2026/09/29/us/politics/national-guard-troops-washington.
 **Evicted Woman to Return Home Amid Spain Housing Crisis Uproar**\
 `The eviction of 87-year-old María del Carmen Abascal in Madrid set off protests over the country’s acute housing shortage and rent affordability crisis. On Tuesday, a deal was reached for her to return home and the government presented new policies to protect renters.`\
 https://www.nytimes.com/video/world/europe/100000011181510/eviction-spain-madrid-protests-housing.html
+
+**My Favorite Phone Songs**\
+`Stow your devices and listen to these telephone-themed songs from Blondie, Chuck Berry, R.E.M. and more.`\
+https://www.nytimes.com/2026/09/29/arts/music/amplifier-phone-songs-rem-blondie.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
