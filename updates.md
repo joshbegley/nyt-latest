@@ -1,3 +1,27 @@
+**After Fatal Crashes, N.Y.C. Lawmakers Seek to Regulate E-Bikes**\
+`Lawmakers are expected on Wednesday to discuss a raft of proposals to regulate the use of electric bikes and scooters, after a series of fatal crashes.`\
+https://www.nytimes.com/2026/09/30/nyregion/city-council-ebikes-hearing.html
+
+**A Hasidic Jew Protested Against an Israeli Flag. He May Be Deported.**\
+`Yehonatan Ovadia, who opposed the mounting of the flag in a small New York town, belongs to a Hasidic branch that is anti-Zionist. He is now in ICE custody.`\
+https://www.nytimes.com/2026/09/30/nyregion/anti-israel-protest-ice-detention.html
+
+**U.S. News Shuffled Its N.Y. High School Rankings. An Uproar Ensued.**\
+`After the New York State Education Department denied a request from U.S. News for A.P. scores, perennially top-ranked schools plummeted.`\
+https://www.nytimes.com/2026/09/30/nyregion/us-news-ranking-ny-high-schools-lawsuit.html
+
+**NYT Spelling Bee Answers for September 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/30/crosswords/spelling-bee-forum.html
+
+**As E-Bikes and Scooters Surge on New York Streets, So Do Fatal Crashes**\
+`More than two dozen people have died in crashes involving electric bikes and scooters in New York City this year. Officials are moving to address a growing safety crisis.`\
+https://www.nytimes.com/2026/09/30/nyregion/e-bike-scooter-deaths-safety.html
+
+**What to Know About New York City’s Second-Home Tax**\
+`A judge added to confusion over a tax on high-end second homes, also known as pieds-à-terre, when he ordered the city to scrap and restart the rollout of the tax.`\
+https://www.nytimes.com/2026/09/30/nyregion/nyc-pieds-a-terre-home-tax.html
+
 **Jimmy Fallon Pokes Fun at America’s New A.I. Chatbot**\
 `“Yeah, everyone’s afraid of A.I., and nobody trusts the federal government, so Trump was like, ‘Let’s combine them,’” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/09/30/arts/television/jimmy-fallon-trump-america-ai-chatbot.html

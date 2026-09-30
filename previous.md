@@ -1,3 +1,27 @@
+**After Fatal Crashes, N.Y.C. Lawmakers Seek to Regulate E-Bikes**\
+`Lawmakers are expected on Wednesday to discuss a raft of proposals to regulate the use of electric bikes and scooters, after a series of fatal crashes.`\
+https://www.nytimes.com/2026/09/30/nyregion/city-council-ebikes-hearing.html
+
+**A Hasidic Jew Protested Against an Israeli Flag. He May Be Deported.**\
+`Yehonatan Ovadia, who opposed the mounting of the flag in a small New York town, belongs to a Hasidic branch that is anti-Zionist. He is now in ICE custody.`\
+https://www.nytimes.com/2026/09/30/nyregion/anti-israel-protest-ice-detention.html
+
+**U.S. News Shuffled Its N.Y. High School Rankings. An Uproar Ensued.**\
+`After the New York State Education Department denied a request from U.S. News for A.P. scores, perennially top-ranked schools plummeted.`\
+https://www.nytimes.com/2026/09/30/nyregion/us-news-ranking-ny-high-schools-lawsuit.html
+
+**NYT Spelling Bee Answers for September 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/09/30/crosswords/spelling-bee-forum.html
+
+**As E-Bikes and Scooters Surge on New York Streets, So Do Fatal Crashes**\
+`More than two dozen people have died in crashes involving electric bikes and scooters in New York City this year. Officials are moving to address a growing safety crisis.`\
+https://www.nytimes.com/2026/09/30/nyregion/e-bike-scooter-deaths-safety.html
+
+**What to Know About New York City’s Second-Home Tax**\
+`A judge added to confusion over a tax on high-end second homes, also known as pieds-à-terre, when he ordered the city to scrap and restart the rollout of the tax.`\
+https://www.nytimes.com/2026/09/30/nyregion/nyc-pieds-a-terre-home-tax.html
+
 **Jimmy Fallon Pokes Fun at America’s New A.I. Chatbot**\
 `“Yeah, everyone’s afraid of A.I., and nobody trusts the federal government, so Trump was like, ‘Let’s combine them,’” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/09/30/arts/television/jimmy-fallon-trump-america-ai-chatbot.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/2026/09/29/books/review/american-hagwon-min-jin-lee.html
 **Will A.I. Make Your Brain Lazy?**\
 `We’re starting to learn more about how the technology can change us.`\
 https://www.nytimes.com/interactive/2026/09/29/magazine/ai-chatbots-brain-development-study.html
-
-**No Bombs Found in U.K. Case, but Officials Say Threat to Bases Is Real**\
-`The prospect of an attack on an air base used by U.S. forces prompted stepped-up protections across Europe, but confusion shrouds the case, in which the suspects were released on bail.`\
-https://www.nytimes.com/2026/09/29/world/europe/britain-air-base-iran-threat.html
-
-**Restaurant Review: Pizza Studio Tamaki in New York**\
-`The highly anticipated Pizza Studio Tamaki offers pricey pies with mixed results.`\
-https://www.nytimes.com/2026/09/29/dining/restaurant-review-pizza-studio-tamaki-nyc.html
-
-**After 37 Years on Death Row, Man Is Freed From Utah Jail**\
-`Douglas Carter was convicted in 1985 of murdering a 57-year-old woman. But new DNA testing led a judge to free him on Monday.`\
-https://www.nytimes.com/2026/09/29/us/douglas-carter-death-row-released-utah.html
-
-**Cornell Sexual Assault Case From 2024 to Be Reopened**\
-`Two weeks after a woman filed a lawsuit accusing the school and law enforcement officials of not doing enough to investigate her sexual assault case on campus, a New York prosecutor is reopening the investigation.`\
-https://www.nytimes.com/video/us/100000011182778/cornell-university-gang-sexual-assault-ny.html
-
-**Judge Orders New York to Scrap Rollout of Second-Home Tax and Start Over**\
-`A Staten Island judge sided with a group of homeowners who had sued the city over its introduction of the tax, dealing a blow to Mayor Zohran Mamdani.`\
-https://www.nytimes.com/2026/09/29/nyregion/nyc-second-home-tax-lawsuit.html
-
-**Trump Launches A.I.-Powered Government Website**\
-`President Trump unveiled an A.I.-powered website called America.gov, where people will be able to ask questions about federal benefits and services.`\
-https://www.nytimes.com/video/us/politics/100000011182238/trump-launches-ai-powered-government-website.html
 
 **Push for More Data Centers Squeezes Republicans in Tight Midterm Races**\
 `(No description)`\
