@@ -1,3 +1,7 @@
+**Congress Set to Leave Washington for the Midterms With No A.I. Progress**\
+`Senate Democrats were expected on Wednesday to block a measure that would encourage, but not require, states to protect consumers from power rate hikes as a result of data center growth.`\
+https://www.nytimes.com/2026/09/30/us/politics/congress-set-to-leave-washington-for-the-midterms-with-no-ai-progress.html
+
 **Court Pauses Tennessee Woman’s Death Row Execution**\
 `Tennessee paused the execution of Christa Pike who had been set to die on Wednesday. She would have been the first woman executed in the state in 200 years.`\
 https://www.nytimes.com/video/us/100000011184754/christa-pike-death-row-execution-paused.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/09/30/opinion/trump-vance-fraud-congress.html
 **‘Attention Infidelity’ Is Ruining Romance**\
 `Your full attention is a gift. Give it more often.`\
 https://www.nytimes.com/2026/09/30/opinion/attention-infidelity-ruin-romance.html
-
-**In Fractious France, Politicians Agree on One Thing: Pope Leo Was a Hit**\
-`In a four-day visit, Pope Leo XIV won praise across the political spectrum, even from its most avowedly secular figures.`\
-https://www.nytimes.com/2026/09/30/world/europe/leo-france-pope-macron.html
 
