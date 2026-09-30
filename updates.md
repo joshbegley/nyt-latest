@@ -1,3 +1,7 @@
+**FlyDubai Flight to Israel Diverted After Clash Between Pilots: What We Know and Don’t Know**\
+`Prime Minister Benjamin Netanyahu of Israel said one pilot stabbed another and may have attempted to crash the flight from Dubai to Tel Aviv. The plane landed in Saudi Arabia and all passengers were safe.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-dubai-israel-flight-diverted.html
+
 **Five Generations, One Newspaper**\
 `How on earth did The New York Times, a seemingly ossified institution in a dying industry, survive the most destabilizing period in its history — and emerge stronger?`\
 https://www.nytimes.com/2026/09/30/opinion/new-york-times-family-ownership-stewardship.html

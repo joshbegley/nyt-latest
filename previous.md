@@ -1,3 +1,7 @@
+**FlyDubai Flight to Israel Diverted After Clash Between Pilots: What We Know and Don’t Know**\
+`Prime Minister Benjamin Netanyahu of Israel said one pilot stabbed another and may have attempted to crash the flight from Dubai to Tel Aviv. The plane landed in Saudi Arabia and all passengers were safe.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-dubai-israel-flight-diverted.html
+
 **Court Pauses Execution of Christa Pike, Tennessee’s Lone Woman on Death Row**\
 `Christa Pike tortured and murdered a classmate in 1995. She had been set to die on Wednesday, the first woman executed in the state in 200 years.`\
 https://www.nytimes.com/2026/09/30/us/christa-pike-stay-execution-tennessee.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/100000011167965/can-trump-demolish-the-kenned
 **Troubles at Situational Awareness Point to Record Stock Market Leverage**\
 `A meltdown at Situational Awareness, an A.I.-focused investment firm, is raising tough questions about the Wall Street banks that lent billions to the upstart firm.`\
 https://www.nytimes.com/2026/09/30/business/situational-awareness-stock-market-leverage.html
-
-**Critic’s Pick: ‘Degenerates’ Unmasks the Longing Disguised as Hate**\
-`In her play about a group of very online incels, Else Went reveals what happens to their rabid rhetoric when these people are offered love.`\
-https://www.nytimes.com/2026/09/30/theater/degenerates-review-the-longing-beneath-the-hate-and-self-hate.html
 
