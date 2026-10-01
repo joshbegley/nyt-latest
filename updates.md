@@ -1,3 +1,11 @@
+**How The New York Times Is Reporting on the Cornell Rape Investigation**\
+`Times editors explore the thinking behind our coverage of the explosive allegations that have roiled a campus and the country.`\
+https://www.nytimes.com/2026/10/01/insider/cornell-rape-investigation-news-reporting.html
+
+**‘This Is Awful,’ Christa Pike’s Lawyer Says About Botched Execution**\
+`Randy Spivey, one of Christa Pike’s lawyers, said that Pike remained in critical condition on Thursday after a botched execution attempt the night before.`\
+https://www.nytimes.com/video/us/100000011188903/tennessee-execution-christa-pike-lawyer.html
+
 **Christa Pike’s Lawyers Describe a ‘Cruel and Torturous’ Failed Execution**\
 `It was not clear on Thursday what had gone wrong with the lethal injection. The governor said an investigation is underway.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-condition.html

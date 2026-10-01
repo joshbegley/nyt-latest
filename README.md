@@ -1,3 +1,7 @@
+**Housing Official, Who Targeted Trump Foes, Cuts Watchdog Office**\
+`Bill Pulte, director of the Federal Housing Finance Agency, moved to slash his agency’s inspector general’s office. Democrats called for his resignation.`\
+https://www.nytimes.com/2026/10/01/us/politics/housing-official-who-targeted-trump-foes-cuts-watchdog-office.html
+
 **How The New York Times Is Reporting on the Cornell Rape Investigation**\
 `Times editors explore the thinking behind our coverage of the explosive allegations that have roiled a campus and the country.`\
 https://www.nytimes.com/2026/10/01/insider/cornell-rape-investigation-news-reporting.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/climate/david-hearn-reflecting-pool-charges-d
 **Nigerian Charged With Running Fake Government Agency**\
 `The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
 https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
-
-**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
-`The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
-https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

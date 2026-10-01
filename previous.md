@@ -1,3 +1,11 @@
+**How The New York Times Is Reporting on the Cornell Rape Investigation**\
+`Times editors explore the thinking behind our coverage of the explosive allegations that have roiled a campus and the country.`\
+https://www.nytimes.com/2026/10/01/insider/cornell-rape-investigation-news-reporting.html
+
+**‘This Is Awful,’ Christa Pike’s Lawyer Says About Botched Execution**\
+`Randy Spivey, one of Christa Pike’s lawyers, said that Pike remained in critical condition on Thursday after a botched execution attempt the night before.`\
+https://www.nytimes.com/video/us/100000011188903/tennessee-execution-christa-pike-lawyer.html
+
 **Christa Pike’s Lawyers Describe a ‘Cruel and Torturous’ Failed Execution**\
 `It was not clear on Thursday what had gone wrong with the lethal injection. The governor said an investigation is underway.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-condition.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.h
 **Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
 `The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
 https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html
-
-**How Reese Witherspoon Figured Out Who She Really Is**\
-`Reese Witherspoon booked her first big Hollywood movie when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
-https://www.nytimes.com/video/podcasts/100000011142683/how-reese-witherspoon-figured-out-who-she-really-is.html
-
-**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
-`Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
-https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
