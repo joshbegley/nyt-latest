@@ -1,3 +1,19 @@
+**Steven Spielberg, Alec Baldwin and Gov. Kathy Hochul Turn Out for Dudamel**\
+`“I’m so happy here. Honestly,” Gustavo Dudamel, the superstar conductor, said at the New York Philharmonic’s season-opening gala on Wednesday.`\
+https://www.nytimes.com/2026/10/01/style/gustavo-dudamel-new-york-philharmonic.html
+
+**Trump’s Threat to Ban Diesel Exports Sets Off Global Alarms**\
+`A reduction in refineries has already driven the price of diesel to record highs, threatening economies. An U.S. export ban would be “tremendous shock and blow.”`\
+https://www.nytimes.com/2026/10/01/business/diesel-prices-us-exports.html
+
+**5 Passengers on FlyDubai Flight to Receive Israel’s Award for Heroism**\
+`The passengers subdued an attacker in the cockpit of a FlyDubai flight carrying more than 170 people from Dubai to Tel Aviv.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-flight-passengers-israel-hero-honor.html
+
+**Swiss Glaciers Vanished by Nearly a Fifth in Recent Years, Scientists Say**\
+`One researcher called it a “desperately needed warning sign” that countries need to tackle human-driven climate change.`\
+https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-climate.html
+
 **Live Updates: Tennessee Governor Pauses Future Execution After Inmate Survives Lethal Injection**\
 `Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. She was hospitalized late Wednesday.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
