@@ -1,3 +1,11 @@
+**The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
+`“Our summers used to actually be summers,” one justice lamented.`\
+https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
+
+**Who’s to Blame When A.I. Goes Rogue?**\
+`Many think artificial intelligence companies should be held liable for their runaway technology. But legal scholars say applying existing law could be messy`\
+https://www.nytimes.com/2026/10/01/technology/ai-rogue-agents-liability.html
+
 **U.C.L.A. Says Justice Department is ‘Weaponizing’ Civil Rights Laws**\
 `The fiery language came months after the Justice Department accused the university of abetting antisemitism against students.`\
 https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsuit.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 **How Middle East Oil Exports Started Recovering**\
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
-
-**New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
-`The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
-https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
-
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 

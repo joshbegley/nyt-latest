@@ -1,3 +1,11 @@
+**The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
+`“Our summers used to actually be summers,” one justice lamented.`\
+https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
+
+**Who’s to Blame When A.I. Goes Rogue?**\
+`Many think artificial intelligence companies should be held liable for their runaway technology. But legal scholars say applying existing law could be messy`\
+https://www.nytimes.com/2026/10/01/technology/ai-rogue-agents-liability.html
+
 **U.C.L.A. Says Justice Department is ‘Weaponizing’ Civil Rights Laws**\
 `The fiery language came months after the Justice Department accused the university of abetting antisemitism against students.`\
 https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsuit.html
