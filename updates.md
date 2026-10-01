@@ -1,3 +1,7 @@
+**Investigators Seek Motive for FlyDubai Cockpit Attack**\
+`Prime Minister Benjamin Netanyahu of Israel said the co-pilot who set upon the pilot had undergone “Islamist radical indoctrination” but did not elaborate.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-attack-invesigation.html
+
 **Lucien Lazare, Jewish Resistance Fighter in Occupied France, Dies at 101**\
 `He and a small troop of French Jews worked with the Allies to distribute supplies and fight the Nazis, ambushing a German train and liberating a city in the south.`\
 https://www.nytimes.com/2026/10/01/world/lucien-lazare-dead.html
