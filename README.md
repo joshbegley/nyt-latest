@@ -1,3 +1,7 @@
+**What’s Next for ‘Hard Fork’?**\
+`The podcast’s next chapter begins this week.`\
+https://www.nytimes.com/2026/10/01/podcasts/hard-fork-whats-next.html
+
 **Britain and France Give Up Landmark Migrant Agreement**\
 `The French government soured on a reciprocal deal that allowed the British authorities to return some migrants who crossed the English Channel illegally in small boats.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-france-migrant-deal-cancelled.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/us/politics/supreme-court-roberts-maine.html
 **A Story about the A.I. Apocalypse, From a Gaming Mastermind**\
 `Jason Jones, the reclusive game designer behind “Halo,” wrote a novel about killer robots. Now the story is the basis for an ambitious new entertainment company.`\
 https://www.nytimes.com/2026/10/01/style/a-story-about-the-ai-apocalypse-from-a-gaming-mastermind.html
-
-**Book Review: ‘How Bright the Path Grows,’ by Marcia Chatelain**\
-`The Pulitzer Prize-winning historian Marcia Chatelain revisits the 1963 March on Washington, placing overlooked Black women at the center of the story.`\
-https://www.nytimes.com/2026/10/01/books/review/how-bright-the-path-grows-marcia-chatelain.html
 
