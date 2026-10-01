@@ -1,3 +1,11 @@
+**U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
+
+**Emails and Texts Offer Inside Look Into Mamdani’s Rent Freeze Push**\
+`The communications were revealed as part of a lawsuit challenging New York City’s rent freeze on rent-stabilized units, which went into effect on Thursday.`\
+https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
+
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
 `Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape
 **Why Washington Is Trying to Rein In College Sports**\
 `Money has exploded in college sports, and Congress is trying to do something about it.`\
 https://www.nytimes.com/2026/10/01/podcasts/the-daily/why-washington-is-trying-to-rein-in-college-sports.html
-
-**The Multimillion-Dollar Bidding Wars for College Athletes**\
-`College football players can now shop around for big money deals, with agents trying to set off multimillion-dollar bidding wars. On “The Daily,” Stewart Mandel of The Athletic explains how college football became a kind of free agency free-for-all, and why Congress is now trying to rein it in.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011186388/the-multimillion-dollar-bidding-wars-for-college-athletes.html
-
-**What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
-`Plus, a Kelvin wave is coming.`\
-https://www.nytimes.com/2026/10/01/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
