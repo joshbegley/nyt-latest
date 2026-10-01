@@ -1,3 +1,7 @@
+**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
+`Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
+https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html
+
 **8 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/01/books/review/new-recommended-books.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
 
 **Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
-`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed. All the men denied any wrongdoing.`\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
 
 **How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-deten
 **2 Dead and 1 Missing in Medical Helicopter Crash Near California Coast**\
 `The aircraft went down near Catalina Island on Wednesday night with five people aboard, the authorities said. Two aboard were retrieved with injuries.`\
 https://www.nytimes.com/2026/10/01/us/helicopter-crash-catalina-island-california.html
-
-**Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
-`Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
-https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
