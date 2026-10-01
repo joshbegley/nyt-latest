@@ -1,3 +1,7 @@
+**Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
 `The crash also included 50 cars and resulted in at least one serious injury, fire officials said. There were no fatalities, but multiple people were injured.`\
 https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
