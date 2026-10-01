@@ -1,3 +1,11 @@
+**Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
+`Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
+https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
+
+**3 Billionaires Have Largely Funded Republican Nominee for Wisconsin Governor**\
+`Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
+https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
+
 **‘Verity’ Review: Magnificent Confession**\
 `Anne Hathaway and Dakota Johnson vie for Josh Hartnett and the moral high ground in this batty melodrama.`\
 https://www.nytimes.com/2026/10/01/movies/verity-review-colleen-hoover-anne-hathaway.html

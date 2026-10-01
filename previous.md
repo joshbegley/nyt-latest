@@ -1,3 +1,11 @@
+**Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
+`Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
+https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
+
+**3 Billionaires Have Largely Funded Republican Nominee for Wisconsin Governor**\
+`Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
+https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
+
 **Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
 `London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
 https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
@@ -106,13 +114,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -181,16 +189,4 @@ https://www.nytimes.com/2026/10/01/t-magazine/deana-lawson-gagosian-gallery.html
 **Here’s Why The Times’s First Crossword Is Nearly Impossible to Solve Today**\
 `Even Will Shortz has no trouble admitting that it’s a doozy.`\
 https://www.nytimes.com/2026/10/01/crosswords/times-first-crossword-puzzle.html
-
-**‘Verity’ Review: Magnificent Confession**\
-`Anne Hathaway and Dakota Johnson vie for Josh Hartnett and the moral high ground in this batty melodrama.`\
-https://www.nytimes.com/2026/10/01/movies/verity-review-colleen-hoover-anne-hathaway.html
-
-**‘Lady’ Review: The Grande Dame and the Director**\
-`A loopy mockumentary starring Sian Clifford as a delusional aristocrat is surprisingly moving.`\
-https://www.nytimes.com/2026/10/01/movies/lady-review-sian-clifford.html
-
-**‘The Influencer Project’ Review: Terminally Online**\
-`A content creator receives harassing messages in this found-footage horror movie set in Copenhagen.`\
-https://www.nytimes.com/2026/10/01/movies/the-influencer-project-review.html
 
