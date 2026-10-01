@@ -1,3 +1,7 @@
+**U.S. Bond Yields Hit Highest Level Since 2002**\
+`The trends pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
+https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
+
 **The Global Bond Rout Reaches Worrying New Levels**\
 `Investors are on alert as the yield on the 10-year Treasury note hit a new multi-decade high. The sell-off is also broadening in Europe, too.`\
 https://www.nytimes.com/2026/10/01/business/dealbook/bond-rout-trump-powell.html
