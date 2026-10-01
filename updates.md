@@ -1,3 +1,7 @@
+**Swedish Company Uses A.I. Likeness of Greta Garbo in Ad**\
+`An ad produced by the manufacturing company SKF Group featured a digital version of the Swedish American actress, who died in 1990. Not all viewers found the replica convincing.`\
+https://www.nytimes.com/2026/10/01/world/europe/ai-garbo-ad-sweden-skf.html
+
 **As Mortgage Rates Hit Highest Level Since 2023, Buyers Look at ARMs**\
 `The average 30-year, fixed-rate home loan rose to 7.28 percent, up from 6.34 percent a year ago. More buyers are now turning to adjustable-rate mortgages.`\
 https://www.nytimes.com/2026/10/01/business/adjustable-mortgage-rates.html
