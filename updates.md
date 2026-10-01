@@ -1,3 +1,11 @@
+**Three Restaurants That Came Back From the Dead**\
+`What to eat at the reanimated locations of Carnegie Deli, Sam’s Restaurant and Ugly Baby.`\
+https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
+
+**The MacArthur ‘Genius’ Studying Sea Ice Secrets**\
+`A climate scientist was one of 20 recipients of a “no-strings-attached” $800,000 stipend.`\
+https://www.nytimes.com/2026/10/01/climate/climate-science-macarthur.html
+
 **Cornell Documents Raise Questions About Handling of Rape Allegations**\
 `More than 1,000 pages of documents obtained by The New York Times show how a woman identified as Jane Doe gradually concluded that what had happened to her at a fraternity party was a crime.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-investigation.html
