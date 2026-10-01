@@ -7,7 +7,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011188789/christa-pike-to
 https://www.nytimes.com/2026/10/01/us/lindsay-clancy-motion-denied.html
 
 **How Parents Are Talking to Sons About the Cornell Rape Allegations**\
-`At the dinner table and during school commutes, families are navigating difficult conversations about sexual assault and moral responsibility.`\
+`At the dinner table and during school commutes, families are navigating difficult conversations with their sons about sexual assault and moral responsibility.`\
 https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
 
 **Did You Buy $TRUMP Coin? Tell Us Your Experience.**\
