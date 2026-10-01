@@ -1,3 +1,7 @@
+**Hong Kong Movies to Add to Your Queue**\
+`We asked creative types with ties to the city to choose the films set there that made an impression.`\
+https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
+
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution

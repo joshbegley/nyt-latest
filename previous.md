@@ -1,3 +1,7 @@
+**Hong Kong Movies to Add to Your Queue**\
+`We asked creative types with ties to the city to choose the films set there that made an impression.`\
+https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
+
 **Controversial Zimbabwe Tycoon Dies in Helicopter Crash**\
 `The controversial Zimbabwe tycoon Wicknell Chivayo died in a helicopter crash with several others from his rural homestead to the country’s capital. Mr. Chivayo was accused of building wealth through corruption, forming close relationships with African leaders.`\
 https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-wicknell-chivayo-killed-helicopter-crash.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.h
 **Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
 `The communications were revealed as part of a lawsuit challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
 https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
-
-**Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
-`Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
-https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
