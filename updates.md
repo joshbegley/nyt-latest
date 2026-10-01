@@ -1,3 +1,7 @@
+**Newsom, Eager for a Higher Perch, Climbs the Golden Gate Bridge**\
+`Gov. Gavin Newsom of California scrambled up a bridge cable before signing a bill at the top of the south tower.`\
+https://www.nytimes.com/2026/09/30/us/newsom-golden-gate-bridge.html
+
 **The Front Page That Never Was**\
 `As The New York Times marks its 175th anniversary, Dean Baquet, a former executive editor of the paper, reflects on one of the objects from his tenure: a front page that was never published.`\
 https://www.nytimes.com/video/insider/100000011115643/the-front-page-that-never-was.html
