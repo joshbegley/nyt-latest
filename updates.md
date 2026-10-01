@@ -1,3 +1,11 @@
+**U.S. Bond Yields Hit Highest Level Since 2002**\
+`The factors pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
+https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
+
+**Andrew Scott in ‘Sea Wall’ and 27 Other Off Broadway Shows to See in October**\
+`Andrew Scott stars in a “Sea Wall” being captured for the screen, and “In the Heights” gets a gala revival as New York City stages approach their autumn peak.`\
+https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.html
+
 **Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
 `London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
 https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
