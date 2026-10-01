@@ -1,3 +1,7 @@
+**A Climate Change Rebrand**\
+`More politicians have stopped talking about the climate, but the green transition is still moving forward.`\
+https://www.nytimes.com/2026/10/01/world/climate-change-rebrand-renewables-flydubai.html
+
 **Hong Kong Movies to Add to Your Queue**\
 `We asked creative types with ties to the city to choose the films set there that made an impression.`\
 https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violen
 **UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
 `British police said a 25-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
-
-**Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
-`The communications were revealed as part of a lawsuit challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
-https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

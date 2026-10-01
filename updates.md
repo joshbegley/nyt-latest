@@ -1,3 +1,7 @@
+**A Climate Change Rebrand**\
+`More politicians have stopped talking about the climate, but the green transition is still moving forward.`\
+https://www.nytimes.com/2026/10/01/world/climate-change-rebrand-renewables-flydubai.html
+
 **Hong Kong Movies to Add to Your Queue**\
 `We asked creative types with ties to the city to choose the films set there that made an impression.`\
 https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
