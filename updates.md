@@ -1,3 +1,7 @@
+**As Mortgage Rates Hit Highest Level Since 2023, Buyers Look at ARMs**\
+`The average 30-year, fixed-rate home loan rose to 7.28 percent, up from 6.34 percent a year ago. More buyers are now turning to adjustable-rate mortgages.`\
+https://www.nytimes.com/2026/10/01/business/adjustable-mortgage-rates.html
+
 **Investigators Seek to Determine How a Weapon Entered FlyDubai Cockpit**\
 `Prime Minister Benjamin Netanyahu of Israel said one possibility was that the assailant used an emergency crash ax, typically stored in the cockpit.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-weapon-cockpit-stabbing-attack.html
