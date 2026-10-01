@@ -1,3 +1,7 @@
+**FlyDubai Under Scrutiny After Cockpit Attack**\
+`The United Arab Emirates has said it is leading the investigation into the episode, and FlyDubai’s service between Dubai and Tel Aviv has been suspended.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.html
+
 **What Teenagers Are Saying About Football After a New Study on C.T.E.**\
 `We asked students if they’re still watching and playing in light of data showing that one in four N.F.L. players might expect to develop the degenerative brain disease.`\
 https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-football-after-a-new-study-on-cte.html

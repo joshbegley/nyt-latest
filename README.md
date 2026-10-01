@@ -1,3 +1,7 @@
+**As Cornell Reckons with Sexual Assault Case, Will Applicants Think Twice?**\
+`Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
+
 **FlyDubai Under Scrutiny After Cockpit Attack**\
 `The United Arab Emirates has said it is leading the investigation into the episode, and FlyDubai’s service between Dubai and Tel Aviv has been suspended.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/10/01/style/gustavo-dudamel-new-york-philharmonic.h
 `A reduction in refineries has already driven the price of diesel to record highs, threatening economies. An U.S. export ban would be “tremendous shock and blow.”`\
 https://www.nytimes.com/2026/10/01/business/diesel-prices-us-exports.html
 
-**5 Passengers on FlyDubai Flight to Receive Israel’s Award for Heroism**\
-`The passengers subdued an attacker in the cockpit of a FlyDubai flight carrying more than 170 people from Dubai to Tel Aviv.`\
-https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-flight-passengers-israel-hero-honor.html
-
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
-`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
+`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu of Israel said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
 
