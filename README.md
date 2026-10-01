@@ -1,3 +1,7 @@
+**Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
+`No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
+https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
+
 **Three Restaurants That Came Back From the Dead**\
 `What to eat at the reanimated locations of Carnegie Deli, Sam’s Restaurant and Ugly Baby.`\
 https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes
 **Chi Phi Members Accused in Cornell Sex Assault Lawsuit Give Varying Accounts of Night**\
 `Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
-
-**How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
-`Watch the full conversation with Miranda Lambert. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011183057/how-ella-langley-miranda-lambert-made-history-with-choosin-texas.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
