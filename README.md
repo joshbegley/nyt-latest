@@ -1,3 +1,7 @@
+**Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
+`The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
+https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
+
 **Taking On Trump Immigration Agenda, Justices Will Review Migrant Detention Policy**\
 `The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
 https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/01/well/mind/ai-anxiety-therapy-artificial-intel
 **Help! Air Canada Got Me to Europe, Then Stranded Me There.**\
 `The airline helpfully rebooked a delayed traveler from Toronto, but failed to mention it had also canceled her return trip. She spent $800 to get home.`\
 https://www.nytimes.com/2026/10/01/travel/air-canada-canceled-flight.html
-
-**The Best New Thriller Novels**\
-`Our columnist on new novels from Richard Osman, Lucy Foley and John Grisham.`\
-https://www.nytimes.com/2026/10/01/books/review/new-thriller-novels.html
 
