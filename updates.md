@@ -1,3 +1,7 @@
+**A Hacking Competition Shows the Power of China’s Approach to A.I.**\
+`The winner of a cybersecurity contest prevailed by relying on an ‘open weight’ Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
+https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
+
 **Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
 `Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
 https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
