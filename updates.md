@@ -1,3 +1,11 @@
+**Cute Delivery Robots Have Invaded New Jersey. Not Everyone Is Charmed.**\
+`The machines have conquered Jersey City’s sidewalks, and Hoboken is the next target. But skepticism about artificial intelligence has forced the robot horde to proceed with caution.`\
+https://www.nytimes.com/2026/10/01/nyregion/food-delivery-robots-coco-avride-jersey-city.html
+
+**NYT Spelling Bee Answers for October 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/01/crosswords/spelling-bee-forum.html
+
 **Cornell’s Jane Doe Said She Was Given Ketamine. Here’s How the Drug Works.**\
 `Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
 https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
