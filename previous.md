@@ -1,3 +1,11 @@
+**The Cornell Rape Investigation: Five Takeaways**\
+`The New York Times obtained more than 1,000 pages from the university’s internal inquiry into accusations by “Jane Doe.” Here are the revelations so far.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-jane-doe-rape-investigation-documents.html
+
+**5 Takeaways From the Debate for California Governor**\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, sparred over President Trump, taxes and immigration in their only scheduled meeting.`\
+https://www.nytimes.com/2026/10/01/us/politics/california-governor-debate-takeaways.html
+
 **Who Is Captain Smit Machchhar, the Pilot Hailed as a Hero After FlyDubai Cockpit Stabbing?**\
 `Capt. Smit Machchhar from India suffered stab wounds while fending off an attack from his co-pilot, saving the lives of around 170 people on board, officials said.`\
 https://www.nytimes.com/2026/10/01/world/asia/israel-flight-flydubai-pilot-captain-smit-machchhar.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judg
 **Trump Media’s Merger With Nuclear Fusion Company Moves Closer to Completion**\
 `A securities filing laid out the terms of the deal between Truth Social’s parent company and TAE Technologies, which was formally announced in December.`\
 https://www.nytimes.com/2026/09/30/business/trump-media-tae-technologies-merger.html
-
-**The Most Disturbing 2000s Reality Show Doesn’t Seem So Crazy Anymore**\
-`Erin Lee Carr’s new documentary revisits the 2004 makeover show “The Swan,” which gave 32 women extensive plastic surgery and anticipated where beauty culture was headed.`\
-https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documentary.html
-
-**Salah Sarsour, Islamic Leader in Wisconsin, Can Be Deported, Judge Rules**\
-`Salah Sarsour, a vocal supporter of Palestinian rights who leads the state’s largest Islamic group, says the case is politically motivated and plans to appeal the decision.`\
-https://www.nytimes.com/2026/09/30/us/salah-sarsour-deportation-wisconsin.html
 

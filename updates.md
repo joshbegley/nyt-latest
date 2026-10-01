@@ -1,3 +1,11 @@
+**The Cornell Rape Investigation: Five Takeaways**\
+`The New York Times obtained more than 1,000 pages from the university’s internal inquiry into accusations by “Jane Doe.” Here are the revelations so far.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-jane-doe-rape-investigation-documents.html
+
+**5 Takeaways From the Debate for California Governor**\
+`Xavier Becerra, a Democrat, and Steve Hilton, a Republican, sparred over President Trump, taxes and immigration in their only scheduled meeting.`\
+https://www.nytimes.com/2026/10/01/us/politics/california-governor-debate-takeaways.html
+
 **Who Is Captain Smit Machchhar, the Pilot Hailed as a Hero After FlyDubai Cockpit Stabbing?**\
 `Capt. Smit Machchhar from India suffered stab wounds while fending off an attack from his co-pilot, saving the lives of around 170 people on board, officials said.`\
 https://www.nytimes.com/2026/10/01/world/asia/israel-flight-flydubai-pilot-captain-smit-machchhar.html
