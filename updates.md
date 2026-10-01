@@ -1,3 +1,15 @@
+**U.C.L.A. Says Justice Department is ‘Weaponizing’ Civil Rights Laws**\
+`The fiery language came months after the Justice Department accused the university of abetting antisemitism against students.`\
+https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsuit.html
+
+**Supreme Court, Taking On Trump Immigration Agenda, Will Review Migrant Detention Policy**\
+`The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
+https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
+
+**ICE Backlash Shadows Trump’s Midterm Push in Texas**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **Swiss Glaciers Lost 5% of Their Ice This Year**\
 `Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
 https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html

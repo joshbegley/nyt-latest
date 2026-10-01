@@ -1,3 +1,7 @@
+**U.C.L.A. Says Justice Department is ‘Weaponizing’ Civil Rights Laws**\
+`The fiery language came months after the Justice Department accused the university of abetting antisemitism against students.`\
+https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsuit.html
+
 **Swiss Glaciers Lost 5% of Their Ice This Year**\
 `Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
 https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.
 `The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
 https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
 
-**Taking On Trump Immigration Agenda, Justices Will Review Migrant Detention Policy**\
+**Supreme Court, Taking On Trump Immigration Agenda, Will Review Migrant Detention Policy**\
 `The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
 https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
 
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republ
 `Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
 https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
 
-**Trump Heads to Texas as Some Republicans Seek Distance on Immigration**\
+**ICE Backlash Shadows Trump’s Midterm Push in Texas**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
 **Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
 `Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
 https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
-**Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
-`Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
-https://www.nytimes.com/2026/10/01/well/breast-cancer-risk-ai.html
 
