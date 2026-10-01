@@ -1,3 +1,19 @@
+**Anger and Questions at Cornell**\
+`Readers discuss the allegations of sexual assault at Cornell University. Also: A botched execution, and a pause, in Tennessee.`\
+https://www.nytimes.com/2026/10/01/opinion/cornell-sexual-assault.html
+
+**Our Reporter Emailed the F.B.I. Hackers. They Wrote Back.**\
+`Dustin Volz, a Times reporter who covers cybersecurity, wanted to help readers understand a huge breach of government data that could put workers and families at risk.`\
+https://www.nytimes.com/2026/10/01/insider/fbi-hack-shinyhunters-data.html
+
+**Congress Leaves With a Whimper, as the G.O.P. Braces for Midterm Pain**\
+`Republicans lined up a series of doomed votes in their final hours, hoping to portray Democrats as obstructionists. But some conceded that their party was more likely to be punished.`\
+https://www.nytimes.com/2026/10/01/us/politics/republicans-congress-midterm-elections-trump-affordability.html
+
+**Israel to Honor FlyDubai Passengers Who Helped Prevent Flight Disaster**\
+`President Isaac Herzog of Israel said he would recommend heroism awards for several Israelis a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
+https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-passengers-award.html
+
 **Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
 `The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
 https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html

@@ -1,3 +1,15 @@
+**Anger and Questions at Cornell**\
+`Readers discuss the allegations of sexual assault at Cornell University. Also: A botched execution, and a pause, in Tennessee.`\
+https://www.nytimes.com/2026/10/01/opinion/cornell-sexual-assault.html
+
+**Our Reporter Emailed the F.B.I. Hackers. They Wrote Back.**\
+`Dustin Volz, a Times reporter who covers cybersecurity, wanted to help readers understand a huge breach of government data that could put workers and families at risk.`\
+https://www.nytimes.com/2026/10/01/insider/fbi-hack-shinyhunters-data.html
+
+**Congress Leaves With a Whimper, as the G.O.P. Braces for Midterm Pain**\
+`Republicans lined up a series of doomed votes in their final hours, hoping to portray Democrats as obstructionists. But some conceded that their party was more likely to be punished.`\
+https://www.nytimes.com/2026/10/01/us/politics/republicans-congress-midterm-elections-trump-affordability.html
+
 **Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
 `The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
 https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html
@@ -99,7 +111,7 @@ https://www.nytimes.com/2026/10/01/dining/florence-fabricant-salty-not-sweet-boo
 https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
 
 **Israel to Honor FlyDubai Passengers Who Helped Prevent Flight Disaster**\
-`President Isaac Herzog of Israel said he would recommend five Israeli nationals for heroism awards a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
+`President Isaac Herzog of Israel said he would recommend heroism awards for several Israelis a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
 https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-passengers-award.html
 
 **California Wine Producers Are Betting on Good, Moderately Priced Bottles**\
@@ -173,14 +185,6 @@ https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helico
 **New Cornell Documents**\
 `We look at the latest in the case.`\
 https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
-
-**The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
-`“Our summers used to actually be summers,” one justice lamented.`\
-https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
-
-**Who’s to Blame When A.I. Goes Rogue?**\
-`Many think artificial intelligence companies should be held liable for their runaway technology. But legal scholars say applying existing law could be messy`\
-https://www.nytimes.com/2026/10/01/technology/ai-rogue-agents-liability.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
