@@ -1,3 +1,7 @@
+**Live Updates: Israelis Celebrate Passengers’ Return as Questions Swirl Over Flight Attack**\
+`Prime Minister Benjamin Netanyahu praised the flight’s injured captain, Israeli passengers and reserve pilots, who helped secure the plane and land it safely. The attacker has not been identified.`\
+https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
+
 **The Golden Age of Scams**\
 `A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
 https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html

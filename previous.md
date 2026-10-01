@@ -1,3 +1,7 @@
+**Live Updates: Israelis Celebrate Passengers’ Return as Questions Swirl Over Flight Attack**\
+`Prime Minister Benjamin Netanyahu praised the flight’s injured captain, Israeli passengers and reserve pilots, who helped secure the plane and land it safely. The attacker has not been identified.`\
+https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
+
 **The Golden Age of Scams**\
 `A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
 https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/style/hollywood-horror-halloween-monsters.htm
 **Kitchen Islands Are Getting Bigger**\
 `Three of five homeowners who renovate include a kitchen island, and over half of those islands are more than seven feet long.`\
 https://www.nytimes.com/2026/10/01/realestate/kitchen-islands-are-getting-bigger.html
-
-**Book Review: ‘Don’t Laugh at Other People’s Sex Lives’ and ‘Beautiful Distance,’ by Nao-Cola Yamazaki**\
-`Two slim novels by Nao-Cola Yamazaki show that romance can often be pretty unromantic.`\
-https://www.nytimes.com/2026/10/01/books/review/dont-laugh-at-other-peoples-sex-lives-beautiful-distance-nao-cola-yamazaki.html
 
