@@ -1,3 +1,7 @@
+**Review: John Galliano’s New Collection for Zara**\
+`Assessing the designer’s new collection for Zara, unveiled in the shadow of the Met debacle.`\
+https://www.nytimes.com/2026/10/01/style/john-galliano-zara.html
+
 **Cute Delivery Robots Have Invaded New Jersey. Not Everyone Is Charmed.**\
 `The machines have conquered Jersey City’s sidewalks, and Hoboken is the next target. But skepticism about artificial intelligence has forced the robot horde to proceed with caution.`\
 https://www.nytimes.com/2026/10/01/nyregion/food-delivery-robots-coco-avride-jersey-city.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011185068/france-high-school-st
 **The U.S. Departs Iraq**\
 `After two decades, American military forces formally withdrew from the battered nation. Our correspondent was there from the beginning.`\
 https://www.nytimes.com/2026/09/30/world/iraq-war-us-pilot-israel-flight.html
-
-**A Bloody Attack on a FlyDubai Plane Headed to Israel, and a Terrifying Plunge**\
-`“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
-https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
 

@@ -1,3 +1,7 @@
+**Review: John Galliano’s New Collection for Zara**\
+`Assessing the designer’s new collection for Zara, unveiled in the shadow of the Met debacle.`\
+https://www.nytimes.com/2026/10/01/style/john-galliano-zara.html
+
 **Cute Delivery Robots Have Invaded New Jersey. Not Everyone Is Charmed.**\
 `The machines have conquered Jersey City’s sidewalks, and Hoboken is the next target. But skepticism about artificial intelligence has forced the robot horde to proceed with caution.`\
 https://www.nytimes.com/2026/10/01/nyregion/food-delivery-robots-coco-avride-jersey-city.html
