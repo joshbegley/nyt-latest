@@ -1,3 +1,11 @@
+**Halloween Costumes Ideas for 2026**\
+`Options for couples, groups and anyone who has always wanted a reason to dress like a famous sheep.`\
+https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
+
+**Mike Smith, Bubbles on ‘Trailer Park Boys,’ Has Sexual Assault Charge Dismissed**\
+`The Canadian cult comedy series announced that Mr. Smith, 54, would resume his involvement with the show.`\
+https://www.nytimes.com/2026/10/01/world/canada/mike-smith-trailer-park-boys-sexual-assault-charge.html
+
 **A Climate Change Rebrand**\
 `More politicians have stopped talking about the climate, but the green transition is still moving forward.`\
 https://www.nytimes.com/2026/10/01/world/climate-change-rebrand-renewables-flydubai.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/01/dining/drinks/california-wine-moderately-pric
 **Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
 `May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
-
-**Rick Ross Is Arrested on Battery Charges After Ex-Girlfriend Reports Abuse**\
-`The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
-https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
-
-**UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
-`British police said a 25-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
-https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
