@@ -1,3 +1,7 @@
+**Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
+`The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
+https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
+
 **Taking On Trump Immigration Agenda, Justices Will Review Migrant Detention Policy**\
 `The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
 https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
