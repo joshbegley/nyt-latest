@@ -1,3 +1,7 @@
+**Cornell Will Hire Outside Lawyers to Investigate 2024 Rape Claim**\
+`The university and law enforcement officials are under growing pressure to explain how they handled a woman’s initial claims of being assaulted by a group of students.`\
+https://www.nytimes.com/2026/09/30/nyregion/hochul-cornell-rape-investigation-lawyers.html
+
 **Newsom, Eager for a Higher Perch, Climbs the Golden Gate Bridge**\
 `Gov. Gavin Newsom of California scrambled up a bridge cable before signing a bill at the top of the south tower.`\
 https://www.nytimes.com/2026/09/30/us/newsom-golden-gate-bridge.html
