@@ -1,3 +1,19 @@
+**What Teenagers Are Saying About Football After a New Study on C.T.E.**\
+`We asked students if they’re still watching and playing in light of data showing that one in four N.F.L. players might expect to develop the degenerative brain disease.`\
+https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-football-after-a-new-study-on-cte.html
+
+**How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
+`A catheter carrying the drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
+
+**Chi Phi Members Accused in Cornell Sex Assault Lawsuit Give Varying Accounts of Night**\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
+
+**Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
+`The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
+https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
 **Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
 `Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
 https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html

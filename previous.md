@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About Football After a New Study on C.T.E.**\
+`We asked students if they’re still watching and playing in light of data showing that one in four N.F.L. players might expect to develop the degenerative brain disease.`\
+https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-football-after-a-new-study-on-cte.html
+
 **Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
 `Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
 https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-107
 https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-crowe-he-has-answers.html
 
 **How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
-`A catheter carrying the lethal drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+`A catheter carrying the drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
 https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
 
 **US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 `Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
 
-**Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
+**Chi Phi Members Accused in Cornell Sex Assault Lawsuit Give Varying Accounts of Night**\
 `Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
 
@@ -182,8 +186,8 @@ https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-flight-passengers-i
 `One researcher called it a “desperately needed warning sign” that countries need to tackle human-driven climate change.`\
 https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-climate.html
 
-**Live Updates: Tennessee Inmate Christa Pike Alive After ‘Torturous’ Botched Execution, Lawyer Says**\
-`Randy Spivey, a lawyer for Ms. Pike, called on Gov. Bill Lee to commute her sentence after she survived an attempt to execute her by lethal injection. Mr. Lee ordered executions suspended pending a review.`\
+**Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
+`The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
