@@ -1,3 +1,19 @@
+**‘It’s a Wonderful Life’ Plans a Broadway Debut With Andrew Rannells**\
+`The show, “a live radio play,” will run during this year’s holiday season. The cast includes Andrew Rannells, Megan Hilty, Tituss Burgess, Harry Hamlin and Lisa Rinna.`\
+https://www.nytimes.com/2026/10/01/theater/its-a-wonderful-life-broadway-andrew-rannells.html
+
+**Boglands Are Museums That Help Protect Us From Climate Change**\
+`Bogs store carbon, and preserve histories too.`\
+https://www.nytimes.com/2026/10/01/opinion/bogs-peatland-climate.html
+
+**It’s Not Too Late to Make Your Best Kebabs of the Summer**\
+`Use this shish tawook recipe to make perfectly charred, juicy yogurt-marinated chicken kebabs.`\
+https://www.nytimes.com/2026/10/01/dining/its-not-too-late-to-make-your-best-kebabs-of-the-summer.html
+
+**Finnish Lawmakers Report Suspicious Home Break-Ins**\
+`The speaker of Parliament said there were a “considerable” number of mysterious entries in which perpetrators appeared to have taken nothing.`\
+https://www.nytimes.com/2026/10/01/world/europe/finland-lawmakers-break-ins.html
+
 **A Maine General Store, Reimagined by a Jewelry Designer**\
 `Plus: a brasserie in Copenhagen, Pop Art clothes and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/01/t-magazine/weathered-bird-general-store-maine.html
