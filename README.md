@@ -1,3 +1,7 @@
+**Finnish Lawmakers Report Suspicious Home Break-Ins**\
+`The speaker of Parliament said there were a “considerable” number of mysterious entries in which perpetrators appeared to have taken nothing.`\
+https://www.nytimes.com/2026/10/01/world/europe/finland-lawmakers-break-ins.html
+
 **A Maine General Store, Reimagined by a Jewelry Designer**\
 `Plus: a brasserie in Copenhagen, Pop Art clothes and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/01/t-magazine/weathered-bird-general-store-maine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/world/americas/brazil-gambling-debts-election
 **Silicon Valley’s Favorite Prophet Has a New Warning**\
 `Nick Bostrom is no longer worried about the apocalypse. Now he’s worried about utopia.`\
 https://www.nytimes.com/2026/10/01/opinion/interesting-times-podcast-spencer-klavan-nick-bostrom.html
-
-**Why He Sings About Exit 31 on the B.Q.E.**\
-`Andrew Rose Gregory thinks the exit is the worst place in the city. He put his thoughts into music.`\
-https://www.nytimes.com/2026/10/01/nyregion/exit-31-bqe-song.html
 

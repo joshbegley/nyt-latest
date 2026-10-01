@@ -1,3 +1,7 @@
+**A Maine General Store, Reimagined by a Jewelry Designer**\
+`Plus: a brasserie in Copenhagen, Pop Art clothes and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/10/01/t-magazine/weathered-bird-general-store-maine.html
+
 **Steven Spielberg, Alec Baldwin and Gov. Kathy Hochul Turn Out for Dudamel**\
 `“I’m so happy here. Honestly,” Gustavo Dudamel, the superstar conductor, said at the New York Philharmonic’s season-opening gala on Wednesday.`\
 https://www.nytimes.com/2026/10/01/style/gustavo-dudamel-new-york-philharmonic.html
