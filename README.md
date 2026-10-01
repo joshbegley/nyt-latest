@@ -1,3 +1,11 @@
+**Lucien Lazare, Jewish Resistance Fighter in Occupied France, Dies at 101**\
+`He and a small troop of French Jews worked with the Allies to distribute supplies and fight the Nazis, ambushing a German train and liberating a city in the south.`\
+https://www.nytimes.com/2026/10/01/world/lucien-lazare-dead.html
+
+**In Recordings, Christa Pike Worried That Lethal Injection May Not Work**\
+`Weeks before her planned execution, Christa Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The New York Times. On Wednesday, she was hospitalized after a botched execution attempt.`\
+https://www.nytimes.com/video/us/100000011187287/christa-pike-interview-lethal-injection.html
+
 **Art Gallery Shows to See in October**\
 `This week in Newly Reviewed, Travis Diehl covers Celeste Dupuy-Spencer’s visionary pictures, Marc Kokopeli’s jewelry store, Michael Assiff’s depictions of environmental spoilage, and Alfredo Jaar’s riffs on American logos.`\
 https://www.nytimes.com/2026/10/01/arts/art-gallery-shows-to-see-in-october.html
@@ -174,19 +182,11 @@ https://www.nytimes.com/2026/10/01/dining/florence-fabricant-salty-not-sweet-boo
 `The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
 
-**Israel to Honor FlyDubai Passengers Who Helped Prevent Flight Disaster**\
-`President Isaac Herzog of Israel said he would recommend heroism awards for several Israelis a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
-https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-passengers-award.html
-
-**California Wine Producers Are Betting on Good, Moderately Priced Bottles**\
-`Cheap bottles have mostly meant bad, processed wines. The hope is that good wine from well-farmed grapes at a slightly higher price will fill a need.`\
-https://www.nytimes.com/2026/10/01/dining/drinks/california-wine-moderately-priced.html
-
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
-**Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
+**Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu of Israel said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
 
