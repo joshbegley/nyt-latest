@@ -1,3 +1,7 @@
+**As Mortgage Rates Hit Highest Level Since 2023, Buyers Look at ARMs**\
+`The average 30-year, fixed-rate home loan rose to 7.28 percent, up from 6.34 percent a year ago. More buyers are now turning to adjustable-rate mortgages.`\
+https://www.nytimes.com/2026/10/01/business/adjustable-mortgage-rates.html
+
 **Investigators Seek to Determine How a Weapon Entered FlyDubai Cockpit**\
 `Prime Minister Benjamin Netanyahu of Israel said one possibility was that the assailant used an emergency crash ax, typically stored in the cockpit.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-weapon-cockpit-stabbing-attack.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
 **Corrections: Oct. 1, 2026**\
 `Corrections that appeared in print on Thursday, Oct. 1, 2026.`\
 https://www.nytimes.com/2026/10/01/pageoneplus/corrections-oct-1-2026.html
-
-**Tell Us Your Tales of Trick-or-Treating in New York City**\
-`For an upcoming project, we’re looking for your memories of going door to door in apartment buildings.`\
-https://www.nytimes.com/2026/10/01/realestate/tell-us-your-tales-of-trick-or-treating-in-new-york-city.html
 
