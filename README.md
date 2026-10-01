@@ -18,7 +18,7 @@ https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-t
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/01/books/review/new-recommended-books.html
 
-**Israelis Take Pride in Bravery of Passengers Who Saved Flight 1073**\
+**Israelis Take Pride in Bravery of Passengers Who Saved FlyDubai Flight**\
 `The events evoked days decades ago when Israel was widely admired for its plucky survival against the odds and for taking on hijackers.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-1073.html
 
