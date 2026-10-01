@@ -1,3 +1,7 @@
+**What to Know About the Execution Attempt of Christa Pike**\
+`Ms. Pike, 50, survived two doses of lethal injection in Tennessee. She was sentenced to death for the 1995 murder of a classmate.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-alive-tennessee-execution-halted.html
+
 **This Is Something Trump Can’t Break**\
 `The president’s effort to use tariffs to steer manufacturing back to the United States can only go so far.`\
 https://www.nytimes.com/2026/10/01/opinion/mexico-ai-trump.html

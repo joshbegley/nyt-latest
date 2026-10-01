@@ -1,3 +1,7 @@
+**What to Know About the Execution Attempt of Christa Pike**\
+`Ms. Pike, 50, survived two doses of lethal injection in Tennessee. She was sentenced to death for the 1995 murder of a classmate.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-alive-tennessee-execution-halted.html
+
 **This Is Something Trump Can’t Break**\
 `The president’s effort to use tariffs to steer manufacturing back to the United States can only go so far.`\
 https://www.nytimes.com/2026/10/01/opinion/mexico-ai-trump.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/30/business/stocks-sp500-oil-bonds.html
 **Trump’s Voluntary A.I. Policing Echoes What Biden Did. But Is It Enough Today?**\
 `President Trump’s plan to let A.I. companies police themselves comes amid mounting examples that they are failing to put safeguards on the technology.`\
 https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
-
-**‘You Can See Everything,’ if You Could Only Secure a Ticket**\
-`The buzziest screening at the New York Film Festival is a three-hour documentary in which Nathan Fielder questions Elizabeth Holmes, the disgraced Theranos founder.`\
-https://www.nytimes.com/2026/09/30/movies/elizabeth-holmes-documentary-nathan-fielder-you-can-see-everything.html
 
