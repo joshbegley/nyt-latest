@@ -22,6 +22,10 @@ https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republ
 `Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
 https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
 
+**Trump Heads to Texas as Some Republicans Seek Distance on Immigration**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
 `London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
 https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
