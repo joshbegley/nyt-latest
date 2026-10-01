@@ -1,3 +1,7 @@
+**Swiss Glaciers Lost 5% of Their Ice This Year**\
+`Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
+https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html
+
 **‘It’s a Wonderful Life’ Plans a Broadway Debut With Andrew Rannells**\
 `The show, “a live radio play,” will run during this year’s holiday season. The cast includes Andrew Rannells, Megan Hilty, Tituss Burgess, Harry Hamlin and Lisa Rinna.`\
 https://www.nytimes.com/2026/10/01/theater/its-a-wonderful-life-broadway-andrew-rannells.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democr
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
 https://www.nytimes.com/2026/10/01/well/breast-cancer-risk-ai.html
-
-**When Did Everyone Start Talking Like a Hollywood Windbag?**\
-`The phrase “the X of it all” started as a joke to mock the vague lingo of studio bosses. But there’s something widely appealing about speaking “casually, broadly and vaguely in order to reduce friction.”`\
-https://www.nytimes.com/2026/10/01/magazine/hollywood-lingo.html
 

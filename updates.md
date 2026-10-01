@@ -1,3 +1,7 @@
+**Swiss Glaciers Lost 5% of Their Ice This Year**\
+`Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
+https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html
+
 **‘It’s a Wonderful Life’ Plans a Broadway Debut With Andrew Rannells**\
 `The show, “a live radio play,” will run during this year’s holiday season. The cast includes Andrew Rannells, Megan Hilty, Tituss Burgess, Harry Hamlin and Lisa Rinna.`\
 https://www.nytimes.com/2026/10/01/theater/its-a-wonderful-life-broadway-andrew-rannells.html
