@@ -24,7 +24,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011186388/the-multimillio
 
 **What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
 `Plus, a Kelvin wave is coming.`\
-https://www.nytimes.com/2026/10/01/podcasts/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
+https://www.nytimes.com/2026/10/01/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
 
 **NYT Connections Answers for October 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
 **John Roberts Retreated to His Island. Supreme Court Critics Found Him.**\
 `After decades of potlucks and paddle-boarding on Maine’s midcoast, rising anger and protests have left the Supreme Court’s chief justice more isolated than ever.`\
 https://www.nytimes.com/2026/10/01/us/politics/supreme-court-roberts-maine.html
-
-**A Story about the A.I. Apocalypse, From a Gaming Mastermind**\
-`Jason Jones, the reclusive game designer behind “Halo,” wrote a novel about killer robots. Now the story is the basis for an ambitious new entertainment company.`\
-https://www.nytimes.com/2026/10/01/style/a-story-about-the-ai-apocalypse-from-a-gaming-mastermind.html
 
