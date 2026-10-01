@@ -1,3 +1,7 @@
+**Live Updates: Becerra and Hilton Tangle Over Taxes and Trump in California Governor Debate**\
+`Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
+https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
+
 **Cornell Will Hire Outside Lawyers to Investigate 2024 Rape Claim**\
 `The university and law enforcement officials are under growing pressure to explain how they handled a woman’s initial claims of being assaulted by a group of students.`\
 https://www.nytimes.com/2026/09/30/nyregion/hochul-cornell-rape-investigation-lawyers.html
