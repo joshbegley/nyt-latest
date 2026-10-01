@@ -1,3 +1,7 @@
+**This Is Something Trump Can’t Break**\
+`The president’s effort to use tariffs to steer manufacturing back to the United States can only go so far.`\
+https://www.nytimes.com/2026/10/01/opinion/mexico-ai-trump.html
+
 **Japan Raises Residency Fees 2,000 Percent Amid ‘Anxiety’ Over Foreigners**\
 `Prime Minister Sanae Takaichi is making it harder for immigrants to stay in the country. Critics say she is hurting Japan’s ability to address labor shortages.`\
 https://www.nytimes.com/2026/10/01/world/asia/japan-raises-residency-fees-2000-percent-amid-anxiety-over-foreigners.html
