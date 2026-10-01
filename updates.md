@@ -1,3 +1,7 @@
+**Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
+`No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
+https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
+
 **Three Restaurants That Came Back From the Dead**\
 `What to eat at the reanimated locations of Carnegie Deli, Sam’s Restaurant and Ugly Baby.`\
 https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
