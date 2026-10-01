@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 1, 2026**\
+`Find your footing on Jill Singer’s puzzle.`\
+https://www.nytimes.com/2026/09/30/crosswords/daily-puzzle-2026-10-01.html
+
 **Live Updates: Becerra and Hilton Tangle Over Taxes and Trump in California Governor Debate**\
 `Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
 https://www.nytimes.com/live/2026/09/30/us/california-governor-debate

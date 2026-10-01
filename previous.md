@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 1, 2026**\
+`Find your footing on Jill Singer’s puzzle.`\
+https://www.nytimes.com/2026/09/30/crosswords/daily-puzzle-2026-10-01.html
+
 **Cornell Will Hire Outside Lawyers to Investigate 2024 Rape Claim**\
 `The university and law enforcement officials are under growing pressure to explain how they handled a woman’s initial claims of being assaulted by a group of students.`\
 https://www.nytimes.com/2026/09/30/nyregion/hochul-cornell-rape-investigation-lawyers.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-a-visual-histo
 **Chaos at Jack Smith’s Senate Hearing**\
 `Readers respond to the high and low points of the Jack Smith Senate hearing. Also: reporters who made history; an ode to Pluto.`\
 https://www.nytimes.com/2026/09/30/opinion/jack-smith-senate-hearing.html
-
-**The Local: They Might Be Giants on playing 4 nights**\
-`Also, Lynx heartbreak and close encounters with Josh Hartnett.`\
-https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
 
