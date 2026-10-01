@@ -1,3 +1,27 @@
+**Sensuality and Skin at Milan Fashion Week**\
+`Unbuttoned shirts rippled in the breeze and bare chests soaked in the sun at a louche fashion week.`\
+https://www.nytimes.com/2026/10/01/style/sensuality-and-skin-the-milan-way.html
+
+**At 3-Foot-11, This Bodybuilder Competes Against Herself**\
+`Allison Warrell, who has achondroplasia dwarfism, started lifting weights to avoid back problems. In August, she ended her career as the shortest woman in competitive bodybuilding.`\
+https://www.nytimes.com/2026/10/01/well/move/bodybuilding-back-pain-little-people.html
+
+**The Middle School Kids Trying to Make Sense of Stalin’s Tyranny**\
+`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
+https://www.nytimes.com/2026/10/01/opinion/joseph-stalin-middle-school.html
+
+**Stalin Boys**\
+`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
+https://www.nytimes.com/video/opinion/100000010659804/stalin-boys.html
+
+**A Houston Teacher Wanted a Home for About $200,000. Which Did She Pick?**\
+`Thinking her career prospects would be elsewhere, Sakiya Glover saw a Facebook post that helped inspire her move from Tampa, Fla., to the Texas metropolis.`\
+https://www.nytimes.com/quiz/2026/10/01/realestate/homes-for-sale-houston-texas.html
+
+**Silicon Valley’s Favorite Prophet Has a New Warning**\
+`Nick Bostrom is no longer worried about the apocalypse. Now he’s worried about utopia.`\
+https://www.nytimes.com/video/opinion/100000011179079/silicon-valleys-favorite-prophet-has-a-new-warning.html
+
 **Review: John Galliano’s New Collection for Zara**\
 `Assessing the designer’s new collection for Zara, unveiled in the shadow of the Met debacle.`\
 https://www.nytimes.com/2026/10/01/style/john-galliano-zara.html
@@ -165,28 +189,4 @@ https://www.nytimes.com/video/opinion/100000011179562/is-american-culture-simply
 **Exasperated by Delays, Congress Tries to Speed Up Energy Permitting**\
 `Republican and Democratic senators struck a deal to vote on the largest overhaul of federal energy and environmental rules in decades.`\
 https://www.nytimes.com/2026/09/30/climate/congress-energy-permitting-reform.html
-
-**Plane to Israel Narrowly Averts Disaster**\
-`Also, a Kelvin wave is heading to California. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/09/30/briefing/plane-stabbing-israel-jd-vance-texas.html
-
-**Senator Marsha Blackburn Sues Over Jack Smith’s Subpoena During Trump Inquiry**\
-`The lawsuit, brought by Senator Marsha Blackburn of Tennessee, tests the reach of the Constitution’s “speech or debate” clause.`\
-https://www.nytimes.com/2026/09/30/us/politics/jack-smith-lawsuit-trump-blackburn.html
-
-**Driver Strikes 4 People Outside a Mall in British Columbia, Killing 2, Police Say**\
-`The accident occurred as hundreds of people were gathering nearby for a National Day of Truth and Reconciliation march near Delta, a city south of Vancouver, the authorities said.`\
-https://www.nytimes.com/2026/09/30/world/canada/british-columbia-crash-medical-emergency.html
-
-**OpenAI’s Greg Brockman Backs Out of Second $25 Million Donation to A.I. Super PAC**\
-`Greg Brockman, OpenAI’s president and co-founder, said internally that the super PAC, Leading the Future, had become a “distraction” for the A.I. company.`\
-https://www.nytimes.com/2026/09/30/technology/openai-brockman-super-pac-leading-the-future.html
-
-**Hundreds Detained in France as Some Student Protests Turn Violent**\
-`Hundreds of people have been detained in France as some student protests turned violent. High schoolers across the country are frustrated by the state of the country’s education system.`\
-https://www.nytimes.com/video/world/europe/100000011185068/france-high-school-student-protests.html
-
-**The U.S. Departs Iraq**\
-`After two decades, American military forces formally withdrew from the battered nation. Our correspondent was there from the beginning.`\
-https://www.nytimes.com/2026/09/30/world/iraq-war-us-pilot-israel-flight.html
 

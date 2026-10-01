@@ -1,3 +1,27 @@
+**Sensuality and Skin at Milan Fashion Week**\
+`Unbuttoned shirts rippled in the breeze and bare chests soaked in the sun at a louche fashion week.`\
+https://www.nytimes.com/2026/10/01/style/sensuality-and-skin-the-milan-way.html
+
+**At 3-Foot-11, This Bodybuilder Competes Against Herself**\
+`Allison Warrell, who has achondroplasia dwarfism, started lifting weights to avoid back problems. In August, she ended her career as the shortest woman in competitive bodybuilding.`\
+https://www.nytimes.com/2026/10/01/well/move/bodybuilding-back-pain-little-people.html
+
+**The Middle School Kids Trying to Make Sense of Stalin’s Tyranny**\
+`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
+https://www.nytimes.com/2026/10/01/opinion/joseph-stalin-middle-school.html
+
+**Stalin Boys**\
+`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
+https://www.nytimes.com/video/opinion/100000010659804/stalin-boys.html
+
+**A Houston Teacher Wanted a Home for About $200,000. Which Did She Pick?**\
+`Thinking her career prospects would be elsewhere, Sakiya Glover saw a Facebook post that helped inspire her move from Tampa, Fla., to the Texas metropolis.`\
+https://www.nytimes.com/quiz/2026/10/01/realestate/homes-for-sale-houston-texas.html
+
+**Silicon Valley’s Favorite Prophet Has a New Warning**\
+`Nick Bostrom is no longer worried about the apocalypse. Now he’s worried about utopia.`\
+https://www.nytimes.com/video/opinion/100000011179079/silicon-valleys-favorite-prophet-has-a-new-warning.html
+
 **Review: John Galliano’s New Collection for Zara**\
 `Assessing the designer’s new collection for Zara, unveiled in the shadow of the Met debacle.`\
 https://www.nytimes.com/2026/10/01/style/john-galliano-zara.html
