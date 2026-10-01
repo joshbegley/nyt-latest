@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/10/01/movies/atonement-review.html
 `An oil bust is on the horizon.`\
 https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
 
-**Inside the Supreme Court Protests Near John Roberts’s Maine Home**\
+**John Roberts Retreated to His Island. Supreme Court Critics Found Him.**\
 `After decades of potlucks and paddle-boarding on Maine’s midcoast, rising anger and protests have left the Supreme Court’s chief justice more isolated than ever.`\
 https://www.nytimes.com/2026/10/01/us/politics/supreme-court-roberts-maine.html
 
