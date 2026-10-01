@@ -1,3 +1,7 @@
+**New Cornell Documents**\
+`We look at the latest in the case.`\
+https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
+
 **The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
 `“Our summers used to actually be summers,” one justice lamented.`\
 https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/01/style/modern-love-we-want-your-best-breakup-l
 **Oil Is Flowing From the Persian Gulf, but Prices Remain High. Why?**\
 `Crude oil costs close to $100 a barrel because traders are worried hostilities could soon restart and the world is burning through its emergency stockpiles.`\
 https://www.nytimes.com/2026/10/01/business/energy-environment/oil-prices-iran-war-trump.html
-
-**Andrew Scott in ‘Sea Wall’ and 27 Other Off Broadway Shows to See in October**\
-`Andrew Scott stars in a “Sea Wall” being captured for the screen, and “In the Heights” gets a gala revival as New York City stages approach their autumn peak.`\
-https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.html
 

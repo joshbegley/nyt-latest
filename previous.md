@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/10/01/business/energy-environment/oil-prices-iran-w
 `Andrew Scott stars in a “Sea Wall” being captured for the screen, and “In the Heights” gets a gala revival as New York City stages approach their autumn peak.`\
 https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.html
 
-**How Middle East Oil Exports Started Recovering**\
-`Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
-https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
-
