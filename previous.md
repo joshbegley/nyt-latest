@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republ
 `Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
 https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
 
-**ICE Backlash Shadows Trump’s Midterm Push in Texas**\
+**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 

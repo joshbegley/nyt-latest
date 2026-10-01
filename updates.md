@@ -1,3 +1,7 @@
+**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **Swedish Company Uses A.I. Likeness of Greta Garbo in Ad**\
 `An ad produced by the manufacturing company SKF Group featured a digital version of the Swedish American actress, who died in 1990. Not all viewers found the replica convincing.`\
 https://www.nytimes.com/2026/10/01/world/europe/ai-garbo-ad-sweden-skf.html
