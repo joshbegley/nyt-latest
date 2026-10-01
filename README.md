@@ -1,3 +1,7 @@
+**Christa Pike’s Lawyers Describe a ‘Cruel and Torturous’ Failed Execution**\
+`It was not clear on Thursday what had gone wrong with the lethal injection. The governor said an investigation is underway.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-condition.html
+
 **Man Charged With Threatening Katie Miller, Wife of Top Trump Aide Stephen Miller**\
 `The charges against the Massachusetts man were not the first time the Miller family has raised concerns about its security.`\
 https://www.nytimes.com/2026/10/01/us/stephen-miller-wife-katie-threats-trump.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/podcasts/100000011142683/how-reese-witherspoon-fig
 **Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
 `Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
 https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html
-
-**8 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/10/01/books/review/new-recommended-books.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

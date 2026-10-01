@@ -1,3 +1,15 @@
+**Man Charged With Threatening Katie Miller, Wife of Top Trump Aide Stephen Miller**\
+`The charges against the Massachusetts man were not the first time the Miller family has raised concerns about its security.`\
+https://www.nytimes.com/2026/10/01/us/stephen-miller-wife-katie-threats-trump.html
+
+**Abdul El-Sayed, a Senate candidate in Michigan, Is Still Trying to Unite the Democratic Base**\
+`The progressive Senate candidate is offering olive branches to Jewish voters and campaigning with Kamala Harris to attract Black voters. Polling shows it may be working.`\
+https://www.nytimes.com/2026/10/01/us/politics/abdul-el-sayed-michigan-senate.html
+
+**Tennessee Pauses Executions After a Botched Lethal Injection**\
+`Also, the Supreme Court will review Trump’s migrant detention policy. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/01/briefing/tennessee-botched-execution-cornell-documents.html
+
 **Christa Pike Told The Times She Feared a Botched Execution**\
 `Weeks before her failed execution, the Tennessee death row inmate Christa Pike told The Times she was concerned her execution would be mishandled.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011188789/christa-pike-told-the-times-she-feared-a-botched-execution.html
