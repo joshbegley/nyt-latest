@@ -1,3 +1,15 @@
+**US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
+`The move follows recent reports detailing how A7, a Russian financial firm, used shell companies around the world to move funds on behalf of restricted Russian businesses.`\
+https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
+
+**UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British police said a 27-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
+
+**Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
+`The communications were revealed as part of a lawsuit challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
+https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
+
 **Green Goddess Dressing So Good You Might Do Shots of It**\
 `And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
 https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html

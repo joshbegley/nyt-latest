@@ -1,3 +1,7 @@
+**US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
+`The move follows recent reports detailing how A7, a Russian financial firm, used shell companies around the world to move funds on behalf of restricted Russian businesses.`\
+https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
+
 **Green Goddess Dressing So Good You Might Do Shots of It**\
 `And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
 https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html
@@ -26,12 +30,12 @@ https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
 `The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
 
-**U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
-`British counterterrorism police said a 27-year-old British-Iranian dual national was arrested on Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+**UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British police said a 27-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
-**Emails and Texts Offer Inside Look Into Mamdani’s Rent-Freeze Push**\
-`The communications were revealed as part of a lawsuit brought by landlords who are challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
+**Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
+`The communications were revealed as part of a lawsuit challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
 https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.htm
 **A Hacking Competition Shows the Power of China’s Approach to A.I.**\
 `The winner of a cybersecurity contest prevailed by relying on an ‘open weight’ Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
 https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
-
-**After Failed Attempt to Execute Christa Pike, Tennessee Pauses a Planned Execution**\
-`Gov. Bill Lee, a Republican, ordered a review of the state’s lethal injection process after the botched attempt to put Christa Pike to death. She was hospitalized Wednesday.`\
-https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
