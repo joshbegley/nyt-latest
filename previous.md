@@ -1,3 +1,31 @@
+**Statement Written by Police in Cornell Assault Case Omitted Her Claim She Was Raped**\
+`Documents obtained by The New York Times show that the campus police at Cornell University sent a condensed statement to a prosecutor, who then declined to bring charges.`\
+https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape-case-statement.html
+
+**Why Washington Is Trying to Rein In College Sports**\
+`Money has exploded in college sports, and Congress is trying to do something about it.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-daily/why-washington-is-trying-to-rein-in-college-sports.html
+
+**The Multimillion-Dollar Bidding Wars for College Athletes**\
+`College football players can now shop around for big money deals, with agents trying to set off multimillion-dollar bidding wars. On “The Daily,” Stewart Mandel of The Athletic explains how college football became a kind of free agency free-for-all, and why Congress is now trying to rein it in.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011186388/the-multimillion-dollar-bidding-wars-for-college-athletes.html
+
+**What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
+`Plus, a Kelvin wave is coming.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
+
+**NYT Connections Answers for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/connections-companion-1209.html
+
+**NYT Strands Hints for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/strands-sidekick-943.html
+
+**Today’s Wordle Hints for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/wordle-review-1931.html
+
 **Hong Kong Journalist Arrested After Covering Gathering Linked to 2019 Protests**\
 `The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
 https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
@@ -146,7 +174,7 @@ https://www.nytimes.com/2026/10/01/arts/fun-things-to-do-nyc-october.html
 `Based on a true story, this film centers on an American Marine trying to contact the family of the Iraqis he killed.`\
 https://www.nytimes.com/2026/10/01/movies/atonement-review.html
 
-**Tired of High Gas Prices? Don’t Worry: Oil Always Crashes.**\
+**If You Think Rising Oil Prices Are Bad, Just Wait for the Inevitable Crash**\
 `An oil bust is on the horizon.`\
 https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
 
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/01/learning/word-of-the-day-exponentially.html
 **Jamie Wyeth, Meet Uncle Winslow**\
 `Jamie Wyeth makes a pilgrimage to Portland, Maine, to view rare works by Winslow Homer, who has been a potent influence on three generations of Wyeth artists.`\
 https://www.nytimes.com/2026/10/01/arts/design/jamie-wyeth-meet-uncle-winslow.html
-
-**Stop Talking About A.I. Like a Human**\
-`If we want to figure out the proper way to control A.I. models, we need to recognize what they really are.`\
-https://www.nytimes.com/2026/10/01/opinion/ai-human.html
-
-**Book Review: ‘The Only Thing There Is to Want,’ by Sarah Hepola**\
-`Sarah Hepola’s new memoir picks up where “Blackout” left off: with the story of three passionate, doomed affairs in her 30s and 40s.`\
-https://www.nytimes.com/2026/10/01/books/review/the-only-thing-there-is-to-want-sarah-hepola.html
-
-**Autumn Sonata, a Linen Brand That Asks: Can a Bathmat Be Chic?**\
-`However pretty the print, you can’t use an antique tapestry to dry off. The bathroom linen brand Autumn Sonata has figured this out.`\
-https://www.nytimes.com/2026/10/01/style/autumn-sonata-showroom-lili-elias.html
-
-**‘April X’ Review: Before He Was Ilya**\
-`Connor Storrie (“Heated Rivalry”) plays a grifter on a search to find his sister, who disappeared after a deal gone wrong.`\
-https://www.nytimes.com/2026/10/01/movies/april-x-review.html
-
-**Katt Williams on His Favorite Books and New Memoir**\
-`It’s one of many surprises in “Nine Lives, No Wives, and 69 Concubines,” the comedian’s new memoir, and a testimonial to the power of reading.`\
-https://www.nytimes.com/2026/10/01/books/review/katt-williams-memoir.html
-
-**With Songs by Neko Case, ‘Thelma & Louise’ Shifts Into a Musical Gear**\
-`Thirty-five years after the road trip movie’s release, a stage adaptation with music by Neko Case wants to be a another rallying cry for women.`\
-https://www.nytimes.com/2026/10/01/theater/thelma-louise-musical-london-neko-case.html
-
-**Alexander Skarsgard Is Latest Hollywood Star to Find the Beauty in the Beastly**\
-`Alexander Skarsgard, Demi Moore and Jacob Elordi have all made themselves into monsters for a role. Why can’t Hollywood’s most beautiful stars get enough of the grotesque?`\
-https://www.nytimes.com/2026/10/01/style/hollywood-horror-halloween-monsters.html
 

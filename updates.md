@@ -1,3 +1,35 @@
+**Statement Written by Police in Cornell Assault Case Omitted Her Claim She Was Raped**\
+`Documents obtained by The New York Times show that the campus police at Cornell University sent a condensed statement to a prosecutor, who then declined to bring charges.`\
+https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape-case-statement.html
+
+**Why Washington Is Trying to Rein In College Sports**\
+`Money has exploded in college sports, and Congress is trying to do something about it.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-daily/why-washington-is-trying-to-rein-in-college-sports.html
+
+**The Multimillion-Dollar Bidding Wars for College Athletes**\
+`College football players can now shop around for big money deals, with agents trying to set off multimillion-dollar bidding wars. On “The Daily,” Stewart Mandel of The Athletic explains how college football became a kind of free agency free-for-all, and why Congress is now trying to rein it in.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011186388/the-multimillion-dollar-bidding-wars-for-college-athletes.html
+
+**What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
+`Plus, a Kelvin wave is coming.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
+
+**NYT Connections Answers for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/connections-companion-1209.html
+
+**NYT Strands Hints for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/strands-sidekick-943.html
+
+**Today’s Wordle Hints for October 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
+https://www.nytimes.com/2026/10/01/crosswords/wordle-review-1931.html
+
+**If You Think Rising Oil Prices Are Bad, Just Wait for the Inevitable Crash**\
+`An oil bust is on the horizon.`\
+https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
+
 **Hong Kong Journalist Arrested After Covering Gathering Linked to 2019 Protests**\
 `The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
 https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
