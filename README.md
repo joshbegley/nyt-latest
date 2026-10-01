@@ -1,3 +1,15 @@
+**‘It’s a Wonderful Life’ Plans a Broadway Debut With Andrew Rannells**\
+`The show, “a live radio play,” will run during this year’s holiday season. The cast includes Andrew Rannells, Megan Hilty, Tituss Burgess, Harry Hamlin and Lisa Rinna.`\
+https://www.nytimes.com/2026/10/01/theater/its-a-wonderful-life-broadway-andrew-rannells.html
+
+**Boglands Are Museums That Help Protect Us From Climate Change**\
+`Bogs store carbon, and preserve histories too.`\
+https://www.nytimes.com/2026/10/01/opinion/bogs-peatland-climate.html
+
+**It’s Not Too Late to Make Your Best Kebabs of the Summer**\
+`Use this shish tawook recipe to make perfectly charred, juicy yogurt-marinated chicken kebabs.`\
+https://www.nytimes.com/2026/10/01/dining/its-not-too-late-to-make-your-best-kebabs-of-the-summer.html
+
 **Finnish Lawmakers Report Suspicious Home Break-Ins**\
 `The speaker of Parliament said there were a “considerable” number of mysterious entries in which perpetrators appeared to have taken nothing.`\
 https://www.nytimes.com/2026/10/01/world/europe/finland-lawmakers-break-ins.html
@@ -166,13 +178,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/01/well/breast-cancer-risk-ai.html
 **When Did Everyone Start Talking Like a Hollywood Windbag?**\
 `The phrase “the X of it all” started as a joke to mock the vague lingo of studio bosses. But there’s something widely appealing about speaking “casually, broadly and vaguely in order to reduce friction.”`\
 https://www.nytimes.com/2026/10/01/magazine/hollywood-lingo.html
-
-**36 Hours in Vancouver, British Columbia: Things to Do and See**\
-`It’s never been easier to explore this Pacific Northwest city, where once-quiet neighborhoods now buzz with new global restaurants and community art spaces.`\
-https://www.nytimes.com/interactive/2026/10/01/travel/things-to-do-vancouver.html
-
-**One Issue Hanging Over Brazil’s Presidential Election: Online Gambling and Record-High Debts**\
-`Just days before Sunday’s election, President Luiz Inácio Lula da Silva banned online gambling. But record-high debt is upending millions of lives.`\
-https://www.nytimes.com/2026/10/01/world/americas/brazil-gambling-debts-elections.html
-
-**Silicon Valley’s Favorite Prophet Has a New Warning**\
-`Nick Bostrom is no longer worried about the apocalypse. Now he’s worried about utopia.`\
-https://www.nytimes.com/2026/10/01/opinion/interesting-times-podcast-spencer-klavan-nick-bostrom.html
 
