@@ -1,3 +1,11 @@
+**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
+`The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
+https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html
+
+**How Reese Witherspoon Figured Out Who She Really Is**\
+`Reese Witherspoon booked her first big Hollywood movie when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
+https://www.nytimes.com/video/podcasts/100000011142683/how-reese-witherspoon-figured-out-who-she-really-is.html
+
 **Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
 `Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
 https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.
 **Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
 `The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
 https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
-
-**Supreme Court, Taking On Trump Immigration Agenda, Will Review Migrant Detention Policy**\
-`The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
-https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
-
-**2 Dead and 1 Missing in Medical Helicopter Crash Near California Coast**\
-`The aircraft went down near Catalina Island on Wednesday night with five people aboard, the authorities said. Two aboard were retrieved with injuries.`\
-https://www.nytimes.com/2026/10/01/us/helicopter-crash-catalina-island-california.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\

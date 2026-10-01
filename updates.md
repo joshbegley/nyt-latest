@@ -1,3 +1,23 @@
+**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
+`Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
+https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html
+
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/01/books/review/new-recommended-books.html
+
+**Israelis Take Pride in Bravery of Passengers Who Saved Flight 1073**\
+`The events evoked days decades ago when Israel was widely admired for its plucky survival against the odds and for taking on hijackers.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-1073.html
+
+**What Happened to Cameron Crowe? He Has Answers.**\
+`Cameron Crowe speaks with David Marchese about his 50-year career, revealing details about the boombox scene in “Say Anything,” what it was like interviewing David Bowie and his plans for a Joni Mitchell biopic.`\
+https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-crowe-he-has-answers.html
+
+**Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
+
 **Why Did the Tennessee Execution Fail?**\
 `A catheter carrying the lethal drug may not have delivered the doses to Christa Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
 https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
