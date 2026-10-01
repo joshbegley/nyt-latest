@@ -1,3 +1,11 @@
+**Russia to Sharply Increase War Spending and Cut to Social Programs**\
+`Both sides are finding it increasingly difficult to finance the conflict in Ukraine. Russia’s 2027 budget envisions more debt, higher taxes and lower social benefits.`\
+https://www.nytimes.com/2026/10/01/world/europe/russia-war-budget.html
+
+**Israeli Politicians Trade Barbs Over FlyDubai Attack**\
+`Prime Minister Benjamin Netanyahu’s campaign for a coming election was already dominated by discussion of the policy, military and intelligence failures leading up to the Hamas-led attacks on Oct. 7, 2023.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/israel-flydubai-netanyahu-elections.html
+
 **A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
 `Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
 https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html
@@ -66,7 +74,7 @@ https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his
 `Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. She was hospitalized late Wednesday.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
-**Renee Good’s Family Sues ICE Agent and Top Officials Over Minnesota Killing**\
+**Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
 `The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
 https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
 
@@ -158,7 +166,7 @@ https://www.nytimes.com/2026/10/01/crosswords/wordle-review-1931.html
 `The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
 https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
 
-**Live Updates: Investigators Seek Motive in FlyDubai Attack**\
+**Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/01/realestate/tell-us-your-tales-of-trick-or-tre
 **What Are You Thinking and Feeling About the Cornell Sexual Assault Case?**\
 `The fallout from a lawsuit brought by a woman who said she was raped on campus in 2024 has gripped the nation. What is your reaction to the news?`\
 https://www.nytimes.com/2026/10/01/learning/what-are-you-thinking-and-feeling-about-the-cornell-sexual-assault-case.html
-
-**Solve a Bob Dylan Themed Crossword Puzzle**\
-`This puzzle, constructed by Kate Jensen, celebrates the singer’s work and career.`\
-https://www.nytimes.com/2026/10/01/crosswords/bob-dylan-special-crossword.html
-
-**We Want Your Best Breakup Lines**\
-`For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup — kind, bizarre, profound, haunting or funny — either delivered or received.`\
-https://www.nytimes.com/2026/10/01/style/modern-love-we-want-your-best-breakup-lines.html
 

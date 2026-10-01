@@ -1,3 +1,19 @@
+**Russia to Sharply Increase War Spending and Cut to Social Programs**\
+`Both sides are finding it increasingly difficult to finance the conflict in Ukraine. Russia’s 2027 budget envisions more debt, higher taxes and lower social benefits.`\
+https://www.nytimes.com/2026/10/01/world/europe/russia-war-budget.html
+
+**Israeli Politicians Trade Barbs Over FlyDubai Attack**\
+`Prime Minister Benjamin Netanyahu’s campaign for a coming election was already dominated by discussion of the policy, military and intelligence failures leading up to the Hamas-led attacks on Oct. 7, 2023.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/israel-flydubai-netanyahu-elections.html
+
+**Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
+`The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
+https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
+
+**Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
+`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
+https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
+
 **A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
 `Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
 https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html

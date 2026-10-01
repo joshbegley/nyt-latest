@@ -1,3 +1,7 @@
+**Investigators Seek to Determine How a Weapon Entered FlyDubai Cockpit**\
+`Prime Minister Benjamin Netanyahu of Israel said one possibility was that the assailant used an emergency crash ax, typically stored in the cockpit.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-weapon-cockpit-stabbing-attack.html
+
 **Russia to Sharply Increase War Spending and Cut to Social Programs**\
 `Both sides are finding it increasingly difficult to finance the conflict in Ukraine. Russia’s 2027 budget envisions more debt, higher taxes and lower social benefits.`\
 https://www.nytimes.com/2026/10/01/world/europe/russia-war-budget.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/01/pageoneplus/corrections-oct-1-2026.html
 **Tell Us Your Tales of Trick-or-Treating in New York City**\
 `For an upcoming project, we’re looking for your memories of going door to door in apartment buildings.`\
 https://www.nytimes.com/2026/10/01/realestate/tell-us-your-tales-of-trick-or-treating-in-new-york-city.html
-
-**What Are You Thinking and Feeling About the Cornell Sexual Assault Case?**\
-`The fallout from a lawsuit brought by a woman who said she was raped on campus in 2024 has gripped the nation. What is your reaction to the news?`\
-https://www.nytimes.com/2026/10/01/learning/what-are-you-thinking-and-feeling-about-the-cornell-sexual-assault-case.html
 
