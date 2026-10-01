@@ -1,3 +1,7 @@
+**Christa Pike’s Lawyers Describe a ‘Cruel and Torturous’ Failed Execution**\
+`It was not clear on Thursday what had gone wrong with the lethal injection. The governor said an investigation is underway.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-condition.html
+
 **Man Charged With Threatening Katie Miller, Wife of Top Trump Aide Stephen Miller**\
 `The charges against the Massachusetts man were not the first time the Miller family has raised concerns about its security.`\
 https://www.nytimes.com/2026/10/01/us/stephen-miller-wife-katie-threats-trump.html
