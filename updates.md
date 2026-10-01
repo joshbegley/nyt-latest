@@ -1,3 +1,7 @@
+**What Role Did Ketamine Play in Cornell’s Alleged Rape Case?**\
+`Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
+https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
+
 **Gunman Kills 2 Co-Workers at Virginia Rental Business**\
 `A 37-year-old man shot three employees at an equipment rental business, then killed himself after a standoff with the police, the authorities said.`\
 https://www.nytimes.com/2026/09/30/us/virginia-workplace-shooting.html
