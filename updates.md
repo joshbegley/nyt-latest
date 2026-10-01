@@ -1,3 +1,7 @@
+**What’s Next for ‘Hard Fork’?**\
+`The podcast’s next chapter begins this week.`\
+https://www.nytimes.com/2026/10/01/podcasts/hard-fork-whats-next.html
+
 **Behold the Paragons of Rank Incompetence**\
 `Behold the paragons of rank incompetence.`\
 https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
