@@ -1,3 +1,7 @@
+**Rick Ross Is Arrested on Battery Charges After Ex-Girlfriend Reports Abuse**\
+`The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
+https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
+
 **U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
 `British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
@@ -114,8 +118,8 @@ https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-cli
 `The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
 https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
 
-**Live Updates: Tennessee Governor Pauses Future Execution After Inmate Survives Lethal Injection**\
-`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. She was hospitalized late Wednesday.`\
+**Live Updates: Tennessee Governor Suspends Executions After Inmate Survives Lethal Injection**\
+`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. Her condition was unclear.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/briefing/president-trumps-kennedy-center.html
 **Statement Written by Police in Cornell Assault Case Omitted Her Claim She Was Raped**\
 `Documents obtained by The New York Times show that the campus police at Cornell University sent a condensed statement to a prosecutor, who then declined to bring charges.`\
 https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape-case-statement.html
-
-**Why Washington Is Trying to Rein In College Sports**\
-`Money has exploded in college sports, and Congress is trying to do something about it.`\
-https://www.nytimes.com/2026/10/01/podcasts/the-daily/why-washington-is-trying-to-rein-in-college-sports.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\

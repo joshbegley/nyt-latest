@@ -1,3 +1,11 @@
+**Rick Ross Is Arrested on Battery Charges After Ex-Girlfriend Reports Abuse**\
+`The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
+https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
+
+**Live Updates: Tennessee Governor Suspends Executions After Inmate Survives Lethal Injection**\
+`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. Her condition was unclear.`\
+https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
 **U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
 `British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
