@@ -2,7 +2,7 @@
 `Prime Minister Benjamin Netanyahu of Israel said one possibility was that the assailant used an emergency crash ax, typically stored in the cockpit.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-weapon-cockpit-stabbing-attack.html
 
-**Russia to Sharply Increase War Spending and Cut to Social Programs**\
+**Russia to Sharply Increase War Spending and Cut Social Programs**\
 `Both sides are finding it increasingly difficult to finance the conflict in Ukraine. Russia’s 2027 budget envisions more debt, higher taxes and lower social benefits.`\
 https://www.nytimes.com/2026/10/01/world/europe/russia-war-budget.html
 
