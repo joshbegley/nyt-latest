@@ -1,3 +1,7 @@
+**Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
+`U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
+https://www.nytimes.com/2026/10/01/us/politics/military-civilian-deaths-in-war.html
+
 **Wind Warnings Were Never Given to Pilots in Miami Crash, Federal Report Says**\
 `The pilots of an Amazon cargo jet had never worked together before the day of the crash, and were traveling at an abnormally high speed when they hit the runway, the report said.`\
 https://www.nytimes.com/2026/10/01/us/politics/ntsb-miami-amazon-crash.html

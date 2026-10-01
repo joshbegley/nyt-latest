@@ -1,3 +1,7 @@
+**Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
+`U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
+https://www.nytimes.com/2026/10/01/us/politics/military-civilian-deaths-in-war.html
+
 **Wind Warnings Were Never Given to Pilots in Miami Crash, Federal Report Says**\
 `The pilots of an Amazon cargo jet had never worked together before the day of the crash, and were traveling at an abnormally high speed when they hit the runway, the report said.`\
 https://www.nytimes.com/2026/10/01/us/politics/ntsb-miami-amazon-crash.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations
 **FlyDubai Under Scrutiny After Cockpit Attack**\
 `The United Arab Emirates has said it is leading the investigation into the episode, and FlyDubai’s service between Dubai and Tel Aviv has been suspended.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.html
-
-**What Teenagers Are Saying About Football After a New Study on C.T.E.**\
-`We asked students if they’re still watching and playing in light of data showing that one in four N.F.L. players might expect to develop the degenerative brain disease.`\
-https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-football-after-a-new-study-on-cte.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
