@@ -1,3 +1,11 @@
+**America’s Long History of Executions Includes Many Botched Ones**\
+`Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
+https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
+
+**Matières Fécales: Thrilling but Derivative**\
+`Vanessa Friedman, our chief fashion critic, reviews the Matières Fécales show at Paris Fashion Week. The show made a statement, but did the fashion?`\
+https://www.nytimes.com/video/style/100000011131872/matieres-fecales-thrilling-but-derivative.html
+
 **What’s Going On in This Graph? | Oct. 7, 2026**\
 `Do you like to eat hamburgers? How do the foods we eat affect greenhouse gas emissions?`\
 https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2026.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/opinion/bogs-peatland-climate.html
 **It’s Not Too Late to Make Your Best Kebabs of the Summer**\
 `Use this shish tawook recipe to make perfectly charred, juicy yogurt-marinated chicken kebabs.`\
 https://www.nytimes.com/2026/10/01/dining/its-not-too-late-to-make-your-best-kebabs-of-the-summer.html
-
-**Finnish Lawmakers Report Suspicious Home Break-Ins**\
-`The speaker of Parliament said there were a “considerable” number of mysterious entries in which perpetrators appeared to have taken nothing.`\
-https://www.nytimes.com/2026/10/01/world/europe/finland-lawmakers-break-ins.html
-
-**A Maine General Store, Reimagined by a Jewelry Designer**\
-`Plus: a brasserie in Copenhagen, Pop Art clothes and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/10/01/t-magazine/weathered-bird-general-store-maine.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

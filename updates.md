@@ -1,3 +1,11 @@
+**America’s Long History of Executions Includes Many Botched Ones**\
+`Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
+https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
+
+**Matières Fécales: Thrilling but Derivative**\
+`Vanessa Friedman, our chief fashion critic, reviews the Matières Fécales show at Paris Fashion Week. The show made a statement, but did the fashion?`\
+https://www.nytimes.com/video/style/100000011131872/matieres-fecales-thrilling-but-derivative.html
+
 **What’s Going On in This Graph? | Oct. 7, 2026**\
 `Do you like to eat hamburgers? How do the foods we eat affect greenhouse gas emissions?`\
 https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2026.html

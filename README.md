@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | Oct. 5, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5-2026.html
+
+**Man Is Fatally Stabbed on the Subway in a Random Attack, Police Say**\
+`An internal police report referred to the man charged in the killing, which happened in Queens during the evening rush hour, as emotionally disturbed.`\
+https://www.nytimes.com/2026/10/01/nyregion/queens-subway-stabbing-death.html
+
 **America’s Long History of Executions Includes Many Botched Ones**\
 `Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
 https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
@@ -173,18 +181,6 @@ https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsu
 **Swiss Glaciers Lost 5% of Their Ice This Year**\
 `Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
 https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html
-
-**‘It’s a Wonderful Life’ Plans a Broadway Debut With Andrew Rannells**\
-`The show, “a live radio play,” will run during this year’s holiday season. The cast includes Andrew Rannells, Megan Hilty, Tituss Burgess, Harry Hamlin and Lisa Rinna.`\
-https://www.nytimes.com/2026/10/01/theater/its-a-wonderful-life-broadway-andrew-rannells.html
-
-**Boglands Are Museums That Help Protect Us From Climate Change**\
-`Bogs store carbon, and preserve histories too.`\
-https://www.nytimes.com/2026/10/01/opinion/bogs-peatland-climate.html
-
-**It’s Not Too Late to Make Your Best Kebabs of the Summer**\
-`Use this shish tawook recipe to make perfectly charred, juicy yogurt-marinated chicken kebabs.`\
-https://www.nytimes.com/2026/10/01/dining/its-not-too-late-to-make-your-best-kebabs-of-the-summer.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
