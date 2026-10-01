@@ -1,3 +1,7 @@
+**Librarians Discuss the Challenges and Triumphs of Running a Library Today**\
+`We asked dozens of them about America’s libraries — what they provide, what they need to survive. Here’s what they told us.`\
+https://www.nytimes.com/interactive/2026/10/01/books/state-of-libraries-librarians.html
+
 **UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
 `British police said a 25-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html

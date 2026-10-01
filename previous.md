@@ -1,3 +1,7 @@
+**Librarians Discuss the Challenges and Triumphs of Running a Library Today**\
+`We asked dozens of them about America’s libraries — what they provide, what they need to survive. Here’s what they told us.`\
+https://www.nytimes.com/interactive/2026/10/01/books/state-of-libraries-librarians.html
+
 **Anger and Questions at Cornell**\
 `Readers discuss the allegations of sexual assault at Cornell University. Also: A botched execution, and a pause, in Tennessee.`\
 https://www.nytimes.com/2026/10/01/opinion/cornell-sexual-assault.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/world/middleeast/israel-flydubai-netanyahu-el
 **A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
 `Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
 https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html
-
-**New Cornell Documents**\
-`We look at the latest in the case.`\
-https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
