@@ -1,3 +1,27 @@
+**Cornell Documents Raise Questions About Handling of Rape Allegations**\
+`More than 1,000 pages of documents obtained by The New York Times show how a woman identified as Jane Doe gradually concluded that what had happened to her at a fraternity party was a crime.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-investigation.html
+
+**What A.I. Utopia Could Look Like**\
+`How could superintelligence change our daily lives? The philosopher Nick Bostrom mulls over whether A.I. is building a future that we actually want.`\
+https://www.nytimes.com/video/opinion/100000011179082/what-ai-utopia-could-look-like.html
+
+**Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
+`The crash also included 50 cars and resulted in at least one serious injury, fire officials said. No fatalities were reported.`\
+https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
+
+**‘Ready to Blow His Stack’: How Biden Nearly Cut Off Netanyahu Over Gaza**\
+`Brett McGurk, who was the top Middle East adviser to President Joseph R. Biden Jr., offered the first inside-the-room account of American efforts to manage the Gaza war.`\
+https://www.nytimes.com/2026/10/01/us/politics/mcgurk-biden-netanyahu-gaza.html
+
+**David Ellison’s Vision for CNN: Same C.E.O and No Bari Weiss, for Now.**\
+`David Ellison is negotiating to keep CNN’s chief executive, Mark Thompson, in place without oversight from Bari Weiss, the CBS editor in chief, when the networks’ parent companies merge.`\
+https://www.nytimes.com/2026/10/01/business/media/cnn-paramount-david-ellison.html
+
+**Canada’s Proposed Oil Pipeline Offers Carney Relief From Domestic and Global Turmoil**\
+`The new pipeline from Alberta’s oil sands to the Pacific Coast may lower separatist tensions in that province while also loosening energy ties with the U.S.`\
+https://www.nytimes.com/2026/10/01/world/canada/carney-alberta-british-columbia-oil-pipeline.html
+
 **Librarians Discuss the Challenges and Triumphs of Running a Library Today**\
 `We asked dozens of them about America’s libraries — what they provide, what they need to survive. Here’s what they told us.`\
 https://www.nytimes.com/interactive/2026/10/01/books/state-of-libraries-librarians.html
@@ -157,34 +181,6 @@ https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.ht
 **States Sue Over Trump’s Repeal of Climate Rules for Power Plants**\
 `The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
 https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
-
-**What to Know About Trump Accounts as More Than 60 Million Children Are Auto-Enrolled**\
-`The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
-https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
-
-**Swedish Company Uses A.I. Likeness of Greta Garbo in Ad**\
-`An ad produced by the manufacturing company SKF Group featured a digital version of the Swedish American actress, who died in 1990. Not all viewers found the replica convincing.`\
-https://www.nytimes.com/2026/10/01/world/europe/ai-garbo-ad-sweden-skf.html
-
-**As Mortgage Rates Hit Highest Level Since 2023, Buyers Look at ARMs**\
-`The average 30-year, fixed-rate home loan rose to 7.28 percent, up from 6.34 percent a year ago. More buyers are now turning to adjustable-rate mortgages.`\
-https://www.nytimes.com/2026/10/01/business/adjustable-mortgage-rates.html
-
-**Investigators Seek to Determine How a Weapon Entered FlyDubai Cockpit**\
-`Prime Minister Benjamin Netanyahu of Israel said one possibility was that the assailant used an emergency crash ax, typically stored in the cockpit.`\
-https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-weapon-cockpit-stabbing-attack.html
-
-**Russia to Sharply Increase War Spending and Cut Social Programs**\
-`Both sides are finding it increasingly difficult to finance the conflict in Ukraine. Russia’s 2027 budget envisions more debt, higher taxes and lower social benefits.`\
-https://www.nytimes.com/2026/10/01/world/europe/russia-war-budget.html
-
-**Israeli Politicians Trade Barbs Over FlyDubai Attack**\
-`Prime Minister Benjamin Netanyahu’s campaign for a coming election was already dominated by discussion of the policy, military and intelligence failures leading up to the Hamas-led attacks on Oct. 7, 2023.`\
-https://www.nytimes.com/2026/10/01/world/middleeast/israel-flydubai-netanyahu-elections.html
-
-**A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
-`Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
-https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

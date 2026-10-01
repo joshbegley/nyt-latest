@@ -1,3 +1,11 @@
+**Three Restaurants That Came Back From the Dead**\
+`What to eat at the reanimated locations of Carnegie Deli, Sam’s Restaurant and Ugly Baby.`\
+https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
+
+**The MacArthur ‘Genius’ Studying Sea Ice Secrets**\
+`A climate scientist was one of 20 recipients of a “no-strings-attached” $800,000 stipend.`\
+https://www.nytimes.com/2026/10/01/climate/climate-science-macarthur.html
+
 **Cornell Documents Raise Questions About Handling of Rape Allegations**\
 `More than 1,000 pages of documents obtained by The New York Times show how a woman identified as Jane Doe gradually concluded that what had happened to her at a fraternity party was a crime.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-investigation.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.
 **How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
 `Watch the full conversation with Miranda Lambert. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011183057/how-ella-langley-miranda-lambert-made-history-with-choosin-texas.html
-
-**American University of Afghanistan at Risk of Closure Amid Funding Cuts**\
-`The State Department has denied its funding for the next two years, jeopardizing the education of hundreds of female Afghan students.`\
-https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.html
-
-**States Sue Over Trump’s Repeal of Climate Rules for Power Plants**\
-`The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
-https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
