@@ -1,3 +1,7 @@
+**Passengers Recount ‘Earth-Shattering’ Experiences After Pilot Stabbed on FlyDubai Flight**\
+`Passengers on a FlyDubai flight from Dubai to Tel Aviv speak out after the plane made an emergency landing when a fight broke out in the cockpit.`\
+https://www.nytimes.com/video/world/middleeast/100000011185739/flydubai-voices-flight-emergency-israel.html
+
 **Becerra Holds Wide Leads in Polling of California’s Governor Race**\
 `Unaffiliated voters leaned heavily toward Xavier Becerra, a Democrat, in a recent poll, pushing him to his largest lead of this election cycle.`\
 https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-california-governor.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-californi
 `Mark Personette, 80, eluded the authorities for 43 years before he was arrested and eventually convicted of first-degree murder for killing Marissa Harvey.`\
 https://www.nytimes.com/2026/09/30/us/san-francisco-marissa-harvey-murder-sentencing.html
 
-**Passenger Who Helped Subdue Pilot Describes Bloody Scene in Cockpit**\
+**FlyDubai Passenger Who Helped Subdue Pilot Describes Stabbing Attack in Cockpit**\
 `A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
 **America Used to Be Cool. What Happened?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-what-happened.html
-
-**I Thought Things Had Gotten Better. The Cornell Case Shows How Bad They Really Are.**\
-`How could so little have changed?`\
-https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
 
