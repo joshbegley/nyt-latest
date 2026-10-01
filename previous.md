@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
 `The process of getting a first U.S. passport will go fully online next year, said Secretary of State Marco Rubio, so if your picture is bad, it’ll be your fault.`\
 https://www.nytimes.com/2026/09/30/travel/passport-photos-digital-application.html
 
-**Is American Culture Simply Bad Now?**\
+**America Used to Be Cool. What Happened?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
 
