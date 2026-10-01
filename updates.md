@@ -1,3 +1,11 @@
+**A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
+`Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
+https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html
+
+**New Cornell Documents**\
+`We look at the latest in the case.`\
+https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
+
 **The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
 `“Our summers used to actually be summers,” one justice lamented.`\
 https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
