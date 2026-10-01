@@ -1,3 +1,7 @@
+**Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
+`May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
+
 **Rick Ross Is Arrested on Battery Charges After Ex-Girlfriend Reports Abuse**\
 `The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violen
 `British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
-**Emails and Texts Offer Inside Look Into Mamdani’s Rent Freeze Push**\
-`The communications were revealed as part of a lawsuit challenging New York City’s rent freeze on rent-stabilized units, which went into effect on Thursday.`\
+**Emails and Texts Offer Inside Look Into Mamdani’s Rent-Freeze Push**\
+`The communications were revealed as part of a lawsuit brought by landlords who are challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
 https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/world/europe/uk-france-migrant-deal-cancelled
 **President Trump’s Kennedy Center**\
 `We examine the arts center’s saga in Washington.`\
 https://www.nytimes.com/2026/10/01/briefing/president-trumps-kennedy-center.html
-
-**Statement Written by Police in Cornell Assault Case Omitted Her Claim She Was Raped**\
-`Documents obtained by The New York Times show that the campus police at Cornell University sent a condensed statement to a prosecutor, who then declined to bring charges.`\
-https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape-case-statement.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\

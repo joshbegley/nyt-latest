@@ -1,3 +1,11 @@
+**Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
+`May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
+https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
+
+**Emails and Texts Offer Inside Look Into Mamdani’s Rent-Freeze Push**\
+`The communications were revealed as part of a lawsuit brought by landlords who are challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
+https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
+
 **Rick Ross Is Arrested on Battery Charges After Ex-Girlfriend Reports Abuse**\
 `The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
