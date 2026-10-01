@@ -1,3 +1,15 @@
+**Egypt Arrests 6 Matsaddash Journalists on Claims of Spreading Disinformation**\
+`The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
+
+**Israel to Honor FlyDubai Passengers Who Helped Prevent Flight Disaster**\
+`President Isaac Herzog of Israel said he would recommend five Israeli nationals for heroism awards a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
+https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-passengers-award.html
+
+**California Wine Producers Are Betting on Good, Moderately Priced Bottles**\
+`Cheap bottles have mostly meant bad, processed wines. The hope is that good wine from well-farmed grapes at a slightly higher price will fill a need.`\
+https://www.nytimes.com/2026/10/01/dining/drinks/california-wine-moderately-priced.html
+
 **Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
 `Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed. All the men denied any wrongdoing.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html

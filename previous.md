@@ -1,3 +1,15 @@
+**Egypt Arrests 6 Matsaddash Journalists on Claims of Spreading Disinformation**\
+`The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
+
+**Israel to Honor FlyDubai Passengers Who Helped Prevent Flight Disaster**\
+`President Isaac Herzog of Israel said he would recommend five Israeli nationals for heroism awards a day after they intervened when a co-pilot stabbed the captain on a FlyDubai flight to Tel Aviv.`\
+https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-passengers-award.html
+
+**California Wine Producers Are Betting on Good, Moderately Priced Bottles**\
+`Cheap bottles have mostly meant bad, processed wines. The hope is that good wine from well-farmed grapes at a slightly higher price will fill a need.`\
+https://www.nytimes.com/2026/10/01/dining/drinks/california-wine-moderately-priced.html
+
 **Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
 `May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
 **The Global Bond Rout Reaches Worrying New Levels**\
 `Investors are on alert as the yield on the 10-year Treasury note hit a new multi-decade high. The sell-off is also broadening in Europe, too.`\
 https://www.nytimes.com/2026/10/01/business/dealbook/bond-rout-trump-powell.html
-
-**What’s Next for ‘Hard Fork’?**\
-`The podcast’s next chapter begins this week.`\
-https://www.nytimes.com/2026/10/01/podcasts/hard-fork-whats-next.html
-
-**Britain and France Give Up Landmark Migrant Agreement**\
-`The French government soured on a reciprocal deal that allowed the British authorities to return some migrants who crossed the English Channel illegally in small boats.`\
-https://www.nytimes.com/2026/10/01/world/europe/uk-france-migrant-deal-cancelled.html
-
-**President Trump’s Kennedy Center**\
-`We examine the arts center’s saga in Washington.`\
-https://www.nytimes.com/2026/10/01/briefing/president-trumps-kennedy-center.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\

@@ -1,3 +1,11 @@
+**Green Goddess Dressing So Good You Might Do Shots of It**\
+`And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
+https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html
+
+**‘Salty, Not Sweet’: Florence Fabricant on Her Food Writing Career**\
+`In this excerpt from Florence Fabricant’s new memoir, “Salty, Not Sweet,” she recalls how she wound up writing for The New York Times.`\
+https://www.nytimes.com/2026/10/01/dining/florence-fabricant-salty-not-sweet-book.html
+
 **Egypt Arrests 6 Matsaddash Journalists on Claims of Spreading Disinformation**\
 `The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
 
 **U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
-`British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
+`British counterterrorism police said a 27-year-old British-Iranian dual national was arrested on Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
 **Emails and Texts Offer Inside Look Into Mamdani’s Rent-Freeze Push**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.h
 **After Failed Attempt to Execute Christa Pike, Tennessee Pauses a Planned Execution**\
 `Gov. Bill Lee, a Republican, ordered a review of the state’s lethal injection process after the botched attempt to put Christa Pike to death. She was hospitalized Wednesday.`\
 https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
-
-**U.S. Bond Yields Hit Highest Level Since 2002**\
-`The factors pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
-https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
-
-**The Global Bond Rout Reaches Worrying New Levels**\
-`Investors are on alert as the yield on the 10-year Treasury note hit a new multi-decade high. The sell-off is also broadening in Europe, too.`\
-https://www.nytimes.com/2026/10/01/business/dealbook/bond-rout-trump-powell.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
