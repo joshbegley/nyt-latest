@@ -1,3 +1,11 @@
+**Tennessee Woman Survives 2 Doses of Lethal Injection, Lawyers Say**\
+`A Tennessee woman survived two doses of lethal injection, her lawyers said. Witnesses heard Christa Pike breathing and snoring throughout the execution attempt.`\
+https://www.nytimes.com/video/us/100000011186830/christa-pike-tennessee-execution-halted.html
+
+**Late Night Is Skeptical of A.I. Leaders Self-Regulating**\
+`“Sure, we don’t need laws! I’m sure we could trust these guys,” Jordan Klepper said of technology executives on “The Daily Show,” after Trump asked them to police themselves.`\
+https://www.nytimes.com/2026/10/01/arts/television/late-night-trump-ai-leaders-regulation.html
+
 **What to Know About the Execution Attempt of Christa Pike**\
 `Ms. Pike, 50, survived two doses of lethal injection in Tennessee. She was sentenced to death for the 1995 murder of a classmate.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-alive-tennessee-execution-halted.html
