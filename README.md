@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
 `Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
 https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
 
-**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
-`In his “State of the Force” address, Defense Secretary Pete Hegseth focused on the culture war and accused reporters of “treason” over Iran war coverage.`\
-https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
-
