@@ -1,3 +1,7 @@
+**Cornell’s Jane Doe Said She Was Given Ketamine. Here’s How the Drug Works.**\
+`Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
+https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
+
 **Tennessee Woman Survives 2 Doses of Lethal Injection, Lawyers Say**\
 `A Tennessee woman survived two doses of lethal injection, her lawyers said. Witnesses heard Christa Pike breathing and snoring throughout the execution attempt.`\
 https://www.nytimes.com/video/us/100000011186830/christa-pike-tennessee-execution-halted.html

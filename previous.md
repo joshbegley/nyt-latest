@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/01/pageoneplus/quote-of-the-day-governments-hop-
 `In 1949, Mao Zedong proclaimed the founding of the People’s Republic of China in Beijing.`\
 https://www.nytimes.com/2026/10/01/learning/on-this-day-oct-1.html
 
-**What Role Did Ketamine Play in Cornell’s Alleged Rape Case?**\
+**Cornell’s Jane Doe Said She Was Given Ketamine. Here’s How the Drug Works.**\
 `Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
 https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
 
