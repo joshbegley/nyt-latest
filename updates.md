@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | Oct. 5, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5-2026.html
+
+**Man Is Fatally Stabbed on the Subway in a Random Attack, Police Say**\
+`An internal police report referred to the man charged in the killing, which happened in Queens during the evening rush hour, as emotionally disturbed.`\
+https://www.nytimes.com/2026/10/01/nyregion/queens-subway-stabbing-death.html
+
 **America’s Long History of Executions Includes Many Botched Ones**\
 `Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
 https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
