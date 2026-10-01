@@ -1,3 +1,11 @@
+**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
+`The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
+https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html
+
+**How Reese Witherspoon Figured Out Who She Really Is**\
+`Reese Witherspoon booked her first big Hollywood movie when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
+https://www.nytimes.com/video/podcasts/100000011142683/how-reese-witherspoon-figured-out-who-she-really-is.html
+
 **Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
 `Brené Brown talks to Lulu Garcia-Navarro about what makes a good leader in this moment of intense technological and cultural upheaval.`\
 https://www.nytimes.com/video/podcasts/100000011142576/brene-brown-doesnt-want-to-be-your-self-help-guru-anymore.html

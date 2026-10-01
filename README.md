@@ -1,3 +1,7 @@
+**Nigerian Charged With Running Fake Government Agency**\
+`The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
+https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
+
 **Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
 `The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
 https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html
@@ -174,17 +178,13 @@ https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-cli
 `The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
 https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
 
-**Live Updates: Tennessee Governor Suspends Executions After Inmate Survives Lethal Injection**\
-`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. Her condition was unclear.`\
+**Live Updates: Tennessee Inmate Christa Pike Alive After ‘Torturous’ Botched Execution, Lawyer Says**\
+`Randy Spivey, a lawyer for Ms. Pike, called on Gov. Bill Lee to commute her sentence after she survived an attempt to execute her by lethal injection. Mr. Lee ordered executions suspended pending a review.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
 `The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
 https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
-
-**Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
-`The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
-https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
