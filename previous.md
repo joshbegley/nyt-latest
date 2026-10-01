@@ -1,3 +1,7 @@
+**Live Updates: California Governor Candidates Becerra and Hilton Face Off in Debate**\
+`Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
+https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
+
 **In Speech, Hegseth Targets Diversity and Transgender People**\
 `In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people.`\
 https://www.nytimes.com/video/us/politics/100000011186245/hegseth-speech-targets-diversity-transgender-people.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/30/us/abortion-ban-shield-laws-supreme-court.htm
 **Is Anything Provocative Anymore?**\
 `Searching for the subversive, surprising and even shocking in fashion.`\
 https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
-
-**Ask a Journalist: How to Craft Short Narratives**\
-`Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
-https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
 

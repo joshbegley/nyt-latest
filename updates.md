@@ -1,3 +1,7 @@
+**Live Updates: California Governor Candidates Becerra and Hilton Face Off in Debate**\
+`Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
+https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
+
 **Is American Culture Simply Bad Now?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
