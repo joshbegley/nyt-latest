@@ -184,7 +184,7 @@ https://www.nytimes.com/2026/10/01/crosswords/times-first-crossword-puzzle.html
 
 **‘Verity’ Review: Magnificent Confession**\
 `Anne Hathaway and Dakota Johnson vie for Josh Hartnett and the moral high ground in this batty melodrama.`\
-https://www.nytimes.com/2026/10/01/movies/verity-review-magnificent-confession.html
+https://www.nytimes.com/2026/10/01/movies/verity-review-colleen-hoover-anne-hathaway.html
 
 **‘Lady’ Review: The Grande Dame and the Director**\
 `A loopy mockumentary starring Sian Clifford as a delusional aristocrat is surprisingly moving.`\

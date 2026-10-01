@@ -1,3 +1,7 @@
+**‘Verity’ Review: Magnificent Confession**\
+`Anne Hathaway and Dakota Johnson vie for Josh Hartnett and the moral high ground in this batty melodrama.`\
+https://www.nytimes.com/2026/10/01/movies/verity-review-colleen-hoover-anne-hathaway.html
+
 **U.S. Bond Yields Hit Highest Level Since 2002**\
 `The factors pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
 https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
