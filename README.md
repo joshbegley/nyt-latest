@@ -1,4 +1,8 @@
-**Late Night is Skeptical of A.I. Leaders Self-Regulating**\
+**Tennessee Woman Survives 2 Doses of Lethal Injection, Lawyers Say**\
+`A Tennessee woman survived two doses of lethal injection, her lawyers said. Witnesses heard Christa Pike breathing and snoring throughout the execution attempt.`\
+https://www.nytimes.com/video/us/100000011186830/christa-pike-tennessee-execution-halted.html
+
+**Late Night Is Skeptical of A.I. Leaders Self-Regulating**\
 `“Sure, we don’t need laws! I’m sure we could trust these guys,” Jordan Klepper said of technology executives on “The Daily Show,” after Trump asked them to police themselves.`\
 https://www.nytimes.com/2026/10/01/arts/television/late-night-trump-ai-leaders-regulation.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/30/us/tsa-airports-standing.html
 **Maps: Tracking Tropical Storm Choi-wan**\
 `See the likely path and wind arrival times for Choi-wan`\
 https://www.nytimes.com/interactive/2026/09/30/weather/choi-wan-map-path-tracker.html
-
-**While Surging to Records, Stocks Experience Some ‘Wobbles’**\
-`Beneath the S&P 500’s 2 percent gain in the third quarter, the rise in oil prices and bond yields led some investors to become more cautious about the outlook for A.I. profits.`\
-https://www.nytimes.com/2026/09/30/business/stocks-sp500-oil-bonds.html
 
