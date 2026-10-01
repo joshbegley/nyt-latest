@@ -1,3 +1,15 @@
+**Japan Raises Residency Fees 2,000 Percent Amid ‘Anxiety’ Over Foreigners**\
+`Prime Minister Sanae Takaichi is making it harder for immigrants to stay in the country. Critics say she is hurting Japan’s ability to address labor shortages.`\
+https://www.nytimes.com/2026/10/01/world/asia/japan-raises-residency-fees-2000-percent-amid-anxiety-over-foreigners.html
+
+**Becerra and Hilton Tangle Over Taxes and Trump in California Governor Debate**\
+`Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
+https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/30/us/elections/heres-the-latest.html
+
 **The Cornell Rape Investigation: Five Takeaways**\
 `The New York Times obtained more than 1,000 pages from the university’s internal inquiry into accusations by “Jane Doe.” Here are the revelations so far.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-jane-doe-rape-investigation-documents.html

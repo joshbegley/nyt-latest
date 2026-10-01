@@ -1,3 +1,7 @@
+**Japan Raises Residency Fees 2,000 Percent Amid ‘Anxiety’ Over Foreigners**\
+`Prime Minister Sanae Takaichi is making it harder for immigrants to stay in the country. Critics say she is hurting Japan’s ability to address labor shortages.`\
+https://www.nytimes.com/2026/10/01/world/asia/japan-raises-residency-fees-2000-percent-amid-anxiety-over-foreigners.html
+
 **The Cornell Rape Investigation: Five Takeaways**\
 `The New York Times obtained more than 1,000 pages from the university’s internal inquiry into accusations by “Jane Doe.” Here are the revelations so far.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-jane-doe-rape-investigation-documents.html
@@ -66,9 +70,13 @@ https://www.nytimes.com/2026/09/30/us/san-francisco-marissa-harvey-murder-senten
 `A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
 
-**Live Updates: Becerra and Hilton Tangle Over Taxes and Trump in California Governor Debate**\
+**Becerra and Hilton Tangle Over Taxes and Trump in California Governor Debate**\
 `Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
 https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/09/30/us/elections/heres-the-latest.html
 
 **In Speech, Hegseth Targets Diversity and Transgender People**\
 `In his “State of the Force” address on Wednesday, Defense Secretary Pete Hegseth doubled down on his decisions to fire dozens of admirals and generals and bar transgender people.`\
@@ -181,8 +189,4 @@ https://www.nytimes.com/2026/09/30/movies/elizabeth-holmes-documentary-nathan-fi
 **Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
 `Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
 https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html
-
-**Trump Media’s Merger With Nuclear Fusion Company Moves Closer to Completion**\
-`A securities filing laid out the terms of the deal between Truth Social’s parent company and TAE Technologies, which was formally announced in December.`\
-https://www.nytimes.com/2026/09/30/business/trump-media-tae-technologies-merger.html
 
