@@ -1,3 +1,7 @@
+**Cornell Documents Raise Questions About Handling of Rape Allegations**\
+`More than 1,000 pages of documents obtained by The New York Times show how a woman identified as Jane Doe gradually concluded that what had happened to her at a fraternity party was a crime.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-investigation.html
+
 **What A.I. Utopia Could Look Like**\
 `How could superintelligence change our daily lives? The philosopher Nick Bostrom mulls over whether A.I. is building a future that we actually want.`\
 https://www.nytimes.com/video/opinion/100000011179082/what-ai-utopia-could-look-like.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.ht
 **States Sue Over Trump’s Repeal of Climate Rules for Power Plants**\
 `The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
 https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
-
-**What to Know About Trump Accounts as More Than 60 Million Children Are Auto-Enrolled**\
-`The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
-https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
