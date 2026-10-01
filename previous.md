@@ -1,3 +1,11 @@
+**Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
+`The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
+https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html
+
+**Amazon Settles Lawsuit Over Claims of Slow Deliveries to Low-Income Areas**\
+`The tech giant will refund $7.25 million in Prime membership fees to affected customers and pay an additional $1 million to settle the suit brought by the District of Columbia.`\
+https://www.nytimes.com/2026/10/01/technology/amazon-slow-deliveries-dc.html
+
 **What’s Going On in This Picture? | Oct. 5, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5-2026.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.h
 **Who’s to Blame When A.I. Goes Rogue?**\
 `Many think artificial intelligence companies should be held liable for their runaway technology. But legal scholars say applying existing law could be messy`\
 https://www.nytimes.com/2026/10/01/technology/ai-rogue-agents-liability.html
-
-**U.C.L.A. Says Justice Department is ‘Weaponizing’ Civil Rights Laws**\
-`The fiery language came months after the Justice Department accused the university of abetting antisemitism against students.`\
-https://www.nytimes.com/2026/10/01/us/ucla-justice-department-antisemitism-lawsuit.html
-
-**Swiss Glaciers Lost 5% of Their Ice This Year**\
-`Switzerland’s glaciers shed more than 5 percent of their ice this year, according to the country’s monitoring body, after a winter drought gave way to relentless summer heat waves.`\
-https://www.nytimes.com/video/world/europe/100000011187118/swiss-glaciers-melting.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

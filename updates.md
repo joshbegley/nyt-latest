@@ -1,3 +1,11 @@
+**Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
+`The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
+https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html
+
+**Amazon Settles Lawsuit Over Claims of Slow Deliveries to Low-Income Areas**\
+`The tech giant will refund $7.25 million in Prime membership fees to affected customers and pay an additional $1 million to settle the suit brought by the District of Columbia.`\
+https://www.nytimes.com/2026/10/01/technology/amazon-slow-deliveries-dc.html
+
 **What’s Going On in This Picture? | Oct. 5, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5-2026.html

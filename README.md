@@ -1,3 +1,7 @@
+**Congress Leaves With a Whimper, as the G.O.P. Braces for Midterm Pain**\
+`Republicans lined up a series of doomed votes in their final hours, hoping to portray Democrats as obstructionists. But some conceded that their party was more likely to be punished.`\
+https://www.nytimes.com/2026/10/01/us/politics/republicans-congress-midterm-elections-trump-affordability.html
+
 **Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
 `The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
 https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
 **The Supreme Court’s Summer Break Vanishes, Erased by Emergencies**\
 `“Our summers used to actually be summers,” one justice lamented.`\
 https://www.nytimes.com/2026/10/01/us/politics/the-docket-supreme-court-summer.html
-
-**Who’s to Blame When A.I. Goes Rogue?**\
-`Many think artificial intelligence companies should be held liable for their runaway technology. But legal scholars say applying existing law could be messy`\
-https://www.nytimes.com/2026/10/01/technology/ai-rogue-agents-liability.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
