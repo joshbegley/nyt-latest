@@ -1,3 +1,7 @@
+**This Is Something Trump Can’t Break**\
+`The president’s effort to use tariffs to steer manufacturing back to the United States can only go so far.`\
+https://www.nytimes.com/2026/10/01/opinion/mexico-ai-trump.html
+
 **Japan Raises Residency Fees 2,000 Percent Amid ‘Anxiety’ Over Foreigners**\
 `Prime Minister Sanae Takaichi is making it harder for immigrants to stay in the country. Critics say she is hurting Japan’s ability to address labor shortages.`\
 https://www.nytimes.com/2026/10/01/world/asia/japan-raises-residency-fees-2000-percent-amid-anxiety-over-foreigners.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/09/30/us/politics/trump-biden-ai.html
 **‘You Can See Everything,’ if You Could Only Secure a Ticket**\
 `The buzziest screening at the New York Film Festival is a three-hour documentary in which Nathan Fielder questions Elizabeth Holmes, the disgraced Theranos founder.`\
 https://www.nytimes.com/2026/09/30/movies/elizabeth-holmes-documentary-nathan-fielder-you-can-see-everything.html
-
-**Justice Dept. Tries to Rebuke Federal Judges for Speaking to The Times**\
-`Judge Patrick J. Schiltz had warned that the administration’s actions “created a grave threat to the rule of law.” The attorney general accused him of “obvious bias.”`\
-https://www.nytimes.com/2026/09/30/us/politics/justice-department-complaint-judges-schiltz.html
 
