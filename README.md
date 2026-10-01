@@ -1,3 +1,7 @@
+**Becerra Holds Wide Leads in Polling of California’s Governor Race**\
+`Unaffiliated voters leaned heavily toward Xavier Becerra, a Democrat, in a recent poll, pushing him to his largest lead of this election cycle.`\
+https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-california-governor.html
+
 **Man Gets Life Sentence for Strangling 15-Year-Old Girl in San Francisco in 1978**\
 `Mark Personette, 80, eluded the authorities for 43 years before he was arrested and eventually convicted of first-degree murder for killing Marissa Harvey.`\
 https://www.nytimes.com/2026/09/30/us/san-francisco-marissa-harvey-murder-sentencing.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-wh
 **I Thought Things Had Gotten Better. The Cornell Case Shows How Bad They Really Are.**\
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
-
-**Jonathan McKinsey’s In-Laws Charged With Murder in California Shooting**\
-`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer in the games department of The New York Times, near a park in Dublin, Calif.`\
-https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
 
