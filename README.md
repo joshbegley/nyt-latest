@@ -1,3 +1,7 @@
+**A Hacking Competition Shows the Power of China’s ‘Open Weight’ A.I.**\
+`The winner of an elite cybersecurity contest prevailed by relying on a free Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
+https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
+
 **After Failed Attempt to Execute Christa Pike, Tennessee Pauses a Planned Execution**\
 `Gov. Bill Lee, a Republican, ordered a review of the state’s lethal injection process after the botched attempt to put Christa Pike to death. She was hospitalized Wednesday.`\
 https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/movies/the-influencer-project-review.html
 **‘Digger’ Review: Even Tom Cruise Can’t Save This Strained Satire**\
 `Though mightily he does try. The star brings his usual high energy to the role of a Texas oil tycoon in Alejandro G. Iñárritu’s ponderous climate comedy.`\
 https://www.nytimes.com/2026/10/01/movies/digger-review-tom-cruise-alejandro-inarritu.html
-
-**26 Fun Things to Do in N.Y.C. in October**\
-`This month brings a major manga exhibition, birthday tributes to John Coltrane and Steve Reich and a night with Michael Douglas.`\
-https://www.nytimes.com/2026/10/01/arts/fun-things-to-do-nyc-october.html
 
