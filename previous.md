@@ -182,11 +182,3 @@ https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-char
 `While typically found on restaurant menus, potato pavé is perfectly doable at home with a little patience and effort.`\
 https://www.nytimes.com/video/dining/100000011183384/potato-pave-with-parmesan-crust.html
 
-**Tahini Krispie Chocolate Bars**\
-`These sweet and salty bars are a low-effort, high-reward treat that upgrades your average Rice Krispies treat.`\
-https://www.nytimes.com/video/dining/100000011183403/tahini-krispie-chocolate-bars.html
-
-**States That Ban Abortion Challenge Shield Laws for Providers Who Mail Pills**\
-`The lawsuit filed by Louisiana, Alabama and Arkansas to the Supreme Court escalates the battle between states that outlaw abortion and those that support nationwide access by mail.`\
-https://www.nytimes.com/2026/09/30/us/abortion-ban-shield-laws-supreme-court.html
-
