@@ -1,3 +1,11 @@
+**Wind Warnings Were Never Given to Pilots in Miami Crash, Federal Report Says**\
+`The pilots of an Amazon cargo jet had never worked together before the day of the crash, and were traveling at an abnormally high speed when they hit the runway, the report said.`\
+https://www.nytimes.com/2026/10/01/us/politics/ntsb-miami-amazon-crash.html
+
+**Colleen Slemmer Was a Vibrant and Generous Presence, Her Mother Says**\
+`Ms. Slemmer was killed in 1995 by Christa Pike, whose execution in Tennessee was botched on Wednesday. Her family celebrated what would have been her 51st birthday last month.`\
+https://www.nytimes.com/2026/10/01/us/colleen-slemmer.html
+
 **Colleen Slemmer Was a ‘Vibrant and Generous Presence,’ Her Mother Says**\
 `Ms. Slemmer was killed in 1995 by Christa Pike, whose execution in Tennessee was botched on Wednesday. Her family celebrated what would have been her 51st birthday last month.`\
 https://www.nytimes.com/2026/10/01/us/colleen-slemmer.html
