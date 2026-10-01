@@ -1,3 +1,7 @@
+**Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
+`The crash also included 50 cars and resulted in at least one serious injury, fire officials said. There were no fatalities, but multiple people were injured.`\
+https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
+
 **Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
 `U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
 https://www.nytimes.com/2026/10/01/us/politics/military-civilian-deaths-in-war.html

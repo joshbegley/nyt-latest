@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-inv
 https://www.nytimes.com/video/opinion/100000011179082/what-ai-utopia-could-look-like.html
 
 **Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
-`The crash also included 50 cars and resulted in at least one serious injury, fire officials said. No fatalities were reported.`\
+`The crash also included 50 cars and resulted in at least one serious injury, fire officials said. There were no fatalities, but multiple people were injured.`\
 https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
 
 **‘Ready to Blow His Stack’: How Biden Nearly Cut Off Netanyahu Over Gaza**\

@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.htm
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
-**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
+**Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 
