@@ -1,3 +1,11 @@
+**Cute Delivery Robots Have Invaded New Jersey. Not Everyone Is Charmed.**\
+`The machines have conquered Jersey City’s sidewalks, and Hoboken is the next target. But skepticism about artificial intelligence has forced the robot horde to proceed with caution.`\
+https://www.nytimes.com/2026/10/01/nyregion/food-delivery-robots-coco-avride-jersey-city.html
+
+**NYT Spelling Bee Answers for October 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/01/crosswords/spelling-bee-forum.html
+
 **Tennessee Woman Survives 2 Doses of Lethal Injection, Lawyers Say**\
 `A Tennessee woman survived two doses of lethal injection, her lawyers said. Witnesses heard Christa Pike breathing and snoring throughout the execution attempt.`\
 https://www.nytimes.com/video/us/100000011186830/christa-pike-tennessee-execution-halted.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/09/30/world/iraq-war-us-pilot-israel-flight.html
 **A Bloody Attack on a FlyDubai Plane Headed to Israel, and a Terrifying Plunge**\
 `“I don’t deserve to die like this,” said one passenger on Flight 1073 from Dubai to Tel Aviv. The motive of the cockpit stabbing remains unknown, officials said.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/flydubai-attack-israel-uae.html
-
-**T.S.A. Agents Are Told to Get on Their Feet During Airport ID Checks**\
-`The agency said that requiring agents to stand while examining documents was a “welcome change.” The union representing them was less welcoming.`\
-https://www.nytimes.com/2026/09/30/us/tsa-airports-standing.html
-
-**Maps: Tracking Tropical Storm Choi-wan**\
-`See the likely path and wind arrival times for Choi-wan`\
-https://www.nytimes.com/interactive/2026/09/30/weather/choi-wan-map-path-tracker.html
 
