@@ -1,3 +1,19 @@
+**Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
+`Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
+https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
+
+**Prosecutors Cannot Revive Reflecting Pool Case Against Ex-Olympian, Judge Rules**\
+`A charge against David Hearn was dismissed “with prejudice” because of President Trump’s attempts to influence the case.`\
+https://www.nytimes.com/2026/10/01/climate/david-hearn-reflecting-pool-charges-dropped.html
+
+**How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
+`A catheter carrying the lethal drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
+
+**What to Know About Trump Accounts as More Than 60 Million Children Are Auto-Enrolled**\
+`The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
+https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
+
 **Nigerian Charged With Running Fake Government Agency**\
 `The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
 https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
