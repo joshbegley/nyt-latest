@@ -1,3 +1,7 @@
+**Tennessee Pauses Executions After a Botched Lethal Injection**\
+`Also, the Supreme Court will review Trump’s migrant detention policy. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/01/briefing/tennessee-botched-execution-cornell-documents.html
+
 **Christa Pike Told The Times She Feared a Botched Execution**\
 `Weeks before her failed execution, the Tennessee death row inmate Christa Pike told The Times she was concerned her execution would be mishandled.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011188789/christa-pike-told-the-times-she-feared-a-botched-execution.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-107
 **What Happened to Cameron Crowe? He Has Answers.**\
 `Cameron Crowe speaks with David Marchese about his 50-year career, revealing details about the boombox scene in “Say Anything,” what it was like interviewing David Bowie and his plans for a Joni Mitchell biopic.`\
 https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-crowe-he-has-answers.html
-
-**How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
-`A catheter carrying the drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
-https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

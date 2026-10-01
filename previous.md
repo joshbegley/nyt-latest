@@ -1,5 +1,13 @@
+**Christa Pike Told The Times She Feared a Botched Execution**\
+`Weeks before her failed execution, the Tennessee death row inmate Christa Pike told The Times she was concerned her execution would be mishandled.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011188789/christa-pike-told-the-times-she-feared-a-botched-execution.html
+
+**Judge in Lindsay Clancy’s Case Declines to Find Her Not Guilty After Mistrial**\
+`Lindsay Clancy’s lawyer argued this week that the state failed to present enough evidence at trial to prove she killed her three children.`\
+https://www.nytimes.com/2026/10/01/us/lindsay-clancy-motion-denied.html
+
 **How Parents Are Talking to Sons About the Cornell Rape Allegations**\
-`At the dinner table and during school commutes, families are navigating difficult conversations about sexual assault and moral responsibility.`\
+`At the dinner table and during school commutes, families are navigating difficult conversations with their sons about sexual assault and moral responsibility.`\
 https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
 
 **Did You Buy $TRUMP Coin? Tell Us Your Experience.**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-
 **How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
 `A catheter carrying the drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
 https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
-
-**US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
-`The move follows recent reports detailing how A7, a Russian financial firm, used shell companies around the world to move funds on behalf of restricted Russian businesses.`\
-https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
-
-**Green Goddess Dressing So Good You Might Do Shots of It**\
-`And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
-https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

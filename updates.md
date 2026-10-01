@@ -1,3 +1,15 @@
+**Christa Pike Told The Times She Feared a Botched Execution**\
+`Weeks before her failed execution, the Tennessee death row inmate Christa Pike told The Times she was concerned her execution would be mishandled.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011188789/christa-pike-told-the-times-she-feared-a-botched-execution.html
+
+**Judge in Lindsay Clancy’s Case Declines to Find Her Not Guilty After Mistrial**\
+`Lindsay Clancy’s lawyer argued this week that the state failed to present enough evidence at trial to prove she killed her three children.`\
+https://www.nytimes.com/2026/10/01/us/lindsay-clancy-motion-denied.html
+
+**How Parents Are Talking to Sons About the Cornell Rape Allegations**\
+`At the dinner table and during school commutes, families are navigating difficult conversations with their sons about sexual assault and moral responsibility.`\
+https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
+
 **How Parents Are Talking to Sons About the Cornell Rape Allegations**\
 `At the dinner table and during school commutes, families are navigating difficult conversations about sexual assault and moral responsibility.`\
 https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
