@@ -1,3 +1,11 @@
+**A Hacking Competition Shows the Power of China’s ‘Open Weight’ A.I.**\
+`The winner of an elite cybersecurity contest prevailed by relying on a free Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
+https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
+
+**After Failed Attempt to Execute Christa Pike, Tennessee Pauses a Planned Execution**\
+`Gov. Bill Lee, a Republican, ordered a review of the state’s lethal injection process after the botched attempt to put Christa Pike to death. She was hospitalized Wednesday.`\
+https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
+
 **Live Updates: Investigators Seek Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots

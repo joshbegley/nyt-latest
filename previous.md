@@ -1,3 +1,11 @@
+**A Hacking Competition Shows the Power of China’s ‘Open Weight’ A.I.**\
+`The winner of an elite cybersecurity contest prevailed by relying on a free Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
+https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
+
+**After Failed Attempt to Execute Christa Pike, Tennessee Pauses a Planned Execution**\
+`Gov. Bill Lee, a Republican, ordered a review of the state’s lethal injection process after the botched attempt to put Christa Pike to death. She was hospitalized Wednesday.`\
+https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
+
 **U.S. Bond Yields Hit Highest Level Since 2002**\
 `The trends pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
 https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/01/movies/the-influencer-project-review.html
 **‘Digger’ Review: Even Tom Cruise Can’t Save This Strained Satire**\
 `Though mightily he does try. The star brings his usual high energy to the role of a Texas oil tycoon in Alejandro G. Iñárritu’s ponderous climate comedy.`\
 https://www.nytimes.com/2026/10/01/movies/digger-review-tom-cruise-alejandro-inarritu.html
-
-**26 Fun Things to Do in N.Y.C. in October**\
-`This month brings a major manga exhibition, birthday tributes to John Coltrane and Steve Reich and a night with Michael Douglas.`\
-https://www.nytimes.com/2026/10/01/arts/fun-things-to-do-nyc-october.html
-
-**‘Atonement’ Review: Looking for Forgiveness**\
-`Based on a true story, this film centers on an American Marine trying to contact the family of the Iraqis he killed.`\
-https://www.nytimes.com/2026/10/01/movies/atonement-review.html
 
