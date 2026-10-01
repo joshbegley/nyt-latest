@@ -1,3 +1,11 @@
+**How Parents Are Talking to Sons About the Cornell Rape Allegations**\
+`At the dinner table and during school commutes, families are navigating difficult conversations about sexual assault and moral responsibility.`\
+https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
+
+**Did You Buy $TRUMP Coin? Tell Us Your Experience.**\
+`We want to hear from people who bought the $TRUMP memecoin, no matter the reason, and whether they made or lost money.`\
+https://www.nytimes.com/2026/10/01/us/politics/trump-coin-experience-questionnaire.html
+
 **Investigators Seek Motive for FlyDubai Cockpit Attack**\
 `Prime Minister Benjamin Netanyahu of Israel said the co-pilot who set upon the pilot had undergone “Islamist radical indoctrination” but did not elaborate.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-attack-invesigation.html

@@ -1,3 +1,11 @@
+**How Parents Are Talking to Sons About the Cornell Rape Allegations**\
+`At the dinner table and during school commutes, families are navigating difficult conversations about sexual assault and moral responsibility.`\
+https://www.nytimes.com/2026/10/01/well/family/cornell-rape-case-parents-consent.html
+
+**Did You Buy $TRUMP Coin? Tell Us Your Experience.**\
+`We want to hear from people who bought the $TRUMP memecoin, no matter the reason, and whether they made or lost money.`\
+https://www.nytimes.com/2026/10/01/us/politics/trump-coin-experience-questionnaire.html
+
 **Investigators Seek Motive for FlyDubai Cockpit Attack**\
 `Prime Minister Benjamin Netanyahu of Israel said the co-pilot who set upon the pilot had undergone “Islamist radical indoctrination” but did not elaborate.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-attack-invesigation.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
 **Green Goddess Dressing So Good You Might Do Shots of It**\
 `And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
 https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html
-
-**‘Salty, Not Sweet’: Florence Fabricant on Her Food Writing Career**\
-`In this excerpt from Florence Fabricant’s new memoir, “Salty, Not Sweet,” she recalls how she wound up writing for The New York Times.`\
-https://www.nytimes.com/2026/10/01/dining/florence-fabricant-salty-not-sweet-book.html
-
-**Egypt Arrests 6 Matsaddash Journalists on Claims of Spreading Disinformation**\
-`The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
-https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
