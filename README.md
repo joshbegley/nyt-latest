@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/10/01/crosswords/wordle-review-1931.html
 `The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
 https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
 
-**Live Updates: Israelis Celebrate Passengers’ Return as Questions Swirl Over Flight Attack**\
-`Prime Minister Benjamin Netanyahu praised the flight’s injured captain, Israeli passengers and reserve pilots, who helped secure the plane and land it safely. The attacker has not been identified.`\
+**Live Updates: Investigators Seek Motive in FlyDubai Attack**\
+`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
 
 **The Golden Age of Scams**\
