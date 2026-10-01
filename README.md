@@ -1,3 +1,19 @@
+**Steven Spielberg, Alec Baldwin and Gov. Kathy Hochul Turn Out for Dudamel**\
+`“I’m so happy here. Honestly,” Gustavo Dudamel, the superstar conductor, said at the New York Philharmonic’s season-opening gala on Wednesday.`\
+https://www.nytimes.com/2026/10/01/style/gustavo-dudamel-new-york-philharmonic.html
+
+**Trump’s Threat to Ban Diesel Exports Sets Off Global Alarms**\
+`A reduction in refineries has already driven the price of diesel to record highs, threatening economies. An U.S. export ban would be “tremendous shock and blow.”`\
+https://www.nytimes.com/2026/10/01/business/diesel-prices-us-exports.html
+
+**5 Passengers on FlyDubai Flight to Receive Israel’s Award for Heroism**\
+`The passengers subdued an attacker in the cockpit of a FlyDubai flight carrying more than 170 people from Dubai to Tel Aviv.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-flight-passengers-israel-hero-honor.html
+
+**Swiss Glaciers Vanished by Nearly a Fifth in Recent Years, Scientists Say**\
+`One researcher called it a “desperately needed warning sign” that countries need to tackle human-driven climate change.`\
+https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-climate.html
+
 **Sen. Alex Padilla Says His Viral Moment Was a Sign of Things to Come**\
 `The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
 https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
@@ -142,13 +158,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/01/nyregion/exit-31-bqe-song.html
 **Sienna Miller, of ‘War,’ Knows What She’s Fighting For**\
 `The actress is a little tired of playing actresses. But “War,” a new HBO divorce drama, gave her a chance to complicate the role.`\
 https://www.nytimes.com/2026/10/01/arts/television/sienna-miller-war.html
-
-**When Data Centers Cluster Together, How Dirty Are They? One County Wants Answers.**\
-`An unusual study aims to estimate the pollution and health costs from a cluster of proposed data centers, instead of considering each one separately.`\
-https://www.nytimes.com/2026/10/01/climate/data-center-pollution-study-pennsylvania.html
-
-**Inside Binance Founder Changpeng Zhao’s Life After Prison**\
-`Changpeng Zhao, jailed in the United States for a financial crime and pardoned by President Trump, is now living a gilded life in the United Arab Emirates.`\
-https://www.nytimes.com/2026/10/01/business/changpeng-zhao-binance.html
-
-**Best Movies and Shows Streaming in October 2026: ‘VisionQuest,’ ‘Crystal Lake’ and More**\
-`“The Lowdown” is back for another season and a Tenzing Norgay biopic arrives.`\
-https://www.nytimes.com/2026/10/01/arts/television/movies-tv-shows-october-2026-streaming.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are farmhouses in Ossining, N.Y., and Hopewell Township, N.J.`\
-https://www.nytimes.com/2026/10/01/realestate/housing-market-ny-region.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Tennessee Governor Pauses Future Execution After Inmate Survives Lethal Injection**\
+`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. She was hospitalized late Wednesday.`\
+https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
 **Sen. Alex Padilla Says His Viral Moment Was a Sign of Things to Come**\
 `The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
 https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
