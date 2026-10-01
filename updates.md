@@ -1,3 +1,7 @@
+**What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
+`Plus, a Kelvin wave is coming.`\
+https://www.nytimes.com/2026/10/01/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
+
 **What’s Next for ‘Hard Fork’?**\
 `The podcast’s next chapter begins this week.`\
 https://www.nytimes.com/2026/10/01/podcasts/hard-fork-whats-next.html
