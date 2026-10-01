@@ -1,3 +1,7 @@
+**Passenger Who Helped Subdue Pilot Describes Bloody Scene in Cockpit**\
+`A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
+
 **Live Updates: California Governor Candidates Becerra and Hilton Face Off in Debate**\
 `Xavier Becerra, a cabinet secretary in the Biden administration, and Steve Hilton, a former Fox News host, are vying to lead the country’s most populous state and one of the world’s largest economies.`\
 https://www.nytimes.com/live/2026/09/30/us/california-governor-debate
