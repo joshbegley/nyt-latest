@@ -1,3 +1,7 @@
+**Live Updates: Investigators Seek Motive in FlyDubai Attack**\
+`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
+https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
+
 **U.S. Bond Yields Hit Highest Level Since 2002**\
 `The trends pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
 https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
