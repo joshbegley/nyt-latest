@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Oct. 7, 2026**\
+`Do you like to eat hamburgers? How do the foods we eat affect greenhouse gas emissions?`\
+https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2026.html
+
+**When White People Like Hannah Gann Pretend to Be Black**\
+`Rachel Dolezal is now a type.`\
+https://www.nytimes.com/2026/10/01/opinion/hannah-gann-rachel-dolezal.html
+
 **As Cornell Reckons with Sexual Assault Case, Will Applicants Think Twice?**\
 `Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/01/world/europe/finland-lawmakers-break-ins.html
 **A Maine General Store, Reimagined by a Jewelry Designer**\
 `Plus: a brasserie in Copenhagen, Pop Art clothes and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/01/t-magazine/weathered-bird-general-store-maine.html
-
-**Steven Spielberg, Alec Baldwin and Gov. Kathy Hochul Turn Out for Dudamel**\
-`“I’m so happy here. Honestly,” Gustavo Dudamel, the superstar conductor, said at the New York Philharmonic’s season-opening gala on Wednesday.`\
-https://www.nytimes.com/2026/10/01/style/gustavo-dudamel-new-york-philharmonic.html
-
-**Trump’s Threat to Ban Diesel Exports Sets Off Global Alarms**\
-`A reduction in refineries has already driven the price of diesel to record highs, threatening economies. An U.S. export ban would be “tremendous shock and blow.”`\
-https://www.nytimes.com/2026/10/01/business/diesel-prices-us-exports.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Oct. 7, 2026**\
+`Do you like to eat hamburgers? How do the foods we eat affect greenhouse gas emissions?`\
+https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2026.html
+
+**When White People Like Hannah Gann Pretend to Be Black**\
+`Rachel Dolezal is now a type.`\
+https://www.nytimes.com/2026/10/01/opinion/hannah-gann-rachel-dolezal.html
+
 **As Cornell Reckons with Sexual Assault Case, Will Applicants Think Twice?**\
 `Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
