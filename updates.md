@@ -1,3 +1,11 @@
+**Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
+`London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
+https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
+
+**Best Movies and Shows Streaming in October 2026: ‘VisionQuest,’ ‘Crystal Lake’ and More**\
+`“The Lowdown” is back for another season and a Tenzing Norgay biopic arrives.`\
+https://www.nytimes.com/2026/10/01/arts/television/movies-tv-shows-october-2026-streaming.html
+
 **A Hacking Competition Shows the Power of China’s ‘Open Weight’ A.I.**\
 `The winner of an elite cybersecurity contest prevailed by relying on a free Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
 https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html

@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.h
 https://www.nytimes.com/2026/10/01/us/tennessee-executions-christa-pike-lee-review.html
 
 **U.S. Bond Yields Hit Highest Level Since 2002**\
-`The trends pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
+`The factors pushing up yields, including the war in Iran and high government debt levels, are unlikely to dissipate soon.`\
 https://www.nytimes.com/2026/10/01/business/bond-yields-10-year-treasury.html
 
 **The Global Bond Rout Reaches Worrying New Levels**\
@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/10/01/style/modern-love-we-want-your-best-breakup-l
 `Crude oil costs close to $100 a barrel because traders are worried hostilities could soon restart and the world is burning through its emergency stockpiles.`\
 https://www.nytimes.com/2026/10/01/business/energy-environment/oil-prices-iran-war-trump.html
 
-**Andrew Scott in ‘Sea Wall’ and 26 Other Off Broadway Shows to See in October**\
+**Andrew Scott in ‘Sea Wall’ and 27 Other Off Broadway Shows to See in October**\
 `Andrew Scott stars in a “Sea Wall” being captured for the screen, and “In the Heights” gets a gala revival as New York City stages approach their autumn peak.`\
 https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.html
 
