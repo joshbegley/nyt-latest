@@ -1,3 +1,7 @@
+**Hong Kong Journalist Arrested After Covering Gathering Linked to 2019 Protests**\
+`The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
+https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
+
 **Live Updates: Israelis Celebrate Passengers’ Return as Questions Swirl Over Flight Attack**\
 `Prime Minister Benjamin Netanyahu praised the flight’s injured captain, Israeli passengers and reserve pilots, who helped secure the plane and land it safely. The attacker has not been identified.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
