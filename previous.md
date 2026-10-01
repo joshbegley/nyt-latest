@@ -1,3 +1,11 @@
+**Taking On Trump Immigration Agenda, Justices Will Review Migrant Detention Policy**\
+`The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
+https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
+
+**2 Dead and 1 Missing in Medical Helicopter Crash Near California Coast**\
+`The aircraft went down near Catalina Island on Wednesday night with five people aboard, the authorities said. Two aboard were retrieved with injuries.`\
+https://www.nytimes.com/2026/10/01/us/helicopter-crash-catalina-island-california.html
+
 **Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
 `Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
 https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
@@ -114,13 +122,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/01/travel/air-canada-canceled-flight.html
 **The Best New Thriller Novels**\
 `Our columnist on new novels from Richard Osman, Lucy Foley and John Grisham.`\
 https://www.nytimes.com/2026/10/01/books/review/new-thriller-novels.html
-
-**How Deana Lawson, the Photographer Who Reimagined Portraiture, Came to Shift Her Own Perspective**\
-`Why Deana Lawson, one of photography’s greatest contemporary portraitists, suddenly found herself drawn to the “wall of shame.”`\
-https://www.nytimes.com/2026/10/01/t-magazine/deana-lawson-gagosian-gallery.html
-
-**Here’s Why The Times’s First Crossword Is Nearly Impossible to Solve Today**\
-`Even Will Shortz has no trouble admitting that it’s a doozy.`\
-https://www.nytimes.com/2026/10/01/crosswords/times-first-crossword-puzzle.html
 

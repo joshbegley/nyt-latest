@@ -1,3 +1,11 @@
+**Taking On Trump Immigration Agenda, Justices Will Review Migrant Detention Policy**\
+`The administration’s policy of detaining immigrants who crossed the border illegally years ago and holding them without a bond hearing has divided lower courts.`\
+https://www.nytimes.com/2026/10/01/us/politics/supreme-court-trump-migrant-detention.html
+
+**2 Dead and 1 Missing in Medical Helicopter Crash Near California Coast**\
+`The aircraft went down near Catalina Island on Wednesday night with five people aboard, the authorities said. Two aboard were retrieved with injuries.`\
+https://www.nytimes.com/2026/10/01/us/helicopter-crash-catalina-island-california.html
+
 **A Hacking Competition Shows the Power of China’s Approach to A.I.**\
 `The winner of a cybersecurity contest prevailed by relying on an ‘open weight’ Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
 https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
