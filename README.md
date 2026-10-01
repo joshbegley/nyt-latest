@@ -1,3 +1,35 @@
+**The Dawn of A.I. Comes at the Dusk of American Sanity**\
+`Behold the paragons of rank incompetence.`\
+https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
+
+**Corrections: Oct. 1, 2026**\
+`Corrections that appeared in print on Thursday, Oct. 1, 2026.`\
+https://www.nytimes.com/2026/10/01/pageoneplus/corrections-oct-1-2026.html
+
+**Tell Us Your Tales of Trick-or-Treating in New York City**\
+`For an upcoming project, we’re looking for your memories of going door to door in apartment buildings.`\
+https://www.nytimes.com/2026/10/01/realestate/tell-us-your-tales-of-trick-or-treating-in-new-york-city.html
+
+**What Are You Thinking and Feeling About the Cornell Sexual Assault Case?**\
+`The fallout from a lawsuit brought by a woman who said she was raped on campus in 2024 has gripped the nation. What is your reaction to the news?`\
+https://www.nytimes.com/2026/10/01/learning/what-are-you-thinking-and-feeling-about-the-cornell-sexual-assault-case.html
+
+**Solve a Bob Dylan Themed Crossword Puzzle**\
+`This puzzle, constructed by Kate Jensen, celebrates the singer’s work and career.`\
+https://www.nytimes.com/2026/10/01/crosswords/bob-dylan-special-crossword.html
+
+**We Want Your Best Breakup Lines**\
+`For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup — kind, bizarre, profound, haunting or funny — either delivered or received.`\
+https://www.nytimes.com/2026/10/01/style/modern-love-we-want-your-best-breakup-lines.html
+
+**Oil Is Flowing From the Persian Gulf, but Prices Remain High. Why?**\
+`Crude oil costs close to $100 a barrel because traders are worried hostilities could soon restart and the world is burning through its emergency stockpiles.`\
+https://www.nytimes.com/2026/10/01/business/energy-environment/oil-prices-iran-war-trump.html
+
+**Andrew Scott in ‘Sea Wall’ and 26 Other Off Broadway Shows to See in October**\
+`Andrew Scott stars in a “Sea Wall” being captured for the screen, and “In the Heights” gets a gala revival as New York City stages approach their autumn peak.`\
+https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.html
+
 **How Middle East Oil Exports Started Recovering**\
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/01/books/review/dont-laugh-at-other-peoples-sex-
 **New York Times Reporting Through a Front Page That Never Published and More**\
 `Times reporters and editors discuss items that have shaped our coverage, including Dean Baquet on the “Madam President” front page that never was.`\
 https://www.nytimes.com/2026/10/01/business/new-york-times-journalism-reporting-objects.html
-
-**Wynonna Judd Has No Secrets Left, but the Pain Endures**\
-`A new album reinvents this country music legend’s sound and lays bare a lifetime of heartbreak.`\
-https://www.nytimes.com/2026/10/01/arts/music/wynonna-judd-interview.html
-
-**Sensuality and Skin at Milan Fashion Week**\
-`Unbuttoned shirts rippled in the breeze and bare chests soaked in the sun at a louche fashion week.`\
-https://www.nytimes.com/2026/10/01/style/sensuality-and-skin-the-milan-way.html
-
-**At 3-Foot-11, This Bodybuilder Competes Against Herself**\
-`Allison Warrell, who has achondroplasia dwarfism, started lifting weights to avoid back problems. In August, she ended her career as the shortest woman in competitive bodybuilding.`\
-https://www.nytimes.com/2026/10/01/well/move/bodybuilding-back-pain-little-people.html
-
-**The Middle School Kids Trying to Make Sense of Stalin’s Tyranny**\
-`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
-https://www.nytimes.com/2026/10/01/opinion/joseph-stalin-middle-school.html
-
-**Stalin Boys**\
-`Middle school introduces us to complicated history. These kids wrote a play about Joseph Stalin.`\
-https://www.nytimes.com/video/opinion/100000010659804/stalin-boys.html
-
-**A Houston Teacher Wanted a Home for About $200,000. Which Did She Pick?**\
-`Thinking her career prospects would be elsewhere, Sakiya Glover saw a Facebook post that helped inspire her move from Tampa, Fla., to the Texas metropolis.`\
-https://www.nytimes.com/quiz/2026/10/01/realestate/homes-for-sale-houston-texas.html
-
-**Silicon Valley’s Favorite Prophet Has a New Warning**\
-`Nick Bostrom is no longer worried about the apocalypse. Now he’s worried about utopia.`\
-https://www.nytimes.com/video/opinion/100000011179079/silicon-valleys-favorite-prophet-has-a-new-warning.html
-
-**Review: John Galliano’s New Collection for Zara**\
-`Assessing the designer’s new collection for Zara, unveiled in the shadow of the Met debacle.`\
-https://www.nytimes.com/2026/10/01/style/john-galliano-zara.html
 
