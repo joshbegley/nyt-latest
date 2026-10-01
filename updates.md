@@ -1,3 +1,15 @@
+**Nigerian Charged With Running Fake Government Agency**\
+`The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
+https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
+
+**Israelis Take Pride in Bravery of Passengers Who Saved FlyDubai Flight**\
+`The events evoked days decades ago when Israel was widely admired for its plucky survival against the odds and for taking on hijackers.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-1073.html
+
+**Live Updates: Tennessee Inmate Christa Pike Alive After ‘Torturous’ Botched Execution, Lawyer Says**\
+`Randy Spivey, a lawyer for Ms. Pike, called on Gov. Bill Lee to commute her sentence after she survived an attempt to execute her by lethal injection. Mr. Lee ordered executions suspended pending a review.`\
+https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
 **Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
 `The author and political activist speaks with Lulu Garcia-Navarro about her new memoir and her warning about what lies ahead for America under President Trump.`\
 https://www.nytimes.com/video/podcasts/100000011142560/arundhati-roy-on-how-to-survive-in-a-culture-of-fear.html

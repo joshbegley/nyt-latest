@@ -1,3 +1,11 @@
+**Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
+`Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
+https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
+
+**Prosecutors Cannot Revive Reflecting Pool Case Against Ex-Olympian, Judge Rules**\
+`A charge against David Hearn was dismissed “with prejudice” because of President Trump’s attempts to influence the case.`\
+https://www.nytimes.com/2026/10/01/climate/david-hearn-reflecting-pool-charges-dropped.html
+
 **Nigerian Charged With Running Fake Government Agency**\
 `The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
 https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
@@ -26,8 +34,8 @@ https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-107
 `Cameron Crowe speaks with David Marchese about his 50-year career, revealing details about the boombox scene in “Say Anything,” what it was like interviewing David Bowie and his plans for a Joni Mitchell biopic.`\
 https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-crowe-he-has-answers.html
 
-**Why Did the Tennessee Execution Fail?**\
-`A catheter carrying the lethal drug may not have delivered the doses to Christa Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+**How Did Christa Pike Survive Two Lethal Injections of Pentobarbital?**\
+`A catheter carrying the lethal drug may not have delivered the doses to Ms. Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
 https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
 
 **US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
@@ -90,7 +98,7 @@ https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.ht
 `The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
 https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
 
-**Most American Children Are Being Auto-Enrolled in Trump Accounts. What to Know.**\
+**What to Know About Trump Accounts as More Than 60 Million Children Are Auto-Enrolled**\
 `The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
 https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
 
@@ -174,17 +182,9 @@ https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-flight-passengers-i
 `One researcher called it a “desperately needed warning sign” that countries need to tackle human-driven climate change.`\
 https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-climate.html
 
-**Sen. Alex Padilla Says His Viral Moment Was a Sign of Things to Come**\
-`The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
-https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
-
 **Live Updates: Tennessee Inmate Christa Pike Alive After ‘Torturous’ Botched Execution, Lawyer Says**\
 `Randy Spivey, a lawyer for Ms. Pike, called on Gov. Bill Lee to commute her sentence after she survived an attempt to execute her by lethal injection. Mr. Lee ordered executions suspended pending a review.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
-
-**Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
-`The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
-https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
