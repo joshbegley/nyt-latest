@@ -1,3 +1,7 @@
+**The Golden Age of Scams**\
+`A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html
+
 **The Dawn of A.I. Comes at the Dusk of American Sanity**\
 `Behold the paragons of rank incompetence.`\
 https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/realestate/kitchen-islands-are-getting-bigger
 **Book Review: ‘Don’t Laugh at Other People’s Sex Lives’ and ‘Beautiful Distance,’ by Nao-Cola Yamazaki**\
 `Two slim novels by Nao-Cola Yamazaki show that romance can often be pretty unromantic.`\
 https://www.nytimes.com/2026/10/01/books/review/dont-laugh-at-other-peoples-sex-lives-beautiful-distance-nao-cola-yamazaki.html
-
-**New York Times Reporting Through a Front Page That Never Published and More**\
-`Times reporters and editors discuss items that have shaped our coverage, including Dean Baquet on the “Madam President” front page that never was.`\
-https://www.nytimes.com/2026/10/01/business/new-york-times-journalism-reporting-objects.html
 
