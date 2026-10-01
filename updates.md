@@ -1,3 +1,11 @@
+**Housing Official, Who Targeted Trump Foes, Cuts Watchdog Office**\
+`Bill Pulte, director of the Federal Housing Finance Agency, moved to slash his agency’s inspector general’s office. Democrats called for his resignation.`\
+https://www.nytimes.com/2026/10/01/us/politics/bill-pulte-trump-inspector-general.html
+
+**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **How The New York Times Is Reporting on the Cornell Rape Investigation**\
 `Times editors explore the thinking behind our coverage of the explosive allegations that have roiled a campus and the country.`\
 https://www.nytimes.com/2026/10/01/insider/cornell-rape-investigation-news-reporting.html
