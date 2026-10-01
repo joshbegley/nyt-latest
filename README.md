@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/10/01/arts/fun-things-to-do-nyc-october.html
 `Based on a true story, this film centers on an American Marine trying to contact the family of the Iraqis he killed.`\
 https://www.nytimes.com/2026/10/01/movies/atonement-review.html
 
-**Tired of High Gas Prices? Don’t Worry: Oil Always Crashes.**\
+**If You Think Rising Oil Prices Are Bad, Just Wait for the Inevitable Crash**\
 `An oil bust is on the horizon.`\
 https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
 
