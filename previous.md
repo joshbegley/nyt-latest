@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/09/30/briefing/they-might-be-giants.html
 `The process of getting a first U.S. passport will go fully online next year, said Secretary of State Marco Rubio, so if your picture is bad, it’ll be your fault.`\
 https://www.nytimes.com/2026/09/30/travel/passport-photos-digital-application.html
 
-**America Used to Be Cool. What Happened?**\
+**Is American Culture Simply Bad Now?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
 
@@ -189,8 +189,4 @@ https://www.nytimes.com/2026/09/30/style/paris-fashion-week-provocative.html
 **Ask a Journalist: How to Craft Short Narratives**\
 `Ed Shanahan, the editor of Metropolitan Diary, joins us in October to chat with teenagers about writing tiny memoirs. Post your comments and questions for him by Oct. 16.`\
 https://www.nytimes.com/2026/09/30/learning/lesson-plans/ask-a-journalist-how-to-craft-short-narratives.html
-
-**In Speech, Hegseth Targets Diversity, Transgender People, Reporters and Iran**\
-`In his “State of the Force” address, Defense Secretary Pete Hegseth focused on the culture war and accused reporters of “treason” over Iran war coverage.`\
-https://www.nytimes.com/2026/09/30/us/hegseth-troops-address.html
 
