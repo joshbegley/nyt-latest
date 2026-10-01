@@ -1,4 +1,8 @@
-**Colleen Slemmer Was a ‘Vibrant and Generous Presence,’ Her Mother Says**\
+**Wind Warnings Were Never Given to Pilots in Miami Crash, Federal Report Says**\
+`The pilots of an Amazon cargo jet had never worked together before the day of the crash, and were traveling at an abnormally high speed when they hit the runway, the report said.`\
+https://www.nytimes.com/2026/10/01/us/politics/ntsb-miami-amazon-crash.html
+
+**Colleen Slemmer Was a Vibrant and Generous Presence, Her Mother Says**\
 `Ms. Slemmer was killed in 1995 by Christa Pike, whose execution in Tennessee was botched on Wednesday. Her family celebrated what would have been her 51st birthday last month.`\
 https://www.nytimes.com/2026/10/01/us/colleen-slemmer.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.htm
 **What Teenagers Are Saying About Football After a New Study on C.T.E.**\
 `We asked students if they’re still watching and playing in light of data showing that one in four N.F.L. players might expect to develop the degenerative brain disease.`\
 https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-football-after-a-new-study-on-cte.html
-
-**Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
-`Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
-https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
