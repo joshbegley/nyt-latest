@@ -1,3 +1,15 @@
+**Green Goddess Dressing So Good You Might Do Shots of It**\
+`And more tour tidbits, like an eggplant bánh mì I’m still dreaming of and a reader’s caraway seed surplus.`\
+https://www.nytimes.com/2026/10/01/dining/green-goddess-dressing-so-good-you-might-do-shots-of-it.html
+
+**‘Salty, Not Sweet’: Florence Fabricant on Her Food Writing Career**\
+`In this excerpt from Florence Fabricant’s new memoir, “Salty, Not Sweet,” she recalls how she wound up writing for The New York Times.`\
+https://www.nytimes.com/2026/10/01/dining/florence-fabricant-salty-not-sweet-book.html
+
+**U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British counterterrorism police said a 27-year-old British-Iranian dual national was arrested on Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
+
 **Egypt Arrests 6 Matsaddash Journalists on Claims of Spreading Disinformation**\
 `The government claims that reporters from Matsaddash, a well-known news outlet that debunks false reports, spread disinformation for the banned Muslim Brotherhood.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/egypt-journalist-arrests.html
