@@ -46,7 +46,7 @@ https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilot
 `A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
 https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html
 
-**The Dawn of A.I. Comes at the Dusk of American Sanity**\
+**Behold the Paragons of Rank Incompetence**\
 `Behold the paragons of rank incompetence.`\
 https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
 
