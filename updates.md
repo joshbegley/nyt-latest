@@ -1,3 +1,7 @@
+**UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British police said a 25-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
+
 **Anger and Questions at Cornell**\
 `Readers discuss the allegations of sexual assault at Cornell University. Also: A botched execution, and a pause, in Tennessee.`\
 https://www.nytimes.com/2026/10/01/opinion/cornell-sexual-assault.html

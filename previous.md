@@ -127,7 +127,7 @@ https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
 
 **UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
-`British police said a 27-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+`British police said a 25-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
 **Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
