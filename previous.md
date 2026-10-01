@@ -1,3 +1,11 @@
+**Becerra Holds Wide Leads in Polling of California’s Governor Race**\
+`Unaffiliated voters leaned heavily toward Xavier Becerra, a Democrat, in a recent poll, pushing him to his largest lead of this election cycle.`\
+https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-california-governor.html
+
+**Man Gets Life Sentence for Strangling 15-Year-Old Girl in San Francisco in 1978**\
+`Mark Personette, 80, eluded the authorities for 43 years before he was arrested and eventually convicted of first-degree murder for killing Marissa Harvey.`\
+https://www.nytimes.com/2026/09/30/us/san-francisco-marissa-harvey-murder-sentencing.html
+
 **Passenger Who Helped Subdue Pilot Describes Bloody Scene in Cockpit**\
 `A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-wh
 **I Thought Things Had Gotten Better. The Cornell Case Shows How Bad They Really Are.**\
 `How could so little have changed?`\
 https://www.nytimes.com/2026/09/30/opinion/cornell-jane-doe-sexual-assault.html
-
-**Jonathan McKinsey’s In-Laws Charged With Murder in California Shooting**\
-`Shouyong Zhang and Shili Chen were accused of planning the killing of Jonathan McKinsey, an engineer in the games department of The New York Times, near a park in Dublin, Calif.`\
-https://www.nytimes.com/2026/09/30/us/jonathan-mckinsey-shooting-california-charges.html
-
-**Potato Pavé With Parmesan Crust**\
-`While typically found on restaurant menus, potato pavé is perfectly doable at home with a little patience and effort.`\
-https://www.nytimes.com/video/dining/100000011183384/potato-pave-with-parmesan-crust.html
 

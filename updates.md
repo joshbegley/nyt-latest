@@ -1,3 +1,11 @@
+**Becerra Holds Wide Leads in Polling of California’s Governor Race**\
+`Unaffiliated voters leaned heavily toward Xavier Becerra, a Democrat, in a recent poll, pushing him to his largest lead of this election cycle.`\
+https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-california-governor.html
+
+**Man Gets Life Sentence for Strangling 15-Year-Old Girl in San Francisco in 1978**\
+`Mark Personette, 80, eluded the authorities for 43 years before he was arrested and eventually convicted of first-degree murder for killing Marissa Harvey.`\
+https://www.nytimes.com/2026/09/30/us/san-francisco-marissa-harvey-murder-sentencing.html
+
 **Passenger Who Helped Subdue Pilot Describes Bloody Scene in Cockpit**\
 `A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
 https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
