@@ -1,3 +1,7 @@
+**Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
+`Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
+https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
+
 **Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
 `Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
@@ -181,14 +185,6 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011186388/the-multimillio
 **What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
 `Plus, a Kelvin wave is coming.`\
 https://www.nytimes.com/2026/10/01/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
-
-**NYT Connections Answers for October 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
-https://www.nytimes.com/2026/10/01/crosswords/connections-companion-1209.html
-
-**NYT Strands Hints for October 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
-https://www.nytimes.com/2026/10/01/crosswords/strands-sidekick-943.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
