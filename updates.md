@@ -1,3 +1,7 @@
+**Behold the Paragons of Rank Incompetence**\
+`Behold the paragons of rank incompetence.`\
+https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
+
 **Britain and France Give Up Landmark Migrant Agreement**\
 `The French government soured on a reciprocal deal that allowed the British authorities to return some migrants who crossed the English Channel illegally in small boats.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-france-migrant-deal-cancelled.html
