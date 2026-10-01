@@ -1,3 +1,7 @@
+**Sen. Alex Padilla Says His Viral Moment Was a Sign of Things to Come**\
+`The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
+https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
+
 **Renee Good’s Family Sues ICE Agent and Top Officials Over Minnesota Killing**\
 `The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
 https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
@@ -146,7 +150,7 @@ https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democr
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
 https://www.nytimes.com/2026/10/01/well/breast-cancer-risk-ai.html
 
-**How the Language of Hollywood Executives Ends Up in Our Vocabularies**\
+**When Did Everyone Start Talking Like a Hollywood Windbag?**\
 `The phrase “the X of it all” started as a joke to mock the vague lingo of studio bosses. But there’s something widely appealing about speaking “casually, broadly and vaguely in order to reduce friction.”`\
 https://www.nytimes.com/2026/10/01/magazine/hollywood-lingo.html
 
@@ -155,7 +159,7 @@ https://www.nytimes.com/2026/10/01/magazine/hollywood-lingo.html
 https://www.nytimes.com/interactive/2026/10/01/travel/things-to-do-vancouver.html
 
 **One Issue Hanging Over Brazil’s Presidential Election: Online Gambling and Record-High Debts**\
-`Just days before Sunday’s election, President President Luiz Inácio Lula da Silva banned online gambling. But record-high debt is upending millions of lives.`\
+`Just days before Sunday’s election, President Luiz Inácio Lula da Silva banned online gambling. But record-high debt is upending millions of lives.`\
 https://www.nytimes.com/2026/10/01/world/americas/brazil-gambling-debts-elections.html
 
 **Silicon Valley’s Favorite Prophet Has a New Warning**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/realestate/housing-market-ny-region.html
 **Homes for Sale in Manhattan and Queens**\
 `This week’s properties are in Marble Hill, Hell’s Kitchen and Forest Hills.`\
 https://www.nytimes.com/2026/10/01/realestate/housing-market-nyc.html
-
-**A.I. Anxiety Is Showing Up in Therapy**\
-`Patients and providers are processing their uncertainty in real time.`\
-https://www.nytimes.com/2026/10/01/well/mind/ai-anxiety-therapy-artificial-intelligence.html
 

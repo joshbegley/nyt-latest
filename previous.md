@@ -1,3 +1,7 @@
+**Renee Good’s Family Sues ICE Agent and Top Officials Over Minnesota Killing**\
+`The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
+https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
+
 **Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
 `The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
 https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
@@ -17,6 +21,10 @@ https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republ
 **3 Billionaires Have Largely Funded Republican Nominee for Wisconsin Governor**\
 `Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
 https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
+
+**Trump Heads to Texas as Some Republicans Seek Distance on Immigration**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 
 **Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
 `London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
@@ -126,13 +134,13 @@ https://www.nytimes.com/2026/10/01/theater/andrew-scott-off-broadway-october.htm
 `Our business reporter Peter Eavis describes how oil exports from the Middle East have rebounded this month, getting closer to the levels seen before the Iran war.`\
 https://www.nytimes.com/video/business/100000011182407/how-middle-east-oil-exports-started-recovering.html
 
-**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
-`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
-https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
-
 **New Facility at Louisiana Airport to Hold Immigrant Children and Families**\
 `The site in Alexandria, La., a major expansion of the Trump administration’s busiest deportation hub, will streamline and accelerate removals.`\
 https://www.nytimes.com/2026/10/01/us/ice-child-detention-center-louisiana.html
+
+**Texas Governor Race Puts Pressure on Andy Beshear and Democratic Governors Association**\
+`Allies of Gina Hinojosa want a Democratic group to support her bid for Texas governor — putting pressure on its chairman, Gov. Andy Beshear of Kentucky, who is weighing a run for president.`\
+https://www.nytimes.com/2026/10/01/us/politics/gina-hinojosa-andy-beshear-democratic-governors-association.html
 
 **Women Can Now Assess Their Breast Cancer Risk With the Help of A.I.**\
 `Clairity Breast, an A.I. tool that can predict five-year risk of developing breast cancer, is rolling out nationwide. Here’s what experts want you to know.`\
@@ -185,8 +193,4 @@ https://www.nytimes.com/2026/10/01/realestate/housing-market-nyc.html
 **A.I. Anxiety Is Showing Up in Therapy**\
 `Patients and providers are processing their uncertainty in real time.`\
 https://www.nytimes.com/2026/10/01/well/mind/ai-anxiety-therapy-artificial-intelligence.html
-
-**Help! Air Canada Got Me to Europe, Then Stranded Me There.**\
-`The airline helpfully rebooked a delayed traveler from Toronto, but failed to mention it had also canceled her return trip. She spent $800 to get home.`\
-https://www.nytimes.com/2026/10/01/travel/air-canada-canceled-flight.html
 

@@ -1,3 +1,11 @@
+**Renee Good’s Family Sues ICE Agent and Top Officials Over Minnesota Killing**\
+`The fatal shooting of Ms. Good set off protests during the Trump administration’s immigration operation early this year in Minnesota.`\
+https://www.nytimes.com/2026/10/01/us/renee-good-lawsuit-ice-shooting-minnesota.html
+
+**Trump Heads to Texas as Some Republicans Seek Distance on Immigration**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
+
 **Federal Watchdog Investigates Adam Kinzinger for Kalshi Bets on His Pardon**\
 `The inquiry by the Commodity Futures Trading Commission centers on bets the former congressman made on Kalshi in the weeks before he was pardoned in January 2025.`\
 https://www.nytimes.com/2026/10/01/us/politics/cftc-investigating-kinzinger-pardon-bet.html
