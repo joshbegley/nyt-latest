@@ -1,3 +1,11 @@
+**The Golden Age of Scams**\
+`A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
+https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html
+
+**John Roberts Retreated to His Island. Supreme Court Critics Found Him.**\
+`After decades of potlucks and paddle-boarding on Maine’s midcoast, rising anger and protests have left the Supreme Court’s chief justice more isolated than ever.`\
+https://www.nytimes.com/2026/10/01/us/politics/supreme-court-roberts-maine.html
+
 **The Dawn of A.I. Comes at the Dusk of American Sanity**\
 `Behold the paragons of rank incompetence.`\
 https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
