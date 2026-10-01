@@ -1,3 +1,11 @@
+**Who Is Captain Smit Machchhar, the Pilot Hailed as a Hero After FlyDubai Cockpit Stabbing?**\
+`Capt. Smit Machchhar from India suffered stab wounds while fending off an attack from his co-pilot, saving the lives of around 170 people on board, officials said.`\
+https://www.nytimes.com/2026/10/01/world/asia/israel-flight-flydubai-pilot-captain-smit-machchhar.html
+
+**How a Cornell Student Went From Shame to Seeking Justice**\
+`The woman known as “Jane Doe” was initially embarrassed about what happened at a fraternity party in 2024, but soon concluded: “I was assaulted.”`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-accusation-reporting.html
+
 **The New York City Neighborhoods Where It’s Hardest to Build Housing**\
 `Some City Council members are losing an informal veto power over new projects in their districts after voters approved a measure aimed at eliminating roadblocks to development.`\
 https://www.nytimes.com/2026/10/01/nyregion/nyc-affordable-housing-neighborhoods.html
@@ -177,8 +185,4 @@ https://www.nytimes.com/2026/09/30/arts/television/the-swan-reality-show-documen
 **Salah Sarsour, Islamic Leader in Wisconsin, Can Be Deported, Judge Rules**\
 `Salah Sarsour, a vocal supporter of Palestinian rights who leads the state’s largest Islamic group, says the case is politically motivated and plans to appeal the decision.`\
 https://www.nytimes.com/2026/09/30/us/salah-sarsour-deportation-wisconsin.html
-
-**Google Releases New Gemini Model With Guardrails Amid A.I. Safety Debate**\
-`For safety reasons, Gemini 4 Argon will initially be available only to some companies and organizations focused on cybersecurity defense before it is more widely released, Google said.`\
-https://www.nytimes.com/2026/09/30/technology/google-gemini-4-argon-ai-safety.html
 
