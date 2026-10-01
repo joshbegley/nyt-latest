@@ -1,3 +1,7 @@
+**Britain and France Give Up Landmark Migrant Agreement**\
+`The French government soured on a reciprocal deal that allowed the British authorities to return some migrants who crossed the English Channel illegally in small boats.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-france-migrant-deal-cancelled.html
+
 **President Trump’s Kennedy Center**\
 `We examine the arts center’s saga in Washington.`\
 https://www.nytimes.com/2026/10/01/briefing/president-trumps-kennedy-center.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/style/a-story-about-the-ai-apocalypse-from-a-
 **Book Review: ‘How Bright the Path Grows,’ by Marcia Chatelain**\
 `The Pulitzer Prize-winning historian Marcia Chatelain revisits the 1963 March on Washington, placing overlooked Black women at the center of the story.`\
 https://www.nytimes.com/2026/10/01/books/review/how-bright-the-path-grows-marcia-chatelain.html
-
-**Word of the Day: exponentially**\
-`This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/01/learning/word-of-the-day-exponentially.html
 
