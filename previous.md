@@ -1,3 +1,7 @@
+**Why Did the Tennessee Execution Fail?**\
+`A catheter carrying the lethal drug may not have delivered the doses to Christa Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
+
 **US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
 `The move follows recent reports detailing how A7, a Russian financial firm, used shell companies around the world to move funds on behalf of restricted Russian businesses.`\
 https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 **Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
 `London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
 https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
-
-**A Hacking Competition Shows the Power of China’s Approach to A.I.**\
-`The winner of a cybersecurity contest prevailed by relying on an ‘open weight’ Chinese model — another sign that available A.I. systems could already be too powerful to easily regulate.`\
-https://www.nytimes.com/2026/10/01/science/hackerone-tenzai-china-open-weights.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\

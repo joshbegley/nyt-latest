@@ -1,3 +1,7 @@
+**Why Did the Tennessee Execution Fail?**\
+`A catheter carrying the lethal drug may not have delivered the doses to Christa Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
+https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
+
 **US Sanctions A7, a Russia Firm That Helps Sidestep Economic Restrictions**\
 `The move follows recent reports detailing how A7, a Russian financial firm, used shell companies around the world to move funds on behalf of restricted Russian businesses.`\
 https://www.nytimes.com/2026/10/01/business/a7-russia-us-sanctions.html
