@@ -1,3 +1,7 @@
+**Controversial Zimbabwe Tycoon Dies in Helicopter Crash**\
+`The controversial Zimbabwe tycoon Wicknell Chivayo died in a helicopter crash with several others from his rural homestead to the country’s capital. Mr. Chivayo was accused of building wealth through corruption, forming close relationships with African leaders.`\
+https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-wicknell-chivayo-killed-helicopter-crash.html
+
 **Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
 `No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
 https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
 `Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
-
-**Chi Phi Members Accused in Cornell Sex Assault Lawsuit Give Varying Accounts of Night**\
-`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory. All the men denied any wrongdoing.`\
-https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, was “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

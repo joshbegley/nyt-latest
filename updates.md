@@ -1,3 +1,7 @@
+**Controversial Zimbabwe Tycoon Dies in Helicopter Crash**\
+`The controversial Zimbabwe tycoon Wicknell Chivayo died in a helicopter crash with several others from his rural homestead to the country’s capital. Mr. Chivayo was accused of building wealth through corruption, forming close relationships with African leaders.`\
+https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-wicknell-chivayo-killed-helicopter-crash.html
+
 **Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
 `No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
 https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
