@@ -1,3 +1,23 @@
+**Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
+
+**How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
+`Watch the full conversation with Miranda Lambert. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011183057/how-ella-langley-miranda-lambert-made-history-with-choosin-texas.html
+
+**American University of Afghanistan at Risk of Closure Amid Funding Cuts**\
+`The State Department has denied its funding for the next two years, jeopardizing the education of hundreds of female Afghan students.`\
+https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.html
+
+**States Sue Over Trump’s Repeal of Climate Rules for Power Plants**\
+`The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
+https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
+
+**Most American Children Are Being Auto-Enrolled in Trump Accounts. What to Know.**\
+`The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
+https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
+
 **Swedish Company Uses A.I. Likeness of Greta Garbo in Ad**\
 `An ad produced by the manufacturing company SKF Group featured a digital version of the Swedish American actress, who died in 1990. Not all viewers found the replica convincing.`\
 https://www.nytimes.com/2026/10/01/world/europe/ai-garbo-ad-sweden-skf.html
@@ -170,23 +190,7 @@ https://www.nytimes.com/2026/10/01/crosswords/connections-companion-1209.html
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
 https://www.nytimes.com/2026/10/01/crosswords/strands-sidekick-943.html
 
-**Today’s Wordle Hints for October 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 2, 2026.`\
-https://www.nytimes.com/2026/10/01/crosswords/wordle-review-1931.html
-
-**Hong Kong Journalist Arrested After Covering Gathering Linked to 2019 Protests**\
-`The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
-https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
-
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
-
-**The Golden Age of Scams**\
-`A.I. valuations, Trump’s money train and how “family values” got co-opted all over again.`\
-https://www.nytimes.com/2026/10/01/podcasts/the-golden-age-of-scams.html
-
-**Behold the Paragons of Rank Incompetence**\
-`Behold the paragons of rank incompetence.`\
-https://www.nytimes.com/2026/10/01/opinion/ai-huang-gates-superintelligence.html
 
