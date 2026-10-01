@@ -1,3 +1,7 @@
+**What Role Did Ketamine Play in Cornell’s Alleged Rape Case?**\
+`Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
+https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
+
 **Gunman Kills 2 Co-Workers at Virginia Rental Business**\
 `A 37-year-old man shot three employees at an equipment rental business, then killed himself after a standoff with the police, the authorities said.`\
 https://www.nytimes.com/2026/09/30/us/virginia-workplace-shooting.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/30/arts/music/bruno-kramm-dead.html
 **15-Minute Lesson Plan: Sports Articles That Teach Life and Leadership Skills**\
 `A baseball coach in Sacramento uses newspaper articles to inspire his team. What can your students, whether athletes or not, learn from them?`\
 https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-sports-articles-that-teach-life-and-leadership-skills.html
-
-**15-Minute Lesson Plan: A Visual History of the Harlem Renaissance**\
-`What can your students “see, think and wonder” about the artifacts in this rich collection?`\
-https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-a-visual-history-of-the-harlem-renaissance.html
 
