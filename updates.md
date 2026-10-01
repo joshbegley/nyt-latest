@@ -1,3 +1,11 @@
+**Halloween Costumes Ideas for 2026**\
+`Options for couples, groups and anyone who has always wanted a reason to dress like a famous sheep.`\
+https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
+
+**Mike Smith, Bubbles on ‘Trailer Park Boys,’ Has Sexual Assault Charge Dismissed**\
+`The Canadian cult comedy series announced that Mr. Smith, 54, would resume his involvement with the show.`\
+https://www.nytimes.com/2026/10/01/world/canada/mike-smith-trailer-park-boys-sexual-assault-charge.html
+
 **A Climate Change Rebrand**\
 `More politicians have stopped talking about the climate, but the green transition is still moving forward.`\
 https://www.nytimes.com/2026/10/01/world/climate-change-rebrand-renewables-flydubai.html

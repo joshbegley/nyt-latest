@@ -1,3 +1,7 @@
+**Art Gallery Shows to See in October**\
+`This week in Newly Reviewed, Travis Diehl covers Celeste Dupuy-Spencer’s visionary pictures, Marc Kokopeli’s jewelry store, Michael Assiff’s depictions of environmental spoilage, and Alfredo Jaar’s riffs on American logos.`\
+https://www.nytimes.com/2026/10/01/arts/art-gallery-shows-to-see-in-october.html
+
 **Halloween Costumes Ideas for 2026**\
 `Options for couples, groups and anyone who has always wanted a reason to dress like a famous sheep.`\
 https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/world/middleeast/100000011187189/israel-flydubai-p
 **California Wine Producers Are Betting on Good, Moderately Priced Bottles**\
 `Cheap bottles have mostly meant bad, processed wines. The hope is that good wine from well-farmed grapes at a slightly higher price will fill a need.`\
 https://www.nytimes.com/2026/10/01/dining/drinks/california-wine-moderately-priced.html
-
-**Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
-`May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
-https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
