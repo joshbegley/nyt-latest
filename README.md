@@ -30,12 +30,12 @@ https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html
 `The rapper, whose legal name is William Leonard Roberts, is accused of attacking a woman who was his girlfriend at the time at their home on Aug. 28, the authorities said.`\
 https://www.nytimes.com/2026/10/01/arts/music/rick-ross-arrested-domestic-violence.html
 
-**U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
-`British counterterrorism police said a 27-year-old British-Iranian dual national was arrested on Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
+**UK-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British police said a 27-year-old British-Iranian dual national was arrested Thursday. British officials have said they believe Iran played a part in planning the incident at R.A.F. Fairford.`\
 https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
 
-**Emails and Texts Offer Inside Look Into Mamdani’s Rent-Freeze Push**\
-`The communications were revealed as part of a lawsuit brought by landlords who are challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
+**Landlords Release Emails and Texts in Lawsuit Over Mamdani’s Rent Freeze**\
+`The communications were revealed as part of a lawsuit challenging the rent freeze on rent-stabilized units in New York City, which went into effect on Thursday.`\
 https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
