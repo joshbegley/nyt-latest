@@ -1,3 +1,7 @@
+**The Global Bond Rout Reaches Worrying New Levels**\
+`Investors are on alert as the yield on the 10-year Treasury note hit a new multi-decade high. The sell-off is also broadening in Europe, too.`\
+https://www.nytimes.com/2026/10/01/business/dealbook/bond-rout-trump-powell.html
+
 **What Newly Obtained Documents Show About the Cornell Case, and Inside the Bloody Midair Cockpit Attack**\
 `Plus, a Kelvin wave is coming.`\
 https://www.nytimes.com/2026/10/01/the-headlines/what-newly-obtained-documents-show-about-the-cornell-case-and-inside-the-bloody-midair-cockpit-attack.html
