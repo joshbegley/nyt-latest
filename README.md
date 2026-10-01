@@ -1,3 +1,7 @@
+**Hong Kong Journalist Arrested After Covering Gathering Linked to 2019 Protests**\
+`The national security police detained Tang Ho-wing, founder of the independent outlet Boom News, according to local media and watchdog groups.`\
+https://www.nytimes.com/2026/10/01/world/asia/hong-kong-arrest-journalist-activist.html
+
 **Live Updates: Israelis Celebrate Passengers’ Return as Questions Swirl Over Flight Attack**\
 `Prime Minister Benjamin Netanyahu praised the flight’s injured captain, Israeli passengers and reserve pilots, who helped secure the plane and land it safely. The attacker has not been identified.`\
 https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/theater/thelma-louise-musical-london-neko-cas
 **Alexander Skarsgard Is Latest Hollywood Star to Find the Beauty in the Beastly**\
 `Alexander Skarsgard, Demi Moore and Jacob Elordi have all made themselves into monsters for a role. Why can’t Hollywood’s most beautiful stars get enough of the grotesque?`\
 https://www.nytimes.com/2026/10/01/style/hollywood-horror-halloween-monsters.html
-
-**Kitchen Islands Are Getting Bigger**\
-`Three of five homeowners who renovate include a kitchen island, and over half of those islands are more than seven feet long.`\
-https://www.nytimes.com/2026/10/01/realestate/kitchen-islands-are-getting-bigger.html
 
