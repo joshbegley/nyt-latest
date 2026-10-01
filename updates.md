@@ -1,3 +1,15 @@
+**The New York City Neighborhoods Where It’s Hardest to Build Housing**\
+`Some City Council members are losing an informal veto power over new projects in their districts after voters approved a measure aimed at eliminating roadblocks to development.`\
+https://www.nytimes.com/2026/10/01/nyregion/nyc-affordable-housing-neighborhoods.html
+
+**Quote of the Day: Governments Hop on A.I. While Fearing Its Hazards**\
+`Quotation of the Day for Thursday, October 1, 2026.`\
+https://www.nytimes.com/2026/10/01/pageoneplus/quote-of-the-day-governments-hop-on-ai-while-fearing-its-hazards.html
+
+**On This Day, Oct. 1: Mao Zedong proclaimed the People’s Republic of China.**\
+`In 1949, Mao Zedong proclaimed the founding of the People’s Republic of China in Beijing.`\
+https://www.nytimes.com/2026/10/01/learning/on-this-day-oct-1.html
+
 **What Role Did Ketamine Play in Cornell’s Alleged Rape Case?**\
 `Ketamine a short-acting anesthetic that can have hallucinogenic effects. It is becoming more easily available, and some experts fear misuse is increasing.`\
 https://www.nytimes.com/2026/09/30/science/cornell-rape-ketamine.html
