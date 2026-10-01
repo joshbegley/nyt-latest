@@ -1,3 +1,7 @@
+**Colleen Slemmer Was a ‘Vibrant and Generous Presence,’ Her Mother Says**\
+`Ms. Slemmer was killed in 1995 by Christa Pike, whose execution in Tennessee was botched on Wednesday. Her family celebrated what would have been her 51st birthday last month.`\
+https://www.nytimes.com/2026/10/01/us/colleen-slemmer.html
+
 **Housing Official, Who Targeted Trump Foes, Cuts Watchdog Office**\
 `Bill Pulte, director of the Federal Housing Finance Agency, moved to slash his agency’s inspector general’s office. Democrats called for his resignation.`\
 https://www.nytimes.com/2026/10/01/us/politics/bill-pulte-trump-inspector-general.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/learning/what-teenagers-are-saying-about-foot
 **Former Dallas Officer Who Killed Neighbor in His Home Is Granted Parole**\
 `Amber Guyger served seven years of a 10-year murder sentence in a case that drew national attention and inflamed racial tensions.`\
 https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
-
-**Prosecutors Cannot Revive Reflecting Pool Case Against Ex-Olympian, Judge Rules**\
-`A charge against David Hearn was dismissed “with prejudice” because of President Trump’s attempts to influence the case.`\
-https://www.nytimes.com/2026/10/01/climate/david-hearn-reflecting-pool-charges-dropped.html
 
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

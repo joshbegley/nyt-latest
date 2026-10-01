@@ -1,3 +1,7 @@
+**Colleen Slemmer Was a ‘Vibrant and Generous Presence,’ Her Mother Says**\
+`Ms. Slemmer was killed in 1995 by Christa Pike, whose execution in Tennessee was botched on Wednesday. Her family celebrated what would have been her 51st birthday last month.`\
+https://www.nytimes.com/2026/10/01/us/colleen-slemmer.html
+
 **Housing Official, Who Targeted Trump Foes, Cuts Watchdog Office**\
 `Bill Pulte, director of the Federal Housing Finance Agency, moved to slash his agency’s inspector general’s office. Democrats called for his resignation.`\
 https://www.nytimes.com/2026/10/01/us/politics/bill-pulte-trump-inspector-general.html
