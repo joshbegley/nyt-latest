@@ -1,3 +1,7 @@
+**The Front Page That Never Was**\
+`As The New York Times marks its 175th anniversary, Dean Baquet, a former executive editor of the paper, reflects on one of the objects from his tenure: a front page that was never published.`\
+https://www.nytimes.com/video/insider/100000011115643/the-front-page-that-never-was.html
+
 **Passengers Recount ‘Earth-Shattering’ Experiences After Pilot Stabbed on FlyDubai Flight**\
 `Passengers on a FlyDubai flight from Dubai to Tel Aviv speak out after the plane made an emergency landing when a fight broke out in the cockpit.`\
 https://www.nytimes.com/video/world/middleeast/100000011185739/flydubai-voices-flight-emergency-israel.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/30/travel/passport-photos-digital-application.ht
 **Is American Culture Simply Bad Now?**\
 `The world order is changing. So is the United States’ place in it.`\
 https://www.nytimes.com/2026/09/30/opinion/america-cool-culture-soft-power.html
-
-**America Used to Be Cool. What Happened?**\
-`The world order is changing. So is the United States’ place in it.`\
-https://www.nytimes.com/video/opinion/100000011179548/america-used-to-be-cool-what-happened.html
 

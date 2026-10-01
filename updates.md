@@ -1,3 +1,11 @@
+**Passengers Recount ‘Earth-Shattering’ Experiences After Pilot Stabbed on FlyDubai Flight**\
+`Passengers on a FlyDubai flight from Dubai to Tel Aviv speak out after the plane made an emergency landing when a fight broke out in the cockpit.`\
+https://www.nytimes.com/video/world/middleeast/100000011185739/flydubai-voices-flight-emergency-israel.html
+
+**FlyDubai Passenger Who Helped Subdue Pilot Describes Stabbing Attack in Cockpit**\
+`A passenger on a flight to Tel Aviv on Wednesday said he watched in horror as the plane’s pilots tumbled out of the cockpit, locked in a bloody brawl.`\
+https://www.nytimes.com/2026/09/30/world/middleeast/israel-plane-flydubai-passenger-eyewitness-account.html
+
 **Becerra Holds Wide Leads in Polling of California’s Governor Race**\
 `Unaffiliated voters leaned heavily toward Xavier Becerra, a Democrat, in a recent poll, pushing him to his largest lead of this election cycle.`\
 https://www.nytimes.com/2026/09/30/us/elections/xavier-becerra-polling-california-governor.html
