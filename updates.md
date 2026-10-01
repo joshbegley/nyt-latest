@@ -1,3 +1,23 @@
+**Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
+
+**How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
+`Watch the full conversation with Miranda Lambert. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011183057/how-ella-langley-miranda-lambert-made-history-with-choosin-texas.html
+
+**American University of Afghanistan at Risk of Closure Amid Funding Cuts**\
+`The State Department has denied its funding for the next two years, jeopardizing the education of hundreds of female Afghan students.`\
+https://www.nytimes.com/2026/10/01/world/asia/american-university-kabul-usaid.html
+
+**States Sue Over Trump’s Repeal of Climate Rules for Power Plants**\
+`The mostly Democratic-led states say that the E.P.A. acted unlawfully when it erased Biden-era limits on carbon dioxide from coal- and gas-fired plants.`\
+https://www.nytimes.com/2026/10/01/climate/states-sue-epa-power-plant-trump.html
+
+**Most American Children Are Being Auto-Enrolled in Trump Accounts. What to Know.**\
+`The Trump administration may have just signed up your child — and more than 60 million others — for a 530A savings account (if you haven’t already done so).`\
+https://www.nytimes.com/2026/10/01/business/trump-accounts-auto-enrollment.html
+
 **Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/01/us/midterms-elections
