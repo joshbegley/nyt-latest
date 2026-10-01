@@ -1,3 +1,7 @@
+**A Flashy Zimbabwean Tycoon Who Befriended Presidents Dies in Crash**\
+`Wicknell Chivayo was riding in a helicopter with his wife when it plunged into a field. Dogged by corruption allegations, the businessman drew polarizing reactions even in death.`\
+https://www.nytimes.com/2026/10/01/world/africa/zimbabwe-wicknell-chivayo-helicopter-crash.html
+
 **New Cornell Documents**\
 `We look at the latest in the case.`\
 https://www.nytimes.com/2026/10/01/briefing/new-cornell-documents.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/01/crosswords/bob-dylan-special-crossword.html
 **We Want Your Best Breakup Lines**\
 `For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup — kind, bizarre, profound, haunting or funny — either delivered or received.`\
 https://www.nytimes.com/2026/10/01/style/modern-love-we-want-your-best-breakup-lines.html
-
-**Oil Is Flowing From the Persian Gulf, but Prices Remain High. Why?**\
-`Crude oil costs close to $100 a barrel because traders are worried hostilities could soon restart and the world is burning through its emergency stockpiles.`\
-https://www.nytimes.com/2026/10/01/business/energy-environment/oil-prices-iran-war-trump.html
 
