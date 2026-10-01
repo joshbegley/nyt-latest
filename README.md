@@ -1,6 +1,6 @@
 **Housing Official, Who Targeted Trump Foes, Cuts Watchdog Office**\
 `Bill Pulte, director of the Federal Housing Finance Agency, moved to slash his agency’s inspector general’s office. Democrats called for his resignation.`\
-https://www.nytimes.com/2026/10/01/us/politics/housing-official-who-targeted-trump-foes-cuts-watchdog-office.html
+https://www.nytimes.com/2026/10/01/us/politics/bill-pulte-trump-inspector-general.html
 
 **How The New York Times Is Reporting on the Cornell Rape Investigation**\
 `Times editors explore the thinking behind our coverage of the explosive allegations that have roiled a campus and the country.`\
@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/10/01/us/amber-guyger-parole-botham-jean.html
 `A charge against David Hearn was dismissed “with prejudice” because of President Trump’s attempts to influence the case.`\
 https://www.nytimes.com/2026/10/01/climate/david-hearn-reflecting-pool-charges-dropped.html
 
-**Nigerian Charged With Running Fake Government Agency**\
-`The Nigerian secured office space in a federal building, opened bank accounts and even held meetings with foreign diplomats. He says he is innocent.`\
-https://www.nytimes.com/2026/10/01/world/africa/nigeria-fake-government-agency.html
-
 **Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
+**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/01/us/midterms-elections
 
 **Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu of Israel said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
