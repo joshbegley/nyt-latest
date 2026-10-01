@@ -1,3 +1,7 @@
+**Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed. All the men denied any wrongdoing.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
+
 **Pike Said She Rued a Grisly Crime. The Victim’s Mother Wants Her Dead.**\
 `May Martinez, who waited outside the prison for an execution that didn’t happen, said she could not fathom Christa Pike changing.`\
 https://www.nytimes.com/2026/10/01/us/christa-pike-remorse-victim-mother.html

@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html
 
 **Men Accused in Cornell Sex Assault Suit Give Varying Accounts of Night**\
-`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed and sometimes contradictory.`\
+`Their accounts, detailed in hundreds of pages of investigative files obtained by The New York Times, were disjointed. All the men denied any wrongdoing.`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-fraternity-chi-phi-men.html
 
 **How Ella Langley & Miranda Lambert Made History With ‘Choosin’ Texas’**\
