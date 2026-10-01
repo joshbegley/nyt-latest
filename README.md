@@ -1,3 +1,7 @@
+**The Global Bond Rout Reaches Worrying New Levels**\
+`Investors are on alert as the yield on the 10-year Treasury note hit a new multi-decade high. The sell-off is also broadening in Europe, too.`\
+https://www.nytimes.com/2026/10/01/business/dealbook/bond-rout-trump-powell.html
+
 **What’s Next for ‘Hard Fork’?**\
 `The podcast’s next chapter begins this week.`\
 https://www.nytimes.com/2026/10/01/podcasts/hard-fork-whats-next.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/01/movies/atonement-review.html
 **If You Think Rising Oil Prices Are Bad, Just Wait for the Inevitable Crash**\
 `An oil bust is on the horizon.`\
 https://www.nytimes.com/2026/10/01/opinion/gas-prices-oil-crash.html
-
-**John Roberts Retreated to His Island. Supreme Court Critics Found Him.**\
-`After decades of potlucks and paddle-boarding on Maine’s midcoast, rising anger and protests have left the Supreme Court’s chief justice more isolated than ever.`\
-https://www.nytimes.com/2026/10/01/us/politics/supreme-court-roberts-maine.html
 
