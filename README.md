@@ -1,3 +1,15 @@
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/01/books/review/new-recommended-books.html
+
+**Israelis Take Pride in Bravery of Passengers Who Saved Flight 1073**\
+`The events evoked days decades ago when Israel was widely admired for its plucky survival against the odds and for taking on hijackers.`\
+https://www.nytimes.com/2026/10/01/world/middleeast/israel-passengers-flight-1073.html
+
+**What Happened to Cameron Crowe? He Has Answers.**\
+`Cameron Crowe speaks with David Marchese about his 50-year career, revealing details about the boombox scene in “Say Anything,” what it was like interviewing David Bowie and his plans for a Joni Mitchell biopic.`\
+https://www.nytimes.com/video/podcasts/100000011142601/what-happened-to-cameron-crowe-he-has-answers.html
+
 **Why Did the Tennessee Execution Fail?**\
 `A catheter carrying the lethal drug may not have delivered the doses to Christa Pike’s bloodstream, experts said. The drug itself may have been degraded.`\
 https://www.nytimes.com/2026/10/01/science/pike-execution-pentobarbital.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/10/01/us/helicopter-crash-catalina-island-californi
 **Renewable Energy Super PAC Targets 7 Republicans With $15 Million War Chest**\
 `Most of the Republicans, such as Lauren Boebert of Colorado and Victoria Spartz of Indiana, are incumbents in districts that President Trump won comfortably in 2024.`\
 https://www.nytimes.com/2026/10/01/us/politics/renewable-energy-super-pac-republicans-midterms.html
-
-**3 Billionaires Have Largely Funded Republican Nominee for Wisconsin Governor**\
-`Under its current rules, Wisconsin has not had a race in which a small number of donors have made up such a large share of a campaign’s funding.`\
-https://www.nytimes.com/2026/10/01/us/billionaires-republicans-wisconsin-governor.html
-
-**Red-State Visits by Trump and Vance Underline G.O.P.’s Midterm Worries**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/01/us/midterms-elections
-
-**Take a Historic Stroll Down Oxford Street, London’s Shopping Artery**\
-`London is making a stretch of the street, long central to the city’s identity and sense of style, car free.`\
-https://www.nytimes.com/2026/10/01/world/europe/oxford-street-history-photos.html
 
 **Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
 `The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
