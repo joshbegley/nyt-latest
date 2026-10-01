@@ -1,3 +1,11 @@
+**U.K.-Iranian Man Arrested in Connection to RAF Fairford Air Base Incident**\
+`British counterterrorism police said that a 27-year-old British-Iranian dual national had been arrested on Thursday.`\
+https://www.nytimes.com/2026/10/01/world/europe/uk-iran-terrorism-raf-fairford.html
+
+**Emails and Texts Offer Inside Look Into Mamdani’s Rent Freeze Push**\
+`The communications were revealed as part of a lawsuit challenging New York City’s rent freeze on rent-stabilized units, which went into effect on Thursday.`\
+https://www.nytimes.com/2026/10/01/nyregion/mamdani-rent-freeze-lawsuit-nyc.html
+
 **Review: Tiler Peck the Choreographer Channels Tiler Peck the Dancer**\
 `Peck’s choreography in “Grandes Études” for the Northern Ballet shows off qualities she is known for as a ballerina: speed, virtuosity, musicality.`\
 https://www.nytimes.com/2026/10/01/arts/dance/northern-ballet-tiler-peck-grandes-etudes-review.html

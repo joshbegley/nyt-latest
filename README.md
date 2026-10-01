@@ -114,8 +114,8 @@ https://www.nytimes.com/2026/10/01/world/europe/switzerland-glaciers-melting-cli
 `The California senator gained national attention when he was forcibly removed from a Homeland Security news conference. Now, as California sits at the center of the immigration debate, what comes next for the politician?`\
 https://www.nytimes.com/video/podcasts/100000011142696/sen-alex-padilla-says-his-viral-moment-was-a-sign-of-things-to-come.html
 
-**Live Updates: Tennessee Governor Pauses Future Execution After Inmate Survives Lethal Injection**\
-`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. She was hospitalized late Wednesday.`\
+**Live Updates: Tennessee Governor Suspends Executions After Inmate Survives Lethal Injection**\
+`Gov. Bill Lee ordered a review of the state’s capital-punishment process after the botched attempt to put Christa Pike to death. Her condition was unclear.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Renee Good’s Family Sues ICE Agent and Trump Officials Over Minnesota Killing**\
