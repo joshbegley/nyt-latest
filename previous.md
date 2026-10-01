@@ -1,3 +1,7 @@
+**Gunman Kills 2 Co-Workers at Virginia Rental Business**\
+`A 37-year-old man shot three employees at an equipment rental business, then killed himself after a standoff with the police, the authorities said.`\
+https://www.nytimes.com/2026/09/30/us/virginia-workplace-shooting.html
+
 **NYT Crossword Answers for Oct. 1, 2026**\
 `Find your footing on Jill Singer’s puzzle.`\
 https://www.nytimes.com/2026/09/30/crosswords/daily-puzzle-2026-10-01.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-sports-article
 **15-Minute Lesson Plan: A Visual History of the Harlem Renaissance**\
 `What can your students “see, think and wonder” about the artifacts in this rich collection?`\
 https://www.nytimes.com/2026/09/30/learning/15-minute-lesson-plan-a-visual-history-of-the-harlem-renaissance.html
-
-**Chaos at Jack Smith’s Senate Hearing**\
-`Readers respond to the high and low points of the Jack Smith Senate hearing. Also: reporters who made history; an ode to Pluto.`\
-https://www.nytimes.com/2026/09/30/opinion/jack-smith-senate-hearing.html
 

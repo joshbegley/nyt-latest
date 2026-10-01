@@ -1,3 +1,7 @@
+**Gunman Kills 2 Co-Workers at Virginia Rental Business**\
+`A 37-year-old man shot three employees at an equipment rental business, then killed himself after a standoff with the police, the authorities said.`\
+https://www.nytimes.com/2026/09/30/us/virginia-workplace-shooting.html
+
 **NYT Crossword Answers for Oct. 1, 2026**\
 `Find your footing on Jill Singer’s puzzle.`\
 https://www.nytimes.com/2026/09/30/crosswords/daily-puzzle-2026-10-01.html
