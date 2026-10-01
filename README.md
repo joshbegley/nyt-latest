@@ -1,3 +1,7 @@
+**President Trump’s Kennedy Center**\
+`We examine the arts center’s saga in Washington.`\
+https://www.nytimes.com/2026/10/01/briefing/president-trumps-kennedy-center.html
+
 **Statement Written by Police in Cornell Assault Case Omitted Her Claim She Was Raped**\
 `Documents obtained by The New York Times show that the campus police at Cornell University sent a condensed statement to a prosecutor, who then declined to bring charges.`\
 https://www.nytimes.com/2026/10/01/nyregion/url-cornell-university-jane-doe-rape-case-statement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/01/books/review/how-bright-the-path-grows-marcia
 **Word of the Day: exponentially**\
 `This word has appeared in 106 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/01/learning/word-of-the-day-exponentially.html
-
-**Jamie Wyeth, Meet Uncle Winslow**\
-`Jamie Wyeth makes a pilgrimage to Portland, Maine, to view rare works by Winslow Homer, who has been a potent influence on three generations of Wyeth artists.`\
-https://www.nytimes.com/2026/10/01/arts/design/jamie-wyeth-meet-uncle-winslow.html
 
