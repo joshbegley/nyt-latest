@@ -1,3 +1,11 @@
+**As Cornell Reckons with Sexual Assault Case, Will Applicants Think Twice?**\
+`Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
+
+**Live Updates: Investigators Seek to Establish Motive in FlyDubai Attack**\
+`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu of Israel said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
+https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
+
 **FlyDubai Under Scrutiny After Cockpit Attack**\
 `The United Arab Emirates has said it is leading the investigation into the episode, and FlyDubai’s service between Dubai and Tel Aviv has been suspended.`\
 https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.html
