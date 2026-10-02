@@ -1,3 +1,15 @@
+**Bus Driver in L.A. Is Fatally Shot by Passenger After Possible Wrong Turn**\
+`The gunman has not been found, officials said. The driver, whose name has not been released publicly, was 42.`\
+https://www.nytimes.com/2026/10/02/us/culver-city-bus-driver-shooting-california.html
+
+**Argentina’s ‘Golden Passport’ Program Offers Citizenship in Exchange for Foreign Cash**\
+`The program would grant citizenship to people who make major investments in Argentina. Similar efforts have yielded significant income for small economies, but have also led to risks.`\
+https://www.nytimes.com/2026/10/02/world/americas/argentina-citizenship-golden-passport-money.html
+
+**FlyDubai Attack Raises Questions About Pilot Background Checks**\
+`Health screenings and criminal background checks may go only so far in identifying pilots who have become radicalized or try to hide their mental health issues, experts said.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-plane-flydubai-pilot-background-check.html
+
 **California Sues to Block Trump From Weakening Fuel Economy Rules**\
 `The lawsuit is the 97th the state has filed against the Trump administration over the past year and a half.`\
 https://www.nytimes.com/2026/10/02/climate/california-trump-administration-fuel-economy.html
