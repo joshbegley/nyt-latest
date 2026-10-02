@@ -1,4 +1,8 @@
-**Trump is Considering a Ban on U.S. Diesel Exports. How Could That Strain Trading Partners?**\
+**A.I.: Cute or Maybe Catastrophically Dangerous?**\
+`Full Episode #215`\
+https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
+
+**Why U.S. Diesel Is So Important to Major Trading Partners**\
 `Economies in Latin America and Europe rely on American diesel. Stopping exports could tip some countries into recession, hurting trade with the United States.`\
 https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-europe-brazil.html
 
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-no
 
 **The Mother’s Scream That Sent Passengers to the Rescue**\
 `A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/mothers-scream-passengers-f.html
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
 
 **This Lemony Miso Cabbage Complements Any Main Dish**\
 `And more popular recipes from the week.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/opinion/ezra-klein-podcast-debbie-millman.htm
 **Russia’s Latest Propaganda? A.I.-Generated War Songs.**\
 `Russians are creating and spreading music glorifying the invasion of Ukraine, using platforms built in the United States.`\
 https://www.nytimes.com/2026/10/02/technology/russian-propaganda-ai-war-songs.html
-
-**Trump Is Getting Desperate. It Shows.**\
-`The Justice Department is trawling to find perpetrators on whom to pin conspiracies. Ordinary citizens are being ensnared.`\
-https://www.nytimes.com/2026/10/02/opinion/trump-target-ordinary-citizens.html
 
