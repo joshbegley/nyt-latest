@@ -1,3 +1,7 @@
+**Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack**\
+`The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
+
 **Airlines Set to Bring Israelis Back from U.A.E. After FlyDubai Cockpit Attack**\
 `The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
