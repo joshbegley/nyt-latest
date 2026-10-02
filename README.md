@@ -1,3 +1,7 @@
+**As Gas Prices Rose, Sales of Larger Vehicles Slid**\
+`Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
+https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
+
 **At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
 `There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
 https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/movies/the-last-first-winter-k2-review.html
 **Are Democrats Worried About the Wrong Rich People?**\
 `As billionaires become a popular political target, a new book urges Washington not to lose sight of a much larger, and quieter, group of wealthy business owners.`\
 https://www.nytimes.com/2026/10/02/business/democrats-wealthy-taxes.html
-
-**The Rise of the Nine-Figure Listing**\
-`America's growing crop of billionaires made 2026 a record year for $100 million listings.`\
-https://www.nytimes.com/2026/10/02/realestate/the-rise-of-the-nine-figure-listing.html
 
