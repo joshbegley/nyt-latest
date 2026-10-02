@@ -1,3 +1,7 @@
+**The Latest Challenge to Data Centers? Restive Investors.**\
+`Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
+https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
+
 **Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
 `Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were set to provide an update on the case Friday morning.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/learning/word-of-the-day-novelty.html
 **Her Singles Made Her a Star. A First Album Took More Work.**\
 `Yendry’s one-off songs made fans of Cat Power and Barack Obama. Her debut LP, “Como Agua,” is a statement of her complex identity.`\
 https://www.nytimes.com/2026/10/02/arts/music/yendrys-como-agua-album.html
-
-**3 New Picture Books About Attachment and Separation**\
-`One of them takes the phrase “joined at the hip” to a whole new level.`\
-https://www.nytimes.com/2026/10/02/books/review/christian-robinson-dad.html
 
