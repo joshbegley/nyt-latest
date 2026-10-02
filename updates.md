@@ -1,3 +1,7 @@
+**Read One of the Recently Released U.F.O. Documents**\
+`This graphic of reported sightings of flying orbs lets the public glimpse federal agents’ study of extraterrestrial life. But it doesn’t contain anything conclusive.`\
+https://www.nytimes.com/interactive/2026/10/02/us/nat-ufo-flying-objects-map.html
+
 **Live Updates: Hochul Rebukes Prosecutor’s Handling of Cornell Case**\
 `“In what world would the police” not elevate allegations of a rape to the district attorney, Gov. Kathy Hochul of New York asked.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
