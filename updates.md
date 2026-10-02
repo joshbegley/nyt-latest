@@ -1,3 +1,7 @@
+**Bridal Shop Owner Who Put Child Onto a Coat Hook Cleared by Court**\
+`The “horseplay” was misguided, said the Canadian judge, but not malicious.`\
+https://www.nytimes.com/2026/10/02/world/canada/newfoundland-bridal-shop-owner-boy-coat-hook.html
+
 **What to Know About Fighting Between Ethiopia and Rebels in Tigray**\
 `The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt the United Arab Emirates and Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/africa/ethiopia-tigray-conflict.html
