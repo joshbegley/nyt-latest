@@ -16,7 +16,7 @@ https://www.nytimes.com/interactive/2026/10/02/arts/television/best-tv-series-qu
 
 **2 Iranian Men Charged in U.K. Over Suspected Plot to Target Jews**\
 `The British police said the two Iranian nationals were charged Friday with terrorism offenses.`\
-https://www.nytimes.com/2026/10/02/world/europe/2-iranian-men-charged-in-uk-over-suspected-plot-to-target-jews.html
+https://www.nytimes.com/2026/10/02/world/europe/uk-manchester-terror-plot-iranians-jews.html
 
 **New York Governor Criticizes Handling of Cornell Case**\
 `Also, U.S. hiring slowed down. Here’s the latest at the end of Friday.`\
@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/02/us/holei-sea-arch-hawaii-collapse.html
 https://www.nytimes.com/video/podcasts/100000011191100/metas-cute-new-ai-agent-is-taking-over-my-brain.html
 
 **F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
-`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in a grower’s field or processing facility in northeastern Mexico.`\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in a grower’s field or processing facility.`\
 https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
 
 **Spanish Lawmakers Vote Down Eviction Freeze**\

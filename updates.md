@@ -1,3 +1,11 @@
+**2 Iranian Men Charged in U.K. Over Suspected Plot to Target Jews**\
+`The British police said the two Iranian nationals were charged Friday with terrorism offenses.`\
+https://www.nytimes.com/2026/10/02/world/europe/uk-manchester-terror-plot-iranians-jews.html
+
+**F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in a grower’s field or processing facility.`\
+https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
+
 **Hochul Denounces D.A. and Cornell Police in Handling of Sex Assault Case**\
 `Gov. Kathy Hochul appointed Letitia James, the attorney general, to investigate the original allegations and why a police report omitted crucial information.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-jane-doe-hochul.html

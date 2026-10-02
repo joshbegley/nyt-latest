@@ -1,3 +1,7 @@
+**Letitia James Is in Charge of the Cornell Rape Inquiry. What Comes Next?**\
+`As a special prosecutor, Ms. James has wide powers over the handling of the investigation, but legal experts say the case comes with potential obstacles.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-university-jane-doe-investigation.html
+
 **Hochul Denounces D.A. and Cornell Police in Handling of Sex Assault Case**\
 `Gov. Kathy Hochul appointed Letitia James, the attorney general, to investigate the original allegations and why a police report omitted crucial information.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-jane-doe-hochul.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-resea
 `David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
 https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
 
-**Christa Pike Unconscious and on Ventilator After Execution Attempt**\
+**With Christa Pike Unconscious, Another Execution Attempt Is in Doubt**\
 `Her condition raises questions about whether Tennessee could attempt to execute her again if she is incapable of understanding what is happening.`\
 https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-po
 **Black Unemployment Rose Sharply in September, Jobs Report Shows**\
 `Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
-
-**A.I.: Cute or Maybe Catastrophically Dangerous?**\
-`Full Episode #215`\
-https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
