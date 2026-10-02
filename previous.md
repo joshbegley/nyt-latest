@@ -1,3 +1,7 @@
+**Review: Tom Ford and the Problem of ‘Sexy’**\
+`In an age of naked dressing, what does titillation look like?`\
+https://www.nytimes.com/2026/10/02/style/tom-ford-haider-ackermann-naked-dressing.html
+
 **‘Tyler Perry’s Doing Life’ Review: A Mysterious Hero**\
 `Perry’s latest melodrama follows a romance between a prison inmate and the woman he saved during a riot.`\
 https://www.nytimes.com/2026/10/02/movies/tyler-perrys-doing-life-review.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/01/arts/art-gallery-shows-to-see-in-october.html
 **Halloween Costumes Ideas for 2026**\
 `Options for couples, groups and anyone who has always wanted a reason to dress like a famous sheep.`\
 https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
-
-**Mike Smith, Bubbles on ‘Trailer Park Boys,’ Has Sexual Assault Charge Dismissed**\
-`The Canadian cult comedy series announced that Mr. Smith, 54, would resume his involvement with the show.`\
-https://www.nytimes.com/2026/10/01/world/canada/mike-smith-trailer-park-boys-sexual-assault-charge.html
 
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\

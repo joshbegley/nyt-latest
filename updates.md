@@ -1,3 +1,7 @@
+**Review: Tom Ford and the Problem of ‘Sexy’**\
+`In an age of naked dressing, what does titillation look like?`\
+https://www.nytimes.com/2026/10/02/style/tom-ford-haider-ackermann-naked-dressing.html
+
 **‘Tyler Perry’s Doing Life’ Review: A Mysterious Hero**\
 `Perry’s latest melodrama follows a romance between a prison inmate and the woman he saved during a riot.`\
 https://www.nytimes.com/2026/10/02/movies/tyler-perrys-doing-life-review.html
