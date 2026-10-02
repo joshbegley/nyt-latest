@@ -1,3 +1,7 @@
+**Greige Design Has Swallowed Our World**\
+`The world is becoming less colorful, less personal, more gray. On “The Ezra Klein Show,” Debbie Millman, the host of the podcast “Design Matters,” explores what happens to our creativity when social and market forces limit how much color we use to express ourselves.`\
+https://www.nytimes.com/video/opinion/100000011186680/greige-design-has-swallowed-our-world.html
+
 **Iran Jails Hard-Line Lawmaker, Exposing Deep Rifts in Its Leadership**\
 `Hamid Rasaei, a vocal opponent of a diplomatic deal with the United States to end the war, was convicted of publishing false information with the intent to harm the Parliament speaker.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/iran-hard-line-lawmaker-jail-rift.html

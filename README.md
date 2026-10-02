@@ -1,3 +1,7 @@
+**Brooke Eby, Who Brought Humor and Awareness to A.L.S., Dies at 37**\
+`After her diagnosis in 2022, when she was only 33, she became a vocal, witty advocate for people confronting the disease.`\
+https://www.nytimes.com/2026/10/02/obituaries/brooke-eby-dead.html
+
 **Greige Design Has Swallowed Our World**\
 `The world is becoming less colorful, less personal, more gray. On “The Ezra Klein Show,” Debbie Millman, the host of the podcast “Design Matters,” explores what happens to our creativity when social and market forces limit how much color we use to express ourselves.`\
 https://www.nytimes.com/video/opinion/100000011186680/greige-design-has-swallowed-our-world.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011141850/this-world-renowned-negot
 **A Forum at Cornell**\
 `We look at more student reactions.`\
 https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
-
-**Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
-`Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
-https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html
 
