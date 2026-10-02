@@ -1,3 +1,7 @@
+**How Ohio State Football Got Used to Upsell God**\
+`Inside the Christian nationalist surge at a college-football powerhouse.`\
+https://www.nytimes.com/2026/10/02/podcasts/how-ohio-state-football-got-used-to-upsell-god.html
+
 **Amazon Promises More Local Funding and Less Secrecy Around Data Centers**\
 `The internet giant is the latest technology company trying to address increasingly hostile local sentiment toward data center projects.`\
 https://www.nytimes.com/2026/10/02/technology/amazon-data-centers-funding.html

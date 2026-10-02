@@ -1,3 +1,7 @@
+**How Ohio State Football Got Used to Upsell God**\
+`Inside the Christian nationalist surge at a college-football powerhouse.`\
+https://www.nytimes.com/2026/10/02/podcasts/how-ohio-state-football-got-used-to-upsell-god.html
+
 **Amazon Promises More Local Funding and Less Secrecy Around Data Centers**\
 `The internet giant is the latest technology company trying to address increasingly hostile local sentiment toward data center projects.`\
 https://www.nytimes.com/2026/10/02/technology/amazon-data-centers-funding.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/quiz/2026/10/02/us/trump-ufo-quiz.html
 **Can I Force My Wife to Admit She’s Seen ‘Star Wars’?**\
 `A ruling on a movie-watching dispute.`\
 https://www.nytimes.com/quiz/2026/10/02/magazine/star-wars-hodgman-quiz.html
-
-**Is the World Getting Uglier?**\
-`The modern right has a theory of beauty. Does the left?`\
-https://www.nytimes.com/video/opinion/100000011186651/is-the-world-getting-uglier.html
 
