@@ -1,3 +1,7 @@
+**Fighting Intensifies in Yemen, Raising Fresh Fears of All-Out War**\
+`Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
+
 **The Local: Renee Good’s brothers speak**\
 `Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
 https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html

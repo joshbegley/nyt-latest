@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros
 `While the missile fired on Thursday has a limited range, Kyiv is developing a larger weapon that could strike Moscow.`\
 https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.html
 
-**Fighting Intensifies in Yemen, Raising Fears Further of All-Out War**\
+**Fighting Intensifies in Yemen, Raising Fresh Fears of All-Out War**\
 `Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
 
