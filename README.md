@@ -158,13 +158,13 @@ https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 `The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
 https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
 
-**A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
-`“It’s going to be gnarly for a little while.”`\
-https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
-
 **‘The Headlines’ News Quiz: Oct. 2, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
+
+**A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
+`“It’s going to be gnarly for a little while.”`\
+https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
 
 **China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
 `China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\

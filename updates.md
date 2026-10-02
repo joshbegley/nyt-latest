@@ -1,3 +1,11 @@
+**The C.D.C. Gutted, and Lives at Risk**\
+`Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
+https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
+
+**India Faces Fresh Protests, This Time Over Voter Rolls**\
+`Hundreds were detained in New Delhi as demonstrators expressed anger over the removal of 130 million people from the rolls. The government denies accusations of “vote theft.”`\
+https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
+
 **Republicans Pull Money From North Carolina Senate Race As Midterm Prospects Dim**\
 `As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html

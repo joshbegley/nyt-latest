@@ -1,3 +1,7 @@
+**The C.D.C. Gutted, and Lives at Risk**\
+`Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
+https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
+
 **Missouri Man Discovers Michael McDonald of the Doobie Brothers Is His Biological Father**\
 `Michael Goessling’s first phone call with his biological father brought a shock: He was speaking to Michael McDonald of the Doobie Brothers.`\
 https://www.nytimes.com/2026/10/02/us/michael-mcdonald-doobie-brothers-biological-son.html
@@ -134,8 +138,8 @@ https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.htm
 `The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
 https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
 
-**Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
-`Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
+**India Faces Fresh Protests, This Time Over Voter Rolls**\
+`Hundreds were detained in New Delhi as demonstrators expressed anger over the removal of 130 million people from the rolls. The government denies accusations of “vote theft.”`\
 https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
 
 **FlyDubai Pilot Recalls Cockpit Stabbing**\
@@ -154,13 +158,13 @@ https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 `The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
 https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
 
-**‘The Headlines’ News Quiz: Oct. 2, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
-
 **A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
 `“It’s going to be gnarly for a little while.”`\
 https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
+
+**‘The Headlines’ News Quiz: Oct. 2, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
 
 **China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
 `China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/podcasts/seattle-seahawks-super-bowl.html
 **Where Voters Are Abandoning Trump, and Barriers to New Cancer Treatments**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/10/02/podcasts/voters-abandoning-trump-new-cancer-treatments.html
-
-**NYT Connections Answers for October 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
-https://www.nytimes.com/2026/10/02/crosswords/connections-companion-1210.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
