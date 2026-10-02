@@ -1,3 +1,11 @@
+**My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
+`In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
+https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
+
+**Economic Strain Is Pitting China’s People Against Each Other**\
+`Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
+https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
+
 **Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
 `Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/iran-strait-hormuz-attacks-oil.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-
 **Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
 `No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
 https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
-
-**Three Restaurants That Came Back From the Dead**\
-`What to eat at the reanimated locations of Carnegie Deli, Sam’s Restaurant and Ugly Baby.`\
-https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
-
-**The MacArthur ‘Genius’ Studying Sea Ice Secrets**\
-`A climate scientist was one of 20 recipients of a “no-strings-attached” $800,000 stipend.`\
-https://www.nytimes.com/2026/10/01/climate/climate-science-macarthur.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
