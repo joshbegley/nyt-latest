@@ -1,3 +1,7 @@
+**Black Unemployment Rose Sharply in September, Jobs Report Shows**\
+`Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
+
 **A.I.: Cute or Maybe Catastrophically Dangerous?**\
 `Full Episode #215`\
 https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-
 
 **As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
 `The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
-https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-north-carolina-senate-race.html
+https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
 **The Mother’s Scream That Sent Passengers to the Rescue**\
 `A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/us/tennessee-failed-executions-history.html
 **Is the World Getting Uglier?**\
 `The modern right has a theory of beauty. Does the left?`\
 https://www.nytimes.com/2026/10/02/opinion/ezra-klein-podcast-debbie-millman.html
-
-**Russia’s Latest Propaganda? A.I.-Generated War Songs.**\
-`Russians are creating and spreading music glorifying the invasion of Ukraine, using platforms built in the United States.`\
-https://www.nytimes.com/2026/10/02/technology/russian-propaganda-ai-war-songs.html
 
