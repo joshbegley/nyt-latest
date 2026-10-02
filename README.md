@@ -1,3 +1,7 @@
+**Google Tests Plan for A.I. Data Centers in Space**\
+`The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011191505/google-tests-plan-for-ai-data-centers-in-space.html
+
 **Trump Suggests Cornell Defendants Won’t Get a ‘Fair Shake’ From Letitia James**\
 `President Trump weighed in on the case when asked about Ms. James, who has become a target of his second-term retribution campaign.`\
 https://www.nytimes.com/2026/10/02/us/politics/trump-cornell-letitia-james.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/arts/kennedy-center-honors-capital-one-arena.
 **Trump to Name Jay Clayton to Serve as A.I. Czar**\
 `The director of national intelligence will help develop new policies, and potentially regulations, for the rapidly evolving technology.`\
 https://www.nytimes.com/2026/10/02/us/politics/trump-jay-clayton-ai-czar.html
-
-**The Head of NATO Thinks President Trump ‘Deserves All the Praise’**\
-`Lulu Garcia-Navarro speaks with Mark Rutte, NATO’s secretary general, about why he wants everyone to stop questioning President Trump’s commitment to the alliance.`\
-https://www.nytimes.com/video/podcasts/100000011139807/the-head-of-nato-thinks-president-trump-deserves-all-the-praise.html
 
