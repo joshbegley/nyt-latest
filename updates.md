@@ -1,3 +1,7 @@
+**Tennessee’s Botched Attempt to Execute Christa Pike Intensifies Concerns Over Lethal Injections**\
+`The failed attempt with Christa Pike has intensified bipartisan concerns about Tennessee’s ability to effectively carry out lethal injections.`\
+https://www.nytimes.com/2026/10/02/us/tennessee-failed-executions-history.html
+
 **Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
 `Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
 https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html

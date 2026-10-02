@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/10/02/crosswords/wordle-review-1932.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
 https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
 
-**Live Updates: Job Growth Cools and Unemployment Rises**\
+**Live Updates: Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
 

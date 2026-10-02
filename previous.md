@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/10/02/well/telling-truths.html
 `Our expert explains why you may want to upgrade your lunch box, and fun ways to spice up that midday meal.`\
 https://www.nytimes.com/2026/10/02/podcasts/how-to-pack-a-better-lunch.html
 
-**Tennessee Botches One Execution After Another, Despite Repeated Warnings**\
+**Tennessee’s Botched Attempt to Execute Christa Pike Intensifies Concerns Over Lethal Injections**\
 `The failed attempt with Christa Pike has intensified bipartisan concerns about Tennessee’s ability to effectively carry out lethal injections.`\
 https://www.nytimes.com/2026/10/02/us/tennessee-failed-executions-history.html
 
