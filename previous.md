@@ -1,3 +1,23 @@
+**This Lemony Miso Cabbage Complements Any Main Dish**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html
+
+**Scientists Untangle the Biology of an ‘Undruggable’ Cancer Gene**\
+`Found in 70 percent of cancers, the gene is seen as a grand orchestrator but has been surprisingly difficult to stop.`\
+https://www.nytimes.com/2026/10/02/science/scientists-untangle-the-biology-of-an-undruggable-cancer-gene.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include killer sharks, vengeful lawmen and an umbrella-gun assassin.`\
+https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
+
+**Soft Jobs Report Boosts Market Bets Fed Will Skip October Rate Increase**\
+`The odds of an interest rate change at the Federal Reserve’s meeting in late October have dropped following a softer jobs report and strong signaling from bank officials.`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rates.html
+
+**U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
+`The Group of 7, which includes Britain, France, Japan and others, announced the release of 100 million barrels over four months, effective immediately.`\
+https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
+
 **The Best Movies and TV Shows Coming to Netflix in October**\
 `A new adaptation of a Steinbeck classic and a documentary about a beloved comedian are among this month’s highlights.`\
 https://www.nytimes.com/2026/10/02/arts/television/netflix-new-october.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/02/dining/drinks/english-whisky-uk.html
 **The Powerful Yet Fragile Force Propping Up Stocks and the Economy**\
 `The artificial intelligence boom has pushed up the stock market, even as interest rates have pulled it down, our columnist says.`\
 https://www.nytimes.com/2026/10/02/business/ai-stocks-bonds-economy.html
-
-**Decades Later, Stephen King Is Finishing What He and Peter Straub Started**\
-`The author speaks about his new book, “Other Worlds Than These,” which completes a trilogy he began with his friend and co-writer in 1984.`\
-https://www.nytimes.com/2026/10/02/podcasts/stephen-king-the-talisman.html
-
-**How Stephen King Channeled His Co-Writer After Death**\
-`Stephen King and his co-writer and friend Peter Straub wrote two books together in their Talisman series. On the “Book Review” podcast, King explains how, when he returned to their story after Straub’s death in 2022, he went back to his old friend’s writing to try to capture his voice, a process he called “a kind of literary forgery.”`\
-https://www.nytimes.com/video/podcasts/100000011179586/how-stephen-king-channeled-his-co-writer-after-death.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/10/02/movies/new-movies-this-week-critics.html
-
-**Where Things Stand in the Jane Doe Investigation**\
-`Gov. Kathy Hochul has named a special investigator, Letitia James, as the allegations of rape in a fraternity house become part of a national conversation about sexual assault and consent.`\
-https://www.nytimes.com/2026/10/02/nyregion/where-things-stand-in-the-jane-doe-investigation.html
-
-**‘Friday Night Lights’ at 20: Can We Ever Get Back to Dillon?**\
-`The football drama’s themes of community and hope are just as moving today, but ever more distant.`\
-https://www.nytimes.com/2026/10/02/arts/television/friday-night-lights-20th-anniversary.html
 

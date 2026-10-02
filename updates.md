@@ -1,3 +1,23 @@
+**This Lemony Miso Cabbage Complements Any Main Dish**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html
+
+**Scientists Untangle the Biology of an ‘Undruggable’ Cancer Gene**\
+`Found in 70 percent of cancers, the gene is seen as a grand orchestrator but has been surprisingly difficult to stop.`\
+https://www.nytimes.com/2026/10/02/science/scientists-untangle-the-biology-of-an-undruggable-cancer-gene.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include killer sharks, vengeful lawmen and an umbrella-gun assassin.`\
+https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
+
+**Soft Jobs Report Boosts Market Bets Fed Will Skip October Rate Increase**\
+`The odds of an interest rate change at the Federal Reserve’s meeting in late October have dropped following a softer jobs report and strong signaling from bank officials.`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rates.html
+
+**U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
+`The Group of 7, which includes Britain, France, Japan and others, announced the release of 100 million barrels over four months, effective immediately.`\
+https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
+
 **The Best Movies and TV Shows Coming to Netflix in October**\
 `A new adaptation of a Steinbeck classic and a documentary about a beloved comedian are among this month’s highlights.`\
 https://www.nytimes.com/2026/10/02/arts/television/netflix-new-october.html
