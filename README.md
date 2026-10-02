@@ -1,3 +1,11 @@
+**Trump Suggests Cornell Defendants Won’t Get a ‘Fair Shake’ From Letitia James**\
+`President Trump weighed in on the case when asked about Ms. James, who has become a target of his second-term retribution campaign.`\
+https://www.nytimes.com/2026/10/02/us/politics/trump-cornell-letitia-james.html
+
+**The Cybertruck Rorschach Test**\
+`Is extreme individualism leading to an uglier world? On “The Ezra Klein Show,” Debbie Millman, the host of the podcast “Design Matters,” argues that polarizing designs like the Tesla Cybertruck reflect a deeper shift in public behavior and shared spaces.`\
+https://www.nytimes.com/video/opinion/100000011186681/the-cybertruck-rorschach-test.html
+
 **Tom Ford: Is Naked That Sexy?**\
 `The naked dressing trend was top of mind for The Times’s chief fashion critic, Vanessa Friedman, at a recent Tom Ford runway presentation in Paris. It was the suggestion of nudity that left her wanting more.`\
 https://www.nytimes.com/video/style/100000011131904/tom-ford-is-naked-that-sexy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/02/us/politics/trump-jay-clayton-ai-czar.html
 **The Head of NATO Thinks President Trump ‘Deserves All the Praise’**\
 `Lulu Garcia-Navarro speaks with Mark Rutte, NATO’s secretary general, about why he wants everyone to stop questioning President Trump’s commitment to the alliance.`\
 https://www.nytimes.com/video/podcasts/100000011139807/the-head-of-nato-thinks-president-trump-deserves-all-the-praise.html
-
-**The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
-`Jonathan Greenblatt discusses the position that anti-Zionism is antisemitism, his work with the Trump administration and how he views the debate over campus free speech.`\
-https://www.nytimes.com/video/podcasts/100000011141846/the-head-of-the-adl-on-antisemitism-anti-zionism-and-free-speech.html
-
-**This World-Renowned Negotiator Says Trump’s Secret Weapon Is Empathy**\
-`Chris Voss, a former F.B.I. hostage negotiator and author, speaks with David Marchese about President Trump’s negotiation tactics and the benefit of approaching life as a deal waiting to be made.`\
-https://www.nytimes.com/video/podcasts/100000011141850/this-world-renowned-negotiator-says-trumps-secret-weapon-is-empathy.html
 
