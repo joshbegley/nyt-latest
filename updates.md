@@ -1,3 +1,11 @@
+**Man Accused of Sex Assault Seeks to Expunge Cornell’s Finding of Related Violation**\
+`A panel found the man responsible for attempted sexual exploitation, barred him from contact with the woman and required him to take a class and write a paper.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appeal.html
+
+**Hochul Rebukes Prosecutor’s Handling of Cornell Case**\
+`“In what world would the police” not elevate allegations of a rape to the district attorney, Gov. Kathy Hochul of New York asked.`\
+https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
+
 **Fighting Intensifies in Yemen, Raising Fresh Fears of All-Out War**\
 `Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html

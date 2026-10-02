@@ -1,3 +1,7 @@
+**Man Accused of Sex Assault Seeks to Expunge Cornell’s Finding of Related Violation**\
+`A panel found the man responsible for attempted sexual exploitation, barred him from contact with the woman and required him to take a class and write a paper.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appeal.html
+
 **The Local: Renee Good’s brothers speak**\
 `Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
 https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html
@@ -178,7 +182,7 @@ https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-c
 `Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
 
-**Live Updates: Hochul Rebukes Prosecutor’s Handling of Cornell Case**\
+**Hochul Rebukes Prosecutor’s Handling of Cornell Case**\
 `“In what world would the police” not elevate allegations of a rape to the district attorney, Gov. Kathy Hochul of New York asked.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.
 **‘The Headlines’ News Quiz: Oct. 2, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
-
-**A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
-`“It’s going to be gnarly for a little while.”`\
-https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
