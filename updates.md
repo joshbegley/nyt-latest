@@ -1,3 +1,19 @@
+**‘Tyler Perry’s Doing Life’ Review: A Mysterious Hero**\
+`Perry’s latest melodrama follows a romance between a prison inmate and the woman he saved during a riot.`\
+https://www.nytimes.com/2026/10/02/movies/tyler-perrys-doing-life-review.html
+
+**Why Prosecutors May Face Legal Hurdles in the Cornell Investigation**\
+`Experts in sexual assault cases said it may not be easy to win a conviction on the rape allegations that Jane Doe has made against fraternity members.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-investigation-prosecution-challenges.html
+
+**After 17 Years, a TV Critic Lets the Credits Roll**\
+`In thousands of reviews, Mike Hale developed a reputation for being thoughtful yet brutally honest.`\
+https://www.nytimes.com/2026/10/02/arts/television/mike-hale-new-york-times.html
+
+**NYT Spelling Bee Answers for October 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/02/crosswords/spelling-bee-forum.html
+
 **Late Night Is Stunned by Trump’s New Stereotype**\
 `The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
 https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
