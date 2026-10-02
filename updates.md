@@ -1,3 +1,27 @@
+**The Firestorm Over a Rape Allegation at Cornell**\
+`The New York Times has reviewed a trove of documents related to the case. Our reporter explains what we know.`\
+https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.html
+
+**How to Build a Super Bowl Champ**\
+`Plus, the Manchester City financial scandal and more.`\
+https://www.nytimes.com/2026/10/02/podcasts/seattle-seahawks-super-bowl.html
+
+**Where Voters Are Abandoning Trump, and Barriers to New Cancer Treatments**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/02/podcasts/voters-abandoning-trump-new-cancer-treatments.html
+
+**NYT Connections Answers for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/connections-companion-1210.html
+
+**Today’s Wordle Hints for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/wordle-review-1932.html
+
+**NYT Strands Hints for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
+
 **Live Updates: Fresh Jobs Figures to Bring Insights on U.S. Economy**\
 `The job market has been strong and unemployment steady as inflation has unsettled markets and raised costs for consumers.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
