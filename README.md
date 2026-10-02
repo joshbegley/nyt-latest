@@ -18,13 +18,13 @@ https://www.nytimes.com/2026/10/02/crosswords/spelling-bee-forum.html
 `The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
 https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
 
-**Economic Strain Is Pitting China’s People Against Each Other**\
-`Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
-https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
-
 **My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
 `In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
 https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
+
+**Economic Strain Is Pitting China’s People Against Each Other**\
+`Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
+https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
 
 **Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
 `Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
@@ -34,13 +34,13 @@ https://www.nytimes.com/2026/10/02/world/middleeast/iran-strait-hormuz-attacks-o
 `Quotation of the Day for Friday, October 2, 2026.`\
 https://www.nytimes.com/2026/10/02/pageoneplus/quote-of-the-day-caution-explosive-mix-in-philadelphia.html
 
-**A Front Line at the Border: How Russia Uses Migrants as Weapons Against Europe**\
-`The scheme is part of Russia’s larger strategy for sowing discord in the West, if more subtle than other recent operations blamed on the Kremlin.`\
-https://www.nytimes.com/2026/10/02/world/europe/latvia-immigration-russia.html
-
 **China’s Push into A.I. Has Led to a Problem: Too Much Usage**\
 `As citizens embrace the technology for entertainment, babysitting and even farming advice, the government is stepping up efforts to set limits.`\
 https://www.nytimes.com/2026/10/02/world/asia/china-ai-overuse.html
+
+**A Front Line at the Border: How Russia Uses Migrants as Weapons Against Europe**\
+`The scheme is part of Russia’s larger strategy for sowing discord in the West, if more subtle than other recent operations blamed on the Kremlin.`\
+https://www.nytimes.com/2026/10/02/world/europe/latvia-immigration-russia.html
 
 **Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine**\
 `Ukraine showed European partners what it said were intercepted Russian plans to cut off major cities from power, heat and water this winter.`\
