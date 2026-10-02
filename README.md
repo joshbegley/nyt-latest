@@ -1,3 +1,7 @@
+**The Head of NATO Thinks President Trump ‘Deserves All the Praise’**\
+`Lulu Garcia-Navarro speaks with Mark Rutte, NATO’s secretary general, about why he wants everyone to stop questioning President Trump’s commitment to the alliance.`\
+https://www.nytimes.com/video/podcasts/100000011139807/the-head-of-nato-thinks-president-trump-deserves-all-the-praise.html
+
 **The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
 `Jonathan Greenblatt discusses the position that anti-Zionism is antisemitism, his work with the Trump administration and how he views the debate over campus free speech.`\
 https://www.nytimes.com/video/podcasts/100000011141846/the-head-of-the-adl-on-antisemitism-anti-zionism-and-free-speech.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
 **Here’s the latest.**\
 `(No description)`\
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-unemployment.html
-
-**How Ohio State Football Got Used to Upsell God**\
-`Inside the Christian nationalist surge at a college-football powerhouse.`\
-https://www.nytimes.com/2026/10/02/podcasts/how-ohio-state-football-got-used-to-upsell-god.html
 

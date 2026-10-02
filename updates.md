@@ -1,3 +1,15 @@
+**The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
+`Jonathan Greenblatt discusses the position that anti-Zionism is antisemitism, his work with the Trump administration and how he views the debate over campus free speech.`\
+https://www.nytimes.com/video/podcasts/100000011141846/the-head-of-the-adl-on-antisemitism-anti-zionism-and-free-speech.html
+
+**This World-Renowned Negotiator Says Trump’s Secret Weapon Is Empathy**\
+`Chris Voss, a former F.B.I. hostage negotiator and author, speaks with David Marchese about President Trump’s negotiation tactics and the benefit of approaching life as a deal waiting to be made.`\
+https://www.nytimes.com/video/podcasts/100000011141850/this-world-renowned-negotiator-says-trumps-secret-weapon-is-empathy.html
+
+**Republicans Pull Money From North Carolina Senate Race As Midterm Prospects Dim**\
+`The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
+https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
+
 **A Forum at Cornell**\
 `We look at more student reactions.`\
 https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
