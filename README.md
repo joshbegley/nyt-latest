@@ -10,9 +10,9 @@ https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
 `China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
 https://www.nytimes.com/2026/10/02/business/china-exports-diesel-energy.html
 
-**‘I Couldn’t Let All of Them Die’: Pilot on FlyDubai Flight Recalls Sudden Attack**\
+**Indian Pilot Stabbed on FlyDubai Flight Recalls Sudden Attack**\
 `Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
-https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india.html
+https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india-smit-machchhar.html
 
 **In the Stacks**\
 `We introduce you to librarians across the country.`\
