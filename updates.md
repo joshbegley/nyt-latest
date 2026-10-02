@@ -1,3 +1,11 @@
+**Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
+`Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
+https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-unemployment.html
+
 **Black Unemployment Rose Sharply in September, Jobs Report Shows**\
 `Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
