@@ -1,3 +1,7 @@
+**Cornell Students Demand Accountability**\
+`At a public hearing on sexual assault at Cornell University, some students shared personal stories and others demanded more accountability.`\
+https://www.nytimes.com/video/us/100000011189136/cornell-students-sexual-assault-rape.html
+
 **Paris Review: Chloé and Balenciaga**\
 `Big questions hang over both brands.`\
 https://www.nytimes.com/2026/10/02/style/chloe-balenciaga-pfw.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/01/world/lucien-lazare-dead.html
 **In Recordings, Christa Pike Worried That Lethal Injection May Not Work**\
 `Weeks before her planned execution, Christa Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The New York Times. On Wednesday, she was hospitalized after a botched execution attempt.`\
 https://www.nytimes.com/video/us/100000011187287/christa-pike-interview-lethal-injection.html
-
-**Art Gallery Shows to See in October**\
-`This week in Newly Reviewed, Travis Diehl covers Celeste Dupuy-Spencer’s visionary pictures, Marc Kokopeli’s jewelry store, Michael Assiff’s depictions of environmental spoilage, and Alfredo Jaar’s riffs on American logos.`\
-https://www.nytimes.com/2026/10/01/arts/art-gallery-shows-to-see-in-october.html
 
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\
