@@ -1,3 +1,11 @@
+**Blockades, Fireworks and Tear Gas: Young Protesters Are Rattling France**\
+`Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
+https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
+
+**Trump Is Getting Desperate. It Shows.**\
+`The Justice Department is trawling to find perpetrators on whom to pin conspiracies. Ordinary citizens are being ensnared.`\
+https://www.nytimes.com/2026/10/02/opinion/trump-target-ordinary-citizens.html
+
 **Dolly Parton’s Country-Disco Sound Is Back**\
 `The country singer Miranda Lambert discusses the sounds and inspirations of her new album, “Crisco,” this week on “Popcast.”`\
 https://www.nytimes.com/video/podcasts/100000011183063/dolly-partons-country-disco-sound-is-back.html

@@ -1,3 +1,7 @@
+**Blockades, Fireworks and Tear Gas: Young Protesters Are Rattling France**\
+`Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
+https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
+
 **Dolly Parton’s Country-Disco Sound Is Back**\
 `The country singer Miranda Lambert discusses the sounds and inspirations of her new album, “Crisco,” this week on “Popcast.”`\
 https://www.nytimes.com/video/podcasts/100000011183063/dolly-partons-country-disco-sound-is-back.html
@@ -138,7 +142,7 @@ https://www.nytimes.com/2026/10/02/opinion/ezra-klein-podcast-debbie-millman.htm
 `Russians are creating and spreading music glorifying the invasion of Ukraine, using platforms built in the United States.`\
 https://www.nytimes.com/2026/10/02/technology/russian-propaganda-ai-war-songs.html
 
-**The Trump Administration Has Gone After a Mailman and a Cyclist. Who’s Next?**\
+**Trump Is Getting Desperate. It Shows.**\
 `The Justice Department is trawling to find perpetrators on whom to pin conspiracies. Ordinary citizens are being ensnared.`\
 https://www.nytimes.com/2026/10/02/opinion/trump-target-ordinary-citizens.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
 **Tariffs Are Making Instruments So Expensive, School Music Programs Are at Risk**\
 `When a single cello can cost $1,000 and a tuba $9,000, tariffs are straining meager band and orchestra budgets.`\
 https://www.nytimes.com/2026/10/02/business/economy/tariffs-instruments-school-music-programs.html
-
-**5 Hotels For Savoring the Fall**\
-`These new or renovated getaways offer opportunities to bask in the season’s pastoral and cultural delights in comfort.`\
-https://www.nytimes.com/2026/10/02/travel/autumn-hotels.html
 
