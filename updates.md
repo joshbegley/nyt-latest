@@ -1,3 +1,19 @@
+**Who Is Ahead in Utah's 4th Congressional District?**\
+`Track the latest polls in Utah's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-4-polls-2026.html
+
+**Who Is Ahead in Utah's 3rd Congressional District?**\
+`Track the latest polls in Utah's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-3-polls-2026.html
+
+**Who Is Ahead in Texas's 10th Congressional District?**\
+`Track the latest polls in Texas's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/texas-us-house-10-polls-2026.html
+
+**Cornell Students Call for Change at Fiery Public Meeting**\
+`Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
+https://www.nytimes.com/2026/10/01/nyregion/cornell-public-hearing.html
+
 **Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
 `Gov. Kathy Hochul appointed the New York State attorney general to investigate allegations by a former Cornell University student that several men sexually assaulted her.`\
 https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html

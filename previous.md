@@ -1,10 +1,22 @@
+**Who Is Ahead in Utah's 4th Congressional District?**\
+`Track the latest polls in Utah's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-4-polls-2026.html
+
+**Who Is Ahead in Utah's 3rd Congressional District?**\
+`Track the latest polls in Utah's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/utah-us-house-3-polls-2026.html
+
+**Who Is Ahead in Texas's 10th Congressional District?**\
+`Track the latest polls in Texas's 10th Congressional District.`\
+https://www.nytimes.com/interactive/polls/texas-us-house-10-polls-2026.html
+
 **Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
 `Gov. Kathy Hochul appointed the New York State attorney general to investigate allegations by a former Cornell University student that several men sexually assaulted her.`\
 https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html
 
 **Cornell Students Call for Change at Fiery Public Meeting**\
 `Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
-https://www.nytimes.com/2026/10/01/nyregion/met-cornell-public-hearing.html
+https://www.nytimes.com/2026/10/01/nyregion/cornell-public-hearing.html
 
 **Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
 `U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/10/01/nyregion/queens-subway-stabbing-death.html
 **America’s Long History of Executions Includes Many Botched Ones**\
 `Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
 https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
-
-**Matières Fécales: Thrilling but Derivative**\
-`Vanessa Friedman, our chief fashion critic, reviews the Matières Fécales show at Paris Fashion Week. The show made a statement, but did the fashion?`\
-https://www.nytimes.com/video/style/100000011131872/matieres-fecales-thrilling-but-derivative.html
-
-**What’s Going On in This Graph? | Oct. 7, 2026**\
-`Do you like to eat hamburgers? How do the foods we eat affect greenhouse gas emissions?`\
-https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2026.html
-
-**When White People Like Hannah Gann Pretend to Be Black**\
-`Rachel Dolezal is now a type.`\
-https://www.nytimes.com/2026/10/01/opinion/hannah-gann-rachel-dolezal.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
