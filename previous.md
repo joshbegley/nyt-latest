@@ -1,3 +1,19 @@
+**How Well Do You Know the Best TV Shows of the 21st Century?**\
+`Take this quiz to find out.`\
+https://www.nytimes.com/interactive/2026/10/02/arts/television/best-tv-series-quiz.html
+
+**2 Iranian Men Charged in U.K. Over Suspected Plot to Target Jews**\
+`The British police said the two Iranian nationals were charged Friday with terrorism offenses.`\
+https://www.nytimes.com/2026/10/02/world/europe/2-iranian-men-charged-in-uk-over-suspected-plot-to-target-jews.html
+
+**New York Governor Criticizes Handling of Cornell Case**\
+`Also, U.S. hiring slowed down. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/02/briefing/new-york-governor-cornell-jobs-report.html
+
+**Hispanic Voters, Souring on Republicans, Could Decide the Midterms**\
+`Hispanic voters are souring on Republicans. Here’s why.`\
+https://www.nytimes.com/2026/10/02/us/politics/midterms-hispanic-voters-trump.html
+
 **Hundreds Detained in India for Protesting ‘Vote Theft’**\
 `Protesters gathered across India on Friday demanding the resignation of the election chief, Gyanesh Kumar, over the removal of 130 million voters from the rolls.`\
 https://www.nytimes.com/video/world/asia/100000011190055/india-protesters-detained-kumar-vote-theft.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-
 **Republicans Pull Money From North Carolina Senate Race As Midterm Prospects Dim**\
 `As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
-
-**How FlyDubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
-`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
-
-**This Lemony Miso Cabbage Complements Any Main Dish**\
-`And more popular recipes from the week.`\
-https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html
-
-**Scientists Untangle the Biology of an ‘Undruggable’ Cancer Gene**\
-`Found in 70 percent of cancers, the gene is seen as a grand orchestrator but has been surprisingly difficult to stop.`\
-https://www.nytimes.com/2026/10/02/science/scientists-untangle-the-biology-of-an-undruggable-cancer-gene.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include killer sharks, vengeful lawmen and an umbrella-gun assassin.`\
-https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

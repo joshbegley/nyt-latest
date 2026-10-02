@@ -1,3 +1,19 @@
+**How Well Do You Know the Best TV Shows of the 21st Century?**\
+`Take this quiz to find out.`\
+https://www.nytimes.com/interactive/2026/10/02/arts/television/best-tv-series-quiz.html
+
+**2 Iranian Men Charged in U.K. Over Suspected Plot to Target Jews**\
+`The British police said the two Iranian nationals were charged Friday with terrorism offenses.`\
+https://www.nytimes.com/2026/10/02/world/europe/2-iranian-men-charged-in-uk-over-suspected-plot-to-target-jews.html
+
+**New York Governor Criticizes Handling of Cornell Case**\
+`Also, U.S. hiring slowed down. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/02/briefing/new-york-governor-cornell-jobs-report.html
+
+**Hispanic Voters, Souring on Republicans, Could Decide the Midterms**\
+`Hispanic voters are souring on Republicans. Here’s why.`\
+https://www.nytimes.com/2026/10/02/us/politics/midterms-hispanic-voters-trump.html
+
 **Hundreds Detained in India for Protesting ‘Vote Theft’**\
 `Protesters gathered across India on Friday demanding the resignation of the election chief, Gyanesh Kumar, over the removal of 130 million voters from the rolls.`\
 https://www.nytimes.com/video/world/asia/100000011190055/india-protesters-detained-kumar-vote-theft.html
