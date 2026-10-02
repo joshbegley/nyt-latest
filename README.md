@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker.html
 
 **Why Google Wants to Send a Data Center to Space**\
-`The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers`\
+`The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
 
 **Israel Says 170 Killed in Gaza Were Militants Posing as Media Workers**\
