@@ -1,3 +1,7 @@
+**Powerful Wildfires Require a New Approach, California Report Finds**\
+`A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
+https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
+
 **Is It Time for Belts?**\
 `A bit of fashion that serves more than one need.`\
 https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india
 **In the Stacks**\
 `We introduce you to librarians across the country.`\
 https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
-
-**Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack**\
-`The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

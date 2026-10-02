@@ -1,3 +1,7 @@
+**Is It Time for Belts?**\
+`A bit of fashion that serves more than one need.`\
+https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
+
 **Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
