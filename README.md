@@ -1,3 +1,7 @@
+**Read One of the Recently Released U.F.O. Documents**\
+`This graphic of reported sightings of flying orbs lets the public glimpse federal agents’ study of extraterrestrial life. But it doesn’t contain anything conclusive.`\
+https://www.nytimes.com/interactive/2026/10/02/us/nat-ufo-flying-objects-map.html
+
 **Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
 `The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
 https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011179574/how-far-will-stephen-king
 **In ‘Creation Stories and All the Important Importants,’ a Dream Evaporates**\
 `An overachiever who had her life mapped out hits a roadblock in Mfoniso Udofia’s haunted, surreally comic new play at LCT3.`\
 https://www.nytimes.com/2026/10/02/theater/creation-stories-and-all-the-important-importants-review.html
-
-**Forget Quiet Luxury. In Ancient Rome, the Fashion Was Loud.**\
-`An exhibition in Copenhagen reveals how imperial expansion delivered the vivid dyes, exotic fabrics and real-hair wigs that Romans used to broadcast their status.`\
-https://www.nytimes.com/2026/10/02/arts/ancient-rome-fashion-glyptotek-museum-copenhagen.html
 
