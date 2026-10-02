@@ -1,3 +1,7 @@
+**Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
+`Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
+https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html
+
 **Black Unemployment Rose Sharply in September, Jobs Report Shows**\
 `Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
@@ -174,6 +178,10 @@ https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
 
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-unemployment.html
+
 **How Ohio State Football Got Used to Upsell God**\
 `Inside the Christian nationalist surge at a college-football powerhouse.`\
 https://www.nytimes.com/2026/10/02/podcasts/how-ohio-state-football-got-used-to-upsell-god.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/02/well/telling-truths.html
 **How to Pack a Better Lunch**\
 `Our expert explains why you may want to upgrade your lunch box, and fun ways to spice up that midday meal.`\
 https://www.nytimes.com/2026/10/02/podcasts/how-to-pack-a-better-lunch.html
-
-**Tennessee’s Botched Attempt to Execute Christa Pike Intensifies Concerns Over Lethal Injections**\
-`The failed attempt with Christa Pike has intensified bipartisan concerns about Tennessee’s ability to effectively carry out lethal injections.`\
-https://www.nytimes.com/2026/10/02/us/tennessee-failed-executions-history.html
-
-**Is the World Getting Uglier?**\
-`The modern right has a theory of beauty. Does the left?`\
-https://www.nytimes.com/2026/10/02/opinion/ezra-klein-podcast-debbie-millman.html
 

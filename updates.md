@@ -1,3 +1,11 @@
+**Black Unemployment Rose Sharply in September, Jobs Report Shows**\
+`Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
+https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
+
+**As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
+`The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
+https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
+
 **A.I.: Cute or Maybe Catastrophically Dangerous?**\
 `Full Episode #215`\
 https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
