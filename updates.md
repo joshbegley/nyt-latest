@@ -1,3 +1,7 @@
+**Brooke Eby, Who Brought Humor and Awareness to A.L.S., Dies at 37**\
+`After her diagnosis in 2022, when she was only 33, she became a vocal, witty advocate for people confronting the disease.`\
+https://www.nytimes.com/2026/10/02/obituaries/brooke-eby-dead.html
+
 **Greige Design Has Swallowed Our World**\
 `The world is becoming less colorful, less personal, more gray. On “The Ezra Klein Show,” Debbie Millman, the host of the podcast “Design Matters,” explores what happens to our creativity when social and market forces limit how much color we use to express ourselves.`\
 https://www.nytimes.com/video/opinion/100000011186680/greige-design-has-swallowed-our-world.html
