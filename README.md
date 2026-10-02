@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-
 `As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
-**How Flydubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
+**How FlyDubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
 `A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
 
