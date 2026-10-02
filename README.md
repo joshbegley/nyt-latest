@@ -1,3 +1,7 @@
+**Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
+`Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
+https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
+
 **FlyDubai Pilot Recalls Cockpit Stabbing**\
 `Smit Machchhar, the pilot of a FlyDubai plane who was stabbed by his co-pilot, talked about the cockpit attack in a video call with Prime Minister Narendra Modi of India.`\
 https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-cockpit-stabbing-modi.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/arts/television/friday-night-lights-20th-anni
 **Mahershala Ali and Bassam Tariq on Faith and Love in ‘Your Mother Your Mother Your Mother’**\
 `“Your Mother Your Mother Your Mother” was conceived well before the star and the director met for “Blade.” But it was fatherhood that informed the new movie.`\
 https://www.nytimes.com/2026/10/02/movies/mahershala-ali-bassam-tariq-your-mother.html
-
-**Word of the Day: novelty**\
-`This word has appeared in 280 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/02/learning/word-of-the-day-novelty.html
 
