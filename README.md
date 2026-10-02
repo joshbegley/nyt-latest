@@ -1,3 +1,11 @@
+**Judge Throws Out Another Confession in Sept. 11 Case**\
+`Prosecutors have long considered the defendants’ admissions during interrogations in 2007 to be their best evidence.`\
+https://www.nytimes.com/2026/10/02/us/politics/confession-sept-11-terrorism-case.html
+
+**Mass Shootings Surge in South Africa as Illegal Guns Flood Streets**\
+`The country was shaken after nearly 30 people were killed in two separate mass shootings. South Africans are demanding greater government intervention.`\
+https://www.nytimes.com/2026/10/02/world/africa/south-africa-mass-shootings-guns.html
+
 **Read the Filing**\
 `Christa Pike’s lawyers said in a court filing that she was brought to a hospital with burned and blistered arms after her botched execution.`\
 https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.htm
 **Pay Advance Apps May Be Costlier Than Workers Think**\
 `The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
 https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
-
-**India Faces Fresh Protests, This Time Over Voter Rolls**\
-`Hundreds were detained in New Delhi as demonstrators expressed anger over the removal of 130 million people from the rolls. The government denies accusations of “vote theft.”`\
-https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
-
-**FlyDubai Pilot Recalls Cockpit Stabbing**\
-`Smit Machchhar, the pilot of a FlyDubai plane who was stabbed by his co-pilot, talked about the cockpit attack in a video call with Prime Minister Narendra Modi of India.`\
-https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-cockpit-stabbing-modi.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

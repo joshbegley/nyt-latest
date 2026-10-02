@@ -1,3 +1,19 @@
+**Read the Filing**\
+`Christa Pike’s lawyers said in a court filing that she was brought to a hospital with burned and blistered arms after her botched execution.`\
+https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
+
+**National Science Foundation Diverted $1.4 Billion in Science Funds Mandated by Congress**\
+`The move, affecting about one-fifth of the National Science Foundation’s primary research budget, is the latest sign of how the White House is asserting more control over grants.`\
+https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-research-funds.html
+
+**Former Florida Rep. David Rivera Sentenced to 10 Years in Venezuela Lobbying Case**\
+`David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
+https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
+
+**Christa Pike Is Unconscious and on Ventilator After Execution Attempt**\
+`The Tennessee inmate was brought to a hospital with burned and blistered arms after an unsuccessful attempt at lethal injection, her lawyers said in a court filing.`\
+https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
+
 **Man Accused of Sex Assault Seeks to Expunge Cornell’s Finding of Related Violation**\
 `A panel found the man responsible for attempted sexual exploitation, barred him from contact with the woman and required him to take a class and write a paper.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appeal.html
