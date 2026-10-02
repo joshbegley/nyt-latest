@@ -1,3 +1,7 @@
+**Live Updates: Hochul Addresses Cornell Case After Appointing Special Prosecutor**\
+`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were providing an update on the case Friday morning.`\
+https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
+
 **Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
 `The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
 https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html

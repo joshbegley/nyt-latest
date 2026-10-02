@@ -34,7 +34,7 @@ https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-c
 `Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
 
-**Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
+**Live Updates: Hochul Addresses Cornell Case After Appointing Special Prosecutor**\
 `Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were providing an update on the case Friday morning.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 
