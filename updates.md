@@ -1,3 +1,7 @@
+**California Sues to Block Trump From Weakening Fuel Economy Rules**\
+`The lawsuit is the 97th the state has filed against the Trump administration over the past year and a half.`\
+https://www.nytimes.com/2026/10/02/climate/california-trump-administration-fuel-economy.html
+
 **Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage**\
 `Joshua Kerry, a 28-year-old British man accused of killing the former lawmaker Ann Widdecombe, was charged on Friday.`\
 https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html

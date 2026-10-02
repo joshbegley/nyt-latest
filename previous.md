@@ -1,3 +1,7 @@
+**California Sues to Block Trump From Weakening Fuel Economy Rules**\
+`The lawsuit is the 97th the state has filed against the Trump administration over the past year and a half.`\
+https://www.nytimes.com/2026/10/02/climate/california-trump-administration-fuel-economy.html
+
 **Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage**\
 `Joshua Kerry, a 28-year-old British man accused of killing the former lawmaker Ann Widdecombe, was charged on Friday.`\
 https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
 **At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
 `There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
 https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
-
-**Coast Guard Says It Stopped Ships Carrying Fuel to Cuba**\
-`The Coast Guard has intercepted two small boats it says was carrying illegal fuel to Cuba as the United States enforces an fuel blockade aimed at Cuba’s Communist government.`\
-https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

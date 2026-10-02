@@ -1,3 +1,11 @@
+**Argentina’s ‘Golden Passport’ Program Offers Citizenship in Exchange for Foreign Cash**\
+`The program would grant citizenship to people who make major investments in Argentina. Similar efforts have yielded significant income for small economies, but have also led to risks.`\
+https://www.nytimes.com/2026/10/02/world/americas/argentina-citizenship-golden-passport-money.html
+
+**FlyDubai Attack Raises Questions About Pilot Background Checks**\
+`Health screenings and criminal background checks may go only so far in identifying pilots who have become radicalized or try to hide their mental health issues, experts said.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-plane-flydubai-pilot-background-check.html
+
 **California Sues to Block Trump From Weakening Fuel Economy Rules**\
 `The lawsuit is the 97th the state has filed against the Trump administration over the past year and a half.`\
 https://www.nytimes.com/2026/10/02/climate/california-trump-administration-fuel-economy.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.htm
 **A Show Gives a Taste of What a U.S. Pavilion in Venice Might Have Been**\
 `Some of the artist Robert Lazzarini’s works from his Venice Biennale proposal are on display at the MassArt Art Museum.`\
 https://www.nytimes.com/2026/10/02/arts/design/robert-lazzarini-us-pavilion-venice-boston-exhibition.html
-
-**Sales of Hulking Pickups and S.U.V.s Sag as Fuel Prices Soar**\
-`Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
-https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
-
-**At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
-`There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
-https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
