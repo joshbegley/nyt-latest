@@ -176,7 +176,7 @@ https://www.nytimes.com/2026/10/02/books/werewolf-romance-books.html
 
 **Inside the Trump Administration’s U.F.O. Hunt**\
 `Finding evidence of alien life would be “the biggest discovery ever made by humanity,” one expert said. But so far, there’s a lot of blurry photos and unconfirmed reports.`\
-https://www.nytimes.com/2026/10/02/us/inside-the-trump-administrations-ufo-hunt.html
+https://www.nytimes.com/2026/10/02/us/trump-ufo-files-uap-council.html
 
 **A Shot Rang Out. M.L.K. Went Down. And a Reporter’s Instincts Kicked In.**\
 `Earl Caldwell was staying one floor down from Martin Luther King Jr. when the civil rights leader was killed.`\

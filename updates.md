@@ -1,3 +1,7 @@
+**Inside the Trump Administration’s U.F.O. Hunt**\
+`Finding evidence of alien life would be “the biggest discovery ever made by humanity,” one expert said. But so far, there’s a lot of blurry photos and unconfirmed reports.`\
+https://www.nytimes.com/2026/10/02/us/trump-ufo-files-uap-council.html
+
 **How Ohio State Football Got Used to Upsell God**\
 `Inside the Christian nationalist surge at a college-football powerhouse.`\
 https://www.nytimes.com/2026/10/02/podcasts/how-ohio-state-football-got-used-to-upsell-god.html
