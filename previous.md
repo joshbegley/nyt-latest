@@ -1,3 +1,7 @@
+**FlyDubai Pilot Recalls Cockpit Stabbing**\
+`Smit Machchhar, the pilot of a FlyDubai plane who was stabbed by his co-pilot, talked about the cockpit attack in a video call with Prime Minister Narendra Modi of India.`\
+https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-cockpit-stabbing-modi.html
+
 **The Latest Challenge to Data Centers? Restive Investors.**\
 `Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/movies/mahershala-ali-bassam-tariq-your-mothe
 **Word of the Day: novelty**\
 `This word has appeared in 280 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/02/learning/word-of-the-day-novelty.html
-
-**Her Singles Made Her a Star. A First Album Took More Work.**\
-`Yendry’s one-off songs made fans of Cat Power and Barack Obama. Her debut LP, “Como Agua,” is a statement of her complex identity.`\
-https://www.nytimes.com/2026/10/02/arts/music/yendrys-como-agua-album.html
 

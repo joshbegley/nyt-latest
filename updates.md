@@ -1,3 +1,7 @@
+**FlyDubai Pilot Recalls Cockpit Stabbing**\
+`Smit Machchhar, the pilot of a FlyDubai plane who was stabbed by his co-pilot, talked about the cockpit attack in a video call with Prime Minister Narendra Modi of India.`\
+https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-cockpit-stabbing-modi.html
+
 **The Latest Challenge to Data Centers? Restive Investors.**\
 `Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
