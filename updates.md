@@ -1,3 +1,11 @@
+**Trump Suggests Cornell Defendants Won’t Get a ‘Fair Shake’ From Letitia James**\
+`President Trump weighed in on the case when asked about Ms. James, who has become a target of his second-term retribution campaign.`\
+https://www.nytimes.com/2026/10/02/us/politics/trump-cornell-letitia-james.html
+
+**The Cybertruck Rorschach Test**\
+`Is extreme individualism leading to an uglier world? On “The Ezra Klein Show,” Debbie Millman, the host of the podcast “Design Matters,” argues that polarizing designs like the Tesla Cybertruck reflect a deeper shift in public behavior and shared spaces.`\
+https://www.nytimes.com/video/opinion/100000011186681/the-cybertruck-rorschach-test.html
+
 **Tom Ford: Is Naked That Sexy?**\
 `The naked dressing trend was top of mind for The Times’s chief fashion critic, Vanessa Friedman, at a recent Tom Ford runway presentation in Paris. It was the suggestion of nudity that left her wanting more.`\
 https://www.nytimes.com/video/style/100000011131904/tom-ford-is-naked-that-sexy.html
