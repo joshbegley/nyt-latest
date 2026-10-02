@@ -1,3 +1,7 @@
+**Live Updates: Fresh Jobs Figures to Bring Insights on U.S. Economy**\
+`The job market has been strong and unemployment steady as inflation has unsettled markets and raised costs for consumers.`\
+https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
+
 **Inside the Trump Administration’s U.F.O. Hunt**\
 `Finding evidence of alien life would be “the biggest discovery ever made by humanity,” one expert said. But so far, there’s a lot of blurry photos and unconfirmed reports.`\
 https://www.nytimes.com/2026/10/02/us/trump-ufo-files-uap-council.html
