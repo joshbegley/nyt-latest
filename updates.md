@@ -1,3 +1,11 @@
+**Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage**\
+`Joshua Kerry, a 28-year-old British man accused of killing the former lawmaker Ann Widdecombe, was charged on Friday.`\
+https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html
+
+**Christa Pike Was Unconscious and on Ventilator After Execution Attempt**\
+`The Tennessee inmate was brought to a hospital with burned and blistered arms after an unsuccessful attempt at lethal injection, her lawyers said in a court filing.`\
+https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
+
 **Judge Throws Out Another Confession in Sept. 11 Case**\
 `Prosecutors have long considered the defendants’ admissions during interrogations in 2007 to be their best evidence.`\
 https://www.nytimes.com/2026/10/02/us/politics/confession-sept-11-terrorism-case.html
