@@ -1,3 +1,7 @@
+**Indian Pilot Stabbed on FlyDubai Flight Recalls Sudden Attack**\
+`Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
+https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india-smit-machchhar.html
+
 **‘The Headlines’ News Quiz: Oct. 2, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
