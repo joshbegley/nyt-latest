@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/10/02/crosswords/wordle-review-1932.html
 https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
 
 **Live Updates: Job Growth Cools and Unemployment Rises**\
-`The labor market in September was strong, even as inflation maintained pressure on markets and raised costs for consumers.`\
+`U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
 
 **How Ohio State Football Got Used to Upsell God**\
