@@ -1,3 +1,7 @@
+**Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
+`Gov. Kathy Hochul appointed the New York State attorney general to investigate allegations by a former Cornell University student that several men sexually assaulted her.`\
+https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html
+
 **Cornell Students Call for Change at Fiery Public Meeting**\
 `Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
 https://www.nytimes.com/2026/10/01/nyregion/met-cornell-public-hearing.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-graph-oct-7-2
 **When White People Like Hannah Gann Pretend to Be Black**\
 `Rachel Dolezal is now a type.`\
 https://www.nytimes.com/2026/10/01/opinion/hannah-gann-rachel-dolezal.html
-
-**As Cornell Reckons with Sexual Assault Case, Will Applicants Think Twice?**\
-`Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
-https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

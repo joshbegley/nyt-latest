@@ -1,3 +1,7 @@
+**Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
+`Gov. Kathy Hochul appointed the New York State attorney general to investigate allegations by a former Cornell University student that several men sexually assaulted her.`\
+https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html
+
 **Cornell Students Call for Change at Fiery Public Meeting**\
 `Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
 https://www.nytimes.com/2026/10/01/nyregion/met-cornell-public-hearing.html
