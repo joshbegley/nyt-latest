@@ -1,3 +1,43 @@
+**Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine**\
+`Ukraine showed European partners what it said were intercepted Russian plans to cut off major cities from power, heat and water this winter.`\
+https://www.nytimes.com/2026/10/02/world/europe/russia-ukraine-winter.html
+
+**Nothing Could Purify Me After What I’d Done**\
+`Not showering, not praying, not even drinking bleach.`\
+https://www.nytimes.com/2026/10/02/style/modern-love-i-wanted-to-be-a-good-mormon-but-i-was-gay.html
+
+**As the Nor’easter Moved In, Their Wedding Plans Changed Course**\
+`“People who weren’t even invited to the wedding ended up helping us,” said Skyla Welsch, who married Andrew Shaternik in Montauk, N.Y.`\
+https://www.nytimes.com/2026/10/02/style/skyla-welsch-andrew-shaternik-wedding.html
+
+**Her Famous Dog Helped Them Meet. They Went on to Foster 31 More.**\
+`Isabel Klee and Jacob Zerhusen built a life together around their love of dogs, including Simon, whose memory was woven into their wedding.`\
+https://www.nytimes.com/2026/10/02/style/isabel-klee-jacob-zerhusen-wedding.html
+
+**A Very Specific Martini Order Leads to Something More**\
+`Jacqueline Heath wowed Matthew Swain with her ambition and smarts. After meeting through work, business soon turned to pleasure.`\
+https://www.nytimes.com/2026/10/02/style/jacqueline-heath-matthew-swain-wedding.html
+
+**Tom Dolby and Spencer Alcorn Marry on Lake Tahoe**\
+`Tom Dolby, whose father created the sound system, and Spencer Alcorn, a seventh-generation Californian, lead a cinematically stylish life.`\
+https://www.nytimes.com/2026/10/02/style/tom-dolby-spencer-alcorn-wedding.html
+
+**She Dressed for a Funeral. It Was Actually Her Engagement.**\
+`On Halloween night, Katie Dolan ventured to a karaoke bar alone. She left with the phone number of her future husband, Devon Flynnperrault.`\
+https://www.nytimes.com/2026/10/02/style/katie-dolan-devon-flynnperrault-wedding.html
+
+**A Return to England and the Church Where She Wanted to Marry**\
+`Francesca Carington knew she would eventually move back to London. Then she met Sean Maloney, and he came along, too.`\
+https://www.nytimes.com/2026/10/02/style/francesca-carington-sean-maloney-wedding.html
+
+**On This Day, Oct. 2: In 1967, Thurgood Marshall became the first Black Supreme Court justice.**\
+`In 1967, Thurgood Marshall was sworn in as an associate justice of the Supreme Court, becoming the first Black justice on the United States’ highest court.`\
+https://www.nytimes.com/2026/10/02/learning/on-this-day-oct-2.html
+
+**Trump Puts on a Midterms Show for an Audience That’s Already Sold**\
+`President Trump spent the day preaching to his most fervent fans, not the voters he will need to help elect or re-elect a slate of Republicans fighting in states from Alaska to Maine.`\
+https://www.nytimes.com/2026/10/01/us/politics/trump-puts-on-a-midterms-show-for-an-audience-thats-already-sold.html
+
 **NYT Crossword Answers for Oct. 2, 2026**\
 `Joe Marquez opens our solving weekend.`\
 https://www.nytimes.com/2026/10/01/crosswords/daily-puzzle-2026-10-02.html
@@ -145,42 +185,6 @@ https://www.nytimes.com/video/opinion/100000011179082/what-ai-utopia-could-look-
 **Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
 `The crash also included 50 cars and resulted in at least one serious injury, fire officials said. There were no fatalities, but multiple people were injured.`\
 https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
-
-**‘Ready to Blow His Stack’: How Biden Nearly Cut Off Netanyahu Over Gaza**\
-`Brett McGurk, who was the top Middle East adviser to President Joseph R. Biden Jr., offered the first inside-the-room account of American efforts to manage the Gaza war.`\
-https://www.nytimes.com/2026/10/01/us/politics/mcgurk-biden-netanyahu-gaza.html
-
-**David Ellison’s Vision for CNN: Same C.E.O and No Bari Weiss, for Now.**\
-`David Ellison is negotiating to keep CNN’s chief executive, Mark Thompson, in place without oversight from Bari Weiss, the CBS editor in chief, when the networks’ parent companies merge.`\
-https://www.nytimes.com/2026/10/01/business/media/cnn-paramount-david-ellison.html
-
-**Canada’s Proposed Oil Pipeline Offers Carney Relief From Domestic and Global Turmoil**\
-`The new pipeline from Alberta’s oil sands to the Pacific Coast may lower separatist tensions in that province while also loosening energy ties with the U.S.`\
-https://www.nytimes.com/2026/10/01/world/canada/carney-alberta-british-columbia-oil-pipeline.html
-
-**Librarians Discuss the Challenges and Triumphs of Running a Library Today**\
-`We asked dozens of them about America’s libraries — what they provide, what they need to survive. Here’s what they told us.`\
-https://www.nytimes.com/interactive/2026/10/01/books/state-of-libraries-librarians.html
-
-**Anger and Questions at Cornell**\
-`Readers discuss the allegations of sexual assault at Cornell University. Also: A botched execution, and a pause, in Tennessee.`\
-https://www.nytimes.com/2026/10/01/opinion/cornell-sexual-assault.html
-
-**Our Reporter Emailed the F.B.I. Hackers. They Wrote Back.**\
-`Dustin Volz, a Times reporter who covers cybersecurity, wanted to help readers understand a huge breach of government data that could put workers and families at risk.`\
-https://www.nytimes.com/2026/10/01/insider/fbi-hack-shinyhunters-data.html
-
-**Congress Leaves With a Whimper, as the G.O.P. Braces for Midterm Pain**\
-`Republicans lined up a series of doomed votes in their final hours, hoping to portray Democrats as obstructionists. But some conceded that their party was more likely to be punished.`\
-https://www.nytimes.com/2026/10/01/us/politics/republicans-congress-midterm-elections-trump-affordability.html
-
-**Judge Reinstates Seattle’s Top Federal Prosecutor, Ousted by Trump**\
-`The Justice Department had fired Roger Rogoff as part of a larger maneuver to install its preferred judicial appointees and circumvent Senate confirmation.`\
-https://www.nytimes.com/2026/10/01/us/seattle-us-attorney-roger-rogoff-reinstated.html
-
-**Amazon Settles Lawsuit Over Claims of Slow Deliveries to Low-Income Areas**\
-`The tech giant will refund $7.25 million in Prime membership fees to affected customers and pay an additional $1 million to settle the suit brought by the District of Columbia.`\
-https://www.nytimes.com/2026/10/01/technology/amazon-slow-deliveries-dc.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

@@ -1,3 +1,43 @@
+**Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine**\
+`Ukraine showed European partners what it said were intercepted Russian plans to cut off major cities from power, heat and water this winter.`\
+https://www.nytimes.com/2026/10/02/world/europe/russia-ukraine-winter.html
+
+**Nothing Could Purify Me After What I’d Done**\
+`Not showering, not praying, not even drinking bleach.`\
+https://www.nytimes.com/2026/10/02/style/modern-love-i-wanted-to-be-a-good-mormon-but-i-was-gay.html
+
+**As the Nor’easter Moved In, Their Wedding Plans Changed Course**\
+`“People who weren’t even invited to the wedding ended up helping us,” said Skyla Welsch, who married Andrew Shaternik in Montauk, N.Y.`\
+https://www.nytimes.com/2026/10/02/style/skyla-welsch-andrew-shaternik-wedding.html
+
+**Her Famous Dog Helped Them Meet. They Went on to Foster 31 More.**\
+`Isabel Klee and Jacob Zerhusen built a life together around their love of dogs, including Simon, whose memory was woven into their wedding.`\
+https://www.nytimes.com/2026/10/02/style/isabel-klee-jacob-zerhusen-wedding.html
+
+**A Very Specific Martini Order Leads to Something More**\
+`Jacqueline Heath wowed Matthew Swain with her ambition and smarts. After meeting through work, business soon turned to pleasure.`\
+https://www.nytimes.com/2026/10/02/style/jacqueline-heath-matthew-swain-wedding.html
+
+**Tom Dolby and Spencer Alcorn Marry on Lake Tahoe**\
+`Tom Dolby, whose father created the sound system, and Spencer Alcorn, a seventh-generation Californian, lead a cinematically stylish life.`\
+https://www.nytimes.com/2026/10/02/style/tom-dolby-spencer-alcorn-wedding.html
+
+**She Dressed for a Funeral. It Was Actually Her Engagement.**\
+`On Halloween night, Katie Dolan ventured to a karaoke bar alone. She left with the phone number of her future husband, Devon Flynnperrault.`\
+https://www.nytimes.com/2026/10/02/style/katie-dolan-devon-flynnperrault-wedding.html
+
+**A Return to England and the Church Where She Wanted to Marry**\
+`Francesca Carington knew she would eventually move back to London. Then she met Sean Maloney, and he came along, too.`\
+https://www.nytimes.com/2026/10/02/style/francesca-carington-sean-maloney-wedding.html
+
+**On This Day, Oct. 2: In 1967, Thurgood Marshall became the first Black Supreme Court justice.**\
+`In 1967, Thurgood Marshall was sworn in as an associate justice of the Supreme Court, becoming the first Black justice on the United States’ highest court.`\
+https://www.nytimes.com/2026/10/02/learning/on-this-day-oct-2.html
+
+**Trump Puts on a Midterms Show for an Audience That’s Already Sold**\
+`President Trump spent the day preaching to his most fervent fans, not the voters he will need to help elect or re-elect a slate of Republicans fighting in states from Alaska to Maine.`\
+https://www.nytimes.com/2026/10/01/us/politics/trump-puts-on-a-midterms-show-for-an-audience-thats-already-sold.html
+
 **NYT Crossword Answers for Oct. 2, 2026**\
 `Joe Marquez opens our solving weekend.`\
 https://www.nytimes.com/2026/10/01/crosswords/daily-puzzle-2026-10-02.html
