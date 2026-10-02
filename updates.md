@@ -1,3 +1,15 @@
+**Iran Jails Hard-Line Lawmaker, Exposing Deep Rifts in Its Leadership**\
+`Hamid Rasaei, a vocal opponent of a diplomatic deal with the United States to end the war, was convicted of publishing false information with the intent to harm the Parliament speaker.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/iran-hard-line-lawmaker-jail-rift.html
+
+**Letitia James Is in Charge of the Cornell Rape Inquiry. What Comes Next?**\
+`As a special prosecutor, Ms. James has wide powers over the handling of the investigation, but legal experts say the case comes with potential obstacles.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-university-jane-doe-investigation.html
+
+**With Christa Pike Unconscious, Another Execution Attempt Is in Doubt**\
+`Her condition raises questions about whether Tennessee could attempt to execute her again if she is incapable of understanding what is happening.`\
+https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
+
 **2 Iranian Men Charged in U.K. Over Suspected Plot to Target Jews**\
 `The British police said the two Iranian nationals were charged Friday with terrorism offenses.`\
 https://www.nytimes.com/2026/10/02/world/europe/uk-manchester-terror-plot-iranians-jews.html
