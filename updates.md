@@ -1,3 +1,11 @@
+**A Forum at Cornell**\
+`We look at more student reactions.`\
+https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
+
+**How Flydubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
+`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
+
 **Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
 `Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
 https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html

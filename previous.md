@@ -1,3 +1,7 @@
+**A Forum at Cornell**\
+`We look at more student reactions.`\
+https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
+
 **Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
 `Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
 https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-
 `The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
-**The Mother’s Scream That Sent Passengers to the Rescue**\
+**How Flydubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
 `A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/technology/amazon-data-centers-funding.html
 **How to Tell It Like It Is**\
 `An expert shares four steps to help you decide whether it’s worth sharing tough feedback.`\
 https://www.nytimes.com/2026/10/02/well/telling-truths.html
-
-**How to Pack a Better Lunch**\
-`Our expert explains why you may want to upgrade your lunch box, and fun ways to spice up that midday meal.`\
-https://www.nytimes.com/2026/10/02/podcasts/how-to-pack-a-better-lunch.html
 
