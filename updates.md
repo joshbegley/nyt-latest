@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
+
 **Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
 `After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
