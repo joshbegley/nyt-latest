@@ -1,3 +1,11 @@
+**Cornell Students Call for Change at Fiery Public Meeting**\
+`Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
+https://www.nytimes.com/2026/10/01/nyregion/met-cornell-public-hearing.html
+
+**Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
+`The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
+https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
+
 **Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
 `U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
 https://www.nytimes.com/2026/10/01/us/politics/military-civilian-deaths-in-war.html

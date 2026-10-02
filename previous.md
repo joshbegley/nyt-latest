@@ -1,3 +1,7 @@
+**Cornell Students Call for Change at Fiery Public Meeting**\
+`Through tears, some students shared stories of assaults they had experienced, while others spoke out to criticize administrators and demand improved training on consent.`\
+https://www.nytimes.com/2026/10/01/nyregion/met-cornell-public-hearing.html
+
 **Military Leaders Will Examine Ways to Limit Civilian Deaths in War**\
 `U.S. Central Command will hold a daylong conference at its Tampa headquarters after seven months of war in Iran.`\
 https://www.nytimes.com/2026/10/01/us/politics/military-civilian-deaths-in-war.html
@@ -178,11 +182,7 @@ https://www.nytimes.com/2026/10/01/opinion/hannah-gann-rachel-dolezal.html
 `Many alumni and some prospective parents are rethinking their relationships with Cornell. But as one admissions consultant said, “Prestige is a powerful draw.”`\
 https://www.nytimes.com/2026/10/01/nyregion/cornell-rape-investigation-donations-enrollment.html
 
-**FlyDubai Under Scrutiny After Cockpit Attack**\
-`The United Arab Emirates has said it is leading the investigation into the episode, and FlyDubai’s service between Dubai and Tel Aviv has been suspended.`\
-https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-israel-scrutiny.html
-
-**Live Updates: Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
+**Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
