@@ -15,7 +15,7 @@ https://www.nytimes.com/interactive/polls/utah-us-house-3-polls-2026.html
 https://www.nytimes.com/interactive/polls/texas-us-house-10-polls-2026.html
 
 **Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
-`Gov. Kathy Hochul appointed the New York State attorney general to investigate allegations by a former Cornell University student that several men sexually assaulted her.`\
+`Gov. Kathy Hochul appointed the state attorney general to investigate a former Cornell University student’s allegation of rape. The woman has sued seven men in connection with the alleged assault.`\
 https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html
 
 **Cornell Students Call for Change at Fiery Public Meeting**\
