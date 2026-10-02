@@ -1,3 +1,7 @@
+**Read the Filing**\
+`Christa Pike’s lawyers said in a court filing that she was brought to a hospital with burned and blistered arms after her botched execution.`\
+https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
+
 **National Science Foundation Diverted $1.4 Billion in Science Funds Mandated by Congress**\
 `The move, affecting about one-fifth of the National Science Foundation’s primary research budget, is the latest sign of how the White House is asserting more control over grants.`\
 https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-research-funds.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.ht
 **FlyDubai Pilot Recalls Cockpit Stabbing**\
 `Smit Machchhar, the pilot of a FlyDubai plane who was stabbed by his co-pilot, talked about the cockpit attack in a video call with Prime Minister Narendra Modi of India.`\
 https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-cockpit-stabbing-modi.html
-
-**The Latest Challenge to Data Centers? Restive Investors.**\
-`Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
-https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
