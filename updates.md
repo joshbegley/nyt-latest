@@ -1,3 +1,19 @@
+**Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
+`The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
+https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html
+
+**A Show Gives a Taste of What a U.S. Pavilion in Venice Might Have Been**\
+`Some of the artist Robert Lazzarini’s works from his Venice Biennale proposal are on display at the MassArt Art Museum.`\
+https://www.nytimes.com/2026/10/02/arts/design/robert-lazzarini-us-pavilion-venice-boston-exhibition.html
+
+**Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
+`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were providing an update on the case Friday morning.`\
+https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
+
+**English Whisky Gets a Boost from the U.K., and Scots Are Not Amused**\
+`A growing cadre of English distillers have won protected status for their liquor. But Scotch producers fear that they’ll lose prestige.`\
+https://www.nytimes.com/2026/10/02/dining/drinks/english-whisky-uk.html
+
 **As Gas Prices Rose, Sales of Larger Vehicles Slid**\
 `Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
 https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html

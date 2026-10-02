@@ -1,3 +1,11 @@
+**Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
+`The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
+https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html
+
+**A Show Gives a Taste of What a U.S. Pavilion in Venice Might Have Been**\
+`Some of the artist Robert Lazzarini’s works from his Venice Biennale proposal are on display at the MassArt Art Museum.`\
+https://www.nytimes.com/2026/10/02/arts/design/robert-lazzarini-us-pavilion-venice-boston-exhibition.html
+
 **As Gas Prices Rose, Sales of Larger Vehicles Slid**\
 `Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
 https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-c
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
 
 **Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
-`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were set to provide an update on the case Friday morning.`\
+`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were providing an update on the case Friday morning.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 
 **U.S. Suspends Consular Services in Brazil on Eve of Elections**\
@@ -127,7 +135,7 @@ https://www.nytimes.com/interactive/2026/arts/television/reader-votes-tv-shows-2
 https://www.nytimes.com/2026/10/02/opinion/ai-tech-innovation.html
 
 **English Whisky Gets a Boost from the U.K., and Scots Are Not Amused**\
-`A growing cadre of English distillers have won protected status for their liquor. But Scotch producers fear that will confuse consumers.`\
+`A growing cadre of English distillers have won protected status for their liquor. But Scotch producers fear that they’ll lose prestige.`\
 https://www.nytimes.com/2026/10/02/dining/drinks/english-whisky-uk.html
 
 **The Powerful Yet Fragile Force Propping Up Stocks and the Economy**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/02/theater/creation-stories-and-all-the-importan
 **Forget Quiet Luxury. In Ancient Rome, the Fashion Was Loud.**\
 `An exhibition in Copenhagen reveals how imperial expansion delivered the vivid dyes, exotic fabrics and real-hair wigs that Romans used to broadcast their status.`\
 https://www.nytimes.com/2026/10/02/arts/ancient-rome-fashion-glyptotek-museum-copenhagen.html
-
-**‘The Last First: Winter K2’: Review**\
-`Directed by Amir Bar-Lev, the film forgoes the optimistic gloss typical of the genre and gets at the complex reasons that people scale peaks.`\
-https://www.nytimes.com/2026/10/02/movies/the-last-first-winter-k2-review.html
-
-**Are Democrats Worried About the Wrong Rich People?**\
-`As billionaires become a popular political target, a new book urges Washington not to lose sight of a much larger, and quieter, group of wealthy business owners.`\
-https://www.nytimes.com/2026/10/02/business/democrats-wealthy-taxes.html
 
