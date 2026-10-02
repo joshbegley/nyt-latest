@@ -1,3 +1,7 @@
+**Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
+`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were set to provide an update on the case Friday morning.`\
+https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
+
 **U.S. Suspends Consular Services in Brazil on Eve of Elections**\
 `The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
 https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
