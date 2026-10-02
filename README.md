@@ -1,3 +1,11 @@
+**The Holei Sea Arch, a Centuries-Old Hawaii Wonder, Crumbles Into the Pacific**\
+`A tropical storm was moving through the area when the 90-foot lava rock formation disintegrated, the National Park Service said.`\
+https://www.nytimes.com/2026/10/02/us/holei-sea-arch-hawaii-collapse.html
+
+**Meta’s Cute New A.I. Agent Is Taking Over My Brain**\
+`On “Hard Fork,” Eli Tan, a technology reporter for The New York Times described how quickly Meta’s new Muse assistant worked its way into every facet of his life.`\
+https://www.nytimes.com/video/podcasts/100000011191100/metas-cute-new-ai-agent-is-taking-over-my-brain.html
+
 **F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
 `The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in the company’s fields or processing facility in northeastern Mexico.`\
 https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rat
 **U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
 `The Group of 7, which includes Britain, France and Japan, announced the release of 100 million barrels over four months, effective immediately.`\
 https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
-
-**The Best Movies and TV Shows Coming to Netflix in October**\
-`A new adaptation of a Steinbeck classic and a documentary about a beloved comedian are among this month’s highlights.`\
-https://www.nytimes.com/2026/10/02/arts/television/netflix-new-october.html
-
-**Mash-Up of Paramount and Warner Bros. Will Be Called Skydance**\
-`David Ellison, the tech scion who will run the combined company, borrowed the name of his original entertainment company that reflects his love of aviation. On Friday, the C.E.O.s of Warner Bros. were told they would not stay on once the companies merged.`\
-https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

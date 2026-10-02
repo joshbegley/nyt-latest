@@ -1,3 +1,7 @@
+**F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in the company’s fields or processing facility in northeastern Mexico.`\
+https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
+
 **Spanish Lawmakers Vote Down Eviction Freeze**\
 `The Spanish Parliament voted against a housing proposal that would suspend evictions of vulnerable tenants until 2030 on Friday.`\
 https://www.nytimes.com/video/world/europe/100000011190593/spanish-lawmakers-vote-down-eviction-freeze-prompting-calls-for-early-elections.html
