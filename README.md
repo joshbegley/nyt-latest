@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/10/02/crosswords/spelling-bee-forum.html
 `The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
 https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
 
-**My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
-`In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
-https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
-
 **Economic Strain Is Pitting China’s People Against Each Other**\
 `Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
 https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
+
+**My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
+`In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
+https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
 
 **Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
 `Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
