@@ -1,3 +1,11 @@
+**Missouri Man Discovers Michael McDonald of the Doobie Brothers Is His Biological Father**\
+`Michael Goessling’s first phone call with his biological father brought a shock: He was speaking to Michael McDonald of the Doobie Brothers.`\
+https://www.nytimes.com/2026/10/02/us/michael-mcdonald-doobie-brothers-biological-son.html
+
+**Job Growth Cools and Unemployment Ticks Higher**\
+`U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
+https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
+
 **The Kennedy Center Honors Will Be Held at Capital One Arena**\
 `The center is moving its marquee event off site as it pushes for court approval of a plan to close its main building for a two-year renovation project.`\
 https://www.nytimes.com/2026/10/02/arts/kennedy-center-honors-capital-one-arena.html
