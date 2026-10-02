@@ -1,3 +1,11 @@
+**Unusual Issues at War Court Stand Out as a Case Finally Heads to Trial**\
+`Prosecutors want remote testimony for witnesses unable or unwilling to travel to Guantánamo. The defense wants jurors to be told that, guilty or innocent, the defendant will not go free.`\
+https://www.nytimes.com/2026/10/02/us/politics/guantanamo-uss-cole-case.html
+
+**Hundreds of French Schools Shut as Student Protests Escalate**\
+`Student protests against teacher shortages and overcrowding kept hundreds of schools shut across France on Friday as officials warned that the demonstrations had descended into “urban violence.”`\
+https://www.nytimes.com/video/world/europe/100000011189631/france-schools-student-protests.html
+
 **Powerful Wildfires Require a New Approach, California Report Finds**\
 `A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
 https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
