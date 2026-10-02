@@ -1,3 +1,7 @@
+**In the Stacks**\
+`We introduce you to librarians across the country.`\
+https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
+
 **Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack**\
 `The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/well/headaches-brain-sag-spinal-fluid-leak.ht
 **AIPAC Is Spending Millions to Elect Friends. It’s Also Making Enemies.**\
 `The American Israel Public Affairs Committee has increasingly become a campaign issue unto itself. Some candidates have worn opposition from AIPAC as a badge of honor or made a point of rejecting the group’s support.`\
 https://www.nytimes.com/2026/10/02/us/politics/aipac-midterm-elections-spending-israel.html
-
-**How Much of Your Life Do You Share on Social Media?**\
-`“If you take a summer vacation and don’t post about it, did it even happen?” a writer asks, jokingly. Do you ever find yourself asking that question?`\
-https://www.nytimes.com/2026/10/02/learning/how-much-of-your-life-do-you-share-on-social-media.html
 
