@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/10/02/crosswords/wordle-review-1932.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
 https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
 
-**Live Updates: Fresh Jobs Figures to Bring Insights on U.S. Economy**\
-`The job market has been strong and unemployment steady as inflation has unsettled markets and raised costs for consumers.`\
+**Live Updates: Job Growth Cools and Unemployment Rises**\
+`The labor market in September was strong, even as inflation maintained pressure on markets and raised costs for consumers.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
 
 **How Ohio State Football Got Used to Upsell God**\
