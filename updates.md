@@ -1,3 +1,11 @@
+**Hundreds Detained in India for Protesting ‘Vote Theft’**\
+`Protesters gathered across India on Friday demanding the resignation of the election chief, Gyanesh Kumar, over the removal of 130 million voters from the rolls.`\
+https://www.nytimes.com/video/world/asia/100000011190055/india-protesters-detained-kumar-vote-theft.html
+
+**Extreme Heat in Los Angeles Area Expected to Last at Least a Week**\
+`Forecasters say a dangerous heat wave is descending across much of Southern California, which is likely to bring triple-digit temperatures.`\
+https://www.nytimes.com/2026/10/02/weather/extreme-heat-wave-california.html
+
 **The Holei Sea Arch, a Centuries-Old Hawaii Wonder, Crumbles Into the Pacific**\
 `A tropical storm was moving through the area when the 90-foot lava rock formation disintegrated, the National Park Service said.`\
 https://www.nytimes.com/2026/10/02/us/holei-sea-arch-hawaii-collapse.html
