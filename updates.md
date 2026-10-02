@@ -1,3 +1,11 @@
+**Trump Directed Use of Taxpayer Money for Ads Praising His Presidency**\
+`The government-funded ads show just how much President Trump has been able to use federal money for his own aims.`\
+https://www.nytimes.com/2026/10/02/us/politics/trump-ads.html
+
+**Gov. Hochul Criticizes 2024 Cornell Rape Investigation**\
+`Gov. Kathy Hochul of New York said on Friday that she has appointed the state attorney general, Letitia James, to investigate the 2024 rape allegations at Cornell University.`\
+https://www.nytimes.com/video/nyregion/100000011190120/hochul-cornell-rape-investigation.html
+
 **Bus Driver in L.A. Is Fatally Shot by Passenger After Possible Wrong Turn**\
 `The gunman has not been found, officials said. The driver, whose name has not been released publicly, was 42.`\
 https://www.nytimes.com/2026/10/02/us/culver-city-bus-driver-shooting-california.html

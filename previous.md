@@ -1,3 +1,11 @@
+**Trump Directed Use of Taxpayer Money for Ads Praising His Presidency**\
+`The government-funded ads show just how much President Trump has been able to use federal money for his own aims.`\
+https://www.nytimes.com/2026/10/02/us/politics/trump-ads.html
+
+**Gov. Hochul Criticizes 2024 Cornell Rape Investigation**\
+`Gov. Kathy Hochul of New York said on Friday that she has appointed the state attorney general, Letitia James, to investigate the 2024 rape allegations at Cornell University.`\
+https://www.nytimes.com/video/nyregion/100000011190120/hochul-cornell-rape-investigation.html
+
 **Bus Driver in L.A. Is Fatally Shot by Passenger After Possible Wrong Turn**\
 `The gunman has not been found, officials said. The driver, whose name has not been released publicly, was 42.`\
 https://www.nytimes.com/2026/10/02/us/culver-city-bus-driver-shooting-california.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/business/india-generic-drugs-tariffs.html
 **Miranda Lambert on Making It as a Woman in Country**\
 `In her interview with “Popcast,” Miranda Lambert discusses staying true to herself and having a front-row seat to a new version of that success as a co-writer of Ella Langley’s record-setting “Choosin’ Texas.”`\
 https://www.nytimes.com/video/podcasts/100000011183061/miranda-lambert-on-making-it-as-a-woman-in-country.html
-
-**Read One of the Recently Released U.F.O. Documents**\
-`This graphic of reported sightings of flying orbs lets the public glimpse federal agents’ study of extraterrestrial life. But it doesn’t contain anything conclusive.`\
-https://www.nytimes.com/interactive/2026/10/02/us/nat-ufo-flying-objects-map.html
-
-**Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
-`The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
-https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
