@@ -1,4 +1,8 @@
-**Unusual Issues at War Court Stand Out as a Case Finally Heads to Trial**\
+**The Local: Renee Good’s brothers speak**\
+`Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
+https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html
+
+**Unusual Issues in Court at Guantánamo Stand Out as a Case Finally Heads to Trial**\
 `Prosecutors want remote testimony for witnesses unable or unwilling to travel to Guantánamo. The defense wants jurors to be told that, guilty or innocent, the defendant will not go free.`\
 https://www.nytimes.com/2026/10/02/us/politics/guantanamo-uss-cole-case.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2
 **A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
 `“It’s going to be gnarly for a little while.”`\
 https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
-
-**China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
-`China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
-https://www.nytimes.com/2026/10/02/business/china-exports-diesel-energy.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
