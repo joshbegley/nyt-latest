@@ -1,3 +1,7 @@
+**Is the World Getting Uglier?**\
+`The modern right has a theory of beauty. Does the left?`\
+https://www.nytimes.com/video/opinion/100000011186651/is-the-world-getting-uglier.html
+
 **Cornell Students Demand Accountability**\
 `At a public hearing on sexual assault at Cornell University, some students shared personal stories and others demanded more accountability.`\
 https://www.nytimes.com/video/us/100000011189136/cornell-students-sexual-assault-rape.html

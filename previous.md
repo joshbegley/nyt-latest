@@ -1,3 +1,7 @@
+**Is the World Getting Uglier?**\
+`The modern right has a theory of beauty. Does the left?`\
+https://www.nytimes.com/video/opinion/100000011186651/is-the-world-getting-uglier.html
+
 **Cornell Students Demand Accountability**\
 `At a public hearing on sexual assault at Cornell University, some students shared personal stories and others demanded more accountability.`\
 https://www.nytimes.com/video/us/100000011189136/cornell-students-sexual-assault-rape.html
@@ -30,13 +34,13 @@ https://www.nytimes.com/2026/10/02/crosswords/spelling-bee-forum.html
 `The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
 https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
 
-**My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
-`In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
-https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
-
 **Economic Strain Is Pitting China’s People Against Each Other**\
 `Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
 https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
+
+**My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
+`In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
+https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
 
 **Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
 `Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/01/world/middleeast/flydubai-attack-invesigation
 **Lucien Lazare, Jewish Resistance Fighter in Occupied France, Dies at 101**\
 `He and a small troop of French Jews worked with the Allies to distribute supplies and fight the Nazis, ambushing a German train and liberating a city in the south.`\
 https://www.nytimes.com/2026/10/01/world/lucien-lazare-dead.html
-
-**In Recordings, Christa Pike Worried That Lethal Injection May Not Work**\
-`Weeks before her planned execution, Christa Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The New York Times. On Wednesday, she was hospitalized after a botched execution attempt.`\
-https://www.nytimes.com/video/us/100000011187287/christa-pike-interview-lethal-injection.html
 
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\
