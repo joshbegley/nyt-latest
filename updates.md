@@ -1,3 +1,7 @@
+**This Mistake Doomed Biden. Trump Is Falling Into the Same Trap.**\
+`When leaders ignore people’s lived experience, their political messaging collapses.`\
+https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
+
 **Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack**\
 `The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html

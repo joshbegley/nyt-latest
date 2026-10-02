@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/10/02/arts/television/friday-night-lights-20th-anni
 `A duplex near Chinatown, a two-bedroom in a former factory and a modern loft close to a bustling market.`\
 https://www.nytimes.com/2026/10/02/realestate/choose-your-favorite-700000-home-in-toronto.html
 
-**I Was Biden’s Press Secretary. Trump Is Making the Same Mistake We Did.**\
+**This Mistake Doomed Biden. Trump Is Falling Into the Same Trap.**\
 `When leaders ignore people’s lived experience, their political messaging collapses.`\
 https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
 
