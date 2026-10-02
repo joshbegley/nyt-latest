@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in October**\
+`A new adaptation of a Steinbeck classic and a documentary about a beloved comedian are among this month’s highlights.`\
+https://www.nytimes.com/2026/10/02/arts/television/netflix-new-october.html
+
+**Mash-Up of Paramount and Warner Bros. Will Be Called Skydance**\
+`David Ellison, the tech scion who will run the combined company, borrowed the name of his original entertainment company that reflects his love of aviation.`\
+https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros.html
+
 **Ukraine Reports First Combat Use of Its Own Ballistic Missile**\
 `While the missile fired on Thursday has a limited range, Kyiv is developing a larger weapon that could strike Moscow.`\
 https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/02/nyregion/where-things-stand-in-the-jane-doe-i
 **‘Friday Night Lights’ at 20: Can We Ever Get Back to Dillon?**\
 `The football drama’s themes of community and hope are just as moving today, but ever more distant.`\
 https://www.nytimes.com/2026/10/02/arts/television/friday-night-lights-20th-anniversary.html
-
-**Choose Your Favorite $700,000 Home in Toronto**\
-`A duplex near Chinatown, a two-bedroom in a former factory and a modern loft close to a bustling market.`\
-https://www.nytimes.com/2026/10/02/realestate/choose-your-favorite-700000-home-in-toronto.html
-
-**This Mistake Doomed Biden. Trump Is Falling Into the Same Trap.**\
-`When leaders ignore people’s lived experience, their political messaging collapses.`\
-https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
 
