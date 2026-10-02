@@ -1,3 +1,15 @@
+**Why Google Wants to Send a Data Center to Space**\
+`The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
+
+**Israel Says 170 Killed in Gaza Were Militants Posing as Media Workers**\
+`The Israeli military published an investigation it said rebuts accusations that it intentionally targeted journalists, but rights group say it is responsible for hundreds of news media deaths.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-gaza-militants-journalists-killed.html
+
+**Mash-Up of Paramount and Warner Bros. Will Be Called Skydance**\
+`David Ellison, the tech scion who will run the combined company, borrowed the name of his original entertainment company that reflects his love of aviation. On Friday, the C.E.O.s of Warner Bros. were told they would not stay on once the companies merged.`\
+https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros.html
+
 **Trump Directed Use of Taxpayer Money for Ads Praising His Presidency**\
 `The government-funded ads show just how much President Trump has been able to use federal money for his own aims.`\
 https://www.nytimes.com/2026/10/02/us/politics/trump-ads.html
