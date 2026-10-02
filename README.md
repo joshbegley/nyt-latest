@@ -1,3 +1,7 @@
+**F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in the company’s fields or processing facility in northeastern Mexico.`\
+https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
+
 **Spanish Lawmakers Vote Down Eviction Freeze**\
 `The Spanish Parliament voted against a housing proposal that would suspend evictions of vulnerable tenants until 2030 on Friday.`\
 https://www.nytimes.com/video/world/europe/100000011190593/spanish-lawmakers-vote-down-eviction-freeze-prompting-calls-for-early-elections.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/arts/television/netflix-new-october.html
 **Mash-Up of Paramount and Warner Bros. Will Be Called Skydance**\
 `David Ellison, the tech scion who will run the combined company, borrowed the name of his original entertainment company that reflects his love of aviation. On Friday, the C.E.O.s of Warner Bros. were told they would not stay on once the companies merged.`\
 https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros.html
-
-**Ukraine Reports First Combat Use of Its Own Ballistic Missile**\
-`While the missile fired on Thursday has a limited range, Kyiv is developing a larger weapon that could strike Moscow.`\
-https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

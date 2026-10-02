@@ -1,3 +1,11 @@
+**Spanish Lawmakers Vote Down Eviction Freeze**\
+`The Spanish Parliament voted against a housing proposal that would suspend evictions of vulnerable tenants until 2030 on Friday.`\
+https://www.nytimes.com/video/world/europe/100000011190593/spanish-lawmakers-vote-down-eviction-freeze-prompting-calls-for-early-elections.html
+
+**Israel Lists 170 Killed in Gaza It Says Were Militants Posing as Media Workers**\
+`The Israeli military published an investigation it said rebuts accusations that it intentionally targeted journalists. But it and a journalists group disagree over 78 people who are on the list.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-gaza-militants-journalists-killed.html
+
 **Judge Blocks Border Wall Construction in Big Bend in Texas**\
 `The ruling dealt a setback to the Trump administration’s plans for hundreds of miles of barriers that have drawn local opposition.`\
 https://www.nytimes.com/2026/10/02/us/border-wall-big-bend-texas.html

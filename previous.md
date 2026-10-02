@@ -1,3 +1,7 @@
+**Spanish Lawmakers Vote Down Eviction Freeze**\
+`The Spanish Parliament voted against a housing proposal that would suspend evictions of vulnerable tenants until 2030 on Friday.`\
+https://www.nytimes.com/video/world/europe/100000011190593/spanish-lawmakers-vote-down-eviction-freeze-prompting-calls-for-early-elections.html
+
 **Judge Blocks Border Wall Construction in Big Bend in Texas**\
 `The ruling dealt a setback to the Trump administration’s plans for hundreds of miles of barriers that have drawn local opposition.`\
 https://www.nytimes.com/2026/10/02/us/border-wall-big-bend-texas.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker
 `The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
 
-**Israel Says 170 Killed in Gaza Were Militants Posing as Media Workers**\
-`The Israeli military published an investigation it said rebuts accusations that it intentionally targeted journalists, but rights group say it is responsible for hundreds of news media deaths.`\
+**Israel Lists 170 Killed in Gaza It Says Were Militants Posing as Media Workers**\
+`The Israeli military published an investigation it said rebuts accusations that it intentionally targeted journalists. But it and a journalists group disagree over 78 people who are on the list.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/israel-gaza-militants-journalists-killed.html
 
 **Trump Directed Use of Taxpayer Money for Ads Praising His Presidency**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/business/media/skydance-paramount-warner-bros
 **Ukraine Reports First Combat Use of Its Own Ballistic Missile**\
 `While the missile fired on Thursday has a limited range, Kyiv is developing a larger weapon that could strike Moscow.`\
 https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.html
-
-**Fighting Intensifies in Yemen, Raising Fresh Fears of All-Out War**\
-`Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
