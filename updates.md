@@ -1,3 +1,27 @@
+**A.I.: Cute or Maybe Catastrophically Dangerous?**\
+`Full Episode #215`\
+https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
+
+**Why U.S. Diesel Is So Important to Major Trading Partners**\
+`Economies in Latin America and Europe rely on American diesel. Stopping exports could tip some countries into recession, hurting trade with the United States.`\
+https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-europe-brazil.html
+
+**New York City Ballet’s Gala: Stevie Nicks, Fashion and Dance. What Could Go Wrong?**\
+`New York City Ballet hosted its annual fashion gala, this season pairing three choreographers with designers. The faux pas really added up.`\
+https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-ballet-stevie-nicks.html
+
+**The Mother’s Scream That Sent Passengers to the Rescue**\
+`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
+
+**U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
+`The Group of 7, which includes Britain, France and Japan, announced the release of 100 million barrels over four months, effective immediately.`\
+https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
+
+**Student Protests Rattle France as Police Clashes Bring Blockades and Tear Gas**\
+`Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
+https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
+
 **As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
 `The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
 https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-north-carolina-senate-race.html
