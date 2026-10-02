@@ -1,3 +1,7 @@
+**Late Night Is Stunned by Trump’s New Stereotype**\
+`The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
+https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
+
 **Economic Strain Is Pitting China’s People Against Each Other**\
 `Unable to question the government, Chinese are taking their economic frustrations out on each other.`\
 https://www.nytimes.com/2026/10/02/opinion/china-anger-economic-frustration.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
 **Controversial Zimbabwe Tycoon Dies in Helicopter Crash**\
 `The controversial Zimbabwe tycoon Wicknell Chivayo died in a helicopter crash with several others from his rural homestead to the country’s capital. Mr. Chivayo was accused of building wealth through corruption, forming close relationships with African leaders.`\
 https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-wicknell-chivayo-killed-helicopter-crash.html
-
-**Parents Are Charged After Toddler Pulls Out Loaded Gun at Day Care**\
-`No one was hurt in what the police described as a shocking episode that was captured on video inside a day care center in Canton, Mich., on Monday.`\
-https://www.nytimes.com/2026/10/01/us/child-gun-daycare-michigan-parents-misdemeanor.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

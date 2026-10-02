@@ -1,3 +1,7 @@
+**Late Night Is Stunned by Trump’s New Stereotype**\
+`The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
+https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
+
 **My Friend Is a Draft Dodger in Ukraine. He’s Not a Coward.**\
 `In the Ukraine war, bravery has turned into a cliché masking profound social and economic injustices.`\
 https://www.nytimes.com/2026/10/02/opinion/ukraine-russia-war-draft.html
