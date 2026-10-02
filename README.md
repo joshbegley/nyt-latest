@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.htm
 `The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
 https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
 
-**Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
-`Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
+**India Faces Fresh Protests, This Time Over Voter Rolls**\
+`Hundreds were detained in New Delhi as demonstrators expressed anger over the removal of 130 million people from the rolls. The government denies accusations of “vote theft.”`\
 https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
 
 **FlyDubai Pilot Recalls Cockpit Stabbing**\
@@ -158,13 +158,13 @@ https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 `The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
 https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
 
-**‘The Headlines’ News Quiz: Oct. 2, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
-
 **A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
 `“It’s going to be gnarly for a little while.”`\
 https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
+
+**‘The Headlines’ News Quiz: Oct. 2, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
 
 **China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
 `China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
