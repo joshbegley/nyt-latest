@@ -1,3 +1,7 @@
+**In the Stacks**\
+`We introduce you to librarians across the country.`\
+https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
+
 **This Mistake Doomed Biden. Trump Is Falling Into the Same Trap.**\
 `When leaders ignore people’s lived experience, their political messaging collapses.`\
 https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
