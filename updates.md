@@ -1,3 +1,7 @@
+**Christa Pike Unconscious and on Ventilator After Execution Attempt**\
+`Her condition raises questions about whether Tennessee could attempt to execute her again if she is incapable of understanding what is happening.`\
+https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
+
 **Why Google Wants to Send a Data Center to Space**\
 `The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html

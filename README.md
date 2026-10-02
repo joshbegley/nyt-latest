@@ -1,3 +1,7 @@
+**Judge Blocks Border Wall Construction in Big Bend in Texas**\
+`The ruling dealt a setback to the Trump administration’s plans for hundreds of miles of barriers that have drawn local opposition.`\
+https://www.nytimes.com/2026/10/02/us/border-wall-big-bend-texas.html
+
 **Ken Urker, Partner of Gypsy Rose Blanchard, Is Found Dead in Louisiana**\
 `Mr. Urker, 34, who shared a child with Ms. Blanchard, was found unresponsive in a home on Thursday when deputies conducted a welfare check.`\
 https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.h
 **Fighting Intensifies in Yemen, Raising Fresh Fears of All-Out War**\
 `Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
-
-**Student Protests Rattle France as Police Clashes Bring Blockades and Tear Gas**\
-`Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
-https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
