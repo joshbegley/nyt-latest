@@ -1,3 +1,15 @@
+**This Lemony Miso Cabbage Complements Any Main Dish**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html
+
+**Scientists Untangle the Biology of an ‘Undruggable’ Cancer Gene**\
+`Found in 70 percent of cancers, the gene is seen as a grand orchestrator but has been surprisingly difficult to stop.`\
+https://www.nytimes.com/2026/10/02/science/scientists-untangle-the-biology-of-an-undruggable-cancer-gene.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include killer sharks, vengeful lawmen and an umbrella-gun assassin.`\
+https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
+
 **Soft Jobs Report Boosts Market Bets Fed Will Skip October Rate Increase**\
 `The odds of an interest rate change at the Federal Reserve’s meeting in late October have dropped following a softer jobs report and strong signaling from bank officials.`\
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rates.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/02/dining/drinks/english-whisky-uk.html
 **The Powerful Yet Fragile Force Propping Up Stocks and the Economy**\
 `The artificial intelligence boom has pushed up the stock market, even as interest rates have pulled it down, our columnist says.`\
 https://www.nytimes.com/2026/10/02/business/ai-stocks-bonds-economy.html
-
-**Decades Later, Stephen King Is Finishing What He and Peter Straub Started**\
-`The author speaks about his new book, “Other Worlds Than These,” which completes a trilogy he began with his friend and co-writer in 1984.`\
-https://www.nytimes.com/2026/10/02/podcasts/stephen-king-the-talisman.html
-
-**How Stephen King Channeled His Co-Writer After Death**\
-`Stephen King and his co-writer and friend Peter Straub wrote two books together in their Talisman series. On the “Book Review” podcast, King explains how, when he returned to their story after Straub’s death in 2022, he went back to his old friend’s writing to try to capture his voice, a process he called “a kind of literary forgery.”`\
-https://www.nytimes.com/video/podcasts/100000011179586/how-stephen-king-channeled-his-co-writer-after-death.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/10/02/movies/new-movies-this-week-critics.html
 
