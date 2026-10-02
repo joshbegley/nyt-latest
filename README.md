@@ -1,3 +1,11 @@
+**Hundreds Detained in India for Protesting ‘Vote Theft’**\
+`Protesters gathered across India on Friday demanding the resignation of the election chief, Gyanesh Kumar, over the removal of 130 million voters from the rolls.`\
+https://www.nytimes.com/video/world/asia/100000011190055/india-protesters-detained-kumar-vote-theft.html
+
+**Extreme Heat in Los Angeles Area Expected to Last at Least a Week**\
+`Forecasters say a dangerous heat wave is descending across much of Southern California, which is likely to bring triple-digit temperatures.`\
+https://www.nytimes.com/2026/10/02/weather/extreme-heat-wave-california.html
+
 **The Holei Sea Arch, a Centuries-Old Hawaii Wonder, Crumbles Into the Pacific**\
 `A tropical storm was moving through the area when the 90-foot lava rock formation disintegrated, the National Park Service said.`\
 https://www.nytimes.com/2026/10/02/us/holei-sea-arch-hawaii-collapse.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/science/scientists-untangle-the-biology-of-an
 **Five Action Movies to Stream Now**\
 `This month’s picks include killer sharks, vengeful lawmen and an umbrella-gun assassin.`\
 https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
-
-**Soft Jobs Report Boosts Market Bets Fed Will Skip October Rate Increase**\
-`The odds of an interest rate change at the Federal Reserve’s meeting in late October have dropped following a softer jobs report and strong signaling from bank officials.`\
-https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rates.html
-
-**U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
-`The Group of 7, which includes Britain, France and Japan, announced the release of 100 million barrels over four months, effective immediately.`\
-https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
