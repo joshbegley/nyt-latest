@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 2, 2026**\
+`Joe Marquez opens our solving weekend.`\
+https://www.nytimes.com/2026/10/01/crosswords/daily-puzzle-2026-10-02.html
+
 **N.Y. Lawmakers and Victims Push to Change Rape Law in Intoxication Cases**\
 `Accusations that Cornell University students assaulted a woman while she was impaired have renewed calls to amend the law.`\
 https://www.nytimes.com/2026/10/01/nyregion/new-york-rape-law-cornell.html
