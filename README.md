@@ -2,7 +2,7 @@
 `Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
 https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html
 
-**Unusual Issues at Guantánamo Court Stand Out as a Case Finally Heads to Trial**\
+**Unusual Issues in Court at Guantánamo Stand Out as a Case Finally Heads to Trial**\
 `Prosecutors want remote testimony for witnesses unable or unwilling to travel to Guantánamo. The defense wants jurors to be told that, guilty or innocent, the defendant will not go free.`\
 https://www.nytimes.com/2026/10/02/us/politics/guantanamo-uss-cole-case.html
 
