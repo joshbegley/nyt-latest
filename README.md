@@ -1,3 +1,7 @@
+**Bus Driver in L.A. Is Fatally Shot by Passenger After Possible Wrong Turn**\
+`The gunman has not been found, officials said. The driver, whose name has not been released publicly, was 42.`\
+https://www.nytimes.com/2026/10/02/us/culver-city-bus-driver-shooting-california.html
+
 **Argentina’s ‘Golden Passport’ Program Offers Citizenship in Exchange for Foreign Cash**\
 `The program would grant citizenship to people who make major investments in Argentina. Similar efforts have yielded significant income for small economies, but have also led to risks.`\
 https://www.nytimes.com/2026/10/02/world/americas/argentina-citizenship-golden-passport-money.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/10/02/us/nat-ufo-flying-objects-map.htm
 **Spanish Lawmakers Reject Eviction Freeze, Spurring Calls for Early Elections**\
 `The government had proposed more protections for tenants after outrage at the eviction of an 87-year-old woman in Madrid.`\
 https://www.nytimes.com/2026/10/02/world/europe/spain-housing-vote-elections.html
-
-**A Show Gives a Taste of What a U.S. Pavilion in Venice Might Have Been**\
-`Some of the artist Robert Lazzarini’s works from his Venice Biennale proposal are on display at the MassArt Art Museum.`\
-https://www.nytimes.com/2026/10/02/arts/design/robert-lazzarini-us-pavilion-venice-boston-exhibition.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
