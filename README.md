@@ -1,3 +1,7 @@
+**Is It Time for Belts?**\
+`A bit of fashion that serves more than one need.`\
+https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
+
 **Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
 **Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack**\
 `The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
-
-**The Firestorm Over a Rape Allegation at Cornell**\
-`The New York Times has reviewed a trove of documents related to the case. Our reporter explains what we know.`\
-https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
