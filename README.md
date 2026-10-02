@@ -1,3 +1,7 @@
+**Iran Jails Hard-Line Lawmaker, Exposing Deep Rifts in Its Leadership**\
+`Hamid Rasaei, a vocal opponent of a diplomatic deal with the United States to end the war, was convicted of publishing false information with the intent to harm the Parliament speaker.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/iran-hard-line-lawmaker-jail-rift.html
+
 **Letitia James Is in Charge of the Cornell Rape Inquiry. What Comes Next?**\
 `As a special prosecutor, Ms. James has wide powers over the handling of the investigation, but legal experts say the case comes with potential obstacles.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-university-jane-doe-investigation.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
 **Flurry of Lawsuits Shows Both Parties Preparing for Post-Election Challenges**\
 `Republicans are using the courts to hunt for noncitizen voters. Democrats worry the G.O.P. is trying make it harder for eligible voters to cast ballots — and paving the way to try to toss valid election results.`\
 https://www.nytimes.com/2026/10/02/us/politics/lawsuits-democrats-republicans-post-election-challenges.html
-
-**Black Unemployment Rose Sharply in September, Jobs Report Shows**\
-`Economists had taken a recent drop in Black unemployment as a hopeful sign that job gains were lifting a broad share of workers.`\
-https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployment.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
