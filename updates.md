@@ -1,3 +1,7 @@
+**Judge Blocks Border Wall Construction in Big Bend in Texas**\
+`The ruling dealt a setback to the Trump administration’s plans for hundreds of miles of barriers that have drawn local opposition.`\
+https://www.nytimes.com/2026/10/02/us/border-wall-big-bend-texas.html
+
 **Christa Pike Unconscious and on Ventilator After Execution Attempt**\
 `Her condition raises questions about whether Tennessee could attempt to execute her again if she is incapable of understanding what is happening.`\
 https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
