@@ -1,3 +1,7 @@
+**Cornell’s Handling of Sexual Assault Case Questioned**\
+`Our reporter Emma Goldberg visits the Cornell University campus to speak with students after prosecutors reopened the case of a woman who said she was raped at a fraternity house in 2024. None of the accused men have been charged with a crime, and all have denied wrongdoing.`\
+https://www.nytimes.com/video/nyregion/100000011183481/cornells-handling-of-sexual-assault-case-questioned.html
+
 **Who Is Ahead in Utah's 4th Congressional District?**\
 `Track the latest polls in Utah's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/utah-us-house-4-polls-2026.html

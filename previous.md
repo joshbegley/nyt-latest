@@ -1,3 +1,7 @@
+**Cornell’s Handling of Sexual Assault Case Questioned**\
+`Our reporter Emma Goldberg visits the Cornell University campus to speak with students after prosecutors reopened the case of a woman who said she was raped at a fraternity house in 2024. None of the accused men have been charged with a crime, and all have denied wrongdoing.`\
+https://www.nytimes.com/video/nyregion/100000011183481/cornells-handling-of-sexual-assault-case-questioned.html
+
 **Who Is Ahead in Utah's 4th Congressional District?**\
 `Track the latest polls in Utah's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/utah-us-house-4-polls-2026.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5
 **Man Is Fatally Stabbed on the Subway in a Random Attack, Police Say**\
 `An internal police report referred to the man charged in the killing, which happened in Queens during the evening rush hour, as emotionally disturbed.`\
 https://www.nytimes.com/2026/10/01/nyregion/queens-subway-stabbing-death.html
-
-**America’s Long History of Executions Includes Many Botched Ones**\
-`Tennessee’s attempt to end Christa Pike’s life did not succeed. No method of execution has been foolproof.`\
-https://www.nytimes.com/2026/10/01/us/botched-executions-tennessee-how-common.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
