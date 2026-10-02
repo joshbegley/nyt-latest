@@ -1,3 +1,15 @@
+**At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
+`There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
+https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
+
+**Coast Guard Says It Stopped Ships Carrying Fuel to Cuba**\
+`The Coast Guard has intercepted two small boats it says was carrying illegal fuel to Cuba as the United States enforces an fuel blockade aimed at Cuba’s Communist government.`\
+https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.html
+
+**Pay Advance Apps May Be Costlier Than Workers Think**\
+`The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
+https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
+
 **Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
 `Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
 https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/02/business/democrats-wealthy-taxes.html
 **The Rise of the Nine-Figure Listing**\
 `America's growing crop of billionaires made 2026 a record year for $100 million listings.`\
 https://www.nytimes.com/2026/10/02/realestate/the-rise-of-the-nine-figure-listing.html
-
-**Carmel-by-the-Sea Reluctantly Adopts Street Addresses After 110 Years**\
-`Driven by emergency response needs, Carmel-by-the-Sea reluctantly adopted street address numbers this summer, igniting concerns over its vanishing identity as a beachside village.`\
-https://www.nytimes.com/2026/10/02/us/california-carmel-homes-new-addresses.html
-
-**‘Friday Night Lights’ Oral History: ‘I Remember Watching and Bawling’**\
-`Twenty years after the beloved football and family drama premiered, Peter Berg, Kyle Chandler, Connie Britton, Taylor Kitsch and others look back on its legacy.`\
-https://www.nytimes.com/2026/10/02/arts/television/friday-night-lights-20th-anniversary-oral-history.html
-
-**Mahershala Ali and Bassam Tariq on Faith and Love in ‘Your Mother Your Mother Your Mother’**\
-`“Your Mother Your Mother Your Mother” was conceived well before the star and the director met for “Blade.” But it was fatherhood that informed the new movie.`\
-https://www.nytimes.com/2026/10/02/movies/mahershala-ali-bassam-tariq-your-mother.html
 
