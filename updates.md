@@ -1,3 +1,11 @@
+**Hochul Denounces D.A. and Cornell Police in Handling of Sex Assault Case**\
+`Gov. Kathy Hochul appointed Letitia James, the attorney general, to investigate the original allegations and why a police report omitted crucial information.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-jane-doe-hochul.html
+
+**F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in a grower’s field or processing facility in northeastern Mexico.`\
+https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
+
 **Bridal Shop Owner Who Put Child Onto a Coat Hook Cleared by Court**\
 `The “horseplay” was misguided, said the Canadian judge, but not malicious.`\
 https://www.nytimes.com/2026/10/02/world/canada/newfoundland-bridal-shop-owner-boy-coat-hook.html

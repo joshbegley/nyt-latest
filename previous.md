@@ -1,3 +1,7 @@
+**Hochul Denounces D.A. and Cornell Police in Handling of Sex Assault Case**\
+`Gov. Kathy Hochul appointed Letitia James, the attorney general, to investigate the original allegations and why a police report omitted crucial information.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-jane-doe-hochul.html
+
 **Bridal Shop Owner Who Put Child Onto a Coat Hook Cleared by Court**\
 `The “horseplay” was misguided, said the Canadian judge, but not malicious.`\
 https://www.nytimes.com/2026/10/02/world/canada/newfoundland-bridal-shop-owner-boy-coat-hook.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/02/us/holei-sea-arch-hawaii-collapse.html
 https://www.nytimes.com/video/podcasts/100000011191100/metas-cute-new-ai-agent-is-taking-over-my-brain.html
 
 **F.D.A. Found Cyclospora During Taylor Farms Inspection in Mexico**\
-`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in the company’s fields or processing facility in northeastern Mexico.`\
+`The discovery adds strong evidence that the outbreak that sickened thousands over the summer originated in a grower’s field or processing facility in northeastern Mexico.`\
 https://www.nytimes.com/2026/10/02/health/cyclospora-taylor-farms-mexico.html
 
 **Spanish Lawmakers Vote Down Eviction Freeze**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/business/economy/jobs-report-black-unemployme
 **A.I.: Cute or Maybe Catastrophically Dangerous?**\
 `Full Episode #215`\
 https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastrophically-dangerous.html
-
-**Why U.S. Diesel Is So Important to Major Trading Partners**\
-`Economies in Latin America and Europe rely on American diesel. Stopping exports could tip some countries into recession, hurting trade with the United States.`\
-https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-europe-brazil.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
