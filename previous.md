@@ -1,3 +1,15 @@
+**Dolly Parton’s Country-Disco Sound Is Back**\
+`The country singer Miranda Lambert discusses the sounds and inspirations of her new album, “Crisco,” this week on “Popcast.”`\
+https://www.nytimes.com/video/podcasts/100000011183063/dolly-partons-country-disco-sound-is-back.html
+
+**America Wants to Make More Generic Drugs. India Shows Why That’s Hard.**\
+`Cheap labor and global supply chains are among the obstacles to President Trump’s plan to bring generic drug manufacturing back home.`\
+https://www.nytimes.com/2026/10/02/business/india-generic-drugs-tariffs.html
+
+**Miranda Lambert on Making It as a Woman in Country**\
+`In her interview with “Popcast,” Miranda Lambert discusses staying true to herself and having a front-row seat to a new version of that success as a co-writer of Ella Langley’s record-setting “Choosin’ Texas.”`\
+https://www.nytimes.com/video/podcasts/100000011183061/miranda-lambert-on-making-it-as-a-woman-in-country.html
+
 **Read One of the Recently Released U.F.O. Documents**\
 `This graphic of reported sightings of flying orbs lets the public glimpse federal agents’ study of extraterrestrial life. But it doesn’t contain anything conclusive.`\
 https://www.nytimes.com/interactive/2026/10/02/us/nat-ufo-flying-objects-map.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/02/business/economy/tariffs-instruments-school-m
 **5 Hotels For Savoring the Fall**\
 `These new or renovated getaways offer opportunities to bask in the season’s pastoral and cultural delights in comfort.`\
 https://www.nytimes.com/2026/10/02/travel/autumn-hotels.html
-
-**How Miranda Lambert Helped Ella Langley Make History with ‘Choosin’ Texas’**\
-`As her co-written song “Choosin’ Texas” continues to dominate, the country star returns with her most joyous album to date.`\
-https://www.nytimes.com/2026/10/02/arts/music/miranda-lambert-popcast-interview.html
-
-**How Far Will Stephen King Go for a Story?**\
-`Stephen King once asked his next-door neighbor, a retired surgeon, how long a person could survive by eating themselves. On the “Book Review” podcast, King shares how the answer turned into research for a story.`\
-https://www.nytimes.com/video/podcasts/100000011179574/how-far-will-stephen-king-go-for-a-story.html
-
-**In ‘Creation Stories and All the Important Importants,’ a Dream Evaporates**\
-`An overachiever who had her life mapped out hits a roadblock in Mfoniso Udofia’s haunted, surreally comic new play at LCT3.`\
-https://www.nytimes.com/2026/10/02/theater/creation-stories-and-all-the-important-importants-review.html
 
