@@ -1,3 +1,7 @@
+**U.S. Suspends Consular Services in Brazil on Eve of Elections**\
+`The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
+https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
+
 **Indian Pilot Stabbed on FlyDubai Flight Recalls Sudden Attack**\
 `Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
 https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india-smit-machchhar.html

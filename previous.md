@@ -1,3 +1,7 @@
+**U.S. Suspends Consular Services in Brazil on Eve of Elections**\
+`The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
+https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
+
 **‘The Headlines’ News Quiz: Oct. 2, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/books/review/christian-robinson-dad.html
 **A Visit to an Actor and Choreographer’s Apartment of Mirrors**\
 `Angela Trimbur’s Upper West Side home is part dance studio, part video set.`\
 https://www.nytimes.com/2026/10/02/realestate/a-visit-to-an-actor-and-choreographers-apartment-of-mirrors.html
-
-**Truckers Are ‘Just Trying to Hang On’ When a Fill-Up Tops $1,000**\
-`Truckers are among the hardest hit by the soaring cost of diesel fuel. High prices are forcing some to stay on the road for months and others to park their rigs.`\
-https://www.nytimes.com/2026/10/02/us/truckers-diesel-costs.html
 
