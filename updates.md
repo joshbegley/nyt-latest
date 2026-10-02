@@ -1,3 +1,7 @@
+**‘I Couldn’t Let All of Them Die’: Pilot on FlyDubai Flight Recalls Sudden Attack**\
+`Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
+https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india.html
+
 **In the Stacks**\
 `We introduce you to librarians across the country.`\
 https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html

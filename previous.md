@@ -1,3 +1,7 @@
+**‘I Couldn’t Let All of Them Die’: Pilot on FlyDubai Flight Recalls Sudden Attack**\
+`Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
+https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india.html
+
 **In the Stacks**\
 `We introduce you to librarians across the country.`\
 https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/upshot/trump-account-kids-529-utma-calculator
 **The Headaches Disrupted Her Life**\
 `The woman’s severe pain seemed to ease only when she was lying down. What would cause such a thing?`\
 https://www.nytimes.com/2026/10/02/well/headaches-brain-sag-spinal-fluid-leak.html
-
-**AIPAC Is Spending Millions to Elect Friends. It’s Also Making Enemies.**\
-`The American Israel Public Affairs Committee has increasingly become a campaign issue unto itself. Some candidates have worn opposition from AIPAC as a badge of honor or made a point of rejecting the group’s support.`\
-https://www.nytimes.com/2026/10/02/us/politics/aipac-midterm-elections-spending-israel.html
 
