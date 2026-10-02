@@ -1,3 +1,7 @@
+**Tom Ford: Is Naked That Sexy?**\
+`The naked dressing trend was top of mind for The Times’s chief fashion critic, Vanessa Friedman, at a recent Tom Ford runway presentation in Paris. It was the suggestion of nudity that left her wanting more.`\
+https://www.nytimes.com/video/style/100000011131904/tom-ford-is-naked-that-sexy.html
+
 **Brooke Eby, Who Brought Humor and Awareness to A.L.S., Dies at 37**\
 `After her diagnosis in 2022, when she was only 33, she became a vocal, witty advocate for people confronting the disease.`\
 https://www.nytimes.com/2026/10/02/obituaries/brooke-eby-dead.html

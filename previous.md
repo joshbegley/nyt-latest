@@ -1,3 +1,7 @@
+**Tom Ford: Is Naked That Sexy?**\
+`The naked dressing trend was top of mind for The Times’s chief fashion critic, Vanessa Friedman, at a recent Tom Ford runway presentation in Paris. It was the suggestion of nudity that left her wanting more.`\
+https://www.nytimes.com/video/style/100000011131904/tom-ford-is-naked-that-sexy.html
+
 **Brooke Eby, Who Brought Humor and Awareness to A.L.S., Dies at 37**\
 `After her diagnosis in 2022, when she was only 33, she became a vocal, witty advocate for people confronting the disease.`\
 https://www.nytimes.com/2026/10/02/obituaries/brooke-eby-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011141846/the-head-of-the-adl-on-an
 **This World-Renowned Negotiator Says Trump’s Secret Weapon Is Empathy**\
 `Chris Voss, a former F.B.I. hostage negotiator and author, speaks with David Marchese about President Trump’s negotiation tactics and the benefit of approaching life as a deal waiting to be made.`\
 https://www.nytimes.com/video/podcasts/100000011141850/this-world-renowned-negotiator-says-trumps-secret-weapon-is-empathy.html
-
-**A Forum at Cornell**\
-`We look at more student reactions.`\
-https://www.nytimes.com/2026/10/02/briefing/a-forum-at-cornell.html
 
