@@ -1,3 +1,19 @@
+**At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
+`There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
+https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
+
+**Coast Guard Says It Stopped Ships Carrying Fuel to Cuba**\
+`The Coast Guard has intercepted two small boats it says was carrying illegal fuel to Cuba as the United States enforces an fuel blockade aimed at Cuba’s Communist government.`\
+https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.html
+
+**Pay Advance Apps May Be Costlier Than Workers Think**\
+`The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
+https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
+
+**Live Updates: Job Growth Cools and Unemployment Ticks Higher**\
+`U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
+https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
+
 **Tennessee’s Botched Attempt to Execute Christa Pike Intensifies Concerns Over Lethal Injections**\
 `The failed attempt with Christa Pike has intensified bipartisan concerns about Tennessee’s ability to effectively carry out lethal injections.`\
 https://www.nytimes.com/2026/10/02/us/tennessee-failed-executions-history.html
