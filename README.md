@@ -1,3 +1,19 @@
+**‘Tyler Perry’s Doing Life’ Review: A Mysterious Hero**\
+`Perry’s latest melodrama follows a romance between a prison inmate and the woman he saved during a riot.`\
+https://www.nytimes.com/2026/10/02/movies/tyler-perrys-doing-life-review.html
+
+**Why Prosecutors May Face Legal Hurdles in the Cornell Investigation**\
+`Experts in sexual assault cases said it may not be easy to win a conviction on the rape allegations that Jane Doe has made against fraternity members.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-investigation-prosecution-challenges.html
+
+**After 17 Years, a TV Critic Lets the Credits Roll**\
+`In thousands of reviews, Mike Hale developed a reputation for being thoughtful yet brutally honest.`\
+https://www.nytimes.com/2026/10/02/arts/television/mike-hale-new-york-times.html
+
+**NYT Spelling Bee Answers for October 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/02/crosswords/spelling-bee-forum.html
+
 **Late Night Is Stunned by Trump’s New Stereotype**\
 `The president told attendees celebrating Hispanic Heritage Month at the White House to watch their step while touring the unfinished ballroom: “Only a Hispanic could survive that fall.”`\
 https://www.nytimes.com/2026/10/02/arts/television/late-night-trump-hispanic-stereotype.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
 **Mike Smith, Bubbles on ‘Trailer Park Boys,’ Has Sexual Assault Charge Dismissed**\
 `The Canadian cult comedy series announced that Mr. Smith, 54, would resume his involvement with the show.`\
 https://www.nytimes.com/2026/10/01/world/canada/mike-smith-trailer-park-boys-sexual-assault-charge.html
-
-**A Climate Change Rebrand**\
-`More politicians have stopped talking about the climate, but the green transition is still moving forward.`\
-https://www.nytimes.com/2026/10/01/world/climate-change-rebrand-renewables-flydubai.html
-
-**Hong Kong Movies to Add to Your Queue**\
-`We asked creative types with ties to the city to choose the films set there that made an impression.`\
-https://www.nytimes.com/2026/10/01/t-magazine/hong-kong-movies.html
-
-**Controversial Zimbabwe Tycoon Dies in Helicopter Crash**\
-`The controversial Zimbabwe tycoon Wicknell Chivayo died in a helicopter crash with several others from his rural homestead to the country’s capital. Mr. Chivayo was accused of building wealth through corruption, forming close relationships with African leaders.`\
-https://www.nytimes.com/video/world/africa/100000011187923/zimbabwe-businessman-wicknell-chivayo-killed-helicopter-crash.html
-
-**Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
-`The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
-https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\
