@@ -1,3 +1,7 @@
+**Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
+`After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
+
 **The C.D.C. Gutted, and Lives at Risk**\
 `Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
 https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-
 `As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
-**How Flydubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
+**How FlyDubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
 `A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.ht
 **How to Build a Super Bowl Champ**\
 `Plus, the Manchester City financial scandal and more.`\
 https://www.nytimes.com/2026/10/02/podcasts/seattle-seahawks-super-bowl.html
-
-**Where Voters Are Abandoning Trump, and Barriers to New Cancer Treatments**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/10/02/podcasts/voters-abandoning-trump-new-cancer-treatments.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

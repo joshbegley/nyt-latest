@@ -1,3 +1,11 @@
+**Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
+`After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
+
+**How FlyDubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
+`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html
+
 **The C.D.C. Gutted, and Lives at Risk**\
 `Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
 https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html

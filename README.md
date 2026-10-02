@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
+
 **Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
 `After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.htm
 **The Firestorm Over a Rape Allegation at Cornell**\
 `The New York Times has reviewed a trove of documents related to the case. Our reporter explains what we know.`\
 https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.html
-
-**How to Build a Super Bowl Champ**\
-`Plus, the Manchester City financial scandal and more.`\
-https://www.nytimes.com/2026/10/02/podcasts/seattle-seahawks-super-bowl.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
