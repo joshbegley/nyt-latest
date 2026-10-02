@@ -1,3 +1,11 @@
+**Trump is Considering a Ban on U.S. Diesel Exports. How Could That Strain Trading Partners?**\
+`Economies in Latin America and Europe rely on American diesel. Stopping exports could tip some countries into recession, hurting trade with the United States.`\
+https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-europe-brazil.html
+
+**New York City Ballet’s Gala: Stevie Nicks, Fashion and Dance. What Could Go Wrong?**\
+`New York City Ballet hosted its annual fashion gala, this season pairing three choreographers with designers. The faux pas really added up.`\
+https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-ballet-stevie-nicks.html
+
 **As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
 `The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
 https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-north-carolina-senate-race.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/10/02/movies/action-movies-streaming.html
 https://www.nytimes.com/2026/10/02/business/economy/jobs-report-fed-interest-rates.html
 
 **U.S. and Allies Agree to Release Diesel Reserves as Prices Soar**\
-`The Group of 7, which includes Britain, France, Japan and others, announced the release of 100 million barrels over four months, effective immediately.`\
+`The Group of 7, which includes Britain, France and Japan, announced the release of 100 million barrels over four months, effective immediately.`\
 https://www.nytimes.com/2026/10/02/business/diesel-reserves-g7.html
 
 **The Best Movies and TV Shows Coming to Netflix in October**\
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.h
 `Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
 
-**Blockades, Fireworks and Tear Gas: Young Protesters Are Rattling France**\
+**Student Protests Rattle France as Police Clashes Bring Blockades and Tear Gas**\
 `Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
 https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/02/technology/russian-propaganda-ai-war-songs.ht
 **Trump Is Getting Desperate. It Shows.**\
 `The Justice Department is trawling to find perpetrators on whom to pin conspiracies. Ordinary citizens are being ensnared.`\
 https://www.nytimes.com/2026/10/02/opinion/trump-target-ordinary-citizens.html
-
-**Readers Choose Their Top TV Shows of the 21st Century**\
-`The people have spoken. Here are their picks.`\
-https://www.nytimes.com/interactive/2026/arts/television/reader-votes-tv-shows-21st-century.html
-
-**Six Charts That Show Just How Much We Need A.I.**\
-`All the worry about artificial intelligence should not obscure this key point: If we don’t develop it, we’ll be a lot worse off.`\
-https://www.nytimes.com/2026/10/02/opinion/ai-tech-innovation.html
 

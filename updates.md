@@ -1,3 +1,11 @@
+**As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
+`The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
+https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-north-carolina-senate-race.html
+
+**The Mother’s Scream That Sent Passengers to the Rescue**\
+`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/mothers-scream-passengers-f.html
+
 **This Lemony Miso Cabbage Complements Any Main Dish**\
 `And more popular recipes from the week.`\
 https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html

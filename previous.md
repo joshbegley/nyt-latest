@@ -1,3 +1,11 @@
+**As Prospects Dim, G.O.P. Pulls Money Out of North Carolina Senate Race**\
+`The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
+https://www.nytimes.com/2026/10/02/us/as-prospects-dim-gop-pulls-money-out-of-north-carolina-senate-race.html
+
+**The Mother’s Scream That Sent Passengers to the Rescue**\
+`A badly wounded Indian pilot managed to unlock the cockpit door. Four Israeli men teamed up to overwhelm an attacker and avert disaster.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/mothers-scream-passengers-f.html
+
 **This Lemony Miso Cabbage Complements Any Main Dish**\
 `And more popular recipes from the week.`\
 https://www.nytimes.com/2026/10/02/dining/this-lemony-miso-cabbage-complements-any-main-dish.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/arts/television/reader-votes-tv-shows-2
 **Six Charts That Show Just How Much We Need A.I.**\
 `All the worry about artificial intelligence should not obscure this key point: If we don’t develop it, we’ll be a lot worse off.`\
 https://www.nytimes.com/2026/10/02/opinion/ai-tech-innovation.html
-
-**English Whisky Gets a Boost from the U.K., and Scots Are Not Amused**\
-`A growing cadre of English distillers have won protected status for their liquor. But Scotch producers fear that they’ll lose prestige.`\
-https://www.nytimes.com/2026/10/02/dining/drinks/english-whisky-uk.html
-
-**The Powerful Yet Fragile Force Propping Up Stocks and the Economy**\
-`The artificial intelligence boom has pushed up the stock market, even as interest rates have pulled it down, our columnist says.`\
-https://www.nytimes.com/2026/10/02/business/ai-stocks-bonds-economy.html
 
