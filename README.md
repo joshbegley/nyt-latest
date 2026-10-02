@@ -1,3 +1,11 @@
+**Unusual Issues at War Court Stand Out as a Case Finally Heads to Trial**\
+`Prosecutors want remote testimony for witnesses unable or unwilling to travel to Guantánamo. The defense wants jurors to be told that, guilty or innocent, the defendant will not go free.`\
+https://www.nytimes.com/2026/10/02/us/politics/guantanamo-uss-cole-case.html
+
+**Hundreds of French Schools Shut as Student Protests Escalate**\
+`Student protests against teacher shortages and overcrowding kept hundreds of schools shut across France on Friday as officials warned that the demonstrations had descended into “urban violence.”`\
+https://www.nytimes.com/video/world/europe/100000011189631/france-schools-student-protests.html
+
 **Powerful Wildfires Require a New Approach, California Report Finds**\
 `A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
 https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
 **China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
 `China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
 https://www.nytimes.com/2026/10/02/business/china-exports-diesel-energy.html
-
-**Indian Pilot Stabbed on FlyDubai Flight Recalls Sudden Attack**\
-`Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
-https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india-smit-machchhar.html
-
-**In the Stacks**\
-`We introduce you to librarians across the country.`\
-https://www.nytimes.com/2026/10/02/briefing/in-the-stacks.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

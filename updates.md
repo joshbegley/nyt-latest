@@ -1,3 +1,7 @@
+**Powerful Wildfires Require a New Approach, California Report Finds**\
+`A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
+https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
+
 **Is It Time for Belts?**\
 `A bit of fashion that serves more than one need.`\
 https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
