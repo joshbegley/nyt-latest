@@ -1,3 +1,7 @@
+**Ken Urker, Partner of Gypsy Rose Blanchard, Is Found Dead in Louisiana**\
+`Mr. Urker, 34, who shared a child with Ms. Blanchard, was found unresponsive in a home on Thursday when deputies conducted a welfare check.`\
+https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker.html
+
 **Why Google Wants to Send a Data Center to Space**\
 `The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-s
 **Student Protests Rattle France as Police Clashes Bring Blockades and Tear Gas**\
 `Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
 https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
-
-**Dolly Parton’s Country-Disco Sound Is Back**\
-`The country singer Miranda Lambert discusses the sounds and inspirations of her new album, “Crisco,” this week on “Popcast.”`\
-https://www.nytimes.com/video/podcasts/100000011183063/dolly-partons-country-disco-sound-is-back.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
