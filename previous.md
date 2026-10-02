@@ -1,3 +1,11 @@
+**Ukraine Reports First Combat Use of Its Own Ballistic Missile**\
+`While the missile fired on Thursday has a limited range, Kyiv is developing a larger weapon that could strike Moscow.`\
+https://www.nytimes.com/2026/10/02/world/europe/ukraine-ballistic-missile-fp-7.html
+
+**Fighting Intensifies in Yemen, Raising Fears Further of All-Out War**\
+`Yemen’s capital, Sanaa, was bombarded overnight, after government forces reported some of the most intense clashes in years around Taiz, the country’s third largest city.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/yemen-houthis-saudi-arabia-sanaa-taiz.html
+
 **Blockades, Fireworks and Tear Gas: Young Protesters Are Rattling France**\
 `Days of unrest have affected more than 1,000 schools across France as high school students push for better standards.`\
 https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/10/02/realestate/choose-your-favorite-700000-home-i
 **This Mistake Doomed Biden. Trump Is Falling Into the Same Trap.**\
 `When leaders ignore people’s lived experience, their political messaging collapses.`\
 https://www.nytimes.com/2026/10/02/opinion/trump-biden-economic-message.html
-
-**Tariffs Are Making Instruments So Expensive, School Music Programs Are at Risk**\
-`When a single cello can cost $1,000 and a tuba $9,000, tariffs are straining meager band and orchestra budgets.`\
-https://www.nytimes.com/2026/10/02/business/economy/tariffs-instruments-school-music-programs.html
 
