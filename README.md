@@ -1,3 +1,7 @@
+**Bridal Shop Owner Who Put Child Onto a Coat Hook Cleared by Court**\
+`The “horseplay” was misguided, said the Canadian judge, but not malicious.`\
+https://www.nytimes.com/2026/10/02/world/canada/newfoundland-bridal-shop-owner-boy-coat-hook.html
+
 **What to Know About Fighting Between Ethiopia and Rebels in Tigray**\
 `The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt the United Arab Emirates and Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/africa/ethiopia-tigray-conflict.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000011189941/ai-cute-or-maybe-catastro
 **Why U.S. Diesel Is So Important to Major Trading Partners**\
 `Economies in Latin America and Europe rely on American diesel. Stopping exports could tip some countries into recession, hurting trade with the United States.`\
 https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-europe-brazil.html
-
-**New York City Ballet’s Gala: Stevie Nicks, Fashion and Dance. What Could Go Wrong?**\
-`New York City Ballet hosted its annual fashion gala, this season pairing three choreographers with designers. The faux pas really added up.`\
-https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-ballet-stevie-nicks.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\

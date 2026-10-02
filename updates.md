@@ -1,3 +1,7 @@
+**What to Know About Fighting Between Ethiopia and Rebels in Tigray**\
+`The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt the United Arab Emirates and Saudi Arabia.`\
+https://www.nytimes.com/2026/10/02/world/africa/ethiopia-tigray-conflict.html
+
 **How Well Do You Know the Best TV Shows of the 21st Century?**\
 `Take this quiz to find out.`\
 https://www.nytimes.com/interactive/2026/10/02/arts/television/best-tv-series-quiz.html

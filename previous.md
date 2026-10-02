@@ -1,3 +1,7 @@
+**What to Know About Fighting Between Ethiopia and Rebels in Tigray**\
+`The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt the United Arab Emirates and Saudi Arabia.`\
+https://www.nytimes.com/2026/10/02/world/africa/ethiopia-tigray-conflict.html
+
 **How Well Do You Know the Best TV Shows of the 21st Century?**\
 `Take this quiz to find out.`\
 https://www.nytimes.com/interactive/2026/10/02/arts/television/best-tv-series-quiz.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-eur
 **New York City Ballet’s Gala: Stevie Nicks, Fashion and Dance. What Could Go Wrong?**\
 `New York City Ballet hosted its annual fashion gala, this season pairing three choreographers with designers. The faux pas really added up.`\
 https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-ballet-stevie-nicks.html
-
-**Republicans Pull Money From North Carolina Senate Race As Midterm Prospects Dim**\
-`As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
-https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
