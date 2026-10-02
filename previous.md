@@ -1,3 +1,7 @@
+**Paris Review: Chloé and Balenciaga**\
+`Big questions hang over both brands.`\
+https://www.nytimes.com/2026/10/02/style/chloe-balenciaga-pfw.html
+
 **Review: Tom Ford and the Problem of ‘Sexy’**\
 `In an age of naked dressing, what does titillation look like?`\
 https://www.nytimes.com/2026/10/02/style/tom-ford-haider-ackermann-naked-dressing.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/100000011187287/christa-pike-interview-lethal-i
 **Art Gallery Shows to See in October**\
 `This week in Newly Reviewed, Travis Diehl covers Celeste Dupuy-Spencer’s visionary pictures, Marc Kokopeli’s jewelry store, Michael Assiff’s depictions of environmental spoilage, and Alfredo Jaar’s riffs on American logos.`\
 https://www.nytimes.com/2026/10/01/arts/art-gallery-shows-to-see-in-october.html
-
-**Halloween Costumes Ideas for 2026**\
-`Options for couples, groups and anyone who has always wanted a reason to dress like a famous sheep.`\
-https://www.nytimes.com/2026/10/01/style/halloween-costume-ideas.html
 
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\

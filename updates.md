@@ -1,3 +1,7 @@
+**Paris Review: Chloé and Balenciaga**\
+`Big questions hang over both brands.`\
+https://www.nytimes.com/2026/10/02/style/chloe-balenciaga-pfw.html
+
 **Review: Tom Ford and the Problem of ‘Sexy’**\
 `In an age of naked dressing, what does titillation look like?`\
 https://www.nytimes.com/2026/10/02/style/tom-ford-haider-ackermann-naked-dressing.html
