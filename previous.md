@@ -1,3 +1,7 @@
+**N.Y. Lawmakers and Victims Push to Change Rape Law in Intoxication Cases**\
+`Accusations that Cornell University students assaulted a woman while she was impaired have renewed calls to amend the law.`\
+https://www.nytimes.com/2026/10/01/nyregion/new-york-rape-law-cornell.html
+
 **Cornell’s Handling of Sexual Assault Case Questioned**\
 `Our reporter Emma Goldberg visits the Cornell University campus to speak with students after prosecutors reopened the case of a woman who said she was raped at a fraternity house in 2024. None of the accused men have been charged with a crime, and all have denied wrongdoing.`\
 https://www.nytimes.com/video/nyregion/100000011183481/cornells-handling-of-sexual-assault-case-questioned.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/01/technology/amazon-slow-deliveries-dc.html
 **What’s Going On in This Picture? | Oct. 5, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/01/learning/whats-going-on-in-this-picture-oct-5-2026.html
-
-**Man Is Fatally Stabbed on the Subway in a Random Attack, Police Say**\
-`An internal police report referred to the man charged in the killing, which happened in Queens during the evening rush hour, as emotionally disturbed.`\
-https://www.nytimes.com/2026/10/01/nyregion/queens-subway-stabbing-death.html
 
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\

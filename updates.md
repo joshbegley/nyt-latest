@@ -1,3 +1,7 @@
+**N.Y. Lawmakers and Victims Push to Change Rape Law in Intoxication Cases**\
+`Accusations that Cornell University students assaulted a woman while she was impaired have renewed calls to amend the law.`\
+https://www.nytimes.com/2026/10/01/nyregion/new-york-rape-law-cornell.html
+
 **Hochul Names Letitia James as Special Prosecutor in Cornell Case**\
 `Gov. Kathy Hochul appointed the state attorney general to investigate a former Cornell University student’s allegation of rape. The woman has sued seven men in connection with the alleged assault.`\
 https://www.nytimes.com/2026/10/01/nyregion/letitia-james-cornell-rape-prosecutor.html
