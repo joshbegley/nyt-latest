@@ -1,3 +1,7 @@
+**Sales of Hulking Pickups and S.U.V.s Sag as Fuel Prices Soar**\
+`Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
+https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
+
 **Missouri Man Discovers Michael McDonald of the Doobie Brothers Is His Biological Father**\
 `Michael Goessling’s first phone call with his biological father brought a shock: He was speaking to Michael McDonald of the Doobie Brothers.`\
 https://www.nytimes.com/2026/10/02/us/michael-mcdonald-doobie-brothers-biological-son.html
