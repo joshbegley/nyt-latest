@@ -1,3 +1,19 @@
+**Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
+`Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/iran-strait-hormuz-attacks-oil.html
+
+**Quote of the Day: Caution: Explosive Mix in Philadelphia**\
+`Quotation of the Day for Friday, October 2, 2026.`\
+https://www.nytimes.com/2026/10/02/pageoneplus/quote-of-the-day-caution-explosive-mix-in-philadelphia.html
+
+**A Front Line at the Border: How Russia Uses Migrants as Weapons Against Europe**\
+`The scheme is part of Russia’s larger strategy for sowing discord in the West, if more subtle than other recent operations blamed on the Kremlin.`\
+https://www.nytimes.com/2026/10/02/world/europe/latvia-immigration-russia.html
+
+**China’s Push into A.I. Has Led to a Problem: Too Much Usage**\
+`As citizens embrace the technology for entertainment, babysitting and even farming advice, the government is stepping up efforts to set limits.`\
+https://www.nytimes.com/2026/10/02/world/asia/china-ai-overuse.html
+
 **Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine**\
 `Ukraine showed European partners what it said were intercepted Russian plans to cut off major cities from power, heat and water this winter.`\
 https://www.nytimes.com/2026/10/02/world/europe/russia-ukraine-winter.html
@@ -174,18 +190,6 @@ https://www.nytimes.com/2026/10/01/dining/restaurant-reopenings.html
 `A climate scientist was one of 20 recipients of a “no-strings-attached” $800,000 stipend.`\
 https://www.nytimes.com/2026/10/01/climate/climate-science-macarthur.html
 
-**Cornell Documents Raise Questions About Handling of Rape Allegations**\
-`More than 1,000 pages of documents obtained by The New York Times show how a woman identified as Jane Doe gradually concluded that what had happened to her at a fraternity party was a crime.`\
-https://www.nytimes.com/2026/10/01/nyregion/cornell-university-case-jane-doe-investigation.html
-
-**What A.I. Utopia Could Look Like**\
-`How could superintelligence change our daily lives? The philosopher Nick Bostrom mulls over whether A.I. is building a future that we actually want.`\
-https://www.nytimes.com/video/opinion/100000011179082/what-ai-utopia-could-look-like.html
-
-**Pileup Involving 15 Tractor-Trailers Shutters I-95 in South Carolina**\
-`The crash also included 50 cars and resulted in at least one serious injury, fire officials said. There were no fatalities, but multiple people were injured.`\
-https://www.nytimes.com/2026/10/01/us/south-carolina-95-crash.html
-
 **Tennessee Inmate in Critical Condition After ‘Torturous’ Botched Execution, Lawyer Says**\
 `The inmate, Christa Pike, is “alive right now” after surviving an attempt to execute her by lethal injection, her lawyer said. He called on Gov. Bill Lee to reduce her sentence to life in prison.`\
 https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/01/us/christa-pike-tennessee-execution
 **Red-State Visits by Trump and Vance Underscore G.O.P.’s Midterm Worries**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/01/us/midterms-elections
-
-**Investigators Seek to Establish Motive in FlyDubai Attack**\
-`The United Arab Emirates said it would lead the investigation, including into possible links to terrorism. Prime Minister Benjamin Netanyahu of Israel said the attacker had undergone “Islamist radical indoctrination,” though he did not elaborate.`\
-https://www.nytimes.com/live/2026/10/01/world/flydubai-flight-israel-plane-pilots
 

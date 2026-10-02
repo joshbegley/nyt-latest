@@ -1,3 +1,19 @@
+**Oil Flows Are Up, but Iran Is Still Menacing the Strait of Hormuz**\
+`Iran has been launching drones and missiles at commercial ships in the waterway each week, though it has often failed to strike its targets, according to a Western security official.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/iran-strait-hormuz-attacks-oil.html
+
+**Quote of the Day: Caution: Explosive Mix in Philadelphia**\
+`Quotation of the Day for Friday, October 2, 2026.`\
+https://www.nytimes.com/2026/10/02/pageoneplus/quote-of-the-day-caution-explosive-mix-in-philadelphia.html
+
+**A Front Line at the Border: How Russia Uses Migrants as Weapons Against Europe**\
+`The scheme is part of Russia’s larger strategy for sowing discord in the West, if more subtle than other recent operations blamed on the Kremlin.`\
+https://www.nytimes.com/2026/10/02/world/europe/latvia-immigration-russia.html
+
+**China’s Push into A.I. Has Led to a Problem: Too Much Usage**\
+`As citizens embrace the technology for entertainment, babysitting and even farming advice, the government is stepping up efforts to set limits.`\
+https://www.nytimes.com/2026/10/02/world/asia/china-ai-overuse.html
+
 **Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine**\
 `Ukraine showed European partners what it said were intercepted Russian plans to cut off major cities from power, heat and water this winter.`\
 https://www.nytimes.com/2026/10/02/world/europe/russia-ukraine-winter.html
