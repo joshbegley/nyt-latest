@@ -1,3 +1,7 @@
+**Why Google Wants to Send a Data Center to Space**\
+`The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
+
 **Ken Urker, Partner of Gypsy Rose Blanchard, Is Found Dead in Louisiana**\
 `Mr. Urker, 34, who shared a child with Ms. Blanchard, was found unresponsive in a home on Thursday when deputies conducted a welfare check.`\
 https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker.html
