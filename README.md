@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/10/02/world/americas/us-diesel-ban-trump-mexico-eur
 https://www.nytimes.com/2026/10/02/arts/dance/review-fashion-gala-new-york-city-ballet-stevie-nicks.html
 
 **Republicans Pull Money From North Carolina Senate Race As Midterm Prospects Dim**\
-`The Senate Leadership Fund is diverting money to Kansas, which has become a growing concern for the party as it seeks to hold its majority.`\
+`As the Republicans try to hold their majority, the Senate Leadership Fund is diverting resources to Kansas, which has become a growing concern for the party.`\
 https://www.nytimes.com/2026/10/02/us/midterms-election-republicans-north-carolina-kansas.html
 
 **How Flydubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight**\
