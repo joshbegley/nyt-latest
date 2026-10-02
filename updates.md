@@ -1,3 +1,7 @@
+**Police in India Detain Hundreds Rallying Against ‘Vote Theft’**\
+`Opposition groups are demanding the resignation of the election chief over the removal of 130 million voters from the rolls. The government denies influencing the exercise.`\
+https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html
+
 **Live Updates: Job Growth Cools and Unemployment Rises**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
