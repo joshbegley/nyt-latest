@@ -1,3 +1,27 @@
+**The Firestorm Over a Rape Allegation at Cornell**\
+`The New York Times has reviewed a trove of documents related to the case. Our reporter explains what we know.`\
+https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.html
+
+**How to Build a Super Bowl Champ**\
+`Plus, the Manchester City financial scandal and more.`\
+https://www.nytimes.com/2026/10/02/podcasts/seattle-seahawks-super-bowl.html
+
+**Where Voters Are Abandoning Trump, and Barriers to New Cancer Treatments**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/02/podcasts/voters-abandoning-trump-new-cancer-treatments.html
+
+**NYT Connections Answers for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/connections-companion-1210.html
+
+**Today’s Wordle Hints for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/wordle-review-1932.html
+
+**NYT Strands Hints for October 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 3, 2026.`\
+https://www.nytimes.com/2026/10/02/crosswords/strands-sidekick-944.html
+
 **Live Updates: Fresh Jobs Figures to Bring Insights on U.S. Economy**\
 `The job market has been strong and unemployment steady as inflation has unsettled markets and raised costs for consumers.`\
 https://www.nytimes.com/live/2026/10/02/business/jobs-report-economy
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/10/02/learning/how-much-of-your-life-do-you-share-o
 **In This Utopian Video Game, It’s Always Sunny in Pittsburgh**\
 `An academic’s miniature Grand Theft Auto goes beyond critiquing capitalism to show what might come after.`\
 https://www.nytimes.com/2026/10/02/arts/future-no-thanks-paolo-pedercini.html
-
-**How Weird is ‘Weird Girl Lit’?**\
-`Romantic delusion. Social alienation. Body horror. Just a few of the elements celebrated online — if not always by the writers who earn the label.`\
-https://www.nytimes.com/2026/10/02/books/review/weird-girl-literature.html
-
-**Best Werewolf Romance Books, According to Laurie Gilmore**\
-`The best-selling author Laurie Gilmore recommends books that take all the best bits of a literary love story and take them from fun to feral.`\
-https://www.nytimes.com/2026/10/02/books/werewolf-romance-books.html
-
-**Inside the Trump Administration’s U.F.O. Hunt**\
-`Finding evidence of alien life would be “the biggest discovery ever made by humanity,” one expert said. But so far, there’s a lot of blurry photos and unconfirmed reports.`\
-https://www.nytimes.com/2026/10/02/us/trump-ufo-files-uap-council.html
-
-**A Shot Rang Out. M.L.K. Went Down. And a Reporter’s Instincts Kicked In.**\
-`Earl Caldwell was staying one floor down from Martin Luther King Jr. when the civil rights leader was killed.`\
-https://www.nytimes.com/2026/10/02/us/mlk-shot-caldwell.html
-
-**The New York Times News Quiz, October 2, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/10/02/briefing/weekly-news-quiz.html
-
-**Six Questions From President Trump’s U.F.O. Files**\
-`Think you know U.F.O.s? Test your knowledge.`\
-https://www.nytimes.com/quiz/2026/10/02/us/trump-ufo-quiz.html
 
