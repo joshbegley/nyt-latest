@@ -1,3 +1,15 @@
+**‘The Headlines’ News Quiz: Oct. 2, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
+
+**A.I. Agents: Cute, Cuddly and Maybe Catastrophically Dangerous?**\
+`“It’s going to be gnarly for a little while.”`\
+https://www.nytimes.com/2026/10/02/podcasts/hardfork-regulation-agents-muse.html
+
+**China Resumes Curbs on Fuel Exports, Tightening Global Energy Markets**\
+`China has started limiting exports of refined products again as its own inventories of crude oil and refined products have dwindled.`\
+https://www.nytimes.com/2026/10/02/business/china-exports-diesel-energy.html
+
 **‘I Couldn’t Let All of Them Die’: Pilot on FlyDubai Flight Recalls Sudden Attack**\
 `Capt. Smit Machchhar, who was stabbed by his co-pilot midair between Dubai and Tel Aviv, said he “had to act” to prevent a crash despite serious injuries.`\
 https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/02/realestate/a-visit-to-an-actor-and-choreograp
 **Truckers Are ‘Just Trying to Hang On’ When a Fill-Up Tops $1,000**\
 `Truckers are among the hardest hit by the soaring cost of diesel fuel. High prices are forcing some to stay on the road for months and others to park their rigs.`\
 https://www.nytimes.com/2026/10/02/us/truckers-diesel-costs.html
-
-**A ‘Family Disease’ Stalked the Sedgwicks. He Hoped to Escape It.**\
-`The writer John Sedgwick was born into an illustrious family, but privilege was only part of the story.`\
-https://www.nytimes.com/2026/10/02/books/john-sedgwick-dead.html
-
-**Is a Trump Account the Best Way to Invest for Your Child? Try Our Calculator.**\
-`Families also have options like 529 college plans and custodial brokerage accounts. Find out which one works best for you.`\
-https://www.nytimes.com/2026/10/02/upshot/trump-account-kids-529-utma-calculator.html
-
-**The Headaches Disrupted Her Life**\
-`The woman’s severe pain seemed to ease only when she was lying down. What would cause such a thing?`\
-https://www.nytimes.com/2026/10/02/well/headaches-brain-sag-spinal-fluid-leak.html
 
