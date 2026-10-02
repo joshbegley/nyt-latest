@@ -1,3 +1,7 @@
+**As Gas Prices Rose, Sales of Larger Vehicles Slid**\
+`Sales of big pickup trucks and sport utility vehicles have dipped as more Americans buy hybrids and smaller cars.`\
+https://www.nytimes.com/2026/10/02/business/auto-sales-pickup-trucks-suvs.html
+
 **At New York City Ballet’s Fall Gala, Sarah Jessica Parker and Steve Nicks Bring the Fairy Dust**\
 `There were cascading ribbons, a flower crown and a “Landslide”-inspired performance at the New York City Ballet’s annual fall fashion gala.`\
 https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.html
