@@ -1,3 +1,15 @@
+**The Kennedy Center Honors Will Be Held at Capital One Arena**\
+`The center is moving its marquee event off site as it pushes for court approval of a plan to close its main building for a two-year renovation project.`\
+https://www.nytimes.com/2026/10/02/arts/kennedy-center-honors-capital-one-arena.html
+
+**Trump to Name Jay Clayton to Serve as A.I. Czar**\
+`The director of national intelligence will help develop new policies, and potentially regulations, for the rapidly evolving technology.`\
+https://www.nytimes.com/2026/10/02/us/politics/trump-jay-clayton-ai-czar.html
+
+**The Head of NATO Thinks President Trump ‘Deserves All the Praise’**\
+`Lulu Garcia-Navarro speaks with Mark Rutte, NATO’s secretary general, about why he wants everyone to stop questioning President Trump’s commitment to the alliance.`\
+https://www.nytimes.com/video/podcasts/100000011139807/the-head-of-nato-thinks-president-trump-deserves-all-the-praise.html
+
 **The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
 `Jonathan Greenblatt discusses the position that anti-Zionism is antisemitism, his work with the Trump administration and how he views the debate over campus free speech.`\
 https://www.nytimes.com/video/podcasts/100000011141846/the-head-of-the-adl-on-antisemitism-anti-zionism-and-free-speech.html
