@@ -35,7 +35,7 @@ https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-c
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
 
 **Live Updates: Hochul to Address Cornell Case After Appointing Special Prosecutor**\
-`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were set to provide an update on the case Friday morning.`\
+`Gov. Kathy Hochul of New York appointed Letitia James, the state attorney general, to investigate a former Cornell University student’s rape allegation. They were providing an update on the case Friday morning.`\
 https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
 
 **U.S. Suspends Consular Services in Brazil on Eve of Elections**\
