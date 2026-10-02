@@ -1,3 +1,7 @@
+**Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage**\
+`Joshua Kerry, a 28-year-old British man accused of killing the former lawmaker Ann Widdecombe, was charged on Friday.`\
+https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html
+
 **Judge Throws Out Another Confession in Sept. 11 Case**\
 `Prosecutors have long considered the defendants’ admissions during interrogations in 2007 to be their best evidence.`\
 https://www.nytimes.com/2026/10/02/us/politics/confession-sept-11-terrorism-case.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/02/style/new-york-city-ballet-fall-fashion-gala.
 **Coast Guard Says It Stopped Ships Carrying Fuel to Cuba**\
 `The Coast Guard has intercepted two small boats it says was carrying illegal fuel to Cuba as the United States enforces an fuel blockade aimed at Cuba’s Communist government.`\
 https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.html
-
-**Pay Advance Apps May Be Costlier Than Workers Think**\
-`The loans tide borrowers over until their next paycheck. The apps offer no-cost options, but most users end up paying high fees, a report finds.`\
-https://www.nytimes.com/2026/10/02/your-money/pay-advance-apps-fees.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
