@@ -1,3 +1,7 @@
+**Airlines Set to Bring Israelis Back from U.A.E. After FlyDubai Cockpit Attack**\
+`The attack, on a flight from Dubai to Tel Aviv, halted the only direct service between the two cities since the war in Iran disrupted air traffic.`\
+https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html
+
 **The Firestorm Over a Rape Allegation at Cornell**\
 `The New York Times has reviewed a trove of documents related to the case. Our reporter explains what we know.`\
 https://www.nytimes.com/2026/10/02/podcasts/the-daily/rape-allegation-cornell.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/02/us/politics/aipac-midterm-elections-spending-
 **How Much of Your Life Do You Share on Social Media?**\
 `“If you take a summer vacation and don’t post about it, did it even happen?” a writer asks, jokingly. Do you ever find yourself asking that question?`\
 https://www.nytimes.com/2026/10/02/learning/how-much-of-your-life-do-you-share-on-social-media.html
-
-**In This Utopian Video Game, It’s Always Sunny in Pittsburgh**\
-`An academic’s miniature Grand Theft Auto goes beyond critiquing capitalism to show what might come after.`\
-https://www.nytimes.com/2026/10/02/arts/future-no-thanks-paolo-pedercini.html
 
