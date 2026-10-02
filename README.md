@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-resea
 `David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
 https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
 
-**Christa Pike Is Unconscious and on Ventilator After Execution Attempt**\
+**Christa Pike Was Unconscious and on Ventilator After Execution Attempt**\
 `The Tennessee inmate was brought to a hospital with burned and blistered arms after an unsuccessful attempt at lethal injection, her lawyers said in a court filing.`\
 https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
 

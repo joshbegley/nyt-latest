@@ -1,3 +1,11 @@
+**Judge Throws Out Another Confession in Sept. 11 Case**\
+`Prosecutors have long considered the defendants’ admissions during interrogations in 2007 to be their best evidence.`\
+https://www.nytimes.com/2026/10/02/us/politics/confession-sept-11-terrorism-case.html
+
+**Mass Shootings Surge in South Africa as Illegal Guns Flood Streets**\
+`The country was shaken after nearly 30 people were killed in two separate mass shootings. South Africans are demanding greater government intervention.`\
+https://www.nytimes.com/2026/10/02/world/africa/south-africa-mass-shootings-guns.html
+
 **Read the Filing**\
 `Christa Pike’s lawyers said in a court filing that she was brought to a hospital with burned and blistered arms after her botched execution.`\
 https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
