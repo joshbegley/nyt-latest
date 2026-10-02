@@ -1,3 +1,7 @@
+**Cornell Students Demand Accountability**\
+`At a public hearing on sexual assault at Cornell University, some students shared personal stories and others demanded more accountability.`\
+https://www.nytimes.com/video/us/100000011189136/cornell-students-sexual-assault-rape.html
+
 **Paris Review: Chloé and Balenciaga**\
 `Big questions hang over both brands.`\
 https://www.nytimes.com/2026/10/02/style/chloe-balenciaga-pfw.html
