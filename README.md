@@ -1,3 +1,15 @@
+**National Science Foundation Diverted $1.4 Billion in Science Funds Mandated by Congress**\
+`The move, affecting about one-fifth of the National Science Foundation’s primary research budget, is the latest sign of how the White House is asserting more control over grants.`\
+https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-research-funds.html
+
+**Former Florida Rep. David Rivera Sentenced to 10 Years in Venezuela Lobbying Case**\
+`David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
+https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
+
+**Christa Pike Is Unconscious and on Ventilator After Execution Attempt**\
+`The Tennessee inmate was brought to a hospital with burned and blistered arms after an unsuccessful attempt at lethal injection, her lawyers said in a court filing.`\
+https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
+
 **Man Accused of Sex Assault Seeks to Expunge Cornell’s Finding of Related Violation**\
 `A panel found the man responsible for attempted sexual exploitation, barred him from contact with the woman and required him to take a class and write a paper.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appeal.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/asia/100000011189520/flydubai-indian-pilot-c
 **The Latest Challenge to Data Centers? Restive Investors.**\
 `Rising government bond yields are beginning to upend the economics around the artificial intelligence build-out.`\
 https://www.nytimes.com/2026/10/02/business/dealbook/data-center-ai-bonds.html
-
-**Hochul Rebukes Prosecutor’s Handling of Cornell Case**\
-`“In what world would the police” not elevate allegations of a rape to the district attorney, Gov. Kathy Hochul of New York asked.`\
-https://www.nytimes.com/live/2026/10/02/nyregion/cornell-rape-case-letitia-james
-
-**U.S. Suspends Consular Services in Brazil on Eve of Elections**\
-`The State Department cited unspecified security concerns in announcing the unusual move. A closely fought presidential election in Brazil takes place on Sunday.`\
-https://www.nytimes.com/2026/10/02/world/americas/brazil-us-consulate-elections.html
-
-**‘The Headlines’ News Quiz: Oct. 2, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/02/the-headlines/the-headlines-news-quiz-oct-2-2026.html
 
 **Job Growth Cools and Unemployment Ticks Higher**\
 `U.S. employers added 29,000 jobs in September and the unemployment rate rose to 4.2 percent, as inflation has maintained pressure on markets and raised costs.`\
