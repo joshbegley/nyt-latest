@@ -1,3 +1,7 @@
+**Tracking Down Joel Meyerowitz’s ‘Wonderfully Crumpled’ Pork Pie Hat**\
+`We help a reader track down the photographer Joel Meyerowitz’s pork pie.`\
+https://www.nytimes.com/2026/10/03/t-magazine/joel-meyerowitz-hat.html
+
 **New Police Footage Shows Luigi Mangione’s Arrest**\
 `Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
 https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011180445/chris-rock-ive-been-doing
 **Chris Rock on False Accusations and Cancel Culture**\
 `On “The Interview,” Chris Rock talked about how wrongful convictions damage lives, particularly for Black men.`\
 https://www.nytimes.com/video/podcasts/100000011180444/chris-rock-on-false-accusations-and-cancel-culture.html
-
-**Chris Rock on the Rich-Poor Divide in Liberal L.A.**\
-`On “The Interview,” Chris Rock talked about his new movie, “Misty Green.” One of the themes in the film is the wealth disparity on display in Los Angeles.`\
-https://www.nytimes.com/video/podcasts/100000011180441/chris-rock-on-the-rich-poor-divide-in-liberal-la.html
 

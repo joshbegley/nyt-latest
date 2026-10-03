@@ -1,3 +1,7 @@
+**New Police Footage Shows Luigi Mangione’s Arrest**\
+`Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
+https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
+
 **Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
 `The plane, a Gulfstream G100 with six people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
