@@ -1,3 +1,11 @@
+**Whale Batters a Yacht, Leaving Its Crew Stranded for 18 Hours**\
+`Four people were rescued after being adrift in a life raft in the South Pacific. One of them said he thought he had a better chance of winning the lottery than of being hit by a whale.`\
+https://www.nytimes.com/2026/10/03/world/australia/sperm-whales-sink-yacht-sailors-rescued.html
+
+**The Very Online Push for Pen Pals**\
+`Pen pals — ones you’ve never met in person — are part of the revival of all things analog. There are even matchmakers prepared to find you one.`\
+https://www.nytimes.com/2026/10/03/style/em-j-staples-tiktok-matchmaker-pen-pals.html
+
 **One of My Father’s Caregivers Asked for Money. Should I Give It to Him?**\
 `He asked if we could “sponsor” him for a course that would help further his career in health care.`\
 https://www.nytimes.com/2026/10/03/magazine/caregiver-money-tuition-ethics.html

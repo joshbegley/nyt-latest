@@ -1,3 +1,7 @@
+**Whale Batters a Yacht, Leaving Its Crew Stranded for 18 Hours**\
+`Four people were rescued after being adrift in a life raft in the South Pacific. One of them said he thought he had a better chance of winning the lottery than of being hit by a whale.`\
+https://www.nytimes.com/2026/10/03/world/australia/sperm-whales-sink-yacht-sailors-rescued.html
+
 **One of My Father’s Caregivers Asked for Money. Should I Give It to Him?**\
 `He asked if we could “sponsor” him for a course that would help further his career in health care.`\
 https://www.nytimes.com/2026/10/03/magazine/caregiver-money-tuition-ethics.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/10/03/us/larry-krasner-philadelphia-district-attorn
 `Anand Giridharadas has written about the global elite and political persuasion. His new book explores a tragic day on the subway.`\
 https://www.nytimes.com/2026/10/03/style/anand-giridharadas-man-in-the-mirror.html
 
-**How Social Media Is Sparking the Return of Pen Pals**\
+**The Very Online Push for Pen Pals**\
 `Pen pals — ones you’ve never met in person — are part of the revival of all things analog. There are even matchmakers prepared to find you one.`\
 https://www.nytimes.com/2026/10/03/style/em-j-staples-tiktok-matchmaker-pen-pals.html
 
 **In India, a Food Inspector Sparks Fear in Mumbai Restaurants**\
 `Tukaram Mundhe’s surprise raids of Mumbai kitchens have made him an unlikely celebrity and set off a conversation about food standards in India.`\
 https://www.nytimes.com/2026/10/03/world/asia/tukaram-mundhe-india-mumbai-food-raids.html
-
-**What We Learned About American Teenagers Supplying Guns to Cartels**\
-`Our reporting revealed how Mexican criminal groups are relying on teenagers and young adults in border states like Arizona to help supply their weapons.`\
-https://www.nytimes.com/2026/10/03/world/americas/american-teenage-gun-traffickers.html
 
