@@ -1,3 +1,19 @@
+**Understanding Canada’s Europe Pivot**\
+`You sent us your questions about the prime minister’s plan to form a closer relationship with the European Union. Our Canada bureau chief answers them.`\
+https://www.nytimes.com/2026/10/03/world/canada/carney-canada-european-union-trade-currency.html
+
+**NYT Connections Answers for October 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/connections-companion-1211.html
+
+**Today’s Wordle Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/wordle-review-1933.html
+
+**NYT Strands Hints for October 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/strands-sidekick-945.html
+
 **In Texas, Talarico Inspires a Recurring Blue-Tinted Dream**\
 `After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
 https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html

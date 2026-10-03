@@ -1,3 +1,19 @@
+**Understanding Canada’s Europe Pivot**\
+`You sent us your questions about the prime minister’s plan to form a closer relationship with the European Union. Our Canada bureau chief answers them.`\
+https://www.nytimes.com/2026/10/03/world/canada/carney-canada-european-union-trade-currency.html
+
+**NYT Connections Answers for October 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/connections-companion-1211.html
+
+**Today’s Wordle Hints for September 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/wordle-review-1933.html
+
+**NYT Strands Hints for October 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
+https://www.nytimes.com/2026/10/03/crosswords/strands-sidekick-945.html
+
 **In Texas, Talarico Inspires a Recurring Blue-Tinted Dream**\
 `After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
 https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-crosstabs.
 **Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
 `Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-toplines.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
-`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-crosstabs.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
-`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-crosstabs.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
-`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-toplines.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-toplines.html
 
