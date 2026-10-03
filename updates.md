@@ -1,3 +1,7 @@
+**Chris Rock Has Been Thinking About Forgiveness**\
+`The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
+https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
+
 **Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
 `A proposal to bolster relations with the Kremlin through the purchase of Russian energy assets is striking even for an administration that regularly mixes personal business interests with foreign policy.`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-takeaways.html

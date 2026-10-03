@@ -1,3 +1,7 @@
+**FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
+`The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
+
 **Chris Rock Has Been Thinking About Forgiveness**\
 `The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-cross
 **Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
 `Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-crosstabs.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
-`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-toplines.html
 

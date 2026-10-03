@@ -1,3 +1,7 @@
+**Chris Rock Has Been Thinking About Forgiveness**\
+`The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
+https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
+
 **Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
 `A proposal to bolster relations with the Kremlin through the purchase of Russian energy assets is striking even for an administration that regularly mixes personal business interests with foreign policy.`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-cross
 **Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
 `Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-toplines.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
-`Results of a New York Times/Siena poll conducted among 504 voters from Sept. 24 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-alaska-poll-crosstabs.html
 
