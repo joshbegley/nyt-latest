@@ -1,3 +1,7 @@
+**How Trump Directed Tax Dollars to Ads Praising Him**\
+`President Trump personally directed the use of taxpayer money for ads praising his presidency, according to people familiar with the matter. Our White House correspondent, Maggie Haberman, explains.`\
+https://www.nytimes.com/video/us/100000011188884/how-trump-directed-tax-dollars-to-ads-praising-him.html
+
 **Google Tests Plan for A.I. Data Centers in Space**\
 `The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011191505/google-tests-plan-for-ai-data-centers-in-space.html
