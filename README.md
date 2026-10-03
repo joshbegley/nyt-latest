@@ -146,7 +146,7 @@ https://www.nytimes.com/2026/10/03/science/loudest-birds.html
 `The Parti Québécois has vowed to hold a referendum on independence, three decades after Quebec voted “no.” Voters want change, but maybe not that much.`\
 https://www.nytimes.com/2026/10/03/world/canada/quebec-election-independence-parti-quebecois-separatism.html
 
-**From a High-Intensity Marriage, Game-Changing Art**\
+**Rage and Love Powered the Game-Changing Art of Krasner and Pollock**\
 `Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Metropolitan Museum of Art. Four paintings reveal how their relationship became a laboratory for ideas.`\
 https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
 
