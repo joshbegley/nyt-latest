@@ -1,3 +1,7 @@
+**Paris Reviews: Dior, Maison Margiela, Givenchy**\
+`Playing with perception at Dior, Maison Margiela and Givenchy (among others).`\
+https://www.nytimes.com/2026/10/03/style/dior-margiela-givenchy-pfw.html
+
 **Statue of Liberty Boat Tours: Legit or Scams? Depends Whom You Ask.**\
 `New York City lawmakers say many vendors are misleading tourists who seek an up-close experience, and they want to tighten enforcement. Sellers say they are serving a market.`\
 https://www.nytimes.com/2026/10/03/nyregion/statue-of-liberty-tours-scam-nyc.html
