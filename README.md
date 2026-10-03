@@ -1,3 +1,7 @@
+**New Police Footage Shows Luigi Mangione’s Arrest**\
+`Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
+https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
+
 **‘What Authoritarian Governments Do to Promote Their Leaders’**\
 `The president shows his contempt for us. Again.`\
 https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011180444/chris-rock-on-false-accus
 **Chris Rock on the Rich-Poor Divide in Liberal L.A.**\
 `On “The Interview,” Chris Rock talked about his new movie, “Misty Green.” One of the themes in the film is the wealth disparity on display in Los Angeles.`\
 https://www.nytimes.com/video/podcasts/100000011180441/chris-rock-on-the-rich-poor-divide-in-liberal-la.html
-
-**Chris Rock Has Been Thinking About Forgiveness**\
-`Chris Rock discusses his return to the director’s chair with the film “Misty Green,” his thoughts on comedy today and what his future holds.`\
-https://www.nytimes.com/video/podcasts/100000011180427/chris-rock-has-been-thinking-about-forgiveness.html
 
