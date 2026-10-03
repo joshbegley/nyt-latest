@@ -1,3 +1,7 @@
+**Trump Criticizes Prosecutor in Charge of New Cornell Rape Investigation**\
+`President Trump criticized Letitia James, the New York state attorney general, who will oversee the Cornell University sexual assault investigation. In 2022, James brought a fraud case against Trump and his family.`\
+https://www.nytimes.com/video/us/politics/100000011191952/trump-letitia-james-prosecutor-cornell-rape.html
+
 **Trump Urges Republicans to Vote By Mail After Criticizing Practice**\
 `It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html

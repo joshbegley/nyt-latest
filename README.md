@@ -1,3 +1,7 @@
+**With Elon Musk’s Return to Washington, Possible Conflicts of Interest Resurface**\
+`The founder of SpaceX, with billions of dollars in military contracts, joins several other defense industry executives on a Pentagon advisory board.`\
+https://www.nytimes.com/2026/10/03/us/politics/elon-musk-pentagon-returns-to-washington.html
+
 **Trump Criticizes Prosecutor in Charge of New Cornell Rape Investigation**\
 `President Trump criticized Letitia James, the New York state attorney general, who will oversee the Cornell University sexual assault investigation. In 2022, James brought a fraud case against Trump and his family.`\
 https://www.nytimes.com/video/us/politics/100000011191952/trump-letitia-james-prosecutor-cornell-rape.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/cornell-rape-campus-sexual-assault.html
 **‘How Does That Happen?’: America’s Execution System Is Long Flawed**\
 `The failed execution of Christa Pike, which left her clinging to life in Tennessee, was the latest grisly error to take place in an American execution chamber.`\
 https://www.nytimes.com/2026/10/03/us/death-penalty.html
-
-**Don’t Tell Weird Al, but Kyle Gordon’s Satires Are Great Earworms, Too**\
-`The artist behind “Mr. Jambo” and other viral spoofs may be the best musical parodist to emerge this decade.`\
-https://www.nytimes.com/2026/10/03/arts/music/dont-tell-weird-al-but-kyle-gordons-satires-are-great-earworms-too.html
 
