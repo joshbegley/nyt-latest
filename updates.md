@@ -1,3 +1,7 @@
+**‘Digger,’ Warner Bros.’ Last Release Before Merger, Is a Major Flop**\
+`The film, starring Tom Cruise, grossed an estimated $8 million in its opening weekend. That could put the movie on track to lose at least $125 million.`\
+https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.html
+
 **Trump Shows His Contempt for Us. Again.**\
 `This is ‘what authoritarian governments do to promote their leaders.’`\
 https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html

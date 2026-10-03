@@ -1,3 +1,7 @@
+**‘Digger,’ Warner Bros.’ Last Release Before Merger, Is a Major Flop**\
+`The film, starring Tom Cruise, grossed an estimated $8 million in its opening weekend. That could put the movie on track to lose at least $125 million.`\
+https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.html
+
 **F.D.A. Classifies Salad Dressing Recall to Highest Health Risk**\
 `Salata Dressings initiated the recall of its Jalapeño Avocado Dressing in August over concerns about possible salmonella contamination.`\
 https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmonella.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/arts/music/stevie-wonder-songs-wynonna-playli
 **How Trump’s Deportation Policies Have Rocked a South Florida House Race**\
 `Representative María Elvira Salazar, a Republican, ran an ad criticizing the Trump administration. It may have jolted other Republicans — and drawn attention to her Democratic opponent.`\
 https://www.nytimes.com/2026/10/03/us/politics/how-a-provocative-ad-on-trump-and-immigration-stirred-a-florida-house-race.html
-
-**Corrections: Oct. 3, 2026**\
-`The following corrections appeared in print on Saturday, Oct. 3, 2026.`\
-https://www.nytimes.com/2026/10/03/pageoneplus/corrections-oct-3-2026.html
 
