@@ -1,3 +1,7 @@
+**Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
+`She moved from Chile to Paris, where she used her wealth to support Picasso, Stravinsky and other artists. World War II forced her to go home, where she ended her life.`\
+https://www.nytimes.com/2026/10/03/obituaries/eugenia-errazuriz-overlooked.html
+
 **Happy as a Clam Pasta**\
 `My clam pasta with white wine and garlic, that is.`\
 https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
 
 **Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
-`Five new Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
+`Five new Times/Siena polls continue a run of strong results for Democrats in states that President Trump won easily in 2024.`\
 https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
 
 **Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/science/loudest-birds.html
 **Separatists Are Poised to Win Quebec’s Election. Independence Is Still a Hard Sell.**\
 `The Parti Québécois has vowed to hold a referendum on independence, three decades after Quebec voted “no.” Voters want change, but maybe not that much.`\
 https://www.nytimes.com/2026/10/03/world/canada/quebec-election-independence-parti-quebecois-separatism.html
-
-**Love and Pain Powered the Game-Changing Art of Krasner and Pollock**\
-`Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Met Museum. Four paintings reveal how their high-intensity relationship became a laboratory for ideas.`\
-https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
 
