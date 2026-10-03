@@ -1,3 +1,7 @@
+**10-4**\
+`Back it down, good buddies! Kathryn Bale’s debut puzzle takes a lot of sharp turns.`\
+https://www.nytimes.com/2026/10/03/crosswords/daily-puzzle-2026-10-04.html
+
 **‘Digger,’ Warner Bros.’ Last Release Before Merger, Is a Major Flop**\
 `The film, starring Tom Cruise, grossed an estimated $8 million in its opening weekend. That could put the movie on track to lose at least $125 million.`\
 https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/christa-pike-tennessee-execution.html
 **Stevie Wonder’s Outtake and 8 More Songs We’re Talking About**\
 `The prolific songwriter reaches back to celebrate the 50th anniversary of “Songs in the Key of Life,” Wynonna opens up, Jae Stephens knows what she’s worth and more.`\
 https://www.nytimes.com/2026/10/03/arts/music/stevie-wonder-songs-wynonna-playlist.html
-
-**How Trump’s Deportation Policies Have Rocked a South Florida House Race**\
-`Representative María Elvira Salazar, a Republican, ran an ad criticizing the Trump administration. It may have jolted other Republicans — and drawn attention to her Democratic opponent.`\
-https://www.nytimes.com/2026/10/03/us/politics/how-a-provocative-ad-on-trump-and-immigration-stirred-a-florida-house-race.html
 
