@@ -1,3 +1,7 @@
+**After Outcry, Monitors the Trump Administration Tried to Scrap Return to Sea**\
+`Under pressure from Congress, a network of ocean monitors that provides vital data to meteorologists, climate scientists, oceanographers and the fishing industry is being restored.`\
+https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-administration-tried-to-scrap-return-to-sea.html
+
 **Strength Tests From Around the World**\
 `Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
 https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
