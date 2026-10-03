@@ -1,3 +1,11 @@
+**Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
+`She moved from Chile to Paris, where she used her wealth to support Picasso, Stravinsky and other artists. World War II forced her to go home, where she ended her life.`\
+https://www.nytimes.com/2026/10/03/obituaries/eugenia-errazuriz-overlooked.html
+
+**Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
+`Five new Times/Siena polls continue a run of strong results for Democrats in states that President Trump won easily in 2024.`\
+https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
+
 **Happy as a Clam Pasta**\
 `My clam pasta with white wine and garlic, that is.`\
 https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
