@@ -1,3 +1,7 @@
+**How RAF Fairford in a Quiet Corner of England Became a U.S.-Iran Flashpoint**\
+`A mysterious call last Sunday near a military base used by the U.S. set in motion a huge counterterrorism response and days of uncertainty in Britain.`\
+https://www.nytimes.com/2026/10/03/world/europe/raf-fairford-air-base-incident-iran.html
+
 **Whale Batters a Yacht, Leaving Its Crew Stranded for 18 Hours**\
 `Four people were rescued after being adrift in a life raft in the South Pacific. One of them said he thought he had a better chance of winning the lottery than of being hit by a whale.`\
 https://www.nytimes.com/2026/10/03/world/australia/sperm-whales-sink-yacht-sailors-rescued.html

@@ -1,3 +1,7 @@
+**How RAF Fairford in a Quiet Corner of England Became a U.S.-Iran Flashpoint**\
+`A mysterious call last Sunday near a military base used by the U.S. set in motion a huge counterterrorism response and days of uncertainty in Britain.`\
+https://www.nytimes.com/2026/10/03/world/europe/raf-fairford-air-base-incident-iran.html
+
 **Whale Batters a Yacht, Leaving Its Crew Stranded for 18 Hours**\
 `Four people were rescued after being adrift in a life raft in the South Pacific. One of them said he thought he had a better chance of winning the lottery than of being hit by a whale.`\
 https://www.nytimes.com/2026/10/03/world/australia/sperm-whales-sink-yacht-sailors-rescued.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/style/anand-giridharadas-man-in-the-mirror.ht
 **The Very Online Push for Pen Pals**\
 `Pen pals — ones you’ve never met in person — are part of the revival of all things analog. There are even matchmakers prepared to find you one.`\
 https://www.nytimes.com/2026/10/03/style/em-j-staples-tiktok-matchmaker-pen-pals.html
-
-**In India, a Food Inspector Sparks Fear in Mumbai Restaurants**\
-`Tukaram Mundhe’s surprise raids of Mumbai kitchens have made him an unlikely celebrity and set off a conversation about food standards in India.`\
-https://www.nytimes.com/2026/10/03/world/asia/tukaram-mundhe-india-mumbai-food-raids.html
 
