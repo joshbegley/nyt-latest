@@ -1,3 +1,7 @@
+**Ex-Sheriff’s Deputy Acquitted in Fatal Shooting of Airman Roger Fortson**\
+`The airman, Roger Fortson, had answered a knock at his home in Fort Walton Beach while holding a gun, and was shot within seconds. A Florida jury cleared the former deputy, Eddie Duran.`\
+https://www.nytimes.com/2026/10/03/us/air-force-shooting-florida-deputy-acquitted.html
+
 **As Midterms Near, Justice Alito Says He Considers Each Year Whether to Retire**\
 `The justice, the second oldest on the court at 76, told CBS News that he decided against stepping down last term. He could face pressure should Democrats win the Senate in November.`\
 https://www.nytimes.com/2026/10/03/us/politics/justice-alito-retirement-supreme-court.html
