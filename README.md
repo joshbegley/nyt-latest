@@ -1,3 +1,51 @@
+**Toplines: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-crosstabs.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-toplines.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-crosstabs.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 504 voters from Sept. 24 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-alaska-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 504 voters from Sept. 24 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-alaska-poll-toplines.html
+
 **Paris Reviews: Dior, Maison Margiela, Givenchy**\
 `Playing with perception at Dior, Maison Margiela and Givenchy (among others).`\
 https://www.nytimes.com/2026/10/03/style/dior-margiela-givenchy-pfw.html
@@ -149,52 +197,4 @@ https://www.nytimes.com/2026/10/02/us/gypsy-rose-blanchard-fiance-dead-ken-urker
 **Why Google Wants to Send a Data Center to Space**\
 `The Times’s technology reporter Kate Conger joins host Natalie Kitroeff on “The Call” to watch the launch of a SpaceX rocket carrying a Google satellite designed to test space-based A.I. data centers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011190973/why-google-wants-to-send-a-data-center-to-space.html
-
-**Israel Lists 170 Killed in Gaza It Says Were Militants Posing as Media Workers**\
-`The Israeli military published an investigation it said rebuts accusations that it intentionally targeted journalists. But it and a journalists group disagree over 78 people who are on the list.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/israel-gaza-militants-journalists-killed.html
-
-**Trump Directed Use of Taxpayer Money for Ads Praising His Presidency**\
-`The government-funded ads show just how much President Trump has been able to use federal money for his own aims.`\
-https://www.nytimes.com/2026/10/02/us/politics/trump-ads.html
-
-**Gov. Hochul Criticizes 2024 Cornell Rape Investigation**\
-`Gov. Kathy Hochul of New York said on Friday that she has appointed the state attorney general, Letitia James, to investigate the 2024 rape allegations at Cornell University.`\
-https://www.nytimes.com/video/nyregion/100000011190120/hochul-cornell-rape-investigation.html
-
-**Bus Driver in L.A. Is Fatally Shot by Passenger After Possible Wrong Turn**\
-`The gunman has not been found, officials said. The driver, whose name has not been released publicly, was 42.`\
-https://www.nytimes.com/2026/10/02/us/culver-city-bus-driver-shooting-california.html
-
-**Argentina’s ‘Golden Passport’ Program Offers Citizenship in Exchange for Foreign Cash**\
-`The program would grant citizenship to people who make major investments in Argentina. Similar efforts have yielded significant income for small economies, but have also led to risks.`\
-https://www.nytimes.com/2026/10/02/world/americas/argentina-citizenship-golden-passport-money.html
-
-**FlyDubai Attack Raises Questions About Pilot Background Checks**\
-`Health screenings and criminal background checks may go only so far in identifying pilots who have become radicalized or try to hide their mental health issues, experts said.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/israel-plane-flydubai-pilot-background-check.html
-
-**California Sues to Block Trump From Weakening Fuel Economy Rules**\
-`The lawsuit is the 97th the state has filed against the Trump administration over the past year and a half.`\
-https://www.nytimes.com/2026/10/02/climate/california-trump-administration-fuel-economy.html
-
-**Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage**\
-`Joshua Kerry, a 28-year-old British man accused of killing the former lawmaker Ann Widdecombe, was charged on Friday.`\
-https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html
-
-**Judge Throws Out Another Confession in Sept. 11 Case**\
-`Prosecutors have long considered the defendants’ admissions during interrogations in 2007 to be their best evidence.`\
-https://www.nytimes.com/2026/10/02/us/politics/confession-sept-11-terrorism-case.html
-
-**Mass Shootings Surge in South Africa as Illegal Guns Flood Streets**\
-`The country was shaken after nearly 30 people were killed in two separate mass shootings. South Africans are demanding greater government intervention.`\
-https://www.nytimes.com/2026/10/02/world/africa/south-africa-mass-shootings-guns.html
-
-**Read the Filing**\
-`Christa Pike’s lawyers said in a court filing that she was brought to a hospital with burned and blistered arms after her botched execution.`\
-https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
-
-**National Science Foundation Diverted $1.4 Billion in Science Funds Mandated by Congress**\
-`The move, affecting about one-fifth of the National Science Foundation’s primary research budget, is the latest sign of how the White House is asserting more control over grants.`\
-https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-research-funds.html
 
