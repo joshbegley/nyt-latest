@@ -1,3 +1,7 @@
+**Medical Plane Goes Missing on Flight From Bermuda to Boston**\
+`The plane, a Gulfstream G100 with 6 people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
+https://www.nytimes.com/2026/10/03/us/plane-bermuda-boston-nantucket.html
+
 **How RAF Fairford in a Quiet Corner of England Became a U.S.-Iran Flashpoint**\
 `A mysterious call last Sunday near a military base used by the U.S. set in motion a huge counterterrorism response and days of uncertainty in Britain.`\
 https://www.nytimes.com/2026/10/03/world/europe/raf-fairford-air-base-incident-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/us/larry-krasner-philadelphia-district-attorn
 **Anand Giridharadas on “Man in the Mirror,” and a Tragic Day on the Subway**\
 `Anand Giridharadas has written about the global elite and political persuasion. His new book explores a tragic day on the subway.`\
 https://www.nytimes.com/2026/10/03/style/anand-giridharadas-man-in-the-mirror.html
-
-**The Very Online Push for Pen Pals**\
-`Pen pals — ones you’ve never met in person — are part of the revival of all things analog. There are even matchmakers prepared to find you one.`\
-https://www.nytimes.com/2026/10/03/style/em-j-staples-tiktok-matchmaker-pen-pals.html
 
