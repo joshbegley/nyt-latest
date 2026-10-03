@@ -1,3 +1,7 @@
+**Strength Tests From Around the World**\
+`Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
+https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
+
 **Medical Plane Goes Missing on Flight From Bermuda to Boston**\
 `The plane, a Gulfstream G100 with 6 people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/10/03/well/family/geriatric-care-managers.html
 **Weight Loss Drugs Give Restaurants a New Hurdle: Diners Who Eat Less**\
 `Fewer orders and higher costs are squeezing restaurants big and small as people on the weight-loss drugs eat and drink less when dining out.`\
 https://www.nytimes.com/2026/10/03/business/restaurants-glp1-weight-loss.html
-
-**Larry Krasner, Philadelphia’s Combative D.A., Faces Judicial Blowback**\
-`Two blistering court opinions have put Mr. Krasner, a prominent progressive district attorney, in what may be the most precarious position of his public career.`\
-https://www.nytimes.com/2026/10/03/us/larry-krasner-philadelphia-district-attorney.html
-
-**Anand Giridharadas on “Man in the Mirror,” and a Tragic Day on the Subway**\
-`Anand Giridharadas has written about the global elite and political persuasion. His new book explores a tragic day on the subway.`\
-https://www.nytimes.com/2026/10/03/style/anand-giridharadas-man-in-the-mirror.html
 
