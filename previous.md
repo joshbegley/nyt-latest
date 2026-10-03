@@ -1,3 +1,23 @@
+**Opinion: What the Cornell Lawsuit Reveals About Sexual Violence in America**\
+`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
+https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
+
+**The Luxury of Looking a Mess**\
+`You live long enough and the music and the clothes of your youth get repackaged and sold back to you. But skinny jeans and white belts? Really?`\
+https://www.nytimes.com/2026/10/03/opinion/culture/the-luxury-of-looking-a-mess.html
+
+**Zohran Mamdani Is Showing the World How It’s Done**\
+`The New York City mayor has an antidote to globe-spanning distemper.`\
+https://www.nytimes.com/2026/10/03/opinion/zohran-mamdani-united-nations.html
+
+**Controlling Risks Posed by A.I. and Other Threats to Humanity**\
+`Readers respond to an editorial and various articles about how best to avoid catastrophe.`\
+https://www.nytimes.com/2026/10/03/opinion/letters/ai-threats-risks.html
+
+**We Surveyed 50,674 Americans. This Is What Brings Them Together.**\
+`Americans are divided in their politics but not as sports fans.`\
+https://www.nytimes.com/2026/10/03/opinion/sports-team-identities.html
+
 **Cornell and the Age of Impunity**\
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/video/opinion/100000011188276/cornell-and-the-age-of-impunity.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/03/style/will-coley-listenwithus-wedding-podcast
 **New Mystery Books for Fall**\
 `Our columnist on James Sallis’s “Backwater” and three other new novels.`\
 https://www.nytimes.com/2026/10/03/books/review/new-mystery-books.html
-
-**An A.I. Songwriting Experiment: Humans Against the Machine**\
-`Five humans convened for a weekend to create new music from scratch. Could they do better than A.I.? Could you even tell the difference?`\
-https://www.nytimes.com/2026/10/03/arts/music/human-songwriting-ai-songwriting.html
-
-**Book Review: ‘A Double Life,’ by Mikita Brottman**\
-`In Mikita Brottman’s true-crime odyssey, “A Double Life,” things get lurid.`\
-https://www.nytimes.com/2026/10/03/books/review/a-double-life-mikita-brottman.html
-
-**American High School Students Are Selling Guns Bound for Cartels**\
-`Drawn by money and status, teenagers in Arizona are buying, stealing and selling weapons destined for criminal groups in Mexico.`\
-https://www.nytimes.com/2026/10/03/world/americas/high-school-arms-dealing-mexican-cartels.html
-
-**In ‘One Helluva Ride,’ Michael Douglas Recalls Life in the Spotlight**\
-`At 82, the famously roguish leading man has written a memoir, “One Helluva Ride,” that’s as candid and intimate as it is feisty.`\
-https://www.nytimes.com/2026/10/03/books/review/michael-douglas-memoir-one-helluva-ride-interview.html
-
-**Toplines: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
-`Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-toplines.html
 

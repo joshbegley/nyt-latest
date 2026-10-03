@@ -1,3 +1,23 @@
+**Opinion: What the Cornell Lawsuit Reveals About Sexual Violence in America**\
+`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
+https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
+
+**The Luxury of Looking a Mess**\
+`You live long enough and the music and the clothes of your youth get repackaged and sold back to you. But skinny jeans and white belts? Really?`\
+https://www.nytimes.com/2026/10/03/opinion/culture/the-luxury-of-looking-a-mess.html
+
+**Zohran Mamdani Is Showing the World How It’s Done**\
+`The New York City mayor has an antidote to globe-spanning distemper.`\
+https://www.nytimes.com/2026/10/03/opinion/zohran-mamdani-united-nations.html
+
+**Controlling Risks Posed by A.I. and Other Threats to Humanity**\
+`Readers respond to an editorial and various articles about how best to avoid catastrophe.`\
+https://www.nytimes.com/2026/10/03/opinion/letters/ai-threats-risks.html
+
+**We Surveyed 50,674 Americans. This Is What Brings Them Together.**\
+`Americans are divided in their politics but not as sports fans.`\
+https://www.nytimes.com/2026/10/03/opinion/sports-team-identities.html
+
 **Cornell and the Age of Impunity**\
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/video/opinion/100000011188276/cornell-and-the-age-of-impunity.html
