@@ -2,7 +2,7 @@
 `The president shows his contempt for us. Again.`\
 https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
 
-**Tennessee Prison Commissioner Resigns Days After Failed Execution**\
+**Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
 `Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
 https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
 
@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-admin
 `Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
 https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
 
-**Medical Plane Goes Missing on Flight From Bermuda to Boston**\
+**Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
 `The plane, a Gulfstream G100 with 6 people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
 

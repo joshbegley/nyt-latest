@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
 
 **Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
 `Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
-https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
+https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-christa-pike.html
 
 **Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
 `She moved from Chile to Paris, where she used her wealth to support Picasso, Stravinsky and other artists. World War II forced her to go home, where she ended her life.`\
@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/10/03/world/europe/russia-ukraine-bridges-kyiv.html
 `Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
 https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
 
-**Opinion: What the Cornell Lawsuit Reveals About Sexual Violence in America**\
+**What the Cornell Lawsuit Reveals About Sexual Violence in America**\
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
 
