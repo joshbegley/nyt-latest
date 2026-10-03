@@ -1,3 +1,7 @@
+**Symbol of Love**\
+`Kameron Austin Collins’s latest Saturday puzzle is unconditionally divine.`\
+https://www.nytimes.com/2026/10/02/crosswords/daily-puzzle-2026-10-03.html
+
 **Tennessee Prison Chief Was Hired Despite a Trail of Troubled Executions**\
 `The failed execution of Christa Pike has prompted new scrutiny of Frank Strada, the state’s top prison official, and his past role overseeing executions in Arizona.`\
 https://www.nytimes.com/2026/10/02/us/frank-strada-tennessee-executions-arizona-christa-pike.html
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-jane-doe-hochul.html
 https://www.nytimes.com/2026/10/02/world/canada/newfoundland-bridal-shop-owner-boy-coat-hook.html
 
 **What to Know About Fighting Between Ethiopia and Rebels in Tigray**\
-`The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt the United Arab Emirates and Saudi Arabia.`\
+`The conflict is raising fears of a regional war in the Horn of Africa, drawing in foreign powers including Eritrea, Egypt, the United Arab Emirates and Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/africa/ethiopia-tigray-conflict.html
 
 **How Well Do You Know the Best TV Shows of the 21st Century?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
 **Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
-
-**Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
-`After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
-https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
 
