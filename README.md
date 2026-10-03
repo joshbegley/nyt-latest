@@ -1,3 +1,7 @@
+**After Outcry, Monitors the Trump Administration Tried to Scrap Return to Sea**\
+`Under pressure from Congress, a network of ocean monitors that provides vital data to meteorologists, climate scientists, oceanographers and the fishing industry is being restored.`\
+https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-administration-tried-to-scrap-return-to-sea.html
+
 **Strength Tests From Around the World**\
 `Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
 https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/realestate/what-items-should-i-expect-to-stil
 **How Aging Life Care Managers Help Families**\
 `They can arrange a move to a senior living facility, deal with Medicare and Medicaid, recommend doctors, drive a client to the dentist, and much more.`\
 https://www.nytimes.com/2026/10/03/well/family/geriatric-care-managers.html
-
-**Weight Loss Drugs Give Restaurants a New Hurdle: Diners Who Eat Less**\
-`Fewer orders and higher costs are squeezing restaurants big and small as people on the weight-loss drugs eat and drink less when dining out.`\
-https://www.nytimes.com/2026/10/03/business/restaurants-glp1-weight-loss.html
 
