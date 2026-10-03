@@ -1,3 +1,15 @@
+**Statue of Liberty Boat Tours: Legit or Scams? Depends Whom You Ask.**\
+`New York City lawmakers say many vendors are misleading tourists who seek an up-close experience, and they want to tighten enforcement. Sellers say they are serving a market.`\
+https://www.nytimes.com/2026/10/03/nyregion/statue-of-liberty-tours-scam-nyc.html
+
+**How Harper’s Bazaar’s Top Editor Stays Booked and Busy at Fashion Week**\
+`The magazine’s editor in chief, Samira Nasr, doesn’t believe in having it all, but she tries to find the balance between prioritizing her work and home life.`\
+https://www.nytimes.com/interactive/2026/10/03/nyregion/routine-samira-nasr.html
+
+**NYT Spelling Bee Answers for October 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/03/crosswords/spelling-bee-forum.html
+
 **Quote of the Day: Reluctant Town Adds Street Numbers, and Laments Lost Identity**\
 `Quotation of the Day for Saturday, October 3, 2026.`\
 https://www.nytimes.com/2026/10/03/pageoneplus/quote-of-the-day-reluctant-town-adds-street-numbers-and-laments-lost-identity.html

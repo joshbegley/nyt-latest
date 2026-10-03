@@ -1,3 +1,15 @@
+**Statue of Liberty Boat Tours: Legit or Scams? Depends Whom You Ask.**\
+`New York City lawmakers say many vendors are misleading tourists who seek an up-close experience, and they want to tighten enforcement. Sellers say they are serving a market.`\
+https://www.nytimes.com/2026/10/03/nyregion/statue-of-liberty-tours-scam-nyc.html
+
+**How Harper’s Bazaar’s Top Editor Stays Booked and Busy at Fashion Week**\
+`The magazine’s editor in chief, Samira Nasr, doesn’t believe in having it all, but she tries to find the balance between prioritizing her work and home life.`\
+https://www.nytimes.com/interactive/2026/10/03/nyregion/routine-samira-nasr.html
+
+**NYT Spelling Bee Answers for October 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/03/crosswords/spelling-bee-forum.html
+
 **Quote of the Day: Reluctant Town Adds Street Numbers, and Laments Lost Identity**\
 `Quotation of the Day for Saturday, October 3, 2026.`\
 https://www.nytimes.com/2026/10/03/pageoneplus/quote-of-the-day-reluctant-town-adds-street-numbers-and-laments-lost-identity.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-resea
 **Former Florida Rep. David Rivera Sentenced to 10 Years in Venezuela Lobbying Case**\
 `David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
 https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
-
-**With Christa Pike Unconscious, Another Execution Attempt Is in Doubt**\
-`Her condition raises questions about whether Tennessee could attempt to execute her again if she is incapable of understanding what is happening.`\
-https://www.nytimes.com/2026/10/02/us/christa-pike-unconscious-what-next.html
-
-**Man Accused of Sex Assault Seeks to Expunge Cornell’s Finding of Related Violation**\
-`A panel found the man responsible for attempted sexual exploitation, barred him from contact with the woman and required him to take a class and write a paper.`\
-https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appeal.html
-
-**The Local: Renee Good’s brothers speak**\
-`Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
-https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html
 
