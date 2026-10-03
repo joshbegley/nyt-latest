@@ -1,3 +1,11 @@
+**Happy as a Clam Pasta**\
+`My clam pasta with white wine and garlic, that is.`\
+https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
+
+**What to Know About France’s High School Protests**\
+`Students angry over the state of the country’s education system have blockaded hundreds of schools. Thousands of protesters have been arrested and dozens of people injured.`\
+https://www.nytimes.com/2026/10/03/world/europe/high-school-student-protest-what-to-know.html
+
 **After Outcry, Monitors the Trump Administration Tried to Scrap Return to Sea**\
 `Under pressure from Congress, a network of ocean monitors that provides vital data to meteorologists, climate scientists, oceanographers and the fishing industry is being restored.`\
 https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-administration-tried-to-scrap-return-to-sea.html
