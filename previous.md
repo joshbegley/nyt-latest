@@ -1,3 +1,11 @@
+**White House Filing Claims President Has Authority to Bar News Outlets**\
+`The Trump administration again defended the decision to bar CNN, MS NOW and Politico from the White House and to exclude journalists from the pool that covers the president in small spaces.`\
+https://www.nytimes.com/2026/10/02/business/trump-white-house-ban-cnn-politico-ms-now.html
+
+**In Alabama, Trump Relives His Glory Days (This Time With Some Empty Seats)**\
+`The Deep South was the birthplace of the mega MAGA rally. How do people on the Gulf feel about President Trump now?`\
+https://www.nytimes.com/2026/10/02/us/politics/alabama-trump-rally-glory-days.html
+
 **Symbol of Love**\
 `Kameron Austin Collins’s latest Saturday puzzle is unconditionally divine.`\
 https://www.nytimes.com/2026/10/02/crosswords/daily-puzzle-2026-10-03.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011189631/france-schools-studen
 **Powerful Wildfires Require a New Approach, California Report Finds**\
 `A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
 https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
-
-**Is It Time for Belts?**\
-`A bit of fashion that serves more than one need.`\
-https://www.nytimes.com/2026/10/02/style/paris-fashion-week-belts.html
-
-**Flashback: Your Weekly History Quiz, Oct. 3, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
 

@@ -1,3 +1,11 @@
+**White House Filing Claims President Has Authority to Bar News Outlets**\
+`The Trump administration again defended the decision to bar CNN, MS NOW and Politico from the White House and to exclude journalists from the pool that covers the president in small spaces.`\
+https://www.nytimes.com/2026/10/02/business/trump-white-house-ban-cnn-politico-ms-now.html
+
+**In Alabama, Trump Relives His Glory Days (This Time With Some Empty Seats)**\
+`The Deep South was the birthplace of the mega MAGA rally. How do people on the Gulf feel about President Trump now?`\
+https://www.nytimes.com/2026/10/02/us/politics/alabama-trump-rally-glory-days.html
+
 **Symbol of Love**\
 `Kameron Austin Collins’s latest Saturday puzzle is unconditionally divine.`\
 https://www.nytimes.com/2026/10/02/crosswords/daily-puzzle-2026-10-03.html
