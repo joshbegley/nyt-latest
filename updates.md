@@ -1,3 +1,7 @@
+**Russia’s Latest Infrastructure Target: Ukraine’s Bridges**\
+`Russia’s new infrastructure target has become Ukraine’s bridges. It attacked six bridges in the country’s capital, Kyiv, over the past three days.`\
+https://www.nytimes.com/video/world/europe/100000011191929/ukraine-bridges-russia-kyiv-traffic.html
+
 **With Elon Musk’s Return to Washington, Possible Conflicts of Interest Resurface**\
 `The founder of SpaceX, with billions of dollars in military contracts, joins several other defense industry executives on a Pentagon advisory board.`\
 https://www.nytimes.com/2026/10/03/us/politics/elon-musk-pentagon-returns-to-washington.html

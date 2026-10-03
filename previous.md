@@ -1,3 +1,7 @@
+**Russia’s Latest Infrastructure Target: Ukraine’s Bridges**\
+`Russia’s new infrastructure target has become Ukraine’s bridges. It attacked six bridges in the country’s capital, Kyiv, over the past three days.`\
+https://www.nytimes.com/video/world/europe/100000011191929/ukraine-bridges-russia-kyiv-traffic.html
+
 **With Elon Musk’s Return to Washington, Possible Conflicts of Interest Resurface**\
 `The founder of SpaceX, with billions of dollars in military contracts, joins several other defense industry executives on a Pentagon advisory board.`\
 https://www.nytimes.com/2026/10/03/us/politics/elon-musk-pentagon-returns-to-washington.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/pageoneplus/corrections-oct-3-2026.html
 **Cornell Case Revives Anger About Handling of Campus Sexual Assault Cases**\
 `A lawsuit alleging rape at Cornell has led to an outpouring of women sharing stories about sexual violence on college campuses.`\
 https://www.nytimes.com/2026/10/03/us/cornell-rape-campus-sexual-assault.html
-
-**‘How Does That Happen?’: America’s Execution System Is Long Flawed**\
-`The failed execution of Christa Pike, which left her clinging to life in Tennessee, was the latest grisly error to take place in an American execution chamber.`\
-https://www.nytimes.com/2026/10/03/us/death-penalty.html
 
