@@ -1,3 +1,7 @@
+**‘What Authoritarian Governments Do to Promote Their Leaders’**\
+`The president shows his contempt for us. Again.`\
+https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
+
 **Tennessee Prison Commissioner Resigns Days After Failed Execution**\
 `Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
 https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011180441/chris-rock-on-the-rich-po
 **Chris Rock Has Been Thinking About Forgiveness**\
 `Chris Rock discusses his return to the director’s chair with the film “Misty Green,” his thoughts on comedy today and what his future holds.`\
 https://www.nytimes.com/video/podcasts/100000011180427/chris-rock-has-been-thinking-about-forgiveness.html
-
-**These Birds Are Louder Than Elephants, Jackhammers and Chain Saws**\
-`A new study has identified two species of Brazilian birds, the bare-throated bellbird and the red-legged seriema, as the loudest in nature.`\
-https://www.nytimes.com/2026/10/03/science/loudest-birds.html
 

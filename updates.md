@@ -1,3 +1,7 @@
+**Tennessee Prison Commissioner Resigns Days After Failed Execution**\
+`Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
+https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
+
 **Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
 `She moved from Chile to Paris, where she used her wealth to support Picasso, Stravinsky and other artists. World War II forced her to go home, where she ended her life.`\
 https://www.nytimes.com/2026/10/03/obituaries/eugenia-errazuriz-overlooked.html
