@@ -1,3 +1,7 @@
+**‘What Authoritarian Governments Do to Promote Their Leaders’**\
+`The president shows his contempt for us. Again.`\
+https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
+
 **Tennessee Prison Commissioner Resigns Days After Failed Execution**\
 `Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
 https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
