@@ -1,3 +1,7 @@
+**Slow Motion**\
+`The constant flow of digital updates doesn’t allow for true connection.`\
+https://www.nytimes.com/2026/10/03/briefing/slow-motion.html
+
 **FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
 `The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-topli
 **Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
 `Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-crosstabs.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
-`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-crosstabs.html
 

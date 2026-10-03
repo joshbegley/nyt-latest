@@ -1,3 +1,7 @@
+**FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
+`The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
+
 **Chris Rock Has Been Thinking About Forgiveness**\
 `The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
