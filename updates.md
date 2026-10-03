@@ -1,3 +1,15 @@
+**Quote of the Day: Reluctant Town Adds Street Numbers, and Laments Lost Identity**\
+`Quotation of the Day for Saturday, October 3, 2026.`\
+https://www.nytimes.com/2026/10/03/pageoneplus/quote-of-the-day-reluctant-town-adds-street-numbers-and-laments-lost-identity.html
+
+**On This Day, Oct. 3: In 1990, East and West Germany reunified.**\
+`In 1990, East and West Germany were reunified, ending 45 years of postwar division.`\
+https://www.nytimes.com/2026/10/03/learning/on-this-day-oct-3.html
+
+**Jennifer Nettles on the Music That Started It All**\
+`From putting on shows in her kitchen to performing skits at summer talent shows, singer-songwriter Jennifer Nettles reflects on the moments that first sparked her love of singing and acting.`\
+https://www.nytimes.com/video/arts/100000011030730/jennifer-nettles.html
+
 **White House Filing Claims President Has Authority to Bar News Outlets**\
 `The Trump administration again defended the decision to bar CNN, MS NOW and Politico from the White House and to exclude journalists from the pool that covers the president in small spaces.`\
 https://www.nytimes.com/2026/10/02/business/trump-white-house-ban-cnn-politico-ms-now.html
