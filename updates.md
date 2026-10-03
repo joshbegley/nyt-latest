@@ -1,3 +1,7 @@
+**Trump Urges Republicans to Vote By Mail After Criticizing Practice**\
+`It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
+https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
+
 **Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
 `The plane, with four Canadians on board and two people picked up in Bermuda, lost contact shortly after 1 a.m. A search was underway Saturday off the coast of Nantucket, Mass.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
