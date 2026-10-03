@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/10/03/t-magazine/joel-meyerowitz-hat.html
 `Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
 https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
 
-**‘What Authoritarian Governments Do to Promote Their Leaders’**\
-`The president shows his contempt for us. Again.`\
+**Trump Shows His Contempt for Us. Again.**\
+`This is ‘what authoritarian governments do to promote their leaders.’`\
 https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
 
 **Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.htm
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
 
-**The Luxury of Looking a Mess**\
+**I Love That Skinny Jeans Are Back**\
 `You live long enough and the music and the clothes of your youth get repackaged and sold back to you. But skinny jeans and white belts? Really?`\
 https://www.nytimes.com/2026/10/03/opinion/culture/the-luxury-of-looking-a-mess.html
 
