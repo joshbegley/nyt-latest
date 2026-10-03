@@ -1,3 +1,15 @@
+**Quote of the Day: Reluctant Town Adds Street Numbers, and Laments Lost Identity**\
+`Quotation of the Day for Saturday, October 3, 2026.`\
+https://www.nytimes.com/2026/10/03/pageoneplus/quote-of-the-day-reluctant-town-adds-street-numbers-and-laments-lost-identity.html
+
+**On This Day, Oct. 3: In 1990, East and West Germany reunified.**\
+`In 1990, East and West Germany were reunified, ending 45 years of postwar division.`\
+https://www.nytimes.com/2026/10/03/learning/on-this-day-oct-3.html
+
+**Jennifer Nettles on the Music That Started It All**\
+`From putting on shows in her kitchen to performing skits at summer talent shows, singer-songwriter Jennifer Nettles reflects on the moments that first sparked her love of singing and acting.`\
+https://www.nytimes.com/video/arts/100000011030730/jennifer-nettles.html
+
 **White House Filing Claims President Has Authority to Bar News Outlets**\
 `The Trump administration again defended the decision to bar CNN, MS NOW and Politico from the White House and to exclude journalists from the pool that covers the president in small spaces.`\
 https://www.nytimes.com/2026/10/02/business/trump-white-house-ban-cnn-politico-ms-now.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/02/nyregion/cornell-accused-man-punishment-appea
 **The Local: Renee Good’s brothers speak**\
 `Also, farmers’ market bounty and a peek at Mia’s new “Paris Couture” exhibit.`\
 https://www.nytimes.com/2026/10/02/briefing/renee-good-family.html
-
-**Unusual Issues in Court at Guantánamo Stand Out as a Case Finally Heads to Trial**\
-`Prosecutors want remote testimony for witnesses unable or unwilling to travel to Guantánamo. The defense wants jurors to be told that, guilty or innocent, the defendant will not go free.`\
-https://www.nytimes.com/2026/10/02/us/politics/guantanamo-uss-cole-case.html
-
-**Hundreds of French Schools Shut as Student Protests Escalate**\
-`Student protests against teacher shortages and overcrowding kept hundreds of schools shut across France on Friday as officials warned that the demonstrations had descended into “urban violence.”`\
-https://www.nytimes.com/video/world/europe/100000011189631/france-schools-student-protests.html
-
-**Powerful Wildfires Require a New Approach, California Report Finds**\
-`A report on the fires that devastated the Los Angeles area in early 2025 recommended that local governments take a broader approach to preparedness and emergency response.`\
-https://www.nytimes.com/2026/10/02/us/los-angeles-wildfires-report.html
 
