@@ -1,3 +1,7 @@
+**Teen Charged With Attempted Murder and Domestic Terrorism After Chemical Spill**\
+`The 15-year-old mixed and ingested hazardous chemicals at a school cafeteria in Portland, Ore., last month, officials said. His lawyers denied the allegations.`\
+https://www.nytimes.com/2026/10/02/us/portland-oregon-domestic-terrorism-charge.html
+
 **How Trump Directed Tax Dollars to Ads Praising Him**\
 `President Trump personally directed the use of taxpayer money for ads praising his presidency, according to people familiar with the matter. Our White House correspondent, Maggie Haberman, explains.`\
 https://www.nytimes.com/video/us/100000011188884/how-trump-directed-tax-dollars-to-ads-praising-him.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
 **Missouri Man Discovers Michael McDonald of the Doobie Brothers Is His Biological Father**\
 `Michael Goessling’s first phone call with his biological father brought a shock: He was speaking to Michael McDonald of the Doobie Brothers.`\
 https://www.nytimes.com/2026/10/02/us/michael-mcdonald-doobie-brothers-biological-son.html
-
-**The Kennedy Center Honors Will Be Held at Capital One Arena**\
-`The center is moving its marquee event off site as it pushes for court approval of a plan to close its main building for a two-year renovation project.`\
-https://www.nytimes.com/2026/10/02/arts/kennedy-center-honors-capital-one-arena.html
 

@@ -1,3 +1,7 @@
+**Teen Charged With Attempted Murder and Domestic Terrorism After Chemical Spill**\
+`The 15-year-old mixed and ingested hazardous chemicals at a school cafeteria in Portland, Ore., last month, officials said. His lawyers denied the allegations.`\
+https://www.nytimes.com/2026/10/02/us/portland-oregon-domestic-terrorism-charge.html
+
 **How Trump Directed Tax Dollars to Ads Praising Him**\
 `President Trump personally directed the use of taxpayer money for ads praising his presidency, according to people familiar with the matter. Our White House correspondent, Maggie Haberman, explains.`\
 https://www.nytimes.com/video/us/100000011188884/how-trump-directed-tax-dollars-to-ads-praising-him.html
