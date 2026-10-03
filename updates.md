@@ -1,3 +1,11 @@
+**Strength Tests From Around the World**\
+`Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
+https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
+
+**In Texas, Talarico’s Strength in Senate Polls Inspires a Democratic Dream**\
+`After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
+https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html
+
 **Medical Plane Goes Missing on Flight From Bermuda to Boston**\
 `The plane, a Gulfstream G100 with 6 people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
