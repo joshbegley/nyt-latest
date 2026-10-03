@@ -1,4 +1,4 @@
-**Trump, Critic of Voting by Mail, Urges Republicans to Do It in Midterms**\
+**Trump Urges Republicans to Vote By Mail After Criticizing Practice**\
 `It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
 
