@@ -1,3 +1,7 @@
+**D.A. in Cornell Rape Inquiry Declined to Review Additional Evidence**\
+`Records show that campus police officers informed Tompkins County prosecutors that they had conducted additional interviews beyond taking a statement from the woman who said she was raped.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-lawsuit-da-evidence.html
+
 **Teen Charged With Attempted Murder and Domestic Terrorism After Chemical Spill**\
 `The 15-year-old mixed and ingested hazardous chemicals at a school cafeteria in Portland, Ore., last month, officials said. His lawyers denied the allegations.`\
 https://www.nytimes.com/2026/10/02/us/portland-oregon-domestic-terrorism-charge.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stab
 **The C.D.C. Gutted, and Lives at Risk**\
 `Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
 https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
-
-**Missouri Man Discovers Michael McDonald of the Doobie Brothers Is His Biological Father**\
-`Michael Goessling’s first phone call with his biological father brought a shock: He was speaking to Michael McDonald of the Doobie Brothers.`\
-https://www.nytimes.com/2026/10/02/us/michael-mcdonald-doobie-brothers-biological-son.html
 

@@ -1,3 +1,7 @@
+**D.A. in Cornell Rape Inquiry Declined to Review Additional Evidence**\
+`Records show that campus police officers informed Tompkins County prosecutors that they had conducted additional interviews beyond taking a statement from the woman who said she was raped.`\
+https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-lawsuit-da-evidence.html
+
 **Teen Charged With Attempted Murder and Domestic Terrorism After Chemical Spill**\
 `The 15-year-old mixed and ingested hazardous chemicals at a school cafeteria in Portland, Ore., last month, officials said. His lawyers denied the allegations.`\
 https://www.nytimes.com/2026/10/02/us/portland-oregon-domestic-terrorism-charge.html
