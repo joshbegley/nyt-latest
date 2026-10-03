@@ -1,3 +1,7 @@
+**Slow Motion**\
+`The constant flow of digital updates doesn’t allow for true connection.`\
+https://www.nytimes.com/2026/10/03/briefing/slow-motion.html
+
 **FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
 `The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
