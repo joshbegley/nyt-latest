@@ -1,3 +1,7 @@
+**10-4**\
+`Back it down, good buddies! Kathryn Bale’s debut puzzle takes a lot of sharp turns.`\
+https://www.nytimes.com/2026/10/03/crosswords/daily-puzzle-2026-10-04.html
+
 **‘Digger,’ Warner Bros.’ Last Release Before Merger, Is a Major Flop**\
 `The film, starring Tom Cruise, grossed an estimated $8 million in its opening weekend. That could put the movie on track to lose at least $125 million.`\
 https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.html
