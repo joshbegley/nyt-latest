@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
 
 **Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
-`New Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
+`Five new Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
 https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
 
 **Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\

@@ -58,13 +58,13 @@ https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
 `The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
 
-**Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
-`A proposal to bolster relations with the Kremlin through the purchase of Russian energy assets is striking even for an administration that regularly mixes personal business interests with foreign policy.`\
-https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-takeaways.html
-
 **Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
 `New Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
 https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
+
+**Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
+`A proposal to bolster relations with the Kremlin through the purchase of Russian energy assets is striking even for an administration that regularly mixes personal business interests with foreign policy.`\
+https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-takeaways.html
 
 **Trump Says Economy Has ‘Public Relations’ Problem Amid High Prices and Slow Hiring**\
 `The president, who had hoped to tout a growing economy on the campaign trail, has found it hard to break through as workers’ wages fail to keep up.`\
