@@ -1,3 +1,7 @@
+**Cornell President Calls Rape Inquiry ‘Defining Moment’ for Campus**\
+`Michael I. Kotlikoff said in a video the university would be more transparent, hold Greek groups accountable and improve sexual assault prevention.`\
+https://www.nytimes.com/2026/10/03/nyregion/cornell-president-calls-rape-inquiry-defining-moment-for-campus.html
+
 **10-4**\
 `Back it down, good buddies! Kathryn Bale’s debut puzzle takes a lot of sharp turns.`\
 https://www.nytimes.com/2026/10/03/crosswords/daily-puzzle-2026-10-04.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/business/trump-economy-inflation-midterms.htm
 **How a Failed Execution Left Christa Pike Hovering Between Life and Death**\
 `Her legal team had repeatedly warned that her execution could go wrong. On Wednesday, they were proven right.`\
 https://www.nytimes.com/2026/10/03/us/christa-pike-tennessee-execution.html
-
-**Stevie Wonder’s Outtake and 8 More Songs We’re Talking About**\
-`The prolific songwriter reaches back to celebrate the 50th anniversary of “Songs in the Key of Life,” Wynonna opens up, Jae Stephens knows what she’s worth and more.`\
-https://www.nytimes.com/2026/10/03/arts/music/stevie-wonder-songs-wynonna-playlist.html
 
