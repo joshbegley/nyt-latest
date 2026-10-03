@@ -1,3 +1,7 @@
+**Trump’s War Empowers Extremists in Iran**\
+`Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
+https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
+
 **Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
 `Five new Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
 https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
