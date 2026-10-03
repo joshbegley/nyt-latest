@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/10/03/crosswords/wordle-review-1933.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
 https://www.nytimes.com/2026/10/03/crosswords/strands-sidekick-945.html
 
-**In Texas, Talarico Inspires a Recurring Blue-Tinted Dream**\
+**In Texas, Talarico’s Strength in Senate Polls Inspires a Democratic Dream**\
 `After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
 https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html
 
