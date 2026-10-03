@@ -1,3 +1,7 @@
+**With Elon Musk’s Return to Washington, Possible Conflicts of Interest Resurface**\
+`The founder of SpaceX, with billions of dollars in military contracts, joins several other defense industry executives on a Pentagon advisory board.`\
+https://www.nytimes.com/2026/10/03/us/politics/elon-musk-pentagon-returns-to-washington.html
+
 **Trump Criticizes Prosecutor in Charge of New Cornell Rape Investigation**\
 `President Trump criticized Letitia James, the New York state attorney general, who will oversee the Cornell University sexual assault investigation. In 2022, James brought a fraud case against Trump and his family.`\
 https://www.nytimes.com/video/us/politics/100000011191952/trump-letitia-james-prosecutor-cornell-rape.html
