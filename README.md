@@ -1,3 +1,7 @@
+**Peppino Mazzullo, Voice of Topo Gigio For Decades, Dies at 100**\
+`The actor played the role of the sweetly endearing mouse puppet, a character beloved by children all over the world — and, apparently, Ed Sullivan.`\
+https://www.nytimes.com/2026/10/03/arts/television/peppino-mazzullo-dead.html
+
 **Tracking Down Joel Meyerowitz’s ‘Wonderfully Crumpled’ Pork Pie Hat**\
 `We help a reader track down the photographer Joel Meyerowitz’s pork pie.`\
 https://www.nytimes.com/2026/10/03/t-magazine/joel-meyerowitz-hat.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011180446/hey-chris-when-homeless-p
 **Chris Rock: ‘I’ve Been Doing a Lot of Therapy’**\
 `On “The Interview,” Chris Rock discussed moments when he feels insecure.`\
 https://www.nytimes.com/video/podcasts/100000011180445/chris-rock-ive-been-doing-a-lot-of-therapy.html
-
-**Chris Rock on False Accusations and Cancel Culture**\
-`On “The Interview,” Chris Rock talked about how wrongful convictions damage lives, particularly for Black men.`\
-https://www.nytimes.com/video/podcasts/100000011180444/chris-rock-on-false-accusations-and-cancel-culture.html
 
