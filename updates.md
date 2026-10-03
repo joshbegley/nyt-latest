@@ -1,3 +1,7 @@
+**As Midterms Near, Justice Alito Says He Considers Each Year Whether to Retire**\
+`The justice, the second oldest on the court at 76, told CBS News that he decided against stepping down last term. He could face pressure should Democrats win the Senate in November.`\
+https://www.nytimes.com/2026/10/03/us/politics/justice-alito-retirement-supreme-court.html
+
 **Peppino Mazzullo, Voice of Topo Gigio For Decades, Dies at 100**\
 `The actor played the role of the sweetly endearing mouse puppet, a character beloved by children all over the world — and, apparently, Ed Sullivan.`\
 https://www.nytimes.com/2026/10/03/arts/television/peppino-mazzullo-dead.html
