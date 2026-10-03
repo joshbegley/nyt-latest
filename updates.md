@@ -1,3 +1,11 @@
+**Omani Co-Pilot on FlyDubai Flight Is Said to Have Extremist Views**\
+`It was unclear what background checks had been carried out before he was allowed to fly to Israel.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/oman-flydubai-flight-1073-pilot-radicalized.html
+
+**Love and Pain Powered the Game-Changing Art of Krasner and Pollock**\
+`Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Met Museum. Four paintings reveal how their high-intensity relationship became a laboratory for ideas.`\
+https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
+
 **As A.I. Agents Begin Shopping, Brands Are Changing Their Sales Pitch**\
 `Faced with bots immune to traditional marketing tactics, marketers are racing to win them over with logic and data.`\
 https://www.nytimes.com/2026/10/03/business/dealbook/ai-agent-marketing.html
