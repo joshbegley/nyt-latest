@@ -1,3 +1,7 @@
+**Trump Criticizes Prosecutor in Charge of New Cornell Rape Investigation**\
+`President Trump criticized Letitia James, the New York state attorney general, who will oversee the Cornell University sexual assault investigation. In 2022, James brought a fraud case against Trump and his family.`\
+https://www.nytimes.com/video/us/politics/100000011191952/trump-letitia-james-prosecutor-cornell-rape.html
+
 **Trump Urges Republicans to Vote By Mail After Criticizing Practice**\
 `It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/death-penalty.html
 **Don’t Tell Weird Al, but Kyle Gordon’s Satires Are Great Earworms, Too**\
 `The artist behind “Mr. Jambo” and other viral spoofs may be the best musical parodist to emerge this decade.`\
 https://www.nytimes.com/2026/10/03/arts/music/dont-tell-weird-al-but-kyle-gordons-satires-are-great-earworms-too.html
-
-**Senate Races in Republican States Tilt Toward Democrats, Polls Find**\
-`Democrats are performing strongly in five reliably Republican states where they are trying to flip Senate seats to win control of the chamber, new New York Times/Siena polls found.`\
-https://www.nytimes.com/2026/10/03/us/senate-polls-texas-kansas-ohio-alaska-iowa.html
 
