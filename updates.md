@@ -1,3 +1,7 @@
+**Iraq Wins U.S. Permission to Resume Iran Flights, Prime Minister Says**\
+`Flights between the neighboring countries had been halted after broad U.S. penalties on Iran’s aviation industry.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/iraq-iran-flights-us-sanctions.html
+
 **Understanding Canada’s Europe Pivot**\
 `You sent us your questions about the prime minister’s plan to form a closer relationship with the European Union. Our Canada bureau chief answers them.`\
 https://www.nytimes.com/2026/10/03/world/canada/carney-canada-european-union-trade-currency.html
