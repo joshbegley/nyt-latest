@@ -1,3 +1,11 @@
+**Happy as a Clam Pasta**\
+`My clam pasta with white wine and garlic, that is.`\
+https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
+
+**What to Know About France’s High School Protests**\
+`Students angry over the state of the country’s education system have blockaded hundreds of schools. Thousands of protesters have been arrested and dozens of people injured.`\
+https://www.nytimes.com/2026/10/03/world/europe/high-school-student-protest-what-to-know.html
+
 **After Outcry, Monitors the Trump Administration Tried to Scrap Return to Sea**\
 `Under pressure from Congress, a network of ocean monitors that provides vital data to meteorologists, climate scientists, oceanographers and the fishing industry is being restored.`\
 https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-administration-tried-to-scrap-return-to-sea.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/03/world/canada/quebec-election-independence-par
 **Love and Pain Powered the Game-Changing Art of Krasner and Pollock**\
 `Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Met Museum. Four paintings reveal how their high-intensity relationship became a laboratory for ideas.`\
 https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
-
-**What Items Should I Expect to Still Be There at the Walk-through?**\
-`Talk through anything with gray area before the closing to have clarity and avoid disappointment.`\
-https://www.nytimes.com/2026/10/03/realestate/what-items-should-i-expect-to-still-be-there-at-the-walk-through.html
-
-**How Aging Life Care Managers Help Families**\
-`They can arrange a move to a senior living facility, deal with Medicare and Medicaid, recommend doctors, drive a client to the dentist, and much more.`\
-https://www.nytimes.com/2026/10/03/well/family/geriatric-care-managers.html
 
