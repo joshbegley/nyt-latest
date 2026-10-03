@@ -1,3 +1,7 @@
+**Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
+`Five new Times/Siena polls continue a run of strong results for the party in states that President Trump won easily in 2024.`\
+https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
+
 **Opinion: What the Cornell Lawsuit Reveals About Sexual Violence in America**\
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html

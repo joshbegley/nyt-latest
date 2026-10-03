@@ -1,3 +1,7 @@
+**Trump’s War Empowers Extremists in Iran**\
+`Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
+https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
+
 **Opinion: What the Cornell Lawsuit Reveals About Sexual Violence in America**\
 `The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
 https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/movies/matt-rife-rolling-loud-altruists.html
 **ListenWithUs Helps Couples Turn Their Weddings Into Podcasts**\
 `Will Coley will spend hours chronicling a couple’s relationship, both as a “promo of sorts” to their wedding, and as an artifact of their connection.`\
 https://www.nytimes.com/2026/10/03/style/will-coley-listenwithus-wedding-podcast.html
-
-**New Mystery Books for Fall**\
-`Our columnist on James Sallis’s “Backwater” and three other new novels.`\
-https://www.nytimes.com/2026/10/03/books/review/new-mystery-books.html
 
