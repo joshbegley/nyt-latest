@@ -1,3 +1,7 @@
+**As She Divorces Ken Paxton, His Wife Urges Texans to Vote for Him**\
+`In a new ad, Angela Paxton tells voters to focus on the “whole team,” not “individual players.”`\
+https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
+
 **Ex-Sheriff’s Deputy Acquitted in Fatal Shooting of Airman Roger Fortson**\
 `The airman, Roger Fortson, had answered a knock at his home in Fort Walton Beach while holding a gun, and was shot within seconds. A Florida jury cleared the former deputy, Eddie Duran.`\
 https://www.nytimes.com/2026/10/03/us/air-force-shooting-florida-deputy-acquitted.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/politics/kushner-witkoff-russia-oil-deal.h
 **Linda Asher, Who Widened The New Yorker’s Taste in Fiction, Dies at 93**\
 `She published new voices like Haruki Murakami at the magazine and translated stories and books by Milan Kundera and Balzac from French.`\
 https://www.nytimes.com/2026/10/03/obituaries/linda-asher-dead.html
-
-**Chris Rock on Forgiving His Friends and Woke 1.0**\
-`“You don’t really realize if you love somebody until you have to forgive them,” Chris Rock said on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011184775/chris-rock-on-forgiving-his-friends-and-woke-1-0.html
 

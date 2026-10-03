@@ -1,3 +1,7 @@
+**As She Divorces Ken Paxton, His Wife Urges Texans to Vote for Him**\
+`In a new ad, Angela Paxton tells voters to focus on the “whole team,” not “individual players.”`\
+https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
+
 **Ex-Sheriff’s Deputy Acquitted in Fatal Shooting of Airman Roger Fortson**\
 `The airman, Roger Fortson, had answered a knock at his home in Fort Walton Beach while holding a gun, and was shot within seconds. A Florida jury cleared the former deputy, Eddie Duran.`\
 https://www.nytimes.com/2026/10/03/us/air-force-shooting-florida-deputy-acquitted.html
