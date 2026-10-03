@@ -1,3 +1,7 @@
+**Tennessee Prison Chief Was Hired Despite a Trail of Troubled Executions**\
+`The failed execution of Christa Pike has prompted new scrutiny of Frank Strada, the state’s top prison official, and his past role overseeing executions in Arizona.`\
+https://www.nytimes.com/2026/10/02/us/frank-strada-tennessee-executions-arizona-christa-pike.html
+
 **D.A. in Cornell Rape Inquiry Declined to Review Additional Evidence**\
 `Records show that campus police officers informed Tompkins County prosecutors that they had conducted additional interviews beyond taking a statement from the woman who said she was raped.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-lawsuit-da-evidence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/02/upshot/flashback.html
 **Why Were 4 Pilots Aboard FlyDubai Flight 1073?**\
 `After the co-pilot stabbed the captain, two pilots who were seated in the cabin intervened alongside passengers and safely landed the Boeing 737 in Saudi Arabia.`\
 https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-flight-cockpit-stabbing-extra-pilots.html
-
-**The C.D.C. Gutted, and Lives at Risk**\
-`Doctors write about how the Trump administration has cut the C.D.C. and is undermining faith in vaccines. Also: Republican shifts of convenience.`\
-https://www.nytimes.com/2026/10/02/opinion/cdc-gutted.html
 

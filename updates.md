@@ -1,3 +1,7 @@
+**Tennessee Prison Chief Was Hired Despite a Trail of Troubled Executions**\
+`The failed execution of Christa Pike has prompted new scrutiny of Frank Strada, the state’s top prison official, and his past role overseeing executions in Arizona.`\
+https://www.nytimes.com/2026/10/02/us/frank-strada-tennessee-executions-arizona-christa-pike.html
+
 **D.A. in Cornell Rape Inquiry Declined to Review Additional Evidence**\
 `Records show that campus police officers informed Tompkins County prosecutors that they had conducted additional interviews beyond taking a statement from the woman who said she was raped.`\
 https://www.nytimes.com/2026/10/02/nyregion/cornell-rape-lawsuit-da-evidence.html
