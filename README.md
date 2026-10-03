@@ -1,3 +1,7 @@
+**Paris Reviews: Dior, Maison Margiela, Givenchy**\
+`Playing with perception at Dior, Maison Margiela and Givenchy (among others).`\
+https://www.nytimes.com/2026/10/03/style/dior-margiela-givenchy-pfw.html
+
 **Statue of Liberty Boat Tours: Legit or Scams? Depends Whom You Ask.**\
 `New York City lawmakers say many vendors are misleading tourists who seek an up-close experience, and they want to tighten enforcement. Sellers say they are serving a market.`\
 https://www.nytimes.com/2026/10/03/nyregion/statue-of-liberty-tours-scam-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/02/us/documentfragment813181-2.html
 **National Science Foundation Diverted $1.4 Billion in Science Funds Mandated by Congress**\
 `The move, affecting about one-fifth of the National Science Foundation’s primary research budget, is the latest sign of how the White House is asserting more control over grants.`\
 https://www.nytimes.com/2026/10/02/us/politics/national-science-foundation-research-funds.html
-
-**Former Florida Rep. David Rivera Sentenced to 10 Years in Venezuela Lobbying Case**\
-`David Rivera, a Miami Republican, was convicted of secretly lobbying officials in Washington on behalf of the Venezuelan government in 2017 and 2018.`\
-https://www.nytimes.com/2026/10/02/us/david-rivera-prison-sentence.html
 
