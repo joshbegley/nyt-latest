@@ -1,3 +1,7 @@
+**Russia Turns to Striking Kyiv’s Bridges, Threatening a Vital Lifeline**\
+`The bridges, used by many commuters in the Ukrainian capital, are the latest target in a broad Russian bombing campaign against infrastructure.`\
+https://www.nytimes.com/2026/10/03/world/europe/russia-ukraine-bridges-kyiv.html
+
 **Rage and Love Powered the Game-Changing Art of Krasner and Pollock**\
 `Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Metropolitan Museum of Art. Four paintings reveal how their relationship became a laboratory for ideas.`\
 https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html

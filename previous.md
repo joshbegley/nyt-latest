@@ -1,3 +1,7 @@
+**Russia Turns to Striking Kyiv’s Bridges, Threatening a Vital Lifeline**\
+`The bridges, used by many commuters in the Ukrainian capital, are the latest target in a broad Russian bombing campaign against infrastructure.`\
+https://www.nytimes.com/2026/10/03/world/europe/russia-ukraine-bridges-kyiv.html
+
 **Trump’s War Empowers Extremists in Iran**\
 `Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
 https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/books/review/diego-muzzio-eye-of-goliath.html
 **Matt Rife Got His Love of Horror Movies From His Grandma**\
 `“She always had the Syfy channel on, and I just wandered in on so many of them,” the comedian and actor said. “It gets my adrenaline going.”`\
 https://www.nytimes.com/2026/10/03/movies/matt-rife-rolling-loud-altruists.html
-
-**ListenWithUs Helps Couples Turn Their Weddings Into Podcasts**\
-`Will Coley will spend hours chronicling a couple’s relationship, both as a “promo of sorts” to their wedding, and as an artifact of their connection.`\
-https://www.nytimes.com/2026/10/03/style/will-coley-listenwithus-wedding-podcast.html
 
