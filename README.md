@@ -1,3 +1,7 @@
+**Omani Co-Pilot on FlyDubai Flight Is Said to Have Extremist Views**\
+`It was unclear what background checks had been carried out before he was allowed to fly to Israel.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/oman-flydubai-flight-1073-pilot-radicalized.html
+
 **As A.I. Agents Begin Shopping, Brands Are Changing Their Sales Pitch**\
 `Faced with bots immune to traditional marketing tactics, marketers are racing to win them over with logic and data.`\
 https://www.nytimes.com/2026/10/03/business/dealbook/ai-agent-marketing.html
@@ -154,8 +158,8 @@ https://www.nytimes.com/2026/10/03/science/loudest-birds.html
 `The Parti Québécois has vowed to hold a referendum on independence, three decades after Quebec voted “no.” Voters want change, but maybe not that much.`\
 https://www.nytimes.com/2026/10/03/world/canada/quebec-election-independence-parti-quebecois-separatism.html
 
-**Rage and Love Powered the Game-Changing Art of Krasner and Pollock**\
-`Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Metropolitan Museum of Art. Four paintings reveal how their relationship became a laboratory for ideas.`\
+**Love and Pain Powered the Game-Changing Art of Krasner and Pollock**\
+`Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Met Museum. Four paintings reveal how their high-intensity relationship became a laboratory for ideas.`\
 https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
 
 **What Items Should I Expect to Still Be There at the Walk-through?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/world/americas/american-teenage-gun-trafficke
 **Indian Official’s Restaurant Raids Turn Him Into a Social Media Star**\
 `A food safety commissioner is grabbing attention with surprise raids at restaurants, where his inspectors have found cockroaches, expired ingredients and dirty kitchens.`\
 https://www.nytimes.com/video/world/asia/100000011181202/india-food-inspector-social-media.html
-
-**Book Review: ‘The Eye of Goliath,’ by Diego Muzzio**\
-`Set just after World War I, “The Eye of Goliath” details a man’s descent into madness and a doctor’s unorthodox treatment methods.`\
-https://www.nytimes.com/2026/10/03/books/review/diego-muzzio-eye-of-goliath.html
 

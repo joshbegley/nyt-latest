@@ -1,3 +1,7 @@
+**As A.I. Agents Begin Shopping, Brands Are Changing Their Sales Pitch**\
+`Faced with bots immune to traditional marketing tactics, marketers are racing to win them over with logic and data.`\
+https://www.nytimes.com/2026/10/03/business/dealbook/ai-agent-marketing.html
+
 **Russia Turns to Striking Kyiv’s Bridges, Threatening a Vital Lifeline**\
 `The bridges, used by many commuters in the Ukrainian capital, are the latest target in a broad Russian bombing campaign against infrastructure.`\
 https://www.nytimes.com/2026/10/03/world/europe/russia-ukraine-bridges-kyiv.html
