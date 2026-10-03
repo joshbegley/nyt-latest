@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-admin
 https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
 
 **Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
-`The plane, a Gulfstream G100 with six people aboard, lost contact at around 2 a.m. A search was underway Saturday off the coast of Nantucket.`\
+`The plane, with four Canadians on board and two people picked up in Bermuda, lost contact shortly after 1 a.m. A search was underway Saturday off the coast of Nantucket, Mass.`\
 https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
 
 **How RAF Fairford in a Quiet Corner of England Became a U.S.-Iran Flashpoint**\
