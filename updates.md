@@ -1,3 +1,7 @@
+**One of My Father’s Caregivers Asked for Money. Should I Give It to Him?**\
+`He asked if we could “sponsor” him for a course that would help further his career in health care.`\
+https://www.nytimes.com/2026/10/03/magazine/caregiver-money-tuition-ethics.html
+
 **Omani Co-Pilot on FlyDubai Flight Is Said to Have Extremist Views**\
 `It was unclear what background checks had been carried out before he was allowed to fly to Israel.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/oman-flydubai-flight-1073-pilot-radicalized.html
