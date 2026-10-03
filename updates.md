@@ -1,3 +1,7 @@
+**Cornell and the Age of Impunity**\
+`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
+https://www.nytimes.com/video/opinion/100000011188276/cornell-and-the-age-of-impunity.html
+
 **Iraq Wins U.S. Permission to Resume Iran Flights, Prime Minister Says**\
 `Flights between the neighboring countries had been halted after broad U.S. penalties on Iran’s aviation industry.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/iraq-iran-flights-us-sanctions.html
