@@ -1,3 +1,7 @@
+**One of My Father’s Caregivers Asked for Money. Should I Give It to Him?**\
+`He asked if we could “sponsor” him for a course that would help further his career in health care.`\
+https://www.nytimes.com/2026/10/03/magazine/caregiver-money-tuition-ethics.html
+
 **Omani Co-Pilot on FlyDubai Flight Is Said to Have Extremist Views**\
 `It was unclear what background checks had been carried out before he was allowed to fly to Israel.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/oman-flydubai-flight-1073-pilot-radicalized.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/world/asia/tukaram-mundhe-india-mumbai-food-r
 **What We Learned About American Teenagers Supplying Guns to Cartels**\
 `Our reporting revealed how Mexican criminal groups are relying on teenagers and young adults in border states like Arizona to help supply their weapons.`\
 https://www.nytimes.com/2026/10/03/world/americas/american-teenage-gun-traffickers.html
-
-**Indian Official’s Restaurant Raids Turn Him Into a Social Media Star**\
-`A food safety commissioner is grabbing attention with surprise raids at restaurants, where his inspectors have found cockroaches, expired ingredients and dirty kitchens.`\
-https://www.nytimes.com/video/world/asia/100000011181202/india-food-inspector-social-media.html
 
