@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
 
 **Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
-`Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
+`Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review began.`\
 https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-christa-pike.html
 
 **Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
