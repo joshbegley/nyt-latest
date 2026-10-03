@@ -1,3 +1,7 @@
+**Iraq Wins U.S. Permission to Resume Iran Flights, Prime Minister Says**\
+`Flights between the neighboring countries had been halted after broad U.S. penalties on Iran’s aviation industry.`\
+https://www.nytimes.com/2026/10/03/world/middleeast/iraq-iran-flights-us-sanctions.html
+
 **Understanding Canada’s Europe Pivot**\
 `You sent us your questions about the prime minister’s plan to form a closer relationship with the European Union. Our Canada bureau chief answers them.`\
 https://www.nytimes.com/2026/10/03/world/canada/carney-canada-european-union-trade-currency.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-toplines.h
 **Cross-Tabs: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
 `Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-crosstabs.html
-
-**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
-`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-toplines.html
 
