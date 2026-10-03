@@ -1,3 +1,7 @@
+**F.D.A. Classifies Salad Dressing Recall to Highest Health Risk**\
+`Salata Dressings initiated the recall of its Jalapeño Avocado Dressing in August over concerns about possible salmonella contamination.`\
+https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmonella.html
+
 **Russia’s Latest Infrastructure Target: Ukraine’s Bridges**\
 `Russia’s new infrastructure target has become Ukraine’s bridges. It attacked six bridges in the country’s capital, Kyiv, over the past three days.`\
 https://www.nytimes.com/video/world/europe/100000011191929/ukraine-bridges-russia-kyiv-traffic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/politics/how-a-provocative-ad-on-trump-and
 **Corrections: Oct. 3, 2026**\
 `The following corrections appeared in print on Saturday, Oct. 3, 2026.`\
 https://www.nytimes.com/2026/10/03/pageoneplus/corrections-oct-3-2026.html
-
-**Cornell Case Revives Anger About Handling of Campus Sexual Assault Cases**\
-`A lawsuit alleging rape at Cornell has led to an outpouring of women sharing stories about sexual violence on college campuses.`\
-https://www.nytimes.com/2026/10/03/us/cornell-rape-campus-sexual-assault.html
 
