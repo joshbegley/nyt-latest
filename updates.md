@@ -1,3 +1,11 @@
+**Peppino Mazzullo, Voice of Topo Gigio For Decades, Dies at 100**\
+`The actor played the role of the sweetly endearing mouse puppet, a character beloved by children all over the world — and, apparently, Ed Sullivan.`\
+https://www.nytimes.com/2026/10/03/arts/television/peppino-mazzullo-dead.html
+
+**Tracking Down Joel Meyerowitz’s ‘Wonderfully Crumpled’ Pork Pie Hat**\
+`We help a reader track down the photographer Joel Meyerowitz’s pork pie.`\
+https://www.nytimes.com/2026/10/03/t-magazine/joel-meyerowitz-hat.html
+
 **New Police Footage Shows Luigi Mangione’s Arrest**\
 `Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
 https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
