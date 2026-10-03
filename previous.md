@@ -1,3 +1,7 @@
+**Trump, Critic of Voting by Mail, Urges Republicans to Do It in Midterms**\
+`It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
+https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
+
 **Former Nurse Convicted of Murder in Crash at 130 M.P.H. That Killed Six**\
 `Nicole Linton was found guilty of six counts of second-degree murder, which included the death of an unborn child, related to a 2022 crash in Los Angeles.`\
 https://www.nytimes.com/2026/10/03/us/woman-murder-car-crash-los-angeles.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/arts/music/dont-tell-weird-al-but-kyle-gordon
 **Senate Races in Republican States Tilt Toward Democrats, Polls Find**\
 `Democrats are performing strongly in five reliably Republican states where they are trying to flip Senate seats to win control of the chamber, new New York Times/Siena polls found.`\
 https://www.nytimes.com/2026/10/03/us/senate-polls-texas-kansas-ohio-alaska-iowa.html
-
-**U.S.-Russia Talks on Ukraine Now Involve an Oil Deal Tied to Trump Allies**\
-`President Vladimir V. Putin brought up a sale of Russian energy assets with President Trump’s envoys, Jared Kushner and Steve Witkoff, pushing a deal that raises new questions about conflicts of interest.`\
-https://www.nytimes.com/2026/10/03/us/politics/kushner-witkoff-russia-oil-deal.html
 

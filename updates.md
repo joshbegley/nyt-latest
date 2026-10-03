@@ -1,3 +1,7 @@
+**Trump, Critic of Voting by Mail, Urges Republicans to Do It in Midterms**\
+`It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
+https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
+
 **Former Nurse Convicted of Murder in Crash at 130 M.P.H. That Killed Six**\
 `Nicole Linton was found guilty of six counts of second-degree murder, which included the death of an unborn child, related to a 2022 crash in Los Angeles.`\
 https://www.nytimes.com/2026/10/03/us/woman-murder-car-crash-los-angeles.html
