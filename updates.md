@@ -1,3 +1,51 @@
+**Toplines: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 2,946 voters from Sept. 21 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 605 voters from Sept. 22 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-kansas-poll-crosstabs.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 615 voters from Sept. 21 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-toplines.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-crosstabs.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 606 voters from Sept. 22 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-iowa-poll-toplines.html
+
+**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 504 voters from Sept. 24 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-alaska-poll-crosstabs.html
+
+**Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 504 voters from Sept. 24 to Oct. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-alaska-poll-toplines.html
+
 **Paris Reviews: Dior, Maison Margiela, Givenchy**\
 `Playing with perception at Dior, Maison Margiela and Givenchy (among others).`\
 https://www.nytimes.com/2026/10/03/style/dior-margiela-givenchy-pfw.html
