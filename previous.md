@@ -1,3 +1,7 @@
+**In Texas, Talarico Inspires a Recurring Blue-Tinted Dream**\
+`After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
+https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html
+
 **Slow Motion**\
 `The constant flow of digital updates doesn’t allow for true connection.`\
 https://www.nytimes.com/2026/10/03/briefing/slow-motion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-texas-poll-topl
 **Toplines: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
 `Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-toplines.html
-
-**Cross-Tabs: September 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll conducted among 616 voters from Sept. 22 to Oct. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/10/03/polls/times-siena-ohio-poll-crosstabs.html
 
