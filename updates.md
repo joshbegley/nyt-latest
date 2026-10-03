@@ -1,3 +1,7 @@
+**Rage and Love Powered the Game-Changing Art of Krasner and Pollock**\
+`Lee Krasner and Jackson Pollock are the focus of a blockbuster show at the Metropolitan Museum of Art. Four paintings reveal how their relationship became a laboratory for ideas.`\
+https://www.nytimes.com/2026/10/03/arts/design/lee-krasner-and-jackson-pollock-met-museum.html
+
 **Trump’s War Empowers Extremists in Iran**\
 `Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
 https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
