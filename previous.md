@@ -1,3 +1,7 @@
+**Former Nurse Convicted of Murder in Crash at 130 M.P.H. That Killed Six**\
+`Nicole Linton was found guilty of six counts of second-degree murder, which included the death of an unborn child, related to a 2022 crash in Los Angeles.`\
+https://www.nytimes.com/2026/10/03/us/woman-murder-car-crash-los-angeles.html
+
 **As She Divorces Ken Paxton, His Wife Urges Texans to Vote for Him**\
 `In a new ad, Angela Paxton tells voters to focus on the “whole team,” not “individual players.”`\
 https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/senate-polls-texas-kansas-ohio-alaska-iowa
 **U.S.-Russia Talks on Ukraine Now Involve an Oil Deal Tied to Trump Allies**\
 `President Vladimir V. Putin brought up a sale of Russian energy assets with President Trump’s envoys, Jared Kushner and Steve Witkoff, pushing a deal that raises new questions about conflicts of interest.`\
 https://www.nytimes.com/2026/10/03/us/politics/kushner-witkoff-russia-oil-deal.html
-
-**Linda Asher, Who Widened The New Yorker’s Taste in Fiction, Dies at 93**\
-`She published new voices like Haruki Murakami at the magazine and translated stories and books by Milan Kundera and Balzac from French.`\
-https://www.nytimes.com/2026/10/03/obituaries/linda-asher-dead.html
 
