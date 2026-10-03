@@ -1,5 +1,13 @@
 **Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
 `Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
+https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-christa-pike.html
+
+**What the Cornell Lawsuit Reveals About Sexual Violence in America**\
+`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
+https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
+
+**Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
+`Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review begins.`\
 https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-rank-strada.html
 
 **Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
