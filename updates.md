@@ -1,3 +1,11 @@
+**Trump Shows His Contempt for Us. Again.**\
+`This is ‘what authoritarian governments do to promote their leaders.’`\
+https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
+
+**I Love That Skinny Jeans Are Back**\
+`You live long enough and the music and the clothes of your youth get repackaged and sold back to you. But skinny jeans and white belts? Really?`\
+https://www.nytimes.com/2026/10/03/opinion/culture/the-luxury-of-looking-a-mess.html
+
 **F.D.A. Classifies Salad Dressing Recall to Highest Health Risk**\
 `Salata Dressings initiated the recall of its Jalapeño Avocado Dressing in August over concerns about possible salmonella contamination.`\
 https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmonella.html
