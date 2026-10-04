@@ -1,3 +1,11 @@
+**Now’s the Perfect Time for Ratatouille, Actually**\
+`Especially my sheet-pan version, which adds crispy spiced chickpeas for protein and crunch.`\
+https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-actually.html
+
+**Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
+`A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
+https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-homecoming.html
+
 **Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
 `The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\
 https://www.nytimes.com/video/world/middleeast/100000011192557/houthis-attack-saudi-arabia-oil-yemen-aramco-strikes.html
