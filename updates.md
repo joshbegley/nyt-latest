@@ -1,3 +1,59 @@
+**Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
+`The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
+https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
+
+**Democrats Lead Governor Races Deep in Republican Territory, Polls Show**\
+`Democratic advantages in the races for governor in Texas, Iowa, Ohio and Alaska reflect deep unhappiness with President Trump and the economy. A Republican leads in Kansas.`\
+https://www.nytimes.com/2026/10/04/us/politics/governors-poll-democrats-lead.html
+
+**U.K. Base Would Be Ambitious Target for ‘Gig Economy’ Warfare**\
+`The U.S. war in Iran unleashed small-scale attacks by local criminals or disenfranchised young men hired anonymously to target Jewish and American sites in Europe and North America, experts say.`\
+https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html
+
+**Tight Competition: The Contest to Name Philly’s Best Parallel Parker**\
+`Out of more than 900 applicants, 15 were chosen to compete in three rounds, including “Tight Squeeze” and “Under Duress.”`\
+https://www.nytimes.com/2026/10/04/us/parallel-parking-competition-philadelphia.html
+
+**Some Democrats, Scarred by 2024, Take a Harder Line on Trans Athletes**\
+`Democrats competing in historically conservative territory in the midterms are more aggressively responding to Republican attacks casting them as extreme.`\
+https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms.html
+
+**How Trump Moved Ethical Lines With His Ads, Businesses and Summits**\
+`The president’s decision to hold an international summit at his own private golf club, an idea rejected in his first term, illustrates how much he has shattered norms.`\
+https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
+
+**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, not so much.**\
+`Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
+https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
+
+**Brazil Election: What to Know as Lula and Bolsonaro Face Off in 2026 Presidential Race**\
+`Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a race that could define the future of Latin America.`\
+https://www.nytimes.com/2026/10/04/world/americas/brazil-election-2026-president-race-lula-bolsonaro.html
+
+**Nobel Prizes 2026: What to Know**\
+`Six awards will be announced this week in science, literature, economics and peace work.`\
+https://www.nytimes.com/article/nobel-prizes-2026.html
+
+**Who Owns the Moon?**\
+`A treaty from the 1960s declared that nobody can own outer space. Half a century later, billionaires and superpowers see fortunes to be made nonetheless.`\
+https://www.nytimes.com/2026/10/04/world/asia/who-owns-moon.html
+
+**Voters Say Congress Is Too Old. But Older Candidates Keep Winning.**\
+`In primary races across the country, incumbency trumped calls for generational change, as older members of Congress held off younger challengers.`\
+https://www.nytimes.com/interactive/2026/10/04/us/elections/gerontocracy.html
+
+**Russians Snap Up Chinese E.V.s as Ukrainian Attacks Make Fuel Scarce**\
+`As Ukraine increasingly takes the war to Russia, the effects may be most visible on the roads.`\
+https://www.nytimes.com/2026/10/04/world/europe/russia-ukraine-war-ev-sales.html
+
+**‘No Tax on Tips’ May Fall Flat for G.O.P. in Fight for House and Senate**\
+`Tipped workers in Arizona have benefited from the G.O.P.’s big tax cut. But they face economic stress from other Republican policies.`\
+https://www.nytimes.com/2026/10/04/us/politics/tax-cuts-congress-arizona-republicans.html
+
+**Why Older Lawmakers Keep Winning Elections**\
+`Analysis by The New York Times showed older incumbents consistently beating their younger challengers in this year’s midterm primaries. Our national political correspondent Lisa Lerer looks at why.`\
+https://www.nytimes.com/video/us/politics/100000011169869/why-voters-elect-older-lawmakers-midterm-elections.html
+
 **P.&G.’s Chief on Whether Brand Loyalty Is Enough When Prices Keep Climbing**\
 `Procter & Gamble’s new boss, Shailesh Jejurikar, talks about how the company is thinking about higher costs, what gets passed on to consumers and how A.I. helps it compete.`\
 https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.html
