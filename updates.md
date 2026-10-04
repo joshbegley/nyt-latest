@@ -1,3 +1,7 @@
+**How to Die**\
+`We look at one family’s struggle to navigate a terminal illness.`\
+https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
+
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
 `The Iran-backed militia said it targeted an Aramco site in Saudi Arabia’s capital, Riyadh, and fresh airstrikes hit the Yemeni capital, raising fears of a widening war.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html

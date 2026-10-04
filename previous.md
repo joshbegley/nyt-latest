@@ -1,3 +1,7 @@
+**How to Die**\
+`We look at one family’s struggle to navigate a terminal illness.`\
+https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
+
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
 `The Iran-backed militia said it targeted an Aramco site in Saudi Arabia’s capital, Riyadh, and fresh airstrikes hit the Yemeni capital, raising fears of a widening war.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/travel/singapore-bangkok-train-historic-shutt
 **Quote of the Day: Extra Pilots on Flight to Tel Aviv Took Controls**\
 `Quotation of the Day for Sunday, October 4, 2026.`\
 https://www.nytimes.com/2026/10/04/pageoneplus/quote-of-the-day-extra-pilots-on-flight-to-tel-aviv-took-controls.html
-
-**On This Day, Oct. 4: In 1957, the Soviet Union launched Sputnik**\
-`In 1957, the Soviet Union launched Sputnik, the first artificial satellite, into orbit, kicking off the space race during the Cold War.`\
-https://www.nytimes.com/2026/10/04/learning/on-this-day-oct-4.html
 
