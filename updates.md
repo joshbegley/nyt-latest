@@ -1,3 +1,11 @@
+**U.S. Rushes to Withdraw Bombers From U.K. Air Base After New Threats**\
+`The withdrawal came with unusual speed, following what U.S. officials said were threats of an Iran-based plot against the installation.`\
+https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-iran.html
+
+**Steve Hilton’s ‘Just Try It’ Ad on Mail Voting Denounced by Republicans**\
+`An online spot for Mr. Hilton, the G.O.P. candidate, is full of sexual innuendo that has befuddled Republicans and Democrats watching the race for governor in California.`\
+https://www.nytimes.com/2026/10/04/us/steve-hilton-just-try-it-ad.html
+
 **With ‘Verity,’ Anne Hathaway Has Her Third No. 1 Movie This Year**\
 `“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
 https://www.nytimes.com/2026/10/04/movies/anne-hathaway-verity-odyssey-devil-wears-prada.html
