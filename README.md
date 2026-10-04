@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
 
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
-`The Iran-backed militia said it targeted an Aramco site in Saudi Arabia’s capital, Riyadh, and fresh airstrikes hit the Yemeni capital, raising fears of a widening war.`\
+`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reginited.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
 
 **Christa Pike Has Exposed the Truth About Lethal Injection**\
