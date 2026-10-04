@@ -1,3 +1,7 @@
+**Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
+`Biljana Plavsic, a Bosnian Serb, pleaded guilty to one count of crimes against humanity. She later recanted and said she “would do the same again.”`\
+https://www.nytimes.com/2026/10/04/world/europe/biljana-plavsic-dead.html
+
 **‘S.N.L.’ Recap: Taylor Swift Makes a Surprise Cameo and Trump Gets Some Last-Minute Promo**\
 `Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
 https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
