@@ -1,3 +1,7 @@
+**The ‘Most Profound Documentary Series in the History of Cinema’ Is Over**\
+`In the “Up” series, a TV crew followed more than a dozen people over six decades of their lives.`\
+https://www.nytimes.com/2026/10/04/briefing/70-up-series.html
+
 **‘S.N.L.’ Offers Last-Minute Promo Help to Trump and Hegseth**\
 `Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
 https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html

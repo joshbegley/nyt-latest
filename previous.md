@@ -1,3 +1,7 @@
+**The ‘Most Profound Documentary Series in the History of Cinema’ Is Over**\
+`In the “Up” series, a TV crew followed more than a dozen people over six decades of their lives.`\
+https://www.nytimes.com/2026/10/04/briefing/70-up-series.html
+
 **‘S.N.L.’ Offers Last-Minute Promo Help to Trump and Hegseth**\
 `Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
 https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for October 4, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/04/crosswords/spelling-bee-forum.html
-
-**The ‘God Gap’ Is Narrowing in Texas**\
-`It may not be enough for James Talarico to win. But might it also be a sign of a change to come?`\
-https://www.nytimes.com/2026/10/04/opinion/talarico-paxton-texas-senate-evangelicals.html
 
