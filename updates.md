@@ -1,3 +1,11 @@
+**Court Tosses ​​Sentence After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
+`An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
+https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
+
+**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
+`More than 200 U.S. intelligence and military analysts are in Saudi Arabia helping it provide assistance to its Yemeni allies, current and former U.S. officials say.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
+
 **Measles Outbreak in Amish Country Forces Some to Rethink Vaccines**\
 `The spread of measles in Pennsylvania and Ohio is largely affecting Amish communities where vaccinations levels are low.`\
 https://www.nytimes.com/2026/10/04/us/amish-vaccines-measles.html
