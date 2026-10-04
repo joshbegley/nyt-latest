@@ -1,3 +1,7 @@
+**Trump Promotes Data Centers at Rally With Republican Facing Heat on Them**\
+`The president defended the complexes, which have become a liability for Senator Jon Husted in a challenging midterm race.`\
+https://www.nytimes.com/2026/10/03/us/politics/trump-data-centers-husted-ohio.html
+
 **How Cornell Punished Each of the 7 Men Accused of Sexual Assault**\
 `Summaries obtained by The New York Times offer a detailed look at the discipline meted out to the men accused of sexually assaulting a fellow student at Cornell University.`\
 https://www.nytimes.com/2026/10/03/nyregion/cornell-men-university-discipline.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/briefing/slow-motion.html
 **FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
 `The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
 https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
-
-**Chris Rock Has Been Thinking About Forgiveness**\
-`The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
-https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
 
