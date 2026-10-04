@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
 
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
-`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reignited.`\
+`The announcement follows weeks of fighting with the Iran-allied armed group and threatens to deepen U.S. involvement in the widening Middle East conflict.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
 
 **I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
