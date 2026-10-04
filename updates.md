@@ -1,3 +1,7 @@
+**Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot**\
+`The Omani co-pilot who officials said tried to crash the plane was said to have embraced extremist Islamist views.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html
+
 **How to Die**\
 `We look at one family’s struggle to navigate a terminal illness.`\
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
