@@ -1,3 +1,11 @@
+**Sentence Tossed After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
+`An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
+https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
+
+**Popular Cookie Chain Abruptly Shuts Down in New York City**\
+`The chain, which began as a shop in Astoria, Queens, and expanded as far as Texas, closed all locations on Friday.`\
+https://www.nytimes.com/2026/10/04/nyregion/chip-city-stores-closed.html
+
 **Anne Hathaway Ends ‘Renaissance’ Year With Third No. 1 Movie**\
 `“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
 https://www.nytimes.com/2026/10/04/movies/anne-hathaway-odyseey-devil-prada-verity.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/04/us/politics/kristi-noem-planes-donor.html
 **The Search for Gas in Moscow**\
 `Our reporter Ivan Nechepurenko looks at gas stations in Moscow to see how severe the shortages have become as Ukrainian attacks target Russian refineries.`\
 https://www.nytimes.com/video/world/europe/100000011153950/the-search-for-gas-in-moscow.html
-
-**Dying Patients Are Inundated by Misinformation. My Dad Was One of Them.**\
-`Cancer patients are being persuaded to spend tens of thousands on unproven treatments by alternative-medicine clinics.`\
-https://www.nytimes.com/2026/10/04/magazine/alternative-cancer-clinics-treatment-father.html
-
-**Superpowers Race to Put Nuclear Reactors on the Moon**\
-`The United States wants a reactor on the moon by 2030. A Russian-Chinese alliance is working on one for 2036. Some leading scientists say the danger is great.`\
-https://www.nytimes.com/2026/10/04/world/asia/nuclear-reactors-moon.html
 
