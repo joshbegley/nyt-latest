@@ -1,3 +1,7 @@
+**After Week of Turmoil at Cornell, a Heavy Cloud Hangs Over Student Life**\
+`As the weekend arrived, much of the nightlife in the upstate New York college town was subdued. But there were still some students looking to cut loose.`\
+https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.html
+
 **How Kansas Suddenly Became a Battleground State for Senate Control**\
 `The state hasn’t elected a Democrat to the Senate in nearly a century. Economic challenges during President Trump’s second term, as well as other factors, have put it in play.`\
 https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html

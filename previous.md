@@ -1,3 +1,7 @@
+**After Week of Turmoil at Cornell, a Heavy Cloud Hangs Over Student Life**\
+`As the weekend arrived, much of the nightlife in the upstate New York college town was subdued. But there were still some students looking to cut loose.`\
+https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.html
+
 **How Kansas Suddenly Became a Battleground State for Senate Control**\
 `The state hasn’t elected a Democrat to the Senate in nearly a century. Economic challenges during President Trump’s second term, as well as other factors, have put it in play.`\
 https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/science/ozone-wildfires-smoke.html
 **Book Review: ‘Bad Boy for Life,’ by Cheyenne Roundtree**\
 `The most comprehensive biography of the hip-hop mogul to date is both an in-depth character study and a 30-year chronicle of crime and hubris.`\
 https://www.nytimes.com/2026/10/04/books/review/bad-boy-for-life-cheyenne-roundtree.html
-
-**Christopher Myers Turns Stained Glass Into a Magical ‘Night Ride’**\
-`The artist Christopher Myers designed panels that were built in Mexico and photographed to become a new picture book.`\
-https://www.nytimes.com/2026/10/04/books/review/his-ode-to-nycs-magic-starts-with-stained-glass.html
 
