@@ -1,3 +1,7 @@
+**How Cornell Punished Each of the 7 Men Accused of Sexual Assault**\
+`Summaries obtained by The New York Times offer a detailed look at the discipline meted out to the men accused of sexually assaulting a fellow student at Cornell University.`\
+https://www.nytimes.com/2026/10/03/nyregion/cornell-men-university-discipline.html
+
 **Without Saying His Name, Ken Paxton’s Estranged Wife Tells Texans to Vote For Him**\
 `In a new ad, the wife of Ken Paxton, who is divorcing him for alleged adultery, tells Texas voters to focus on the “whole team,” not “individual players.”`\
 https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
