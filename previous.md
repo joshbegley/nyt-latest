@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-
 
 **Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
 `A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
-https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-homecoming.html
+https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-block-party.html
 
 **Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
 `The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\

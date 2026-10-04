@@ -1,3 +1,7 @@
+**Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
+`A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
+https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-block-party.html
+
 **Now’s the Perfect Time for Ratatouille, Actually**\
 `Especially my sheet-pan version, which adds crispy spiced chickpeas for protein and crunch.`\
 https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-actually.html
