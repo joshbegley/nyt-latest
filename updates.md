@@ -1,3 +1,11 @@
+**I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
+`Lethal injection failures are not glitches; they are features of the process.`\
+https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
+
+**How Democrats Have Changed the Way They Talk About Trans Issues**\
+`Democrats competing in historically conservative territory in the midterms are more aggressively responding to Republican attacks casting them as extreme.`\
+https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms.html
+
 **Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
 `A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
 https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-block-party.html

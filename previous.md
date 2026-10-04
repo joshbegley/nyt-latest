@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
 `The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reignited.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
 
-**Christa Pike Has Exposed the Truth About Lethal Injection**\
+**I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
 `Lethal injection failures are not glitches; they are features of the process.`\
 https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
 
@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html
 `Out of more than 900 applicants, 15 were chosen to compete in three rounds, including “Tight Squeeze” and “Under Duress.”`\
 https://www.nytimes.com/2026/10/04/us/parallel-parking-competition-philadelphia.html
 
-**Some Democrats, Scarred by 2024, Take a Harder Line on Trans Athletes**\
+**How Democrats Have Changed the Way They Talk About Trans Issues**\
 `Democrats competing in historically conservative territory in the midterms are more aggressively responding to Republican attacks casting them as extreme.`\
 https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms.html
 

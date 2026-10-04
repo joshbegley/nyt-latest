@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
 `Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
 https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
 
-**Brazil Election: What to Know as Lula and Bolsonaro Face Off in 2026 Presidential Race**\
+**2026 Brazil Elections: What to Know as Lula and Bolsonaro Face Off**\
 `Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a race that could define the future of Latin America.`\
 https://www.nytimes.com/2026/10/04/world/americas/brazil-election-2026-president-race-lula-bolsonaro.html
 
