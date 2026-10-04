@@ -1,3 +1,7 @@
+**Here’s Senator Cotton’s Cell Number, Trump Says, in Dispute Over Daylight Saving Bill**\
+`The president urged people to call Senator Tom Cotton of Arkansas and accused him of blocking a bill to cement daylight saving time.`\
+https://www.nytimes.com/2026/10/03/us/trump-tom-cotton-cellphone-number.html
+
 **Cornell President Calls Rape Inquiry ‘Defining Moment’ for Campus**\
 `Michael I. Kotlikoff said in a video the university would be more transparent, hold Greek groups accountable and improve sexual assault prevention.`\
 https://www.nytimes.com/2026/10/03/nyregion/cornell-president-calls-rape-inquiry-defining-moment-for-campus.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-ta
 **Trump Says Economy Has ‘Public Relations’ Problem Amid High Prices and Slow Hiring**\
 `The president, who had hoped to tout a growing economy on the campaign trail, has found it hard to break through as workers’ wages fail to keep up.`\
 https://www.nytimes.com/2026/10/03/business/trump-economy-inflation-midterms.html
-
-**How a Failed Execution Left Christa Pike Hovering Between Life and Death**\
-`Her legal team had repeatedly warned that her execution could go wrong. On Wednesday, they were proven right.`\
-https://www.nytimes.com/2026/10/03/us/christa-pike-tennessee-execution.html
 
