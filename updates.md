@@ -1,3 +1,7 @@
+**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
+`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reginited.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
+
 **Why My Gen Z Students Are Fascinated by the King James Bible**\
 `The King James Version is a master class in cooperative intellectual struggle.`\
 https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
