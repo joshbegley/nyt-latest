@@ -1,3 +1,7 @@
+**U.S. Rushes to Withdraw Bombers From U.K. Air Base After New Threats**\
+`The withdrawal came with unusual speed, following what U.S. officials said were threats of an Iran-based plot against the installation.`\
+https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-iran.html
+
 **Steve Hilton’s ‘Just Try It’ Ad on Mail Voting Denounced by Republicans**\
 `An online spot for Mr. Hilton, the G.O.P. candidate, is full of sexual innuendo that has befuddled Republicans and Democrats watching the race for governor in California.`\
 https://www.nytimes.com/2026/10/04/us/steve-hilton-just-try-it-ad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011160962/why-did-dhs-buy-these-planes.ht
 **Book Review: ‘The Rush,’ by Nathaniel Philbrick**\
 `In “The Rush,” Nathaniel Philbrick paints a portrait of the treasure seekers, prospectors and conniving politicians who shaped the destiny of the United States.`\
 https://www.nytimes.com/2026/10/04/books/review/the-rush-nathaniel-philbrick.html
-
-**Kristi Noem’s Agency Gave Her Donor a Lucrative Contract Just Before She Left**\
-`The Homeland Security Department signed a multi-million dollar agreement to buy five aircraft from a company owned by a political contributor of the secretary on her last day, documents show.`\
-https://www.nytimes.com/2026/10/04/us/politics/kristi-noem-planes-donor.html
 
