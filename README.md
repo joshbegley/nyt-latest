@@ -1,3 +1,15 @@
+**1,200 Miles From Singapore to Bangkok Before a Historic Shuttle Closes**\
+`A writer takes a weeklong journey, from the island city-state to the Thai capital, in the final days of a historic rail connection.`\
+https://www.nytimes.com/2026/10/04/travel/singapore-bangkok-train-historic-shuttle-closes.html
+
+**Quote of the Day: Extra Pilots on Flight to Tel Aviv Took Controls**\
+`Quotation of the Day for Sunday, October 4, 2026.`\
+https://www.nytimes.com/2026/10/04/pageoneplus/quote-of-the-day-extra-pilots-on-flight-to-tel-aviv-took-controls.html
+
+**On This Day, Oct. 4: In 1957, the Soviet Union launched Sputnik**\
+`In 1957, the Soviet Union launched Sputnik, the first artificial satellite, into orbit, kicking off the space race during the Cold War.`\
+https://www.nytimes.com/2026/10/04/learning/on-this-day-oct-4.html
+
 **Trump Promotes Data Centers at Rally With Republican Facing Heat on Them**\
 `The president defended the complexes, which have become a liability for Senator Jon Husted in a challenging midterm race.`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-data-centers-husted-ohio.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/03/crosswords/wordle-review-1933.html
 **NYT Strands Hints for October 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
 https://www.nytimes.com/2026/10/03/crosswords/strands-sidekick-945.html
-
-**In Texas, Talarico’s Strength in Senate Polls Inspires a Democratic Dream**\
-`After a dry spell of more than three decades, Democrats are daring (yet again) to believe they can win one or more top-of-the-ballot races in a vast and stubbornly red state.`\
-https://www.nytimes.com/2026/10/03/us/politics/texas-talarico.html
-
-**Slow Motion**\
-`The constant flow of digital updates doesn’t allow for true connection.`\
-https://www.nytimes.com/2026/10/03/briefing/slow-motion.html
-
-**FlyDubai Co-Pilot Used Crash Ax in ‘Terrorist’ Cockpit Attack, Emirates Says**\
-`The violent midair assault on a FlyDubai flight to Tel Aviv has deepened concerns about the safety of Israelis traveling abroad.`\
-https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
 
