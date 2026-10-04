@@ -1,3 +1,7 @@
+**Cornell President Calls Allegations ‘Deeply Disturbing’**\
+`Cornell University on Saturday posted an eight-minute video on its website featuring its president, Michael I. Kotlikoff, addressing the fallout from a 2024 sexual assault investigation.`\
+https://www.nytimes.com/video/us/100000011192157/cornell-president-calls-allegations-deeply-disturbing.html
+
 **Here’s Senator Cotton’s Cell Number, Trump Says, in Dispute Over Daylight Saving Bill**\
 `The president urged people to call Senator Tom Cotton of Arkansas and accused him of blocking a bill to cement daylight saving time.`\
 https://www.nytimes.com/2026/10/03/us/trump-tom-cotton-cellphone-number.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
 **Trump, Putin, Ukraine and an Oil Deal: 5 Takeaways**\
 `A proposal to bolster relations with the Kremlin through the purchase of Russian energy assets is striking even for an administration that regularly mixes personal business interests with foreign policy.`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-putin-ukraine-oil-deal-5-takeaways.html
-
-**Trump Says Economy Has ‘Public Relations’ Problem Amid High Prices and Slow Hiring**\
-`The president, who had hoped to tout a growing economy on the campaign trail, has found it hard to break through as workers’ wages fail to keep up.`\
-https://www.nytimes.com/2026/10/03/business/trump-economy-inflation-midterms.html
 
