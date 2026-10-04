@@ -1,3 +1,7 @@
+**The Most Glamorous Show at Paris Fashion Week**\
+`At Michael Rider’s latest Celine show, unexpected proportions, belts and styling choices pointed to a more effortless idea of glamour. Vanessa Friedman, chief fashion critic for The Times, explains.`\
+https://www.nytimes.com/video/style/100000011131914/the-most-glamorous-show-at-paris-fashion-week.html
+
 **NYT Crossword Answers for Oct. 5, 2026**\
 `Chase Dittrich invites us to solve, perchance to smile.`\
 https://www.nytimes.com/2026/10/04/crosswords/daily-puzzle-2026-10-05.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/04/us/elections/gerontocracy.html
 **Russians Snap Up Chinese E.V.s as Ukrainian Attacks Make Fuel Scarce**\
 `As Ukraine increasingly takes the war to Russia, the effects may be most visible on the roads.`\
 https://www.nytimes.com/2026/10/04/world/europe/russia-ukraine-war-ev-sales.html
-
-**‘No Tax on Tips’ May Fall Flat for G.O.P. in Fight for House and Senate**\
-`Tipped workers in Arizona have benefited from the G.O.P.’s big tax cut. But they face economic stress from other Republican policies.`\
-https://www.nytimes.com/2026/10/04/us/politics/tax-cuts-congress-arizona-republicans.html
 

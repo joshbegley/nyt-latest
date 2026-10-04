@@ -1,3 +1,7 @@
+**The Most Glamorous Show at Paris Fashion Week**\
+`At Michael Rider’s latest Celine show, unexpected proportions, belts and styling choices pointed to a more effortless idea of glamour. Vanessa Friedman, chief fashion critic for The Times, explains.`\
+https://www.nytimes.com/video/style/100000011131914/the-most-glamorous-show-at-paris-fashion-week.html
+
 **NYT Crossword Answers for Oct. 5, 2026**\
 `Chase Dittrich invites us to solve, perchance to smile.`\
 https://www.nytimes.com/2026/10/04/crosswords/daily-puzzle-2026-10-05.html
