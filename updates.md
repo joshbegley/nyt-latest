@@ -1,3 +1,7 @@
+**With ‘Verity,’ Anne Hathaway Has Her Third No. 1 Movie This Year**\
+`“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
+https://www.nytimes.com/2026/10/04/movies/anne-hathaway-verity-odyssey-devil-wears-prada.html
+
 **Sentence Tossed After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
 `An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
 https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html

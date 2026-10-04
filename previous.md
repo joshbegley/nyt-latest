@@ -6,9 +6,9 @@ https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-vide
 `The chain, which began as a shop in Astoria, Queens, and expanded as far as Texas, closed all locations on Friday.`\
 https://www.nytimes.com/2026/10/04/nyregion/chip-city-stores-closed.html
 
-**Anne Hathaway Ends ‘Renaissance’ Year With Third No. 1 Movie**\
+**With ‘Verity,’ Anne Hathaway Has Her Third No. 1 Movie This Year**\
 `“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
-https://www.nytimes.com/2026/10/04/movies/anne-hathaway-odyseey-devil-prada-verity.html
+https://www.nytimes.com/2026/10/04/movies/anne-hathaway-verity-odyssey-devil-wears-prada.html
 
 **Medical Plane Goes Missing Off Massachusetts Coast**\
 `A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\

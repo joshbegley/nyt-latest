@@ -1,3 +1,7 @@
+**Steve Hilton’s ‘Just Try It’ Ad on Mail Voting Denounced by Republicans**\
+`An online spot for Mr. Hilton, the G.O.P. candidate, is full of sexual innuendo that has befuddled Republicans and Democrats watching the race for governor in California.`\
+https://www.nytimes.com/2026/10/04/us/steve-hilton-just-try-it-ad.html
+
 **Sentence Tossed After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
 `An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
 https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/books/review/the-rush-nathaniel-philbrick.htm
 **Kristi Noem’s Agency Gave Her Donor a Lucrative Contract Just Before She Left**\
 `The Homeland Security Department signed a multi-million dollar agreement to buy five aircraft from a company owned by a political contributor of the secretary on her last day, documents show.`\
 https://www.nytimes.com/2026/10/04/us/politics/kristi-noem-planes-donor.html
-
-**The Search for Gas in Moscow**\
-`Our reporter Ivan Nechepurenko looks at gas stations in Moscow to see how severe the shortages have become as Ukrainian attacks target Russian refineries.`\
-https://www.nytimes.com/video/world/europe/100000011153950/the-search-for-gas-in-moscow.html
 
