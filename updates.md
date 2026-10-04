@@ -1,3 +1,7 @@
+**Here’s Senator Cotton’s Cell Number, Trump Says, in Dispute Over Daylight Saving Bill**\
+`The president urged people to call Senator Tom Cotton of Arkansas and accused him of blocking a bill to cement daylight saving time.`\
+https://www.nytimes.com/2026/10/03/us/trump-tom-cotton-cellphone-number.html
+
 **Cornell President Calls Rape Inquiry ‘Defining Moment’ for Campus**\
 `Michael I. Kotlikoff said in a video the university would be more transparent, hold Greek groups accountable and improve sexual assault prevention.`\
 https://www.nytimes.com/2026/10/03/nyregion/cornell-president-calls-rape-inquiry-defining-moment-for-campus.html
