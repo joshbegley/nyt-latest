@@ -1,3 +1,59 @@
+**Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
+`The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
+https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
+
+**Democrats Lead Governor Races Deep in Republican Territory, Polls Show**\
+`Democratic advantages in the races for governor in Texas, Iowa, Ohio and Alaska reflect deep unhappiness with President Trump and the economy. A Republican leads in Kansas.`\
+https://www.nytimes.com/2026/10/04/us/politics/governors-poll-democrats-lead.html
+
+**U.K. Base Would Be Ambitious Target for ‘Gig Economy’ Warfare**\
+`The U.S. war in Iran unleashed small-scale attacks by local criminals or disenfranchised young men hired anonymously to target Jewish and American sites in Europe and North America, experts say.`\
+https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html
+
+**Tight Competition: The Contest to Name Philly’s Best Parallel Parker**\
+`Out of more than 900 applicants, 15 were chosen to compete in three rounds, including “Tight Squeeze” and “Under Duress.”`\
+https://www.nytimes.com/2026/10/04/us/parallel-parking-competition-philadelphia.html
+
+**Some Democrats, Scarred by 2024, Take a Harder Line on Trans Athletes**\
+`Democrats competing in historically conservative territory in the midterms are more aggressively responding to Republican attacks casting them as extreme.`\
+https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms.html
+
+**How Trump Moved Ethical Lines With His Ads, Businesses and Summits**\
+`The president’s decision to hold an international summit at his own private golf club, an idea rejected in his first term, illustrates how much he has shattered norms.`\
+https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
+
+**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, not so much.**\
+`Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
+https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
+
+**Brazil Election: What to Know as Lula and Bolsonaro Face Off in 2026 Presidential Race**\
+`Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a race that could define the future of Latin America.`\
+https://www.nytimes.com/2026/10/04/world/americas/brazil-election-2026-president-race-lula-bolsonaro.html
+
+**Nobel Prizes 2026: What to Know**\
+`Six awards will be announced this week in science, literature, economics and peace work.`\
+https://www.nytimes.com/article/nobel-prizes-2026.html
+
+**Who Owns the Moon?**\
+`A treaty from the 1960s declared that nobody can own outer space. Half a century later, billionaires and superpowers see fortunes to be made nonetheless.`\
+https://www.nytimes.com/2026/10/04/world/asia/who-owns-moon.html
+
+**Voters Say Congress Is Too Old. But Older Candidates Keep Winning.**\
+`In primary races across the country, incumbency trumped calls for generational change, as older members of Congress held off younger challengers.`\
+https://www.nytimes.com/interactive/2026/10/04/us/elections/gerontocracy.html
+
+**Russians Snap Up Chinese E.V.s as Ukrainian Attacks Make Fuel Scarce**\
+`As Ukraine increasingly takes the war to Russia, the effects may be most visible on the roads.`\
+https://www.nytimes.com/2026/10/04/world/europe/russia-ukraine-war-ev-sales.html
+
+**‘No Tax on Tips’ May Fall Flat for G.O.P. in Fight for House and Senate**\
+`Tipped workers in Arizona have benefited from the G.O.P.’s big tax cut. But they face economic stress from other Republican policies.`\
+https://www.nytimes.com/2026/10/04/us/politics/tax-cuts-congress-arizona-republicans.html
+
+**Why Older Lawmakers Keep Winning Elections**\
+`Analysis by The New York Times showed older incumbents consistently beating their younger challengers in this year’s midterm primaries. Our national political correspondent Lisa Lerer looks at why.`\
+https://www.nytimes.com/video/us/politics/100000011169869/why-voters-elect-older-lawmakers-midterm-elections.html
+
 **P.&G.’s Chief on Whether Brand Loyalty Is Enough When Prices Keep Climbing**\
 `Procter & Gamble’s new boss, Shailesh Jejurikar, talks about how the company is thinking about higher costs, what gets passed on to consumers and how A.I. helps it compete.`\
 https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.html
@@ -141,60 +197,4 @@ https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmo
 **Russia’s Latest Infrastructure Target: Ukraine’s Bridges**\
 `Russia’s new infrastructure target has become Ukraine’s bridges. It attacked six bridges in the country’s capital, Kyiv, over the past three days.`\
 https://www.nytimes.com/video/world/europe/100000011191929/ukraine-bridges-russia-kyiv-traffic.html
-
-**With Elon Musk’s Return to Washington, Possible Conflicts of Interest Resurface**\
-`The founder of SpaceX, with billions of dollars in military contracts, joins several other defense industry executives on a Pentagon advisory board.`\
-https://www.nytimes.com/2026/10/03/us/politics/elon-musk-pentagon-returns-to-washington.html
-
-**Trump Criticizes Prosecutor in Charge of New Cornell Rape Investigation**\
-`President Trump criticized Letitia James, the New York state attorney general, who will oversee the Cornell University sexual assault investigation. In 2022, James brought a fraud case against Trump and his family.`\
-https://www.nytimes.com/video/us/politics/100000011191952/trump-letitia-james-prosecutor-cornell-rape.html
-
-**Trump Urges Republicans to Vote By Mail After Criticizing Practice**\
-`It was the latest mixed messaging from President Trump, who regularly votes by mail, but has made baseless claims that the practice is “inherently corrupt.”`\
-https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.html
-
-**Former Nurse Convicted of Murder in Crash at 130 M.P.H. That Killed Six**\
-`Nicole Linton was found guilty of six counts of second-degree murder, which included the death of an unborn child, related to a 2022 crash in Los Angeles.`\
-https://www.nytimes.com/2026/10/03/us/woman-murder-car-crash-los-angeles.html
-
-**Without Saying His Name, Ken Paxton’s Estranged Wife Tells Texans to Vote For Him**\
-`In a new ad, the wife of Ken Paxton, who is divorcing him for alleged adultery, tells Texas voters to focus on the “whole team,” not “individual players.”`\
-https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
-
-**Ex-Sheriff’s Deputy Acquitted in Fatal Shooting of Airman Roger Fortson**\
-`The airman, Roger Fortson, had answered a knock at his home in Fort Walton Beach while holding a gun, and was shot within seconds. A Florida jury cleared the former deputy, Eddie Duran.`\
-https://www.nytimes.com/2026/10/03/us/air-force-shooting-florida-deputy-acquitted.html
-
-**As Midterms Near, Justice Alito Says He Considers Each Year Whether to Retire**\
-`The justice, the second oldest on the court at 76, told CBS News that he decided against stepping down last term. He could face pressure should Democrats win the Senate in November.`\
-https://www.nytimes.com/2026/10/03/us/politics/justice-alito-retirement-supreme-court.html
-
-**Peppino Mazzullo, Voice of Topo Gigio For Decades, Dies at 100**\
-`The actor played the role of the sweetly endearing mouse puppet, a character beloved by children all over the world — and, apparently, Ed Sullivan.`\
-https://www.nytimes.com/2026/10/03/arts/television/peppino-mazzullo-dead.html
-
-**Tracking Down Joel Meyerowitz’s ‘Wonderfully Crumpled’ Pork Pie Hat**\
-`We help a reader track down the photographer Joel Meyerowitz’s pork pie.`\
-https://www.nytimes.com/2026/10/03/t-magazine/joel-meyerowitz-hat.html
-
-**New Police Footage Shows Luigi Mangione’s Arrest**\
-`Newly released bodycam footage shows the moment when the police arrested Luigi Mangione in a Pennsylvania McDonald’s and uncovered the weapon linked to the fatal shooting of the United Healthcare chief executive Brian Thompson.`\
-https://www.nytimes.com/video/us/100000011191743/luigi-mangione-arrest-bodycam-footage.html
-
-**Trump Shows His Contempt for Us. Again.**\
-`This is ‘what authoritarian governments do to promote their leaders.’`\
-https://www.nytimes.com/2026/10/03/opinion/trump-ad-love-me-painter.html
-
-**Tennessee Commissioner Resigns After Failed Execution of Christa Pike**\
-`Frank Strada, who oversaw the process that left Christa Pike unconscious and hospitalized, quit as an independent review began.`\
-https://www.nytimes.com/2026/10/03/us/tennessee-prison-commissioner-resigns-christa-pike.html
-
-**Overlooked No More: Eugenia Errázuriz, Who Opened Doors for Picasso**\
-`She moved from Chile to Paris, where she used her wealth to support Picasso, Stravinsky and other artists. World War II forced her to go home, where she ended her life.`\
-https://www.nytimes.com/2026/10/03/obituaries/eugenia-errazuriz-overlooked.html
-
-**Happy as a Clam Pasta**\
-`My clam pasta with white wine and garlic, that is.`\
-https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
 
