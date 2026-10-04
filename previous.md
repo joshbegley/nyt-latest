@@ -1,3 +1,7 @@
+**At Trump’s Rallies, a Familiar Mix of Rituals and a Plea to ‘Please Pretend’**\
+`President Trump is doggedly lending his support to Republican candidates facing a rough midterm season. He is the same campaigner he has always been, but his crowds have changed.`\
+https://www.nytimes.com/2026/10/04/us/politics/trump-rallies-midterms-rituals.html
+
 **Fall for Dance Returns, With an A-for-Effort Stunt**\
 `The Australian theater collective Pony Cam and Israel’s Lior Tavori Dance Company were among the offerings in the final three of this year’s programs.`\
 https://www.nytimes.com/2026/10/04/arts/dance/fall-for-dance-city-center-pony-cam.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/us/politics/tax-cuts-congress-arizona-republi
 **Why Older Lawmakers Keep Winning Elections**\
 `Analysis by The New York Times showed older incumbents consistently beating their younger challengers in this year’s midterm primaries. Our national political correspondent Lisa Lerer looks at why.`\
 https://www.nytimes.com/video/us/politics/100000011169869/why-voters-elect-older-lawmakers-midterm-elections.html
-
-**P.&G.’s Chief on Whether Brand Loyalty Is Enough When Prices Keep Climbing**\
-`Procter & Gamble’s new boss, Shailesh Jejurikar, talks about how the company is thinking about higher costs, what gets passed on to consumers and how A.I. helps it compete.`\
-https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.html
 

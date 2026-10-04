@@ -1,3 +1,7 @@
+**At Trump’s Rallies, a Familiar Mix of Rituals and a Plea to ‘Please Pretend’**\
+`President Trump is doggedly lending his support to Republican candidates facing a rough midterm season. He is the same campaigner he has always been, but his crowds have changed.`\
+https://www.nytimes.com/2026/10/04/us/politics/trump-rallies-midterms-rituals.html
+
 **Fall for Dance Returns, With an A-for-Effort Stunt**\
 `The Australian theater collective Pony Cam and Israel’s Lior Tavori Dance Company were among the offerings in the final three of this year’s programs.`\
 https://www.nytimes.com/2026/10/04/arts/dance/fall-for-dance-city-center-pony-cam.html
