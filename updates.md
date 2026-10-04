@@ -1,3 +1,7 @@
+**Why My Gen Z Students Are Fascinated by the King James Bible**\
+`The King James Version is a master class in cooperative intellectual struggle.`\
+https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
+
 **Iran’s Top Security Official Warns of Dire Economic Crisis**\
 `The rare admission from Mohsen Rezaei, the security chief, came weeks after the U.S. tightened sanctions and its naval blockade.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/iran-economy-rial.html
