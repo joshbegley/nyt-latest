@@ -1,3 +1,7 @@
+**Iran’s Top Security Official Warns of Dire Economic Crisis**\
+`The rare admission from Mohsen Rezaei, the security chief, came weeks after the U.S. tightened sanctions and its naval blockade.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/iran-economy-rial.html
+
 **The ‘Most Profound Documentary Series in the History of Cinema’ Is Over**\
 `In the “Up” series, a TV crew followed more than a dozen people over six decades of their lives.`\
 https://www.nytimes.com/2026/10/04/briefing/70-up-series.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/nyregion/east-village-nyc-building-echeverri.
 **‘Then, With Outstretched Arms, He Beckoned Me Toward Him’**\
 `A bear hug by the East River, a familiar frame under a streetlight and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/10/04/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for October 4, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/04/crosswords/spelling-bee-forum.html
 
