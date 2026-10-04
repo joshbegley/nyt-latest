@@ -1,3 +1,7 @@
+**What to Know About the Medical Plane That Went Missing Near Nantucket**\
+`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island.`\
+https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
+
 **Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
 `Biljana Plavsic, a Bosnian Serb, pleaded guilty to one count of crimes against humanity. She later recanted and said she “would do the same again.”`\
 https://www.nytimes.com/2026/10/04/world/europe/biljana-plavsic-dead.html
