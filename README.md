@@ -1,3 +1,7 @@
+**Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot**\
+`The Omani co-pilot who officials said tried to crash the plane was said to have embraced extremist Islamist views.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html
+
 **How to Die**\
 `We look at one family’s struggle to navigate a terminal illness.`\
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/asia/japan-us-marine-killing-okinawa-wo
 **1,200 Miles From Singapore to Bangkok Before a Historic Shuttle Closes**\
 `A writer takes a weeklong journey, from the island city-state to the Thai capital, in the final days of a historic rail connection.`\
 https://www.nytimes.com/2026/10/04/travel/singapore-bangkok-train-historic-shuttle-closes.html
-
-**Quote of the Day: Extra Pilots on Flight to Tel Aviv Took Controls**\
-`Quotation of the Day for Sunday, October 4, 2026.`\
-https://www.nytimes.com/2026/10/04/pageoneplus/quote-of-the-day-extra-pilots-on-flight-to-tel-aviv-took-controls.html
 
