@@ -1,3 +1,7 @@
+**Anne Hathaway Ends ‘Renaissance’ Year With Third No. 1 Movie**\
+`“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
+https://www.nytimes.com/2026/10/04/movies/anne-hathaway-odyseey-devil-prada-verity.html
+
 **Medical Plane Goes Missing Off Massachusetts Coast**\
 `A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\
 https://www.nytimes.com/video/us/100000011192722/plane-missing-nantucket-massachusetts-coast-guard.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/magazine/alternative-cancer-clinics-treatment
 **Superpowers Race to Put Nuclear Reactors on the Moon**\
 `The United States wants a reactor on the moon by 2030. A Russian-Chinese alliance is working on one for 2036. Some leading scientists say the danger is great.`\
 https://www.nytimes.com/2026/10/04/world/asia/nuclear-reactors-moon.html
-
-**Book Review: ‘The Occidental Book of the Dead,’ by T. Geronimo Johnson**\
-`What seems like a story of a man hoping to reunite with a childhood flame is really a high-wire act about police brutality, racist conspiracies and much, much more.`\
-https://www.nytimes.com/2026/10/04/books/review/the-occidental-book-of-the-dead-t-geronimo-johnson.html
 
