@@ -1,3 +1,15 @@
+**Sentence Tossed After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
+`An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
+https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
+
+**Popular Cookie Chain Abruptly Shuts Down in New York City**\
+`The chain, which began as a shop in Astoria, Queens, and expanded as far as Texas, closed all locations on Friday.`\
+https://www.nytimes.com/2026/10/04/nyregion/chip-city-stores-closed.html
+
+**Anne Hathaway Ends ‘Renaissance’ Year With Third No. 1 Movie**\
+`“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
+https://www.nytimes.com/2026/10/04/movies/anne-hathaway-odyseey-devil-prada-verity.html
+
 **Medical Plane Goes Missing Off Massachusetts Coast**\
 `A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\
 https://www.nytimes.com/video/us/100000011192722/plane-missing-nantucket-massachusetts-coast-guard.html
