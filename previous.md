@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 5, 2026**\
+`Chase Dittrich invites us to solve, perchance to smile.`\
+https://www.nytimes.com/2026/10/04/crosswords/daily-puzzle-2026-10-05.html
+
 **At Trump’s Rallies, a Familiar Mix of Rituals and a Plea to ‘Please Pretend’**\
 `President Trump is doggedly lending his support to Republican candidates facing a rough midterm season. He is the same campaigner he has always been, but his crowds have changed.`\
 https://www.nytimes.com/2026/10/04/us/politics/trump-rallies-midterms-rituals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/europe/russia-ukraine-war-ev-sales.html
 **‘No Tax on Tips’ May Fall Flat for G.O.P. in Fight for House and Senate**\
 `Tipped workers in Arizona have benefited from the G.O.P.’s big tax cut. But they face economic stress from other Republican policies.`\
 https://www.nytimes.com/2026/10/04/us/politics/tax-cuts-congress-arizona-republicans.html
-
-**Why Older Lawmakers Keep Winning Elections**\
-`Analysis by The New York Times showed older incumbents consistently beating their younger challengers in this year’s midterm primaries. Our national political correspondent Lisa Lerer looks at why.`\
-https://www.nytimes.com/video/us/politics/100000011169869/why-voters-elect-older-lawmakers-midterm-elections.html
 

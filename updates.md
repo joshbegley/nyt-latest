@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 5, 2026**\
+`Chase Dittrich invites us to solve, perchance to smile.`\
+https://www.nytimes.com/2026/10/04/crosswords/daily-puzzle-2026-10-05.html
+
 **At Trump’s Rallies, a Familiar Mix of Rituals and a Plea to ‘Please Pretend’**\
 `President Trump is doggedly lending his support to Republican candidates facing a rough midterm season. He is the same campaigner he has always been, but his crowds have changed.`\
 https://www.nytimes.com/2026/10/04/us/politics/trump-rallies-midterms-rituals.html
