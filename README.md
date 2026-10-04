@@ -1,3 +1,7 @@
+**Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
+`Biljana Plavsic, a Bosnian Serb, pleaded guilty to one count of crimes against humanity. She later recanted and said she “would do the same again.”`\
+https://www.nytimes.com/2026/10/04/world/europe/biljana-plavsic-dead.html
+
 **Trust the Thing That Moves You**\
 `Michael Rider is the anointed designer. How do you know you’re not just falling for the hype?`\
 https://www.nytimes.com/2026/10/04/style/paris-fashion-week-michael-rider.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/climate/boulder-lawsuit-supreme-court.html
 **Paris Review: Celine, Dries Van Noten, Comme des Garçons**\
 `A triumph at Celine, movie stars at Dries Van Noten and … Comme des Garçons jeans? Believe it.`\
 https://www.nytimes.com/2026/10/04/style/celine-michael-rider-paris-fashion-week.html
-
-**A Porch Concert Series Started During Covid. The Bands Are Playing On.**\
-`Big porches are a staple in parts of Brooklyn. During the height of the pandemic, one homeowner launched a concert series to build community and help musicians.`\
-https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brooklyn.html
 
