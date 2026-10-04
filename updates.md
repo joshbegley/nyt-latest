@@ -1,3 +1,7 @@
+**2026 Brazil Elections: What to Know as Lula and Bolsonaro Face Off**\
+`Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a race that could define the future of Latin America.`\
+https://www.nytimes.com/2026/10/04/world/americas/brazil-election-2026-president-race-lula-bolsonaro.html
+
 **I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
 `Lethal injection failures are not glitches; they are features of the process.`\
 https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
