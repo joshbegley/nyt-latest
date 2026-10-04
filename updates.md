@@ -1,3 +1,11 @@
+**Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
+`The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\
+https://www.nytimes.com/video/world/middleeast/100000011192557/houthis-attack-saudi-arabia-oil-yemen-aramco-strikes.html
+
+**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
+`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reignited.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
+
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
 `The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reginited.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
