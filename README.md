@@ -1,3 +1,11 @@
+**Now’s the Perfect Time for Ratatouille, Actually**\
+`Especially my sheet-pan version, which adds crispy spiced chickpeas for protein and crunch.`\
+https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-actually.html
+
+**Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
+`A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
+https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-homecoming.html
+
 **Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
 `The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\
 https://www.nytimes.com/video/world/middleeast/100000011192557/houthis-attack-saudi-arabia-oil-yemen-aramco-strikes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brookly
 **Cornell Case Carries Far-Reaching Implications for Hochul and James**\
 `The decision to intercede by Gov. Kathy Hochul and the New York attorney general, Letitia James, has raised questions of impartiality as both face re-election.`\
 https://www.nytimes.com/2026/10/04/nyregion/hochul-james-cornell.html
-
-**A Campus Reckoning: ‘Cornell Is Now Known for This’**\
-`Accusations of sexual assault at a fraternity party have tarnished the self-image of a fiercely proud Ivy League institution. Can the university ever be the same?`\
-https://www.nytimes.com/2026/10/04/nyregion/cornell-spotlight-rape-accusation.html
-
-**The Inspiration for This East Village Building’s Facade? Diversity and Trump.**\
-`This six-story building in the East Village has long been colorful, but its most recent refresh was inspired by New York City.`\
-https://www.nytimes.com/2026/10/04/nyregion/east-village-nyc-building-echeverri.html
 
