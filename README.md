@@ -1,3 +1,7 @@
+**Fall for Dance Returns, With an A-for-Effort Stunt**\
+`The Australian theater collective Pony Cam and Israel’s Lior Tavori Dance Company were among the offerings in the final three of this year’s programs.`\
+https://www.nytimes.com/2026/10/04/arts/dance/fall-for-dance-city-center-pony-cam.html
+
 **Measles Outbreak in Amish Country Forces Some to Rethink Vaccines**\
 `The spread of measles in Pennsylvania and Ohio is largely affecting Amish communities where vaccinations levels are low.`\
 https://www.nytimes.com/2026/10/04/us/amish-vaccines-measles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011169869/why-voters-elect-older
 **P.&G.’s Chief on Whether Brand Loyalty Is Enough When Prices Keep Climbing**\
 `Procter & Gamble’s new boss, Shailesh Jejurikar, talks about how the company is thinking about higher costs, what gets passed on to consumers and how A.I. helps it compete.`\
 https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.html
-
-**How Everything Became Gambling**\
-`It’s not just DraftKings and Polymarket — the logic of gambling undergirds everything coming out of Silicon Valley.`\
-https://www.nytimes.com/2026/10/04/magazine/gambling-prediction-markets-statistics.html
 
