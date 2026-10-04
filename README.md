@@ -1,3 +1,7 @@
+**How Cornell Punished Each of the 7 Men Accused of Sexual Assault**\
+`Summaries obtained by The New York Times offer a detailed look at the discipline meted out to the men accused of sexually assaulting a fellow student at Cornell University.`\
+https://www.nytimes.com/2026/10/03/nyregion/cornell-men-university-discipline.html
+
 **8 Key Findings From the Times/Siena Polls**\
 `Democrats are competitive in Alaska, Iowa, Ohio, Texas and even Kansas as they try to wrest control of the Senate from Republicans. Here’s a look at why.`\
 https://www.nytimes.com/2026/10/03/us/politics/times-siena-poll-takeaways.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/world/middleeast/flydubai-ax-cockpit.html
 **Chris Rock Has Been Thinking About Forgiveness**\
 `The comedian and filmmaker on what real friendship looks like, what keeps him up at night and his new movie, “Misty Green.”`\
 https://www.nytimes.com/2026/10/03/magazine/chris-rock-interview.html
-
-**Democrats May Have Found the Recipe for Flipping Red-State Senate Seats**\
-`Five new Times/Siena polls continue a run of strong results for Democrats in states that President Trump won easily in 2024.`\
-https://www.nytimes.com/2026/10/03/upshot/polls-midterms-senate-times-siena.html
 
