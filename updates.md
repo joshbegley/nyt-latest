@@ -1,3 +1,15 @@
+**‘S.N.L.’ Offers Last-Minute Promo Help to Trump and Hegseth**\
+`Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
+https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
+
+**Silky Chicken Stew With Beans and Greens**\
+`And more soothing recipes to ease us into fall.`\
+https://www.nytimes.com/2026/10/04/dining/silky-chicken-stew-with-beans-and-greens.html
+
+**A New World Disorder, or the Same Old One?**\
+`Readers respond to an essay by the historian Margaret MacMillan with geopolitical and historical analyses of their own.`\
+https://www.nytimes.com/2026/10/04/opinion/world-disorder.html
+
 **Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot**\
 `The Omani co-pilot who officials said tried to crash the plane was said to have embraced extremist Islamist views.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html

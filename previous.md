@@ -1,3 +1,15 @@
+**‘S.N.L.’ Offers Last-Minute Promo Help to Trump and Hegseth**\
+`Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
+https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
+
+**Silky Chicken Stew With Beans and Greens**\
+`And more soothing recipes to ease us into fall.`\
+https://www.nytimes.com/2026/10/04/dining/silky-chicken-stew-with-beans-and-greens.html
+
+**A New World Disorder, or the Same Old One?**\
+`Readers respond to an essay by the historian Margaret MacMillan with geopolitical and historical analyses of their own.`\
+https://www.nytimes.com/2026/10/04/opinion/world-disorder.html
+
 **Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot**\
 `The Omani co-pilot who officials said tried to crash the plane was said to have embraced extremist Islamist views.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/04/crosswords/spelling-bee-forum.html
 **The ‘God Gap’ Is Narrowing in Texas**\
 `It may not be enough for James Talarico to win. But might it also be a sign of a change to come?`\
 https://www.nytimes.com/2026/10/04/opinion/talarico-paxton-texas-senate-evangelicals.html
-
-**Israelis Are Exhausted. There Is a Way Out.**\
-`In a nation on perpetual alert, many hope that the elections will bring some relief.`\
-https://www.nytimes.com/2026/10/04/opinion/israel-elections-emergency.html
-
-**Japan Protests After U.S. Marine Is Accused of Killing Woman in Okinawa**\
-`The matter threatened to revive tensions over the American military presence on the Japanese archipelago.`\
-https://www.nytimes.com/2026/10/04/world/asia/japan-us-marine-killing-okinawa-woman.html
-
-**1,200 Miles From Singapore to Bangkok Before a Historic Shuttle Closes**\
-`A writer takes a weeklong journey, from the island city-state to the Thai capital, in the final days of a historic rail connection.`\
-https://www.nytimes.com/2026/10/04/travel/singapore-bangkok-train-historic-shuttle-closes.html
 
