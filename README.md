@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/10/04/podcasts/the-daily/the-restaurant-industry-is
 `“Bob did costumes, and fashion people looked down on him for some reason.”`\
 https://www.nytimes.com/2026/10/04/opinion/met-gala-bob-mackie-john-galliano.html
 
-**What a 400-Year-Old Bible Means for a Lonely Generation**\
+**Why My Gen Z Students Are Fascinated by the King James Bible**\
 `The King James Version is a master class in cooperative intellectual struggle.`\
 https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
 
