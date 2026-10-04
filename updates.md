@@ -1,3 +1,11 @@
+**Medical Plane Goes Missing Off Massachusetts Coast**\
+`A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\
+https://www.nytimes.com/video/us/100000011192722/plane-missing-nantucket-massachusetts-coast-guard.html
+
+**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
+`The announcement follows weeks of fighting with the Iran-allied armed group and threatens to deepen U.S. involvement in the widening Middle East conflict.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
+
 **Rebuked by Bond Market, Bessent Says ‘House’ Does Not Always Win**\
 `The Treasury secretary said in an interview with Axios that he cannot control the Treasury market but argued that U.S. bond yields would come back down over time.`\
 https://www.nytimes.com/2026/10/04/business/bond-market-scott-bessent.html

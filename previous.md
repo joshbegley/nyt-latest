@@ -1,3 +1,7 @@
+**Medical Plane Goes Missing Off Massachusetts Coast**\
+`A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\
+https://www.nytimes.com/video/us/100000011192722/plane-missing-nantucket-massachusetts-coast-guard.html
+
 **Rebuked by Bond Market, Bessent Says ‘House’ Does Not Always Win**\
 `The Treasury secretary said in an interview with Axios that he cannot control the Treasury market but argued that U.S. bond yields would come back down over time.`\
 https://www.nytimes.com/2026/10/04/business/bond-market-scott-bessent.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
 
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
-`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reignited.`\
+`The announcement follows weeks of fighting with the Iran-allied armed group and threatens to deepen U.S. involvement in the widening Middle East conflict.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
 
 **I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/asia/nuclear-reactors-moon.html
 **Book Review: ‘The Occidental Book of the Dead,’ by T. Geronimo Johnson**\
 `What seems like a story of a man hoping to reunite with a childhood flame is really a high-wire act about police brutality, racist conspiracies and much, much more.`\
 https://www.nytimes.com/2026/10/04/books/review/the-occidental-book-of-the-dead-t-geronimo-johnson.html
-
-**Scientists Warn of Another Unseen Risk From Fire: Ozone**\
-`Small particulates sent up by wildfires are a well-documented health hazard. But recent research finds that ground-level ozone is now on the rise, too.`\
-https://www.nytimes.com/2026/10/04/science/ozone-wildfires-smoke.html
 
