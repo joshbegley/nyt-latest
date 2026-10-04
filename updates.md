@@ -1,3 +1,7 @@
+**Paris Review: Celine, Dries Van Noten, Comme des Garçons**\
+`A triumph at Celine, movie stars at Dries Van Noten and … Comme des Garçons jeans? Believe it.`\
+https://www.nytimes.com/2026/10/04/style/celine-michael-rider-paris-fashion-week.html
+
 **A Porch Concert Series Started During Covid. The Bands Are Playing On.**\
 `Big porches are a staple in parts of Brooklyn. During the height of the pandemic, one homeowner launched a concert series to build community and help musicians.`\
 https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brooklyn.html
