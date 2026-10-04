@@ -1,3 +1,7 @@
+**‘S.N.L.’ Recap: Taylor Swift Makes a Surprise Cameo and Trump Gets Some Last-Minute Promo**\
+`Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
+https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
+
 **Trust the Thing That Moves You**\
 `Michael Rider is the anointed designer. How do you know you’re not just falling for the hype?`\
 https://www.nytimes.com/2026/10/04/style/paris-fashion-week-michael-rider.html
