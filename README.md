@@ -1,3 +1,7 @@
+**Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
+`The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\
+https://www.nytimes.com/video/world/middleeast/100000011192557/houthis-attack-saudi-arabia-oil-yemen-aramco-strikes.html
+
 **Iran’s Top Security Official Warns of Dire Economic Crisis**\
 `The rare admission from Mohsen Rezaei, the security chief, came weeks after the U.S. tightened sanctions and its naval blockade.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/iran-economy-rial.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot
 https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
 
 **Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
-`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reginited.`\
+`The announcement plunges the Middle East deeper into war, as the Iran-allied Houthis have scored a series of triumphs in Yemen on the battlefield since the conflict was reignited.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
 
 **Christa Pike Has Exposed the Truth About Lethal Injection**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/nyregion/cornell-spotlight-rape-accusation.ht
 **The Inspiration for This East Village Building’s Facade? Diversity and Trump.**\
 `This six-story building in the East Village has long been colorful, but its most recent refresh was inspired by New York City.`\
 https://www.nytimes.com/2026/10/04/nyregion/east-village-nyc-building-echeverri.html
-
-**‘Then, With Outstretched Arms, He Beckoned Me Toward Him’**\
-`A bear hug by the East River, a familiar frame under a streetlight and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/10/04/nyregion/metropolitan-diary.html
 
