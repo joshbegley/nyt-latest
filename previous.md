@@ -1,3 +1,7 @@
+**Japan Protests After U.S. Marine Is Accused of Killing Woman in Okinawa**\
+`The matter threatened to revive tensions over the American military presence on the Japanese archipelago.`\
+https://www.nytimes.com/2026/10/04/world/asia/japan-us-marine-killing-okinawa-woman.html
+
 **1,200 Miles From Singapore to Bangkok Before a Historic Shuttle Closes**\
 `A writer takes a weeklong journey, from the island city-state to the Thai capital, in the final days of a historic rail connection.`\
 https://www.nytimes.com/2026/10/04/travel/singapore-bangkok-train-historic-shuttle-closes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/03/crosswords/connections-companion-1211.html
 **Today’s Wordle Hints for September 4, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 4, 2026.`\
 https://www.nytimes.com/2026/10/03/crosswords/wordle-review-1933.html
-
-**NYT Strands Hints for October 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 4, 2026.`\
-https://www.nytimes.com/2026/10/03/crosswords/strands-sidekick-945.html
 
