@@ -1,3 +1,7 @@
+**Who Were the Pilots on the FlyDubai Flight?**\
+`The co-pilot’s embrace of extreme Islamist views prompted Omani officials to scrutinize him, according to two people briefed on the investigation.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pilots.html
+
 **Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
 `The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
 https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html

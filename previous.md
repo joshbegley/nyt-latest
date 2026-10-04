@@ -1,3 +1,7 @@
+**Who Were the Pilots on the FlyDubai Flight?**\
+`The co-pilot’s embrace of extreme Islamist views prompted Omani officials to scrutinize him, according to two people briefed on the investigation.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pilots.html
+
 **Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
 `The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
 https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.h
 **F.D.A. Classifies Salad Dressing Recall to Highest Health Risk**\
 `Salata Dressings initiated the recall of its Jalapeño Avocado Dressing in August over concerns about possible salmonella contamination.`\
 https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmonella.html
-
-**Russia’s Latest Infrastructure Target: Ukraine’s Bridges**\
-`Russia’s new infrastructure target has become Ukraine’s bridges. It attacked six bridges in the country’s capital, Kyiv, over the past three days.`\
-https://www.nytimes.com/video/world/europe/100000011191929/ukraine-bridges-russia-kyiv-traffic.html
 
