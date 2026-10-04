@@ -1,3 +1,35 @@
+**Christa Pike Has Exposed the Truth About Lethal Injection**\
+`Lethal injection failures are not glitches; they are features of the process.`\
+https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
+
+**The Restaurant Industry Is Broken. Can It Be Fixed?**\
+`The creative — and sometimes radical — solutions that restaurant owners are trying to address an industry in crisis.`\
+https://www.nytimes.com/2026/10/04/podcasts/the-daily/the-restaurant-industry-is-broken-can-it-be-fixed.html
+
+**The Met Gala Needs a Razzle-Dazzle Reset: Bob Mackie**\
+`“Bob did costumes, and fashion people looked down on him for some reason.”`\
+https://www.nytimes.com/2026/10/04/opinion/met-gala-bob-mackie-john-galliano.html
+
+**What a 400-Year-Old Bible Means for a Lonely Generation**\
+`The King James Version is a master class in cooperative intellectual struggle.`\
+https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
+
+**NYT Connections Answers for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/connections-companion-1212.html
+
+**Today’s Wordle Hints for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/wordle-review-1934.html
+
+**I’m in Exile, and I Go Home Every Day**\
+`You learn to live with the feeling that you’ll never go home. Then a portal opens.`\
+https://www.nytimes.com/2026/10/04/opinion/exile-displacement-belarus-portals.html
+
+**NYT Strands Hints for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/strands-sidekick-946.html
+
 **Who Were the Pilots on the FlyDubai Flight?**\
 `The co-pilot’s embrace of extreme Islamist views prompted Omani officials to scrutinize him, according to two people briefed on the investigation.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pilots.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/04/learning/on-this-day-oct-4.html
 **Trump Promotes Data Centers at Rally With Republican Facing Heat on Them**\
 `The president defended the complexes, which have become a liability for Senator Jon Husted in a challenging midterm race.`\
 https://www.nytimes.com/2026/10/03/us/politics/trump-data-centers-husted-ohio.html
-
-**How Cornell Punished Each of the 7 Men Accused of Sexual Assault**\
-`Summaries obtained by The New York Times offer a detailed look at the discipline meted out to the men accused of sexually assaulting a fellow student at Cornell University.`\
-https://www.nytimes.com/2026/10/03/nyregion/cornell-men-university-discipline.html
-
-**8 Key Findings From the Times/Siena Polls**\
-`Democrats are competitive in Alaska, Iowa, Ohio, Texas and even Kansas as they try to wrest control of the Senate from Republicans. Here’s a look at why.`\
-https://www.nytimes.com/2026/10/03/us/politics/times-siena-poll-takeaways.html
-
-**Cornell President Calls Allegations ‘Deeply Disturbing’**\
-`Cornell University on Saturday posted an eight-minute video on its website featuring its president, Michael I. Kotlikoff, addressing the fallout from a 2024 sexual assault investigation.`\
-https://www.nytimes.com/video/us/100000011192157/cornell-president-calls-allegations-deeply-disturbing.html
-
-**Here’s Senator Cotton’s Cell Number, Trump Says, in Dispute Over Daylight Saving Bill**\
-`The president urged people to call Senator Tom Cotton of Arkansas and accused him of blocking a bill to cement daylight saving time.`\
-https://www.nytimes.com/2026/10/03/us/trump-tom-cotton-cellphone-number.html
-
-**Cornell President Calls Rape Inquiry ‘Defining Moment’ for Campus**\
-`Michael I. Kotlikoff said in a video the university would be more transparent, hold Greek groups accountable and improve sexual assault prevention.`\
-https://www.nytimes.com/2026/10/03/nyregion/cornell-president-calls-rape-inquiry-defining-moment-for-campus.html
-
-**10-4**\
-`Back it down, good buddies! Kathryn Bale’s debut puzzle takes a lot of sharp turns.`\
-https://www.nytimes.com/2026/10/03/crosswords/daily-puzzle-2026-10-04.html
-
-**‘Digger,’ Warner Bros.’ Last Release Before Merger, Is a Major Flop**\
-`The film, starring Tom Cruise, grossed an estimated $8 million in its opening weekend. That could put the movie on track to lose at least $125 million.`\
-https://www.nytimes.com/2026/10/03/business/media/digger-tom-cruise-box-office.html
-
-**F.D.A. Classifies Salad Dressing Recall to Highest Health Risk**\
-`Salata Dressings initiated the recall of its Jalapeño Avocado Dressing in August over concerns about possible salmonella contamination.`\
-https://www.nytimes.com/2026/10/03/health/fda-recall-salata-salad-dressing-salmonella.html
 

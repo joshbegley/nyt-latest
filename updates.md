@@ -1,3 +1,35 @@
+**Christa Pike Has Exposed the Truth About Lethal Injection**\
+`Lethal injection failures are not glitches; they are features of the process.`\
+https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
+
+**The Restaurant Industry Is Broken. Can It Be Fixed?**\
+`The creative — and sometimes radical — solutions that restaurant owners are trying to address an industry in crisis.`\
+https://www.nytimes.com/2026/10/04/podcasts/the-daily/the-restaurant-industry-is-broken-can-it-be-fixed.html
+
+**The Met Gala Needs a Razzle-Dazzle Reset: Bob Mackie**\
+`“Bob did costumes, and fashion people looked down on him for some reason.”`\
+https://www.nytimes.com/2026/10/04/opinion/met-gala-bob-mackie-john-galliano.html
+
+**What a 400-Year-Old Bible Means for a Lonely Generation**\
+`The King James Version is a master class in cooperative intellectual struggle.`\
+https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
+
+**NYT Connections Answers for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/connections-companion-1212.html
+
+**Today’s Wordle Hints for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/wordle-review-1934.html
+
+**I’m in Exile, and I Go Home Every Day**\
+`You learn to live with the feeling that you’ll never go home. Then a portal opens.`\
+https://www.nytimes.com/2026/10/04/opinion/exile-displacement-belarus-portals.html
+
+**NYT Strands Hints for October 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
+https://www.nytimes.com/2026/10/04/crosswords/strands-sidekick-946.html
+
 **Who Were the Pilots on the FlyDubai Flight?**\
 `The co-pilot’s embrace of extreme Islamist views prompted Omani officials to scrutinize him, according to two people briefed on the investigation.`\
 https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pilots.html
