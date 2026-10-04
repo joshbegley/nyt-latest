@@ -1,3 +1,11 @@
+**The ‘God Gap’ Is Narrowing in Texas**\
+`It may not be enough for James Talarico to win. But might it also be a sign of a change to come?`\
+https://www.nytimes.com/2026/10/04/opinion/talarico-paxton-texas-senate-evangelicals.html
+
+**Israelis Are Exhausted. There Is a Way Out.**\
+`In a nation on perpetual alert, many hope that the elections will bring some relief.`\
+https://www.nytimes.com/2026/10/04/opinion/israel-elections-emergency.html
+
 **Japan Protests After U.S. Marine Is Accused of Killing Woman in Okinawa**\
 `The matter threatened to revive tensions over the American military presence on the Japanese archipelago.`\
 https://www.nytimes.com/2026/10/04/world/asia/japan-us-marine-killing-okinawa-woman.html
