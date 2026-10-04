@@ -1,3 +1,27 @@
+**A Porch Concert Series Started During Covid. The Bands Are Playing On.**\
+`Big porches are a staple in parts of Brooklyn. During the height of the pandemic, one homeowner launched a concert series to build community and help musicians.`\
+https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brooklyn.html
+
+**Cornell Case Carries Far-Reaching Implications for Hochul and James**\
+`The decision to intercede by Gov. Kathy Hochul and the New York attorney general, Letitia James, has raised questions of impartiality as both face re-election.`\
+https://www.nytimes.com/2026/10/04/nyregion/hochul-james-cornell.html
+
+**A Campus Reckoning: ‘Cornell Is Now Known for This’**\
+`Accusations of sexual assault at a fraternity party have tarnished the self-image of a fiercely proud Ivy League institution. Can the university ever be the same?`\
+https://www.nytimes.com/2026/10/04/nyregion/cornell-spotlight-rape-accusation.html
+
+**The Inspiration for This East Village Building’s Facade? Diversity and Trump.**\
+`This six-story building in the East Village has long been colorful, but its most recent refresh was inspired by New York City.`\
+https://www.nytimes.com/2026/10/04/nyregion/east-village-nyc-building-echeverri.html
+
+**‘Then, With Outstretched Arms, He Beckoned Me Toward Him’**\
+`A bear hug by the East River, a familiar frame under a streetlight and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/04/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for October 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/04/crosswords/spelling-bee-forum.html
+
 **The ‘God Gap’ Is Narrowing in Texas**\
 `It may not be enough for James Talarico to win. But might it also be a sign of a change to come?`\
 https://www.nytimes.com/2026/10/04/opinion/talarico-paxton-texas-senate-evangelicals.html
