@@ -1,3 +1,7 @@
+**Without Saying His Name, Ken Paxton’s Estranged Wife Tells Texans to Vote For Him**\
+`In a new ad, the wife of Ken Paxton, who is divorcing him for alleged adultery, tells Texas voters to focus on the “whole team,” not “individual players.”`\
+https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
+
 **8 Key Findings From the Times/Siena Polls**\
 `Democrats are competitive in Alaska, Iowa, Ohio, Texas and even Kansas as they try to wrest control of the Senate from Republicans. Here’s a look at why.`\
 https://www.nytimes.com/2026/10/03/us/politics/times-siena-poll-takeaways.html

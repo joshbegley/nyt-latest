@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/10/03/us/politics/trump-republicans-mail-voting.htm
 `Nicole Linton was found guilty of six counts of second-degree murder, which included the death of an unborn child, related to a 2022 crash in Los Angeles.`\
 https://www.nytimes.com/2026/10/03/us/woman-murder-car-crash-los-angeles.html
 
-**As She Divorces Ken Paxton, His Wife Urges Texans to Vote for Him**\
-`In a new ad, Angela Paxton tells voters to focus on the “whole team,” not “individual players.”`\
+**Without Saying His Name, Ken Paxton’s Estranged Wife Tells Texans to Vote For Him**\
+`In a new ad, the wife of Ken Paxton, who is divorcing him for alleged adultery, tells Texas voters to focus on the “whole team,” not “individual players.”`\
 https://www.nytimes.com/2026/10/03/us/politics/as-she-divorces-ken-paxton-his-wife-urges-texans-to-vote-for-him.html
 
 **Ex-Sheriff’s Deputy Acquitted in Fatal Shooting of Airman Roger Fortson**\
