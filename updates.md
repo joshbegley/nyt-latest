@@ -1,3 +1,7 @@
+**Trust the Thing That Moves You**\
+`Michael Rider is the anointed designer. How do you know you’re not just falling for the hype?`\
+https://www.nytimes.com/2026/10/04/style/paris-fashion-week-michael-rider.html
+
 **2026 Brazil Elections: What to Know as Lula and Bolsonaro Face Off**\
 `Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a race that could define the future of Latin America.`\
 https://www.nytimes.com/2026/10/04/world/americas/brazil-election-2026-president-race-lula-bolsonaro.html

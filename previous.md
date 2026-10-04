@@ -1,3 +1,7 @@
+**Trust the Thing That Moves You**\
+`Michael Rider is the anointed designer. How do you know you’re not just falling for the hype?`\
+https://www.nytimes.com/2026/10/04/style/paris-fashion-week-michael-rider.html
+
 **Now’s the Perfect Time for Ratatouille, Actually**\
 `Especially my sheet-pan version, which adds crispy spiced chickpeas for protein and crunch.`\
 https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-actually.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/style/celine-michael-rider-paris-fashion-week
 **A Porch Concert Series Started During Covid. The Bands Are Playing On.**\
 `Big porches are a staple in parts of Brooklyn. During the height of the pandemic, one homeowner launched a concert series to build community and help musicians.`\
 https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brooklyn.html
-
-**Cornell Case Carries Far-Reaching Implications for Hochul and James**\
-`The decision to intercede by Gov. Kathy Hochul and the New York attorney general, Letitia James, has raised questions of impartiality as both face re-election.`\
-https://www.nytimes.com/2026/10/04/nyregion/hochul-james-cornell.html
 
