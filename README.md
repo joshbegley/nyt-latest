@@ -1,3 +1,55 @@
+**P.&G.’s Chief on Whether Brand Loyalty Is Enough When Prices Keep Climbing**\
+`Procter & Gamble’s new boss, Shailesh Jejurikar, talks about how the company is thinking about higher costs, what gets passed on to consumers and how A.I. helps it compete.`\
+https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.html
+
+**How Everything Became Gambling**\
+`It’s not just DraftKings and Polymarket — the logic of gambling undergirds everything coming out of Silicon Valley.`\
+https://www.nytimes.com/2026/10/04/magazine/gambling-prediction-markets-statistics.html
+
+**Why Did D.H.S. Buy These Planes?**\
+`Our investigative reporter David A. Fahrenthold explains his investigation into 10 planes the Department of Homeland Security bought from a donor to former D.H.S. Secretary Kristi Noem.`\
+https://www.nytimes.com/video/us/100000011160962/why-did-dhs-buy-these-planes.html
+
+**Book Review: ‘The Rush,’ by Nathaniel Philbrick**\
+`In “The Rush,” Nathaniel Philbrick paints a portrait of the treasure seekers, prospectors and conniving politicians who shaped the destiny of the United States.`\
+https://www.nytimes.com/2026/10/04/books/review/the-rush-nathaniel-philbrick.html
+
+**Kristi Noem’s Agency Gave Her Donor a Lucrative Contract Just Before She Left**\
+`The Homeland Security Department signed a multi-million dollar agreement to buy five aircraft from a company owned by a political contributor of the secretary on her last day, documents show.`\
+https://www.nytimes.com/2026/10/04/us/politics/kristi-noem-planes-donor.html
+
+**The Search for Gas in Moscow**\
+`Our reporter Ivan Nechepurenko looks at gas stations in Moscow to see how severe the shortages have become as Ukrainian attacks target Russian refineries.`\
+https://www.nytimes.com/video/world/europe/100000011153950/the-search-for-gas-in-moscow.html
+
+**Dying Patients Are Inundated by Misinformation. My Dad Was One of Them.**\
+`Cancer patients are being persuaded to spend tens of thousands on unproven treatments by alternative-medicine clinics.`\
+https://www.nytimes.com/2026/10/04/magazine/alternative-cancer-clinics-treatment-father.html
+
+**Superpowers Race to Put Nuclear Reactors on the Moon**\
+`The United States wants a reactor on the moon by 2030. A Russian-Chinese alliance is working on one for 2036. Some leading scientists say the danger is great.`\
+https://www.nytimes.com/2026/10/04/world/asia/nuclear-reactors-moon.html
+
+**Book Review: ‘The Occidental Book of the Dead,’ by T. Geronimo Johnson**\
+`What seems like a story of a man hoping to reunite with a childhood flame is really a high-wire act about police brutality, racist conspiracies and much, much more.`\
+https://www.nytimes.com/2026/10/04/books/review/the-occidental-book-of-the-dead-t-geronimo-johnson.html
+
+**Scientists Warn of Another Unseen Risk From Fire: Ozone**\
+`Small particulates sent up by wildfires are a well-documented health hazard. But recent research finds that ground-level ozone is now on the rise, too.`\
+https://www.nytimes.com/2026/10/04/science/ozone-wildfires-smoke.html
+
+**Book Review: ‘Bad Boy for Life,’ by Cheyenne Roundtree**\
+`The most comprehensive biography of the hip-hop mogul to date is both an in-depth character study and a 30-year chronicle of crime and hubris.`\
+https://www.nytimes.com/2026/10/04/books/review/bad-boy-for-life-cheyenne-roundtree.html
+
+**Christopher Myers Turns Stained Glass Into a Magical ‘Night Ride’**\
+`The artist Christopher Myers designed panels that were built in Mexico and photographed to become a new picture book.`\
+https://www.nytimes.com/2026/10/04/books/review/his-ode-to-nycs-magic-starts-with-stained-glass.html
+
+**A Supreme Court Battle Over Climate Change Begins**\
+`The justices are about to hear a lawsuit that could determine whether the oil industry faces billions of dollars in liability for damages caused by global warming.`\
+https://www.nytimes.com/2026/10/04/climate/boulder-lawsuit-supreme-court.html
+
 **Paris Review: Celine, Dries Van Noten, Comme des Garçons**\
 `A triumph at Celine, movie stars at Dries Van Noten and … Comme des Garçons jeans? Believe it.`\
 https://www.nytimes.com/2026/10/04/style/celine-michael-rider-paris-fashion-week.html
@@ -145,52 +197,4 @@ https://www.nytimes.com/2026/10/03/obituaries/eugenia-errazuriz-overlooked.html
 **Happy as a Clam Pasta**\
 `My clam pasta with white wine and garlic, that is.`\
 https://www.nytimes.com/2026/10/03/dining/happy-as-a-clam-pasta.html
-
-**What to Know About France’s High School Protests**\
-`Students angry over the state of the country’s education system have blockaded hundreds of schools. Thousands of protesters have been arrested and dozens of people injured.`\
-https://www.nytimes.com/2026/10/03/world/europe/high-school-student-protest-what-to-know.html
-
-**After Outcry, Monitors the Trump Administration Tried to Scrap Return to Sea**\
-`Under pressure from Congress, a network of ocean monitors that provides vital data to meteorologists, climate scientists, oceanographers and the fishing industry is being restored.`\
-https://www.nytimes.com/2026/10/03/climate/after-outcry-monitors-the-trump-administration-tried-to-scrap-return-to-sea.html
-
-**Strength Tests From Around the World**\
-`Stone lifting, arm wrestling and other ways people test their limits beyond the gym.`\
-https://www.nytimes.com/2026/10/03/well/move/world-strength-tests.html
-
-**Search Underway for Missing Plane Heading From Bermuda Off Nantucket**\
-`The plane, with four Canadians on board and two people picked up in Bermuda, lost contact shortly after 1 a.m. A search was underway Saturday off the coast of Nantucket, Mass.`\
-https://www.nytimes.com/2026/10/03/us/medical-plane-missing-bermuda-boston.html
-
-**How RAF Fairford in a Quiet Corner of England Became a U.S.-Iran Flashpoint**\
-`A mysterious call last Sunday near a military base used by the U.S. set in motion a huge counterterrorism response and days of uncertainty in Britain.`\
-https://www.nytimes.com/2026/10/03/world/europe/raf-fairford-air-base-incident-iran.html
-
-**Whale Batters a Yacht, Leaving Its Crew Stranded for 18 Hours**\
-`Four people were rescued after being adrift in a life raft in the South Pacific. One of them said he thought he had a better chance of winning the lottery than of being hit by a whale.`\
-https://www.nytimes.com/2026/10/03/world/australia/sperm-whales-sink-yacht-sailors-rescued.html
-
-**One of My Father’s Caregivers Asked for Money. Should I Give It to Him?**\
-`He asked if we could “sponsor” him for a course that would help further his career in health care.`\
-https://www.nytimes.com/2026/10/03/magazine/caregiver-money-tuition-ethics.html
-
-**Omani Co-Pilot on FlyDubai Flight Is Said to Have Extremist Views**\
-`It was unclear what background checks had been carried out before he was allowed to fly to Israel.`\
-https://www.nytimes.com/2026/10/03/world/middleeast/oman-flydubai-flight-1073-pilot-radicalized.html
-
-**As A.I. Agents Begin Shopping, Brands Are Changing Their Sales Pitch**\
-`Faced with bots immune to traditional marketing tactics, marketers are racing to win them over with logic and data.`\
-https://www.nytimes.com/2026/10/03/business/dealbook/ai-agent-marketing.html
-
-**Russia Turns to Striking Kyiv’s Bridges, Threatening a Vital Lifeline**\
-`The bridges, used by many commuters in the Ukrainian capital, are the latest target in a broad Russian bombing campaign against infrastructure.`\
-https://www.nytimes.com/2026/10/03/world/europe/russia-ukraine-bridges-kyiv.html
-
-**Trump’s War Empowers Extremists in Iran**\
-`Threats to withdraw from the Nuclear Nonproliferation Treaty are growing in Tehran.`\
-https://www.nytimes.com/2026/10/03/opinion/trump-empowers-iranian-extremists.html
-
-**What the Cornell Lawsuit Reveals About Sexual Violence in America**\
-`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
-https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-morality.html
 
