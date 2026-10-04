@@ -1,3 +1,27 @@
+**A Porch Concert Series Started During Covid. The Bands Are Playing On.**\
+`Big porches are a staple in parts of Brooklyn. During the height of the pandemic, one homeowner launched a concert series to build community and help musicians.`\
+https://www.nytimes.com/2026/10/04/nyregion/operation-gig-porch-concerts-brooklyn.html
+
+**Cornell Case Carries Far-Reaching Implications for Hochul and James**\
+`The decision to intercede by Gov. Kathy Hochul and the New York attorney general, Letitia James, has raised questions of impartiality as both face re-election.`\
+https://www.nytimes.com/2026/10/04/nyregion/hochul-james-cornell.html
+
+**A Campus Reckoning: ‘Cornell Is Now Known for This’**\
+`Accusations of sexual assault at a fraternity party have tarnished the self-image of a fiercely proud Ivy League institution. Can the university ever be the same?`\
+https://www.nytimes.com/2026/10/04/nyregion/cornell-spotlight-rape-accusation.html
+
+**The Inspiration for This East Village Building’s Facade? Diversity and Trump.**\
+`This six-story building in the East Village has long been colorful, but its most recent refresh was inspired by New York City.`\
+https://www.nytimes.com/2026/10/04/nyregion/east-village-nyc-building-echeverri.html
+
+**‘Then, With Outstretched Arms, He Beckoned Me Toward Him’**\
+`A bear hug by the East River, a familiar frame under a streetlight and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/04/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for October 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/04/crosswords/spelling-bee-forum.html
+
 **The ‘God Gap’ Is Narrowing in Texas**\
 `It may not be enough for James Talarico to win. But might it also be a sign of a change to come?`\
 https://www.nytimes.com/2026/10/04/opinion/talarico-paxton-texas-senate-evangelicals.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/10/03/opinion/cornell-rape-lawsuit-politics-moralit
 **I Love That Skinny Jeans Are Back**\
 `You live long enough and the music and the clothes of your youth get repackaged and sold back to you. But skinny jeans and white belts? Really?`\
 https://www.nytimes.com/2026/10/03/opinion/culture/the-luxury-of-looking-a-mess.html
-
-**Zohran Mamdani Is Showing the World How It’s Done**\
-`The New York City mayor has an antidote to globe-spanning distemper.`\
-https://www.nytimes.com/2026/10/03/opinion/zohran-mamdani-united-nations.html
-
-**Controlling Risks Posed by A.I. and Other Threats to Humanity**\
-`Readers respond to an editorial and various articles about how best to avoid catastrophe.`\
-https://www.nytimes.com/2026/10/03/opinion/letters/ai-threats-risks.html
-
-**We Surveyed 50,674 Americans. This Is What Brings Them Together.**\
-`Americans are divided in their politics but not as sports fans.`\
-https://www.nytimes.com/2026/10/03/opinion/sports-team-identities.html
-
-**Cornell and the Age of Impunity**\
-`The columnist David French argues that “we have privileged getting wasted over taking care of people.”`\
-https://www.nytimes.com/video/opinion/100000011188276/cornell-and-the-age-of-impunity.html
-
-**Iraq Wins U.S. Permission to Resume Iran Flights, Prime Minister Says**\
-`Flights between the neighboring countries had been halted after broad U.S. penalties on Iran’s aviation industry.`\
-https://www.nytimes.com/2026/10/03/world/middleeast/iraq-iran-flights-us-sanctions.html
-
-**Understanding Canada’s Europe Pivot**\
-`You sent us your questions about the prime minister’s plan to form a closer relationship with the European Union. Our Canada bureau chief answers them.`\
-https://www.nytimes.com/2026/10/03/world/canada/carney-canada-european-union-trade-currency.html
 
