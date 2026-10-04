@@ -1,3 +1,7 @@
+**10-Minute Challenge: 43 Paintings in One**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/10/04/upshot/10-minute-challenge-van-der-geest.html
+
 **The Most Glamorous Show at Paris Fashion Week**\
 `At Michael Rider’s latest Celine show, unexpected proportions, belts and styling choices pointed to a more effortless idea of glamour. Vanessa Friedman, chief fashion critic for The Times, explains.`\
 https://www.nytimes.com/video/style/100000011131914/the-most-glamorous-show-at-paris-fashion-week.html

@@ -1,3 +1,7 @@
+**10-Minute Challenge: 43 Paintings in One**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/10/04/upshot/10-minute-challenge-van-der-geest.html
+
 **The Most Glamorous Show at Paris Fashion Week**\
 `At Michael Rider’s latest Celine show, unexpected proportions, belts and styling choices pointed to a more effortless idea of glamour. Vanessa Friedman, chief fashion critic for The Times, explains.`\
 https://www.nytimes.com/video/style/100000011131914/the-most-glamorous-show-at-paris-fashion-week.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/asia/who-owns-moon.html
 **Voters Say Congress Is Too Old. But Older Candidates Keep Winning.**\
 `In primary races across the country, incumbency trumped calls for generational change, as older members of Congress held off younger challengers.`\
 https://www.nytimes.com/interactive/2026/10/04/us/elections/gerontocracy.html
-
-**Russians Snap Up Chinese E.V.s as Ukrainian Attacks Make Fuel Scarce**\
-`As Ukraine increasingly takes the war to Russia, the effects may be most visible on the roads.`\
-https://www.nytimes.com/2026/10/04/world/europe/russia-ukraine-war-ev-sales.html
 
