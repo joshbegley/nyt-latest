@@ -1,3 +1,11 @@
+**Measles Outbreak in Amish Country Forces Some to Rethink Vaccines**\
+`The spread of measles in Pennsylvania and Ohio is largely affecting Amish communities where vaccinations levels are low.`\
+https://www.nytimes.com/2026/10/04/us/amish-vaccines-measles.html
+
+**The Return of Middle East Oil**\
+`More oil is moving through the Strait of Hormuz. What does that mean for Iran’s wartime leverage?`\
+https://www.nytimes.com/2026/10/04/world/strait-hormuz-oil-yemen-brazil.html
+
 **U.S. Rushes to Withdraw Bombers From U.K. Air Base After New Threats**\
 `The withdrawal came with unusual speed, following what U.S. officials said were threats of an Iran-based plot against the installation.`\
 https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-iran.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/04/business/procter-gamble-shailesh-jejurikar.ht
 **How Everything Became Gambling**\
 `It’s not just DraftKings and Polymarket — the logic of gambling undergirds everything coming out of Silicon Valley.`\
 https://www.nytimes.com/2026/10/04/magazine/gambling-prediction-markets-statistics.html
-
-**Why Did D.H.S. Buy These Planes?**\
-`Our investigative reporter David A. Fahrenthold explains his investigation into 10 planes the Department of Homeland Security bought from a donor to former D.H.S. Secretary Kristi Noem.`\
-https://www.nytimes.com/video/us/100000011160962/why-did-dhs-buy-these-planes.html
-
-**Book Review: ‘The Rush,’ by Nathaniel Philbrick**\
-`In “The Rush,” Nathaniel Philbrick paints a portrait of the treasure seekers, prospectors and conniving politicians who shaped the destiny of the United States.`\
-https://www.nytimes.com/2026/10/04/books/review/the-rush-nathaniel-philbrick.html
 

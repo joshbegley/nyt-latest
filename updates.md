@@ -1,3 +1,11 @@
+**Measles Outbreak in Amish Country Forces Some to Rethink Vaccines**\
+`The spread of measles in Pennsylvania and Ohio is largely affecting Amish communities where vaccinations levels are low.`\
+https://www.nytimes.com/2026/10/04/us/amish-vaccines-measles.html
+
+**The Return of Middle East Oil**\
+`More oil is moving through the Strait of Hormuz. What does that mean for Iran’s wartime leverage?`\
+https://www.nytimes.com/2026/10/04/world/strait-hormuz-oil-yemen-brazil.html
+
 **U.S. Rushes to Withdraw Bombers From U.K. Air Base After New Threats**\
 `The withdrawal came with unusual speed, following what U.S. officials said were threats of an Iran-based plot against the installation.`\
 https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-iran.html

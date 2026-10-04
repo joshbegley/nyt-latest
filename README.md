@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-i
 `An online spot for Mr. Hilton, the G.O.P. candidate, is full of sexual innuendo that has befuddled Republicans and Democrats watching the race for governor in California.`\
 https://www.nytimes.com/2026/10/04/us/steve-hilton-just-try-it-ad.html
 
-**Sentence Tossed After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
+**Court Tosses ​​Sentence After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
 `An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
 https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
 
