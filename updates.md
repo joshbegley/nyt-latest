@@ -1,3 +1,7 @@
+**8 Key Findings From the Times/Siena Polls**\
+`Democrats are competitive in Alaska, Iowa, Ohio, Texas and even Kansas as they try to wrest control of the Senate from Republicans. Here’s a look at why.`\
+https://www.nytimes.com/2026/10/03/us/politics/times-siena-poll-takeaways.html
+
 **Cornell President Calls Allegations ‘Deeply Disturbing’**\
 `Cornell University on Saturday posted an eight-minute video on its website featuring its president, Michael I. Kotlikoff, addressing the fallout from a 2024 sexual assault investigation.`\
 https://www.nytimes.com/video/us/100000011192157/cornell-president-calls-allegations-deeply-disturbing.html
