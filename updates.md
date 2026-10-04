@@ -1,3 +1,7 @@
+**Rebuked by Bond Market, Bessent Says ‘House’ Does Not Always Win**\
+`The Treasury secretary said in an interview with Axios that he cannot control the Treasury market but argued that U.S. bond yields would come back down over time.`\
+https://www.nytimes.com/2026/10/04/business/bond-market-scott-bessent.html
+
 **After Week of Turmoil at Cornell, a Heavy Cloud Hangs Over Student Life**\
 `As the weekend arrived, much of the nightlife in the upstate New York college town was subdued. But there were still some students looking to cut loose.`\
 https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.html

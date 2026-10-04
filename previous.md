@@ -1,3 +1,7 @@
+**Rebuked by Bond Market, Bessent Says ‘House’ Does Not Always Win**\
+`The Treasury secretary said in an interview with Axios that he cannot control the Treasury market but argued that U.S. bond yields would come back down over time.`\
+https://www.nytimes.com/2026/10/04/business/bond-market-scott-bessent.html
+
 **After Week of Turmoil at Cornell, a Heavy Cloud Hangs Over Student Life**\
 `As the weekend arrived, much of the nightlife in the upstate New York college town was subdued. But there were still some students looking to cut loose.`\
 https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/books/review/the-occidental-book-of-the-dead-
 **Scientists Warn of Another Unseen Risk From Fire: Ozone**\
 `Small particulates sent up by wildfires are a well-documented health hazard. But recent research finds that ground-level ozone is now on the rise, too.`\
 https://www.nytimes.com/2026/10/04/science/ozone-wildfires-smoke.html
-
-**Book Review: ‘Bad Boy for Life,’ by Cheyenne Roundtree**\
-`The most comprehensive biography of the hip-hop mogul to date is both an in-depth character study and a 30-year chronicle of crime and hubris.`\
-https://www.nytimes.com/2026/10/04/books/review/bad-boy-for-life-cheyenne-roundtree.html
 
