@@ -1,3 +1,7 @@
+**What to Know About the Medical Plane That Went Missing Near Nantucket**\
+`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island.`\
+https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
+
 **Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
 `Biljana Plavsic, a Bosnian Serb, pleaded guilty to one count of crimes against humanity. She later recanted and said she “would do the same again.”`\
 https://www.nytimes.com/2026/10/04/world/europe/biljana-plavsic-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/books/review/his-ode-to-nycs-magic-starts-wit
 **A Supreme Court Battle Over Climate Change Begins**\
 `The justices are about to hear a lawsuit that could determine whether the oil industry faces billions of dollars in liability for damages caused by global warming.`\
 https://www.nytimes.com/2026/10/04/climate/boulder-lawsuit-supreme-court.html
-
-**Paris Review: Celine, Dries Van Noten, Comme des Garçons**\
-`A triumph at Celine, movie stars at Dries Van Noten and … Comme des Garçons jeans? Believe it.`\
-https://www.nytimes.com/2026/10/04/style/celine-michael-rider-paris-fashion-week.html
 
