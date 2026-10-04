@@ -1,3 +1,7 @@
+**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
+`The Iran-backed militia said it targeted an Aramco site in Saudi Arabia’s capital, Riyadh, and fresh airstrikes hit the Yemeni capital, raising fears of a widening war.`\
+https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
+
 **Christa Pike Has Exposed the Truth About Lethal Injection**\
 `Lethal injection failures are not glitches; they are features of the process.`\
 https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
