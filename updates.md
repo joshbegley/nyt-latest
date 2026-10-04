@@ -1,3 +1,7 @@
+**Fall for Dance Returns, With an A-for-Effort Stunt**\
+`The Australian theater collective Pony Cam and Israel’s Lior Tavori Dance Company were among the offerings in the final three of this year’s programs.`\
+https://www.nytimes.com/2026/10/04/arts/dance/fall-for-dance-city-center-pony-cam.html
+
 **Court Tosses ​​Sentence After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
 `An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
 https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
