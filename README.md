@@ -1,3 +1,7 @@
+**Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
+`A sheriff said the tractor appeared to be going at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
+https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
+
 **10-Minute Challenge: 43 Paintings in One**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/10/04/upshot/10-minute-challenge-van-der-geest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/article/nobel-prizes-2026.html
 **Who Owns the Moon?**\
 `A treaty from the 1960s declared that nobody can own outer space. Half a century later, billionaires and superpowers see fortunes to be made nonetheless.`\
 https://www.nytimes.com/2026/10/04/world/asia/who-owns-moon.html
-
-**Voters Say Congress Is Too Old. But Older Candidates Keep Winning.**\
-`In primary races across the country, incumbency trumped calls for generational change, as older members of Congress held off younger challengers.`\
-https://www.nytimes.com/interactive/2026/10/04/us/elections/gerontocracy.html
 
