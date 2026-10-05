@@ -1,3 +1,7 @@
+**Two Sisters Took a Circuitous Route to Becoming Roommates**\
+`Circumstances and geography kept them apart, but they settled into a Brooklyn two-bedroom last year and have largely mastered the sibling dynamics.`\
+https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brooklyn.html
+
 **‘Kramer/Fauci’ Review: A Thrilling Episode From the AIDS Battlefield**\
 `Daniel Fish’s staging of a C-SPAN segment reveals the complex yet tender relationship between the fiery Larry Kramer and the diplomatic Anthony Fauci.`\
 https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/books/review/tracy-daugherty-cormac-mccarthy.
 **How a Dancer Lives on $13,500 in East Harlem**\
 `For the past three decades, the dancer Kristine Bendul has hustled to afford life in the city crucial for her career.`\
 https://www.nytimes.com/interactive/2026/10/05/nyregion/nyc-budgeting-affordability-bendul.html
-
-**Midterm Elections: Who Is Winning the Race for Congress? Latest Data**\
-`It’s Oct. 5 — 29 days away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/10/05/us/politics/midterm-elections-control-congress.html
 
