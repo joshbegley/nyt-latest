@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
 https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
 
 **Brazil Elections Head to Runoff Between Lula and Bolsonaro Son**\
-`Neither President Luiz Inácio Lula da Silva nor his top challenger, Flávio Bolsonaro, won a majority of votes in the first round. But for now, Mr. Bolsonaro is leading the race.`\
+`Neither President Luiz Inácio Lula da Silva nor his top challenger, Flávio Bolsonaro, won a majority of votes in the first round, and the race appeared very close.`\
 https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro.html
 
 **Nobel Prizes 2026: What to Know**\

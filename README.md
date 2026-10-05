@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.h
 `The state hasn’t elected a Democrat to the Senate in nearly a century. Economic challenges during President Trump’s second term, as well as other factors, have put it in play.`\
 https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html
 
-**What to Know About the Medical Plane That Went Missing Near Nantucket**\
+**Search for Missing Medical Plane Near Nantucket Called Off. What to Know.**\
 `A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island. A search for survivors has ended.`\
 https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
 
