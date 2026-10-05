@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park
 `Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
 https://www.nytimes.com/2026/10/05/travel/vat-tax-refund-travel-shopping.html
 
-**Book Review: ‘Blockers,’ by Michael Lewis**\
-`A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
-https://www.nytimes.com/2026/10/05/books/review/blockers-michael-lewis.html
-
