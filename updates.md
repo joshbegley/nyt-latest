@@ -1,3 +1,7 @@
+**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, Not So Much.**\
+`Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
+https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
+
 **Search for Missing Medical Plane Near Nantucket Called Off. What to Know.**\
 `A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island. A search for survivors has ended.`\
 https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
