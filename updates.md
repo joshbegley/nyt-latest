@@ -1,3 +1,11 @@
+**Student News Quiz: Campus Outrage, Yemen, Phoebe Bridgers**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/10/05/learning/05studentnewsquiz-ln.html
+
+**Facing Backlash, Trump Says His Super PAC Will Pay for Taxpayer-Funded Ads**\
+`The president said that his PAC, MAGA, Inc., would pay for TV ads promoting him which had been paid for with taxpayer money.`\
+https://www.nytimes.com/2026/10/05/us/politics/trump-taxpayer-funded-ads-pac.html
+
 **Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
 `In a life of achievement and disgrace, ambition, self-promotion, misbehavior and scandal were themes that he knew intimately and that propelled his best-selling novels.`\
 https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
