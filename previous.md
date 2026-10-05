@@ -1,3 +1,7 @@
+**Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
+`A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
+https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
+
 **Nigeria Military Helicopter Crashes With 32 Onboard**\
 `The crash was one of Nigeria’s worst military aviation accidents in years. The country has a history of fatal military aircraft crashes.`\
 https://www.nytimes.com/2026/10/05/world/africa/nigeria-military-aircraft-crash.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
 **Dennis Hastert, Powerful Politician Disgraced by Child Sexual Abuse, Dies**\
 `The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
 https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
-
-**Senate Debates on Deck in Battleground States as Polls Show Democratic Strength**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

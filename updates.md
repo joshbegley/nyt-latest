@@ -1,3 +1,7 @@
+**Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
+`A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
+https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
+
 **Nigeria Military Helicopter Crashes With 32 Onboard**\
 `The crash was one of Nigeria’s worst military aviation accidents in years. The country has a history of fatal military aircraft crashes.`\
 https://www.nytimes.com/2026/10/05/world/africa/nigeria-military-aircraft-crash.html
