@@ -1,3 +1,7 @@
+**Student News Quiz: Campus Outrage, Yemen, Phoebe Bridgers**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/10/05/learning/05studentnewsquiz-ln.html
+
 **Facing Backlash, Trump Says His Super PAC Will Pay for Taxpayer-Funded Ads**\
 `The president said that his PAC, MAGA, Inc., would pay for TV ads promoting him which had been paid for with taxpayer money.`\
 https://www.nytimes.com/2026/10/05/us/politics/trump-taxpayer-funded-ads-pac.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
 **War With Iran Is Forcing the World to Reckon With Geography’s Power**\
 `Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
 https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
-
-**As Students Protest Handling of Cornell Sexual Assault Case, a Building Is Vandalized**\
-`An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
-https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
