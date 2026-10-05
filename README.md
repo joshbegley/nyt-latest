@@ -1,3 +1,7 @@
+**Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
+`At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
+https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
+
 **Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
 `Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/crosswords/connections-companion-1212.html
 **Today’s Wordle Hints for October 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
 https://www.nytimes.com/2026/10/04/crosswords/wordle-review-1934.html
-
-**I’m in Exile, and I Go Home Every Day**\
-`You learn to live with the feeling that you’ll never go home. Then a portal opens.`\
-https://www.nytimes.com/2026/10/04/opinion/exile-displacement-belarus-portals.html
 
