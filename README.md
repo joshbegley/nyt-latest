@@ -1,3 +1,23 @@
+**Midterm Surprise: Democrats Are Surging in Red America**\
+`Our chief political analyst breaks down the latest polling before next month’s elections.`\
+https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html
+
+**The Supreme Court’s New Term, and a Race for Nuclear Power on the Moon**\
+`Plus, why school music classes are under threat.`\
+https://www.nytimes.com/2026/10/05/podcasts/supreme-court-new-term-nuclear-power-moon.html
+
+**NYT Connections Answers for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/connections-companion-1213.html
+
+**Today’s Wordle Hints for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/wordle-review-1935.html
+
+**NYT Strands Hints for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/strands-sidekick-947.html
+
 **Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
 `Karl Deisseroth, Peter Hegemann, Georg Nagel were awarded the prize for their work on light-gated ion channels and optogenetics.`\
 https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
@@ -174,27 +194,7 @@ https://www.nytimes.com/2026/10/05/business/rolls-royce-wealth.html
 `By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
 https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
 
-**Live Updates: Spain Calls Early Election After Housing Crisis Roils Government**\
-`Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
-https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
-
 **15-Minute Lesson Plan: Internet Slang**\
 `What can The New York Times learn from your students about the latest slang and why it’s popular?`\
 https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html
-
-**Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
-`At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
-https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
-
-**N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
-`For a city as diverse as New York, the school system is one of the most segregated in the United States.`\
-https://www.nytimes.com/2026/10/05/nyregion/schools-segregated-diversity-nyc.html
-
-**NYT Spelling Bee Answers for October 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/05/crosswords/spelling-bee-forum.html
-
-**Brazil’s Presidential Election Heads to Runoff**\
-`President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
-https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
 
