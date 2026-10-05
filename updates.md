@@ -1,3 +1,11 @@
+**N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
+`For a city as diverse as New York, the school system is one of the most segregated in the United States.`\
+https://www.nytimes.com/2026/10/05/nyregion/schools-segregated-diversity-nyc.html
+
+**NYT Spelling Bee Answers for October 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/05/crosswords/spelling-bee-forum.html
+
 **Brazil’s Presidential Election Heads to Runoff**\
 `President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
 https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
