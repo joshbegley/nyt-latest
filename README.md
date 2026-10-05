@@ -1,4 +1,12 @@
-**As Protests Kick off at Cornell, a Building Is Vandalized**\
+**Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
+`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
+https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
+
+**Geography Is Back With a Vengeance**\
+`Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
+https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
+
+**As Students Protest Handling of Cornell Sexual Assault Case, a Building Is Vandalized**\
 `An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
 https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/05/nyregion/chestnut-trees-bronx-zoo.html
 **What Are the Biggest Questions in Science Today? 100 Scientists Weigh In.**\
 `We asked 100 scientists about unsolved problems in their fields. They sent back provocations — on the origins of life, the possibilities for human progress and much more.`\
 https://www.nytimes.com/2026/10/05/science/100-unanswered-questions-science.html
-
-**Word of the Day: gratis**\
-`This word has appeared in 68 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/05/learning/word-of-the-day-gratis.html
-
-**The Humanoid Robot Future Has Arrived at a South Korean Park. Sort of.**\
-`I went to Galaxy Robot Park in Seoul to see how we might one day live with robots. It was part cutting-edge technology, part theatrics.`\
-https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park.html
 
