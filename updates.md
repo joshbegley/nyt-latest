@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1 Finale Recap: The Scene of the Crime**\
+`The earthy first season of this intergalactic superhero series ended where it began and rarely left: rural Nebraska.`\
+https://www.nytimes.com/2026/10/04/arts/television/lanterns-recap-season-1-episode-8.html
+
 **Some Democrats Say Senate Race In South Carolina Is Winnable. Others, Not So Much.**\
 `Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
 https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html

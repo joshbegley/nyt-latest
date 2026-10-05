@@ -1,3 +1,7 @@
+**‘Lanterns’ Season 1 Finale Recap: The Scene of the Crime**\
+`The earthy first season of this intergalactic superhero series ended where it began and rarely left: rural Nebraska.`\
+https://www.nytimes.com/2026/10/04/arts/television/lanterns-recap-season-1-episode-8.html
+
 **Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
 `A sheriff said the tractor appeared to be going at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
 https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro
 **Nobel Prizes 2026: What to Know**\
 `Six awards will be announced this week in science, literature, economics and peace work.`\
 https://www.nytimes.com/article/nobel-prizes-2026.html
-
-**Who Owns the Moon?**\
-`A treaty from the 1960s declared that nobody can own outer space. Half a century later, billionaires and superpowers see fortunes to be made nonetheless.`\
-https://www.nytimes.com/2026/10/04/world/asia/who-owns-moon.html
 
