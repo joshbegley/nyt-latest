@@ -1,3 +1,7 @@
+**What to Know About the Medical Plane That Went Missing Near Nantucket**\
+`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island. A search for survivors has ended.`\
+https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
+
 **Brazil Elections Head to Runoff Between Lula and Bolsonaro Son**\
 `Neither President Luiz Inácio Lula da Silva nor his top challenger, Flávio Bolsonaro, won a majority of votes in the first round. But for now, Mr. Bolsonaro is leading the race.`\
 https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro.html

@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.h
 https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html
 
 **What to Know About the Medical Plane That Went Missing Near Nantucket**\
-`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island.`\
+`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island. A search for survivors has ended.`\
 https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
 
 **Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
