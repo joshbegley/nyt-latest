@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.
 `The Supreme Court is starting its new term already mired in election disputes. Our reporter Ann E. Marimow explains why the court is likely to get pulled into even more of these cases.`\
 https://www.nytimes.com/video/us/100000011184795/will-midterm-elections-complicate-the-supreme-courts-new-term.html
 
-**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
-`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
-https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
-
 **What Ada Lovelace Would Have Said About A.I.**\
 `What Ada Lovelace can teach us as we develop artificial intelligence.`\
 https://www.nytimes.com/2026/10/05/opinion/ada-lovelace-ai.html
+
+**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
+`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
+https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
 
 **Alejandro G. Iñárritu Knows That ‘Digger’ Is Polarizing. That’s the Point.**\
 `Alejandro G. Iñárritu knows that “Digger” is polarizing. “I prefer that to the lukewarm reception,” he says of the climate-change satire with Tom Cruise.`\
@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/10/05/movies/alejandro-g-inarritu-digger-movie.html
 `Democrats are increasingly confident they will have a record number of women serving in the House next year, after backing women in competitive districts they are now positioned to win.`\
 https://www.nytimes.com/2026/10/05/us/politics/democrats-congress-women-house.html
 
-**How Congress Surrendered to the Supreme Court**\
+**Congress Is Supposed to Be More Powerful Than the Supreme Court. Why Isn’t It?**\
 `Trump and his allies in the Capitol have revealed a problem that has been developing for decades.`\
 https://www.nytimes.com/2026/10/05/magazine/supreme-court-congress.html
 
