@@ -1,3 +1,7 @@
+**British Museum Says It’s Extending Bayeux Tapestry Viewing Hours**\
+`The museum has been struggling to fit ticket holders into the exceptionally popular display, and it’s also up against the constraints of protecting the artwork.`\
+https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.html
+
 **The Miracle of Hands: Loving, Caring, Healing, Learning**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt about holding hands. Also: Ads praising President Trump; my phones, smart and dumb.`\
 https://www.nytimes.com/2026/10/05/opinion/hands-loving-caring-healing-learning.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/world/middleeast/turkey-banned-book-oppositio
 **Voters in Quebec Election Go to Polls as Separatist Parti Québécois Leads**\
 `The Parti Québécois, which promised an independence referendum if elected on Monday, could return to power after more than a decade.`\
 https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebecois-cac-liberals.html
-
-**Family of Epstein Victim Appears in Ad Targeting Republican**\
-`In a tough new ad for the Democrat running against Representative Jeff Crank, the brother and sister-in-law of Virginia Giuffre say the congressman refused to meet with them.`\
-https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virginia-giuffre.html
 
