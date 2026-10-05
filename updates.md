@@ -1,3 +1,11 @@
+**Facing Backlash, Trump Says His Super PAC Will Pay for Taxpayer-Funded Ads**\
+`The president said that his PAC, MAGA, Inc., would pay for TV ads promoting him that had been paid for with taxpayer money.`\
+https://www.nytimes.com/2026/10/05/us/politics/trump-taxpayer-funded-ads-pac.html
+
+**Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
+`In a life of achievement and disgrace, he wrote best-selling novels with themes he knew intimately: ambition, self-promotion, misbehavior and scandal.`\
+https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
+
 **Why A.I. Food Slop Looks So Gross**\
 `Is anything even real anymore?`\
 https://www.nytimes.com/interactive/2026/10/06/technology/ai-slop-food-images-restaurant-menus.html
