@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms
 `The president’s decision to hold an international summit at his own private golf club, an idea rejected in his first term, illustrates how much he has shattered norms.`\
 https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
 
-**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, not so much.**\
+**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, Not So Much.**\
 `Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
 https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
 
