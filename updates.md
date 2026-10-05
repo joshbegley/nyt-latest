@@ -1,3 +1,7 @@
+**Live Updates: Supreme Court to Hear Major Climate Case Against Oil Companies**\
+`The justices will consider whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
+https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
+
 **Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
 `A fierce and nimble speaker, Ms. Leavitt is the second of Mr. Trump’s former press secretaries to join the cable news network.`\
 https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
