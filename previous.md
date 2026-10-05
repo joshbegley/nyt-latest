@@ -1,3 +1,7 @@
+**Live Updates: Spain Calls Early Elections After Housing Crisis Roils Government**\
+`Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
+
 **15-Minute Lesson Plan: Internet Slang**\
 `What can The New York Times learn from your students about the latest slang and why it’s popular?`\
 https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html
@@ -5,10 +9,6 @@ https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang
 **Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
 `At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
 https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
-
-**Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
-`Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
-https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
 
 **N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
 `For a city as diverse as New York, the school system is one of the most segregated in the United States.`\

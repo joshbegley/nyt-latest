@@ -1,3 +1,7 @@
+**Live Updates: Spain Calls Early Elections After Housing Crisis Roils Government**\
+`Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
+
 **15-Minute Lesson Plan: Internet Slang**\
 `What can The New York Times learn from your students about the latest slang and why it’s popular?`\
 https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html

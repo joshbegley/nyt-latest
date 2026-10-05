@@ -1,4 +1,4 @@
-**Live Updates: Spain Calls Early Elections After Housing Crisis Roils Government**\
+**Live Updates: Spain Calls Early Election After Housing Crisis Roils Government**\
 `Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
 
