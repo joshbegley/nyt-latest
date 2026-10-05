@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewardin
 `The pressure is on for the sci-fi game Gears of War: E-Day as an Xbox exclusive, with “blood, sweat, and tears” extending beyond its virtual battlefields.`\
 https://www.nytimes.com/2026/10/05/arts/gears-of-war-e-day-coalition-xbox.html
 
-**Disappointed by Trump? There Is a Better Way to Be a Republican.**\
+**With Trump Flailing, Some Conservatives Are Having Second Thoughts About Trumpism**\
 `What is the future of the conservative movement?`\
 https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
 
@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins
 `The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
 
-**Geography Is Back With a Vengeance**\
+**War With Iran Is Forcing the World to Reckon With Geography’s Power**\
 `Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
 https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
 

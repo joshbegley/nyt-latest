@@ -1,3 +1,11 @@
+**With Trump Flailing, Some Conservatives Are Having Second Thoughts About Trumpism**\
+`What is the future of the conservative movement?`\
+https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
+
+**War With Iran Is Forcing the World to Reckon With Geography’s Power**\
+`Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
+https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
+
 **The Campaign for Ohio’s Next Governor May Be the Ugliest in the Country**\
 `The candidates for Ohio governor have significant policy differences, but the campaign ads have been strikingly personal, with exaggerated portrayals of one candidate as a con artist and the other as a drunk.`\
 https://www.nytimes.com/2026/10/05/us/elections/ohio-governor-election.html
