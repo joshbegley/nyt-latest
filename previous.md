@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
 `The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
 https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
 
-**Democrats Target More Red Seats as They Try to Wrest Control of Congress and the Senate**\
+**Senate Debates on Deck in Battleground States as Polls Show Democratic Strength**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 
