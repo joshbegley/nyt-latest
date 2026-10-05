@@ -1,3 +1,7 @@
+**How Ketamine Emerged as a Key Factor in an Alleged Cornell Sex Assault**\
+`The powerful anesthetic has gained popularity as a party drug, including among a certain social set on the university’s campus.`\
+https://www.nytimes.com/2026/10/05/nyregion/cornell-university-jane-doe-ketamine.html
+
 **Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
 `A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
 https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-war-yemen-houth
 **Burst of Attacks in Gulf Heightens Fears Over Fragile Energy Trade**\
 `Strikes on tankers in the Strait of Hormuz and oil infrastructure in Saudi Arabia came as the region’s exporters were getting more oil to the world market.`\
 https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
-
-**Dennis Hastert, Powerful Politician Disgraced by Child Sexual Abuse, Dies**\
-`The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
-https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
