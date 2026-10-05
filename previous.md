@@ -1,3 +1,11 @@
+**Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
+`In a life of achievement and disgrace, ambition, self-promotion, misbehavior and scandal were themes that he knew intimately and that propelled his best-selling novels.`\
+https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
+
+**Chicago Woman Shot by Border Patrol Agent Sues Federal Government**\
+`The lawsuit is the latest in a widening push from people who claim they were harmed by the Trump administration’s immigration crackdown and now want justice.`\
+https://www.nytimes.com/2026/10/05/us/marimar-martinez-lawsuit-ice-chicago.html
+
 **Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
 `Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
 https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
@@ -6,8 +14,8 @@ https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek
 `The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
 https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
 
-**Justice Dept. Officials Objected to Biden-Era Covid Memo, Report Shows**\
-`The Trump administration painted the memo as evidence of bias against conservatives. But it has also forced out many of the career Justice Department and F.B.I. officials who objected at the time.`\
+**Biden-Era Memo on Covid and Schools Set Off Dispute in Justice Dept.**\
+`The Trump administration released a report showing career officials had objected to the 2021 memo as evidence that the policy was biased against conservatives. But in an ironic twist, the administration has forced out many of the objectors.`\
 https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
 
 **Supreme Court Begins Term With Major Climate Case**\
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
 **As Students Protest Handling of Cornell Sexual Assault Case, a Building Is Vandalized**\
 `An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
 https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
-
-**California Prepares to Ban Quartz Countertop Production**\
-`The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
-https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

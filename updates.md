@@ -1,3 +1,15 @@
+**Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
+`In a life of achievement and disgrace, ambition, self-promotion, misbehavior and scandal were themes that he knew intimately and that propelled his best-selling novels.`\
+https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
+
+**Chicago Woman Shot by Border Patrol Agent Sues Federal Government**\
+`The lawsuit is the latest in a widening push from people who claim they were harmed by the Trump administration’s immigration crackdown and now want justice.`\
+https://www.nytimes.com/2026/10/05/us/marimar-martinez-lawsuit-ice-chicago.html
+
+**Biden-Era Memo on Covid and Schools Set Off Dispute in Justice Dept.**\
+`The Trump administration released a report showing career officials had objected to the 2021 memo as evidence that the policy was biased against conservatives. But in an ironic twist, the administration has forced out many of the objectors.`\
+https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
+
 **Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
 `Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
 https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
