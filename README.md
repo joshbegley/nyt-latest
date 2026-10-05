@@ -1,3 +1,7 @@
+**Voters in Quebec Election Go to Polls as Separatist Parti Québécois Leads**\
+`The Parti Québécois, which promised an independence referendum if elected on Monday, could return to power after more than a decade.`\
+https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebecois-cac-liberals.html
+
 **Family of Epstein Victim Appears in Ad Targeting Republican**\
 `In a tough new ad for the Democrat running against Representative Jeff Crank, the brother and sister-in-law of Virginia Giuffre say the congressman refused to meet with them.`\
 https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virginia-giuffre.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
 **Quote of the Day: China’s Push to Embrace A.I. Might Have Gone a Little Too Far**\
 `Quotation of the Day for Monday, October 5, 2026.`\
 https://www.nytimes.com/2026/10/05/pageoneplus/quote-of-the-day-chinas-push-to-embrace-ai-might-have-gone-a-little-too-far.html
-
-**Pay Phone, a Lifeline During 2019 Australia Wildfires, Gains Heritage Status**\
-`Hundreds lined up to call loved ones as the internet went down and the flames closed in on the Australian town of Narooma in 2019.`\
-https://www.nytimes.com/2026/10/05/world/australia/narooma-pay-phone-heritage-listing.html
 
