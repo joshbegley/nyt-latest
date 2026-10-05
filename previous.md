@@ -1,3 +1,7 @@
+**Housing, Corruption and a Migrant Surge: Why Spain Is Holding an Early Election**\
+`Spain’s prime minister, Pedro Sánchez, dissolved Parliament on Monday, after months of spiraling crises.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants-corruption.html
+
 **On the Docket**\
 `We look at the cases before the Supreme Court this term.`\
 https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counselin
 **Are Babies Conscious?**\
 `By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
 https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
-
-**To Make More Money, Rolls-Royce Is Aiming Higher on Price, Not Production**\
-`The luxury carmaker is expanding its factory in Britain to focus on rarefied custom cars. First up is a $3.5 million-plus electric roadster.`\
-https://www.nytimes.com/2026/10/05/business/rolls-royce-wealth.html
 

@@ -1,3 +1,7 @@
+**Housing, Corruption and a Migrant Surge: Why Spain Is Holding an Early Election**\
+`Spain’s prime minister, Pedro Sánchez, dissolved Parliament on Monday, after months of spiraling crises.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants-corruption.html
+
 **5 Challenges David Ellison Faces as He Snags His Hollywood Prize**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
 https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
