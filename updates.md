@@ -1,3 +1,19 @@
+**Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
+`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
+https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
+
+**Geography Is Back With a Vengeance**\
+`Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
+https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
+
+**As Students Protest Handling of Cornell Sexual Assault Case, a Building Is Vandalized**\
+`An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
+https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
+
+**Congress Is Supposed to Be More Powerful Than the Supreme Court. Why Isn’t It?**\
+`Trump and his allies in the Capitol have revealed a problem that has been developing for decades.`\
+https://www.nytimes.com/2026/10/05/magazine/supreme-court-congress.html
+
 **As Protests Kick off at Cornell, a Building Is Vandalized**\
 `An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
 https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html

@@ -1,3 +1,7 @@
+**Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
+`The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
+https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
+
 **Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
 `The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
@@ -177,12 +181,4 @@ https://www.nytimes.com/2026/10/05/opinion/mary-peltola-alaska-campaign-senate.h
 **How the Midterms Could Complicate the Supreme Court’s New Term**\
 `Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
 https://www.nytimes.com/2026/10/05/us/politics/supreme-court-midterms-elections-trump.html
-
-**20 Chestnut Trees: A Cause for Celebration at the Bronx Zoo**\
-`American chestnut trees were wiped out more than a century ago. Now, new trees that are fungus-resistant are being planted at the zoo.`\
-https://www.nytimes.com/2026/10/05/nyregion/chestnut-trees-bronx-zoo.html
-
-**What Are the Biggest Questions in Science Today? 100 Scientists Weigh In.**\
-`We asked 100 scientists about unsolved problems in their fields. They sent back provocations — on the origins of life, the possibilities for human progress and much more.`\
-https://www.nytimes.com/2026/10/05/science/100-unanswered-questions-science.html
 
