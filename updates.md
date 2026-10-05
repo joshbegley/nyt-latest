@@ -1,3 +1,23 @@
+**How Congo’s Ebola Epidemic Got So Bad So Quickly**\
+`What happened in Mangala, where residents were left with little outside support, helps explain how this outbreak became the worst seen in the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
+
+**Quote of the Day: China’s Push to Embrace A.I. Might Have Gone a Little Too Far**\
+`Quotation of the Day for Monday, October 5, 2026.`\
+https://www.nytimes.com/2026/10/05/pageoneplus/quote-of-the-day-chinas-push-to-embrace-ai-might-have-gone-a-little-too-far.html
+
+**Pay Phone, a Lifeline During 2019 Australia Wildfires, Gains Heritage Status**\
+`Hundreds lined up to call loved ones as the internet went down and the flames closed in on the Australian town of Narooma in 2019.`\
+https://www.nytimes.com/2026/10/05/world/australia/narooma-pay-phone-heritage-listing.html
+
+**U.S. Sanctions Aim to ‘Shut Down’ Iran’s Airlines, but This Boeing Plane Is Still Flying**\
+`The Trump administration says all Iranian airlines are being “shut down.” So why is this jumbo jet still flying from Tehran to Southeast Asia?`\
+https://www.nytimes.com/2026/10/05/world/asia/boeing-777-plane-iran-us-sanctions-flights.html
+
+**On This Day, Oct. 5: In 2017, The Times’s Weinstein investigation helped ignite the #MeToo movement.**\
+`In 2017, The New York Times published its investigation into decades of sexual harassment accusations involving Harvey Weinstein, helping to ignite the #MeToo movement.`\
+https://www.nytimes.com/2026/10/05/learning/on-this-day-oct-5.html
+
 **Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
 `A sheriff said the tractor appeared to be traveling at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
 https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
