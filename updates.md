@@ -1,3 +1,79 @@
+**How to Get a VAT Tax Refund**\
+`Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
+https://www.nytimes.com/2026/10/05/travel/how-to-get-a-refund-on-value-added-taxes.html
+
+**Book Review: ‘Blockers,’ by Michael Lewis**\
+`A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
+https://www.nytimes.com/2026/10/05/books/review/blockers-michael-lewis.html
+
+**LL Cool J Makes His Way Back Home With ‘NCIS: New York’**\
+`The veteran rapper and actor reprises his longtime “NCIS: Los Angeles” role of Sam Hanna for the procedural’s new spinoff.`\
+https://www.nytimes.com/2026/10/05/arts/television/ll-cool-j-ncis-new-york-premiere.html
+
+**What Movie Do You Watch Over and Over Again?**\
+`What is it about this film that keeps drawing you to it even though you’ve seen it many times before?`\
+https://www.nytimes.com/2026/10/05/learning/what-movie-do-you-watch-over-and-over-again.html
+
+**Do You Miss Spy Magazine? For One Month, It’s Back.**\
+`To celebrate the 40th anniversary of its first issue, the long-defunct satirical monthly is resurfacing vintage articles about Trump on Substack.`\
+https://www.nytimes.com/2026/10/05/style/spy-magazine-donald-trump-substack.html
+
+**Inside the Group of Texans Accused of Being Antifa Terrorists**\
+`The strange story behind the first federal terrorism prosecution of American protesters.`\
+https://www.nytimes.com/2026/10/05/magazine/prairieland-iprotesters-socialist-rifle-association.html
+
+**Book Review: ‘Death of an Ordinary Man,’ by Sarah Perry**\
+`In “Death of an Ordinary Man,” the award-winning writer Sarah Perry pays tribute to her father-in-law.`\
+https://www.nytimes.com/2026/10/05/books/review/death-of-an-ordinary-man-sarah-perry.html
+
+**Suzanne Farrell Brings Back Those Dancing Molecules**\
+`In “Pithoprakta,” a rarely seen Balanchine work set to an extraterrestrial score, New York City Ballet dancers enter a new realm: “It was like nothing we had ever done before.”`\
+https://www.nytimes.com/2026/10/05/arts/dance/suzanne-farrell-balanchine-new-york-city-ballet-pithoprakta.html
+
+**They Argued About Trump at a Dog Park. Then They Pulled Their Guns.**\
+`What happened between two dog owners one April afternoon in Ohio will soon be scrutinized by a judge and jury as both men grapple with the consequences.`\
+https://www.nytimes.com/2026/10/05/us/trump-ohio-dog-park-shooting.html
+
+**Jeff Tweedy: What Woody Guthrie Knew About Us**\
+`The lead vocalist in Wilco reflects on what Guthrie wrote in The Times in 1943.`\
+https://www.nytimes.com/2026/10/05/opinion/guthrie-tweedy-nyt-175.html
+
+**Christopher Jackson Is Back in ‘Hamilton.’ He Still Has Something to Prove.**\
+`The actor, now 51, is reprising his Tony-nominated role on Broadway, as an older, wiser Washington.`\
+https://www.nytimes.com/2026/10/05/theater/christopher-jackson-hamilton-broadway.html
+
+**Visiting Llamas and Alpacas at 5 Farms**\
+`If you’re looking for something a little different on your next road trip, stop by a farm where you can commune with these fan-favorite animals.`\
+https://www.nytimes.com/2026/10/05/travel/llamas-alpacas-tourism.html
+
+**Book Review: ‘Partita,’ by Barbara Kingsolver**\
+`In “Partita,” a former piano prodigy is sent reeling into the past after she receives a call from the man who derailed her ambitions.`\
+https://www.nytimes.com/2026/10/05/books/review/partita-barbara-kingsolver.html
+
+**We Need to Rethink How We Diagnose Mental Illness**\
+`More than half of people who qualify for one diagnosis also qualify for another during their lifetime.`\
+https://www.nytimes.com/2026/10/05/opinion/mental-health-diagnosis-labels.html
+
+**Mayors Are Filming Videos, Mamdani Style, With Varying Degrees of Cringe**\
+`The growing use of walk-and-talk social videos can be traced to Zohran Mamdani’s successful campaign for mayor of New York City. But not all candidates are naturals on camera.`\
+https://www.nytimes.com/2026/10/05/us/mayors-tiktok-video-instagram-mamdani.html
+
+**US Solar Panel Makers Try to Catch China With a Big Leap in Technology**\
+`Manufacturers say they are close to perfecting a new, more efficient solar panel that could help the United States reclaim ground it lost.`\
+https://www.nytimes.com/2026/10/05/business/energy-environment/tandem-solar-panels-us-china.html
+
+**Assisted Death Is Not a Choice of Last Resort in Canada**\
+`Assisted dying accounts for more than 5 percent of deaths in Canada.`\
+https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counseling.html
+
+**To Make More Money, Rolls-Royce Is Aiming Higher on Price, Not Production**\
+`The luxury carmaker is expanding its factory in Britain to focus on rarefied custom cars. First up is a $3.5 million-plus electric roadster.`\
+https://www.nytimes.com/2026/10/05/business/rolls-royce-wealth.html
+
+**Are Babies Conscious?**\
+`By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
+https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
+
 **Live Updates: Spain Calls Early Election After Housing Crisis Roils Government**\
 `Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
