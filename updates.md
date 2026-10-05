@@ -1,3 +1,11 @@
+**Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
+`At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
+https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
+
+**Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
+`Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
+
 **N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
 `For a city as diverse as New York, the school system is one of the most segregated in the United States.`\
 https://www.nytimes.com/2026/10/05/nyregion/schools-segregated-diversity-nyc.html
