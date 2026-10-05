@@ -1,3 +1,11 @@
+**The City Leader Who Revived Central Park Dies at 85**\
+`Gordon J. Davis was New York City’s first Black parks commissioner and one of the most effective. He also led Lincoln Center.`\
+https://www.nytimes.com/2026/10/05/arts/gordon-j-davis-dead.html
+
+**The Local: New Minneapolis amphitheater rises**\
+`Also, a canoe captures attention at the Twin Cities Marathon.`\
+https://www.nytimes.com/2026/10/05/briefing/new-minneapolis-amphitheater.html
+
 **Congolese Town Struggles with One of Country’s Worst Ebola Outbreaks**\
 `Ebola has spread rapidly in the Congolese town of Mangala since June, becoming one of the worst Ebola outbreaks in the country.`\
 https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-mangala.html
