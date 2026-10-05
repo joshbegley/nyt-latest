@@ -1,3 +1,11 @@
+**Brazil’s Problem Is Bigger Than Bolsonaro**\
+`Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
+https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
+
+**Philly Holds Its First Parallel Parking Championship**\
+`Fourteen drivers competed in three rounds, “One Shot,” Tight Squeeze” and “Under Duress,” to determine who’s the city’s best parallel parker.`\
+https://www.nytimes.com/video/us/100000011193930/philadelphia-parallel-parking-championship.html
+
 **2 People, Including Winter Haven High School Student, Killed in Florida Bus Crash**\
 `A school bus carrying 39 people to Winter Haven High School in Florida was struck by a sedan and rolled over, killing a student and a person in another vehicle, officials said.`\
 https://www.nytimes.com/2026/10/05/us/florida-school-bus-crash.html
