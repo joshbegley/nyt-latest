@@ -1,3 +1,11 @@
+**Supreme Court Begins Term With Major Climate Case**\
+`Also, consider these 100 big unanswered questions. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oil.html
+
+**Hispanic Voters Overwhelmingly Disapprove of Trump, New Poll Shows**\
+`Latino voters, who shifted Republican in the 2024 presidential election, view the party more negatively than they have in the past decade, according to an NBC News/Telemundo poll released on Monday.`\
+https://www.nytimes.com/2026/10/05/us/hispanic-voters-trump-poll-approval.html
+
 **How Ketamine Emerged as a Key Factor in an Alleged Cornell Sex Assault**\
 `The powerful anesthetic has gained popularity as a party drug, including among a certain social set on the university’s campus.`\
 https://www.nytimes.com/2026/10/05/nyregion/cornell-university-jane-doe-ketamine.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latro
 **Supreme Court’s Climate Ruling Could Affect Many Kinds of Lawsuits**\
 `Briefs filed in the case asked the justices to consider what their decision could mean for issues as varied as gun violence and defamation.`\
 https://www.nytimes.com/2026/10/05/climate/supreme-court-climate-ruling-effects.html
-
-**Why Saudi Arabia’s Last War in Yemen Turned Into a Quagmire**\
-`A Saudi-led coalition has announced a military campaign against the Iran-backed Houthi militia in the country, reviving memories of its previous effort.`\
-https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-war-yemen-houthis-quagmire.html
-
-**Burst of Attacks in Gulf Heightens Fears Over Fragile Energy Trade**\
-`Strikes on tankers in the Strait of Hormuz and oil infrastructure in Saudi Arabia came as the region’s exporters were getting more oil to the world market.`\
-https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
