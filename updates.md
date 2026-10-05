@@ -1,3 +1,11 @@
+**Ben Watson, a Cider Expert Known as Brother Apple, Has Died at 64.**\
+`Ben Watson, also known as Brother Apple, played a pivotal role in turning cider into a thriving slice of America’s craft-beverage movement. He has died at 64.`\
+https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
+
+**In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
+`Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
+https://www.nytimes.com/2026/10/05/world/americas/bolsanaro-lula-brazil-presidency-trump.html
+
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
