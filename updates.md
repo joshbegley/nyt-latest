@@ -1,3 +1,7 @@
+**Spain Is to Hold Early Elections After Housing Crisis Roils Government**\
+`Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
+
 **Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
 `At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
 https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
