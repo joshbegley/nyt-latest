@@ -1,3 +1,7 @@
+**U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
+`All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
+https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
+
 **High Interest Rates Aren’t Slowing the A.I. Boom. That’s a Problem for the Fed.**\
 `Rising borrowing costs are taking a toll on households and businesses. But they are doing little to dampen enthusiasm for investments in A.I. infrastructure, which are contributing to inflation.`\
 https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/us/politics/midterm-elections-control-congres
 **Jeff Koons Is Selling $100 Million of His Personal Art Collection**\
 `Much of the trove, offered this fall at Christie’s, comes from a buying spree in the late 2000s and includes Dutch Golden Age art and paintings by Picasso and Manet.`\
 https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-art-collection-christies.html
-
-**Should I Be Wearing Sheer Black Stockings?**\
-`A reader questions the longevity of a trend.`\
-https://www.nytimes.com/2026/10/05/style/sheer-black-stockings-trend.html
 

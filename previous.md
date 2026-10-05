@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-b
 `Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
 https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
 
-**Spain Calls Snap Election Amid Housing Protests**\
+**Spain Calls Snap Election Amid Spiraling Crises**\
 `Prime Minister Pedro Sánchez of Spain called for an early election after facing challenges including a migration crisis, outrage over housing policies and corruption accusations involving his inner circle.`\
 https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
 
