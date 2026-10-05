@@ -1,8 +1,12 @@
+**15-Minute Lesson Plan: Internet Slang**\
+`What can The New York Times learn from your students about the latest slang and why it’s popular?`\
+https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html
+
 **Review: Miu Miu, Jean Paul Gaultier, Valentino, Hermès, Loewe**\
 `At Miu Miu, Miuccia Prada puts on her trend-forecasting glasses, and calls it.`\
 https://www.nytimes.com/2026/10/05/style/miu-miu-bra-tops-pfw.html
 
-**Spain Is to Hold Early Elections After Housing Crisis Roils Government**\
+**Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
 `Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
 **NYT Connections Answers for October 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
 https://www.nytimes.com/2026/10/04/crosswords/connections-companion-1212.html
-
-**Today’s Wordle Hints for October 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
-https://www.nytimes.com/2026/10/04/crosswords/wordle-review-1934.html
 

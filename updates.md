@@ -1,3 +1,11 @@
+**15-Minute Lesson Plan: Internet Slang**\
+`What can The New York Times learn from your students about the latest slang and why it’s popular?`\
+https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html
+
+**Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
+`Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
+
 **Spain Is to Hold Early Elections After Housing Crisis Roils Government**\
 `Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
