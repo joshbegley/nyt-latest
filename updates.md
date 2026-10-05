@@ -1,3 +1,7 @@
+**Nigeria Military Helicopter Crashes With 32 Onboard**\
+`The crash was one of Nigeria’s worst military aviation accidents in years. The country has a history of fatal military aircraft crashes.`\
+https://www.nytimes.com/2026/10/05/world/africa/nigeria-military-aircraft-crash.html
+
 **Saffron Pistachio Blondies**\
 `Saffron and pistachio, a combination known to many on the Indian subcontinent as kesar pista, is a classic flavoring in South Asian, Iranian and other desserts — and for good reason. The buttery richness of pistachios brings out the floral flavor in saffron.`\
 https://www.nytimes.com/video/dining/100000011194882/saffron-pistachio-blondies.html
