@@ -1,3 +1,7 @@
+**Brazil Election Could Give Bolsonaro a Key Role in Trump’s Latin America Map**\
+`Flávio Bolsonaro, now the favorite to win Brazil’s presidency, would give President Trump a critical new ally in Latin America, particularly on security.`\
+https://www.nytimes.com/2026/10/05/world/americas/brazil-election-bolsonaro-trump.html
+
 **British Museum Says It’s Extending Bayeux Tapestry Viewing Hours**\
 `The museum has been struggling to fit ticket holders into the exceptionally popular display, and it’s also up against the constraints of protecting the artwork.`\
 https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.html
