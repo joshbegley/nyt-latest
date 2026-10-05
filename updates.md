@@ -1,3 +1,7 @@
+**Brazil’s Presidential Election Heads to Runoff**\
+`President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
+https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
+
 **This Is How AIPAC Lost Its Way**\
 `There remains an opportunity for the group to play a positive and honest role in American politics.`\
 https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
