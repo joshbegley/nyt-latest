@@ -1,3 +1,7 @@
+**Ben Watson, a Cider Expert Known as Brother Apple, Has Died at 64.**\
+`Ben Watson, also known as Brother Apple, played a pivotal role in turning cider into a thriving slice of America’s craft-beverage movement. He has died at 64.`\
+https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
+
 **Two Sisters Took a Circuitous Route to Becoming Roommates**\
 `Circumstances and geography kept them apart, but they settled into a Brooklyn two-bedroom last year and have largely mastered the sibling dynamics.`\
 https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brooklyn.html
@@ -104,7 +108,7 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-b
 
 **In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
 `Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
-https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
+https://www.nytimes.com/2026/10/05/world/americas/bolsanaro-lula-brazil-presidency-trump.html
 
 **Spain Calls Snap Election Amid Spiraling Crises**\
 `Prime Minister Pedro Sánchez of Spain called for an early election after facing challenges including a migration crisis, outrage over housing policies and corruption accusations involving his inner circle.`\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hol
 **Book Review: ‘Cormac McCarthy: A Legacy Revisited,’ by Tracy Daugherty**\
 `A new biography of the late novelist details his youthful escapades, messy relationships and intense commitment to his craft.`\
 https://www.nytimes.com/2026/10/05/books/review/tracy-daugherty-cormac-mccarthy.html
-
-**How a Dancer Lives on $13,500 in East Harlem**\
-`For the past three decades, the dancer Kristine Bendul has hustled to afford life in the city crucial for her career.`\
-https://www.nytimes.com/interactive/2026/10/05/nyregion/nyc-budgeting-affordability-bendul.html
 
