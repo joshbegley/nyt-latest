@@ -1,3 +1,7 @@
+**Nashville Symphony Receives $10 Million Lifeline From Oracle**\
+`The symphony announced last week that it was pausing the rest of the season after disclosing financial trouble. The concerts are back on now, thanks to a tech company gift.`\
+https://www.nytimes.com/2026/10/05/arts/music/nashville-symphony-oracle-gift.html
+
 **Brazil Election Could Give Bolsonaro a Key Role in Trump’s Latin America Map**\
 `Flávio Bolsonaro, now the favorite to win Brazil’s presidency, would give President Trump a critical new ally in Latin America, particularly on security.`\
 https://www.nytimes.com/2026/10/05/world/americas/brazil-election-bolsonaro-trump.html
