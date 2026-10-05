@@ -1,3 +1,7 @@
+**Brazil’s Presidential Election Heads to Runoff**\
+`President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
+https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
+
 **This Is How AIPAC Lost Its Way**\
 `There remains an opportunity for the group to play a positive and honest role in American politics.`\
 https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pil
 **Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
 `The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
 https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
-
-**Democrats Lead Governor Races Deep in Republican Territory, Polls Show**\
-`Democratic advantages in the races for governor in Texas, Iowa, Ohio and Alaska reflect deep unhappiness with President Trump and the economy. A Republican leads in Kansas.`\
-https://www.nytimes.com/2026/10/04/us/politics/governors-poll-democrats-lead.html
 
