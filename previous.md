@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/04/arts/television/lanterns-recap-season-1-episode-8.html
 
 **Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
-`A sheriff said the tractor appeared to be going at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
+`A sheriff said the tractor appeared to be traveling at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
 https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
 
 **10-Minute Challenge: 43 Paintings in One**\
