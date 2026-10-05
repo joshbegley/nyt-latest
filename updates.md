@@ -1,3 +1,11 @@
+**Inside Trump's Plan to Fence Off a Historic Protest Site**\
+`The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
+https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
+
+**Justice Dept. Officials Objected to Biden-Era Covid Memo, Report Shows**\
+`The Trump administration painted the memo as evidence of bias against conservatives. But it has also forced out many of the career Justice Department and F.B.I. officials who objected at the time.`\
+https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
+
 **Supreme Court Begins Term With Major Climate Case**\
 `Also, consider these 100 big unanswered questions. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oil.html
