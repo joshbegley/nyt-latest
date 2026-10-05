@@ -1,3 +1,11 @@
+**As Protests Kick off at Cornell, a Building Is Vandalized**\
+`An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
+https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
+
+**Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
+`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, a militia in Yemen backed by Iran.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
+
 **Live Updates: Supreme Court Hears Major Climate Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
