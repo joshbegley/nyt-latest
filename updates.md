@@ -1,3 +1,7 @@
+**Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
+`Karl Deisseroth, Peter Hegemann and Georg Nagel were recognized for their work on light-gated ion channels and optogenetics, a technique that uses tiny lights to activate neurons in the brain.`\
+https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
+
 **On the Docket**\
 `We look at the cases before the Supreme Court this term.`\
 https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
