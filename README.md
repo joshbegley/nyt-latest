@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ri
 https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
 
 **Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
-`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
+`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
 
 **War With Iran Is Forcing the World to Reckon With Geography’s Power**\
