@@ -1,3 +1,7 @@
+**What’s the Right “Level of Care” for A.I.?**\
+`Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
+https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
+
 **5 Challenges David Ellison Faces as  Warner Bros. Discovery and Paramount Merge**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
 https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html

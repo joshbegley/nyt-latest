@@ -1,3 +1,7 @@
+**What’s the Right “Level of Care” for A.I.?**\
+`Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
+https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
+
 **Housing, Corruption and a Migrant Surge: Why Spain Is Holding an Early Election**\
 `Spain’s prime minister, Pedro Sánchez, dissolved Parliament on Monday, after months of spiraling crises.`\
 https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants-corruption.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/business/energy-environment/tandem-solar-pane
 **Assisted Death Is Not a Choice of Last Resort in Canada**\
 `Assisted dying accounts for more than 5 percent of deaths in Canada.`\
 https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counseling.html
-
-**Are Babies Conscious?**\
-`By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
-https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
 
