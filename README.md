@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek
 `The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
 https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
 
-**Justice Dept. Officials Objected to Biden-Era Covid Memo, Report Shows**\
-`The Trump administration painted the memo as evidence of bias against conservatives. But it has also forced out many of the career Justice Department and F.B.I. officials who objected at the time.`\
+**Biden-Era Memo on Covid and Schools Set Off Dispute in Justice Dept.**\
+`The Trump administration released a report showing career officials had objected to the 2021 memo as evidence that the policy was biased against conservatives. But in an ironic twist, the administration has forced out many of the objectors.`\
 https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
 
 **Supreme Court Begins Term With Major Climate Case**\
