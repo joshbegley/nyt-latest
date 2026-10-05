@@ -1,3 +1,11 @@
+**California Prepares to Ban Quartz Countertop Production**\
+`The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
+https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
+
+**Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
+`Andrew Mountbatten-Windsor is taking action over the warrants used to search two properties after his arrest in February, as part of a British investigation into his ties to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
+
 **The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
 `A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
 https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
