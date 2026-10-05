@@ -1,3 +1,7 @@
+**California Prepares to Ban Quartz Countertop Production**\
+`The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
+https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
+
 **The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
 `A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
 https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/10/05/crosswords/strands-sidekick-947.html
 https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
 
 **Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
-`Andrew Mountbatten-Windsor was arrested this year as part of an investigation into his links with Jeffrey Epstein, the convicted sex offender.`\
+`Andrew Mountbatten-Windsor is taking action over the warrants used to search two properties after his arrest in February, as part of a British investigation into his ties to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
 
 **Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/10/05/travel/vat-tax-refund-travel-shopping.html
 **Book Review: ‘Blockers,’ by Michael Lewis**\
 `A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
 https://www.nytimes.com/2026/10/05/books/review/blockers-michael-lewis.html
-
-**LL Cool J Makes His Way Back Home With ‘NCIS: New York’**\
-`The veteran rapper and actor reprises his longtime “NCIS: Los Angeles” role of Sam Hanna for the procedural’s new spinoff.`\
-https://www.nytimes.com/2026/10/05/arts/television/ll-cool-j-ncis-new-york-premiere.html
-
-**What Movie Do You Watch Over and Over Again?**\
-`What is it about this film that keeps drawing you to it even though you’ve seen it many times before?`\
-https://www.nytimes.com/2026/10/05/learning/what-movie-do-you-watch-over-and-over-again.html
 
