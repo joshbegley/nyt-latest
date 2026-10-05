@@ -1,3 +1,7 @@
+**As Protests Kick off at Cornell, a Building Is Vandalized**\
+`An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
+https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
+
 **California Prepares to Ban Quartz Countertop Production**\
 `The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
 https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
 https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
 
 **Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
-`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, who are backed by Iran.`\
+`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, a militia in Yemen backed by Iran.`\
 https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
 
 **In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.
 `The Supreme Court is starting its new term already mired in election disputes. Our reporter Ann E. Marimow explains why the court is likely to get pulled into even more of these cases.`\
 https://www.nytimes.com/video/us/100000011184795/will-midterm-elections-complicate-the-supreme-courts-new-term.html
 
-**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
-`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
-https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
-
 **What Ada Lovelace Would Have Said About A.I.**\
 `What Ada Lovelace can teach us as we develop artificial intelligence.`\
 https://www.nytimes.com/2026/10/05/opinion/ada-lovelace-ai.html
+
+**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
+`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
+https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
 
 **Alejandro G. Iñárritu Knows That ‘Digger’ Is Polarizing. That’s the Point.**\
 `Alejandro G. Iñárritu knows that “Digger” is polarizing. “I prefer that to the lukewarm reception,” he says of the climate-change satire with Tom Cruise.`\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/05/learning/word-of-the-day-gratis.html
 **The Humanoid Robot Future Has Arrived at a South Korean Park. Sort of.**\
 `I went to Galaxy Robot Park in Seoul to see how we might one day live with robots. It was part cutting-edge technology, part theatrics.`\
 https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park.html
-
-**How to Get a VAT Tax Refund**\
-`Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
-https://www.nytimes.com/2026/10/05/travel/vat-tax-refund-travel-shopping.html
 
