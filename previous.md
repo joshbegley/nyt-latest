@@ -1,3 +1,19 @@
+**CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
+`Mark Thompson told the network’s employees that he had faith that David Ellison, the chief executive of Skydance, would support “independent news that CNN has always stood for.”`\
+https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
+
+**Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
+`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, who are backed by Iran.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
+
+**In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
+`Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
+https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
+
+**Spain Calls Snap Elections Amid Housing Protests**\
+`Prime Minister Pedro Sánchez of Spain called for early elections on Monday, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
+
 **What’s the Right “Level of Care” for A.I.?**\
 `Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
 https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/05/travel/llamas-alpacas-tourism.html
 **Book Review: ‘Partita,’ by Barbara Kingsolver**\
 `In “Partita,” a former piano prodigy is sent reeling into the past after she receives a call from the man who derailed her ambitions.`\
 https://www.nytimes.com/2026/10/05/books/review/partita-barbara-kingsolver.html
-
-**We Need to Rethink How We Diagnose Mental Illness**\
-`More than half of people who qualify for one diagnosis also qualify for another during their lifetime.`\
-https://www.nytimes.com/2026/10/05/opinion/mental-health-diagnosis-labels.html
-
-**Mayors Are Filming Videos, Mamdani Style, With Varying Degrees of Cringe**\
-`The growing use of walk-and-talk social videos can be traced to Zohran Mamdani’s successful campaign for mayor of New York City. But not all candidates are naturals on camera.`\
-https://www.nytimes.com/2026/10/05/us/mayors-tiktok-video-instagram-mamdani.html
-
-**US Solar Panel Makers Try to Catch China With a Big Leap in Technology**\
-`Manufacturers say they are close to perfecting a new, more efficient solar panel that could help the United States reclaim ground it lost.`\
-https://www.nytimes.com/2026/10/05/business/energy-environment/tandem-solar-panels-us-china.html
-
-**Assisted Death Is Not a Choice of Last Resort in Canada**\
-`Assisted dying accounts for more than 5 percent of deaths in Canada.`\
-https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counseling.html
 

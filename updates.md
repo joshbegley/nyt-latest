@@ -1,3 +1,19 @@
+**CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
+`Mark Thompson told the network’s employees that he had faith that David Ellison, the chief executive of Skydance, would support “independent news that CNN has always stood for.”`\
+https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
+
+**Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
+`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, who are backed by Iran.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
+
+**In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
+`Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
+https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
+
+**Spain Calls Snap Elections Amid Housing Protests**\
+`Prime Minister Pedro Sánchez of Spain called for early elections on Monday, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
+
 **What’s the Right “Level of Care” for A.I.?**\
 `Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
 https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
