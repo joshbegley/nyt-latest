@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virgin
 
 **5 Challenges David Ellison Faces as He Snags His Hollywood Prize**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
-https://www.nytimes.com/2026/10/05/business/media/5-challenges-david-ellison-faces-as-he-snags-his-hollywood-prize.html
+https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
 
 **Book Review: ‘Cormac McCarthy: A Legacy Revisited,’ by Tracy Daugherty**\
 `A new biography of the late novelist details his youthful escapades, messy relationships and intense commitment to his craft.`\
@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/10/05/us/politics/whos-winning-the-race-for-congres
 
 **Jeff Koons Is Selling $100 Million of His Personal Art Collection**\
 `Much of the trove, offered this fall at Christie’s, comes from a buying spree in the late 2000s and includes Dutch Golden Age art and paintings by Picasso and Manet.`\
-https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-is-selling-100-million-of-his-personal-art-collection.html
+https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-art-collection-christies.html
 
 **Should I Be Wearing Sheer Black Stockings?**\
 `A reader questions the longevity of a trend.`\
