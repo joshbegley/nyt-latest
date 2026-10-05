@@ -1,3 +1,11 @@
+**Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
+`Evacuation is almost impossible and food is running out in Russian-occupied Oleshky, a city menaced by mines and drones.`\
+https://www.nytimes.com/2026/10/05/world/europe/oleshky-ukraine-russia-war-food.html
+
+**Turkey Banned a Book by a Jailed Presidential Hopeful. We Read It.**\
+`From jail, the former mayor of Istanbul accuses President Recep Tayyip Erdogan of hollowing out Turkey’s democracy to stay in power.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/turkey-banned-book-opposition-leader.html
+
 **Voters in Quebec Election Go to Polls as Separatist Parti Québécois Leads**\
 `The Parti Québécois, which promised an independence referendum if elected on Monday, could return to power after more than a decade.`\
 https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebecois-cac-liberals.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.htm
 **‘Carrie’ and 10 More Things to Watch on TV This Week**\
 `The Stephen King novel is reimagined for a contemporary audience. And a documentary goes backstage with the reunited Oasis.`\
 https://www.nytimes.com/2026/10/05/arts/television/carrie-what-to-watch-on-tv.html
-
-**How Congo’s Ebola Epidemic Got So Bad So Quickly**\
-`What happened in Mangala, where residents were left with little outside support, helps explain how this outbreak became the worst seen in the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
-
-**Quote of the Day: China’s Push to Embrace A.I. Might Have Gone a Little Too Far**\
-`Quotation of the Day for Monday, October 5, 2026.`\
-https://www.nytimes.com/2026/10/05/pageoneplus/quote-of-the-day-chinas-push-to-embrace-ai-might-have-gone-a-little-too-far.html
 

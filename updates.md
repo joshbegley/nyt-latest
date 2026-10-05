@@ -1,3 +1,11 @@
+**Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
+`Evacuation is almost impossible and food is running out in Russian-occupied Oleshky, a city menaced by mines and drones.`\
+https://www.nytimes.com/2026/10/05/world/europe/oleshky-ukraine-russia-war-food.html
+
+**Turkey Banned a Book by a Jailed Presidential Hopeful. We Read It.**\
+`From jail, the former mayor of Istanbul accuses President Recep Tayyip Erdogan of hollowing out Turkey’s democracy to stay in power.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/turkey-banned-book-opposition-leader.html
+
 **Voters in Quebec Election Go to Polls as Separatist Parti Québécois Leads**\
 `The Parti Québécois, which promised an independence referendum if elected on Monday, could return to power after more than a decade.`\
 https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebecois-cac-liberals.html
