@@ -1,3 +1,11 @@
+**CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
+`Mark Thompson told the network’s employees that he had faith that David Ellison, the chief executive of Skydance, would support “independent news that CNN has always stood for.”`\
+https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
+
+**Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
+`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, who are backed by Iran.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
+
 **In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
 `Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
 https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/05/travel/llamas-alpacas-tourism.html
 **Book Review: ‘Partita,’ by Barbara Kingsolver**\
 `In “Partita,” a former piano prodigy is sent reeling into the past after she receives a call from the man who derailed her ambitions.`\
 https://www.nytimes.com/2026/10/05/books/review/partita-barbara-kingsolver.html
-
-**We Need to Rethink How We Diagnose Mental Illness**\
-`More than half of people who qualify for one diagnosis also qualify for another during their lifetime.`\
-https://www.nytimes.com/2026/10/05/opinion/mental-health-diagnosis-labels.html
-
-**Mayors Are Filming Videos, Mamdani Style, With Varying Degrees of Cringe**\
-`The growing use of walk-and-talk social videos can be traced to Zohran Mamdani’s successful campaign for mayor of New York City. But not all candidates are naturals on camera.`\
-https://www.nytimes.com/2026/10/05/us/mayors-tiktok-video-instagram-mamdani.html
 
