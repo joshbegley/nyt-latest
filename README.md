@@ -1,3 +1,11 @@
+**High Interest Rates Aren’t Slowing the A.I. Boom. That’s a Problem for the Fed.**\
+`Rising borrowing costs are taking a toll on households and businesses. But they are doing little to dampen enthusiasm for investments in A.I. infrastructure, which are contributing to inflation.`\
+https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
+
+**Punishments at Cornell**\
+`We look at how the men accused of sexual assault were disciplined.`\
+https://www.nytimes.com/2026/10/05/briefing/punishments-at-cornell.html
+
 **Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
 `Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
 https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
@@ -86,8 +94,8 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-b
 `Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
 https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
 
-**Spain Calls Snap Elections Amid Housing Protests**\
-`Prime Minister Pedro Sánchez of Spain called for early elections on Monday, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+**Spain Calls Snap Election Amid Housing Protests**\
+`Prime Minister Pedro Sánchez of Spain called for an early election, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
 https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
 
 **What’s the Right “Level of Care” for A.I.?**\
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/05/style/sheer-black-stockings-trend.html
 **Supreme Court to Hear Major Environmental Lawsuit**\
 `The justices will begin their new term with a landmark case about whether local governments can sue oil companies over damages caused by climate change.`\
 https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.html
-
-**Will Midterm Elections Complicate the Supreme Court’s New Term?**\
-`The Supreme Court is starting its new term already mired in election disputes. Our reporter Ann E. Marimow explains why the court is likely to get pulled into even more of these cases.`\
-https://www.nytimes.com/video/us/100000011184795/will-midterm-elections-complicate-the-supreme-courts-new-term.html
-
-**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
-`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
-https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
 
