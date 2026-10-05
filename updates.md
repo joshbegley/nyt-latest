@@ -1,3 +1,15 @@
+**Two Sisters Took a Circuitous Route to Becoming Roommates**\
+`Circumstances and geography kept them apart, but they settled into a Brooklyn two-bedroom last year and have largely mastered the sibling dynamics.`\
+https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brooklyn.html
+
+**‘Kramer/Fauci’ Review: A Thrilling Episode From the AIDS Battlefield**\
+`Daniel Fish’s staging of a C-SPAN segment reveals the complex yet tender relationship between the fiery Larry Kramer and the diplomatic Anthony Fauci.`\
+https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
+
+**Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
+`A fierce and nimble speaker, Ms. Leavitt is the third of Mr. Trump’s former press secretaries to join the cable news network.`\
+https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
+
 **U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
 `All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
 https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
