@@ -1,3 +1,11 @@
+**N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
+`For a city as diverse as New York, the school system is one of the most segregated in the United States.`\
+https://www.nytimes.com/2026/10/05/nyregion/schools-segregated-diversity-nyc.html
+
+**NYT Spelling Bee Answers for October 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/05/crosswords/spelling-bee-forum.html
+
 **Brazil’s Presidential Election Heads to Runoff**\
 `President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
 https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/04/opinion/exile-displacement-belarus-portals.ht
 **NYT Strands Hints for October 5, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
 https://www.nytimes.com/2026/10/04/crosswords/strands-sidekick-946.html
-
-**Who Were the Pilots on the FlyDubai Flight?**\
-`The co-pilot’s embrace of extreme Islamist views prompted Omani officials to scrutinize him, according to two people briefed on the investigation.`\
-https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-flight-who-were-pilots.html
-
-**Oregon Man Pinned by Boulder Calls 911 Using Siri From His Earbuds**\
-`The man was trapped under a boulder that the police said likely weighed a “literal ton” and could not reach his phone. He used Apple’s Siri to call 911, his mother said.`\
-https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
 
