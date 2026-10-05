@@ -1,3 +1,7 @@
+**Live Updates: Supreme Court Hears Major Climate Case Against Oil Companies**\
+`The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
+https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
+
 **California Prepares to Ban Quartz Countertop Production**\
 `The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
 https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html

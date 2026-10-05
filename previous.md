@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 
-**Live Updates: Supreme Court to Hear Major Climate Case Against Oil Companies**\
-`The justices will consider whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
+**Live Updates: Supreme Court Hears Major Climate Case Against Oil Companies**\
+`The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
 
 **Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
@@ -185,8 +185,4 @@ https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park
 **How to Get a VAT Tax Refund**\
 `Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
 https://www.nytimes.com/2026/10/05/travel/vat-tax-refund-travel-shopping.html
-
-**Book Review: ‘Blockers,’ by Michael Lewis**\
-`A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
-https://www.nytimes.com/2026/10/05/books/review/blockers-michael-lewis.html
 
