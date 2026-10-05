@@ -1,3 +1,7 @@
+**British Museum Says It’s Extending Bayeux Tapestry Viewing Hours**\
+`The museum has been struggling to fit ticket holders into the exceptionally popular display, and it’s also up against the constraints of protecting the artwork.`\
+https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.html
+
 **Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
 `Karl Deisseroth, Peter Hegemann and Georg Nagel were recognized for their work on light-gated ion channels and optogenetics, a technique that uses pulses of light to activate neurons in the brain.`\
 https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
