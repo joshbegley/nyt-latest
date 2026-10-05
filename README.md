@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/10/05/crosswords/wordle-review-1935.html
 https://www.nytimes.com/2026/10/05/crosswords/strands-sidekick-947.html
 
 **Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
-`Karl Deisseroth, Peter Hegemann, Georg Nagel were awarded the prize for their work on light-gated ion channels and optogenetics.`\
+`Karl Deisseroth, Peter Hegemann and Georg Nagel were recognized for their work on light-gated ion channels and optogenetics, a technique that uses tiny lights to activate neurons in the brain.`\
 https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
 
 **Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
