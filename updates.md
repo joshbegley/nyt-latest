@@ -1,3 +1,7 @@
+**Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
+`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia.`\
+https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
+
 **Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
 `A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
 https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
