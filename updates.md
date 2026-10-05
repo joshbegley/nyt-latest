@@ -1,3 +1,7 @@
+**5 Challenges David Ellison Faces as Warner Bros. Discovery and Paramount Merge**\
+`The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
+https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
+
 **Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
 `The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
 https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
