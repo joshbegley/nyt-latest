@@ -1,3 +1,7 @@
+**Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
+`Karl Deisseroth, Peter Hegemann, Georg Nagel were awarded the prize for their work on light-gated ion channels and optogenetics.`\
+https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
+
 **Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
 `Andrew Mountbatten-Windsor was arrested this year as part of an investigation into his links with Jeffrey Epstein, the convicted sex offender.`\
 https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/crosswords/spelling-bee-forum.html
 **Brazil’s Presidential Election Heads to Runoff**\
 `President Luiz Inácio Lula da Silva and Flávio Bolsonaro, son of the former president Jair Bolsonaro, were forced into a runoff set for Oct. 25.`\
 https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lula-bolsonaro-runoff.html
-
-**This Is How AIPAC Lost Its Way**\
-`There remains an opportunity for the group to play a positive and honest role in American politics.`\
-https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
 

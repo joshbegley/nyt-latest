@@ -76,7 +76,7 @@ https://www.nytimes.com/2026/10/05/opinion/mary-peltola-alaska-campaign-senate.h
 
 **How the Midterms Could Complicate the Supreme Court’s New Term**\
 `Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
-https://www.nytimes.com/2026/10/05/us/politics/how-the-midterms-could-complicate-the-supreme-courts-new-term.html
+https://www.nytimes.com/2026/10/05/us/politics/supreme-court-midterms-elections-trump.html
 
 **20 Chestnut Trees: A Cause for Celebration at the Bronx Zoo**\
 `American chestnut trees were wiped out more than a century ago. Now, new trees that are fungus-resistant are being planted at the zoo.`\

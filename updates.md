@@ -1,3 +1,7 @@
+**How the Midterms Could Complicate the Supreme Court’s New Term**\
+`Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
+https://www.nytimes.com/2026/10/05/us/politics/supreme-court-midterms-elections-trump.html
+
 **Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
 `Andrew Mountbatten-Windsor was arrested this year as part of an investigation into his links with Jeffrey Epstein, the convicted sex offender.`\
 https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
