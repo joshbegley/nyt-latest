@@ -1,3 +1,7 @@
+**Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
+`The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
+https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
+
 **Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
 `The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia. Rumors and unconfirmed reports sounded a more ominous note.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
