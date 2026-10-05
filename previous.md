@@ -1,3 +1,27 @@
+**Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
+`Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
+https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
+
+**Do You Know the Books That Inspired These Films?**\
+`These picture books and novels have been adapted into popular movies released in the last few decades. Try this quiz and see how many you remember.`\
+https://www.nytimes.com/quiz/2026/10/05/bookreview/recent-childrens-adaptations.html
+
+**‘Such a Super Easy Meal and So Rewarding’**\
+`Ali Slagle’s salmon ssam may not be traditional, but it is delicious (according to many happy reader comments).`\
+https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewarding.html
+
+**E-Day’s 6-Year Journey Inside the Rapidly Changing Xbox Industry**\
+`The pressure is on for the sci-fi game Gears of War: E-Day as an Xbox exclusive, with “blood, sweat, and tears” extending beyond its virtual battlefields.`\
+https://www.nytimes.com/2026/10/05/arts/gears-of-war-e-day-coalition-xbox.html
+
+**Disappointed by Trump? There Is a Better Way to Be a Republican.**\
+`What is the future of the conservative movement?`\
+https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
+
+**Can Health Trackers Help You Manage Menopause Symptoms?**\
+`Apple, Oura and Whoop have all recently added features for midlife women. Here’s what the tools can — and can’t — measure.`\
+https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ring-whoop-apple.html
+
 **Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
 `The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
 https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
@@ -154,31 +178,7 @@ https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.
 `The Supreme Court is starting its new term already mired in election disputes. Our reporter Ann E. Marimow explains why the court is likely to get pulled into even more of these cases.`\
 https://www.nytimes.com/video/us/100000011184795/will-midterm-elections-complicate-the-supreme-courts-new-term.html
 
-**What Ada Lovelace Would Have Said About A.I.**\
-`What Ada Lovelace can teach us as we develop artificial intelligence.`\
-https://www.nytimes.com/2026/10/05/opinion/ada-lovelace-ai.html
-
 **‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
 `The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
 https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
-
-**Alejandro G. Iñárritu Knows That ‘Digger’ Is Polarizing. That’s the Point.**\
-`Alejandro G. Iñárritu knows that “Digger” is polarizing. “I prefer that to the lukewarm reception,” he says of the climate-change satire with Tom Cruise.`\
-https://www.nytimes.com/2026/10/05/movies/alejandro-g-inarritu-digger-movie.html
-
-**Democrats Expect Record Number of Women in Party in House After Midterm Elections**\
-`Democrats are increasingly confident they will have a record number of women serving in the House next year, after backing women in competitive districts they are now positioned to win.`\
-https://www.nytimes.com/2026/10/05/us/politics/democrats-congress-women-house.html
-
-**Congress Is Supposed to Be More Powerful Than the Supreme Court. Why Isn’t It?**\
-`Trump and his allies in the Capitol have revealed a problem that has been developing for decades.`\
-https://www.nytimes.com/2026/10/05/magazine/supreme-court-congress.html
-
-**What Mary Peltola Knows About Winning in Red States**\
-`Inside the weird campaign that could flip the Senate to the Democrats.`\
-https://www.nytimes.com/2026/10/05/opinion/mary-peltola-alaska-campaign-senate.html
-
-**How the Midterms Could Complicate the Supreme Court’s New Term**\
-`Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
-https://www.nytimes.com/2026/10/05/us/politics/supreme-court-midterms-elections-trump.html
 

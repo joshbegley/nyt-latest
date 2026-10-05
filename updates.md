@@ -1,3 +1,27 @@
+**Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
+`Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
+https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
+
+**Do You Know the Books That Inspired These Films?**\
+`These picture books and novels have been adapted into popular movies released in the last few decades. Try this quiz and see how many you remember.`\
+https://www.nytimes.com/quiz/2026/10/05/bookreview/recent-childrens-adaptations.html
+
+**‘Such a Super Easy Meal and So Rewarding’**\
+`Ali Slagle’s salmon ssam may not be traditional, but it is delicious (according to many happy reader comments).`\
+https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewarding.html
+
+**E-Day’s 6-Year Journey Inside the Rapidly Changing Xbox Industry**\
+`The pressure is on for the sci-fi game Gears of War: E-Day as an Xbox exclusive, with “blood, sweat, and tears” extending beyond its virtual battlefields.`\
+https://www.nytimes.com/2026/10/05/arts/gears-of-war-e-day-coalition-xbox.html
+
+**Disappointed by Trump? There Is a Better Way to Be a Republican.**\
+`What is the future of the conservative movement?`\
+https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
+
+**Can Health Trackers Help You Manage Menopause Symptoms?**\
+`Apple, Oura and Whoop have all recently added features for midlife women. Here’s what the tools can — and can’t — measure.`\
+https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ring-whoop-apple.html
+
 **5 Challenges David Ellison Faces as Warner Bros. Discovery and Paramount Merge**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
 https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
