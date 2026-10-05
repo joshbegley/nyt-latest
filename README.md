@@ -1,3 +1,23 @@
+**How Congo’s Ebola Epidemic Got So Bad So Quickly**\
+`What happened in Mangala, where residents were left with little outside support, helps explain how this outbreak became the worst seen in the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
+
+**Quote of the Day: China’s Push to Embrace A.I. Might Have Gone a Little Too Far**\
+`Quotation of the Day for Monday, October 5, 2026.`\
+https://www.nytimes.com/2026/10/05/pageoneplus/quote-of-the-day-chinas-push-to-embrace-ai-might-have-gone-a-little-too-far.html
+
+**Pay Phone, a Lifeline During 2019 Australia Wildfires, Gains Heritage Status**\
+`Hundreds lined up to call loved ones as the internet went down and the flames closed in on the Australian town of Narooma in 2019.`\
+https://www.nytimes.com/2026/10/05/world/australia/narooma-pay-phone-heritage-listing.html
+
+**U.S. Sanctions Aim to ‘Shut Down’ Iran’s Airlines, but This Boeing Plane Is Still Flying**\
+`The Trump administration says all Iranian airlines are being “shut down.” So why is this jumbo jet still flying from Tehran to Southeast Asia?`\
+https://www.nytimes.com/2026/10/05/world/asia/boeing-777-plane-iran-us-sanctions-flights.html
+
+**On This Day, Oct. 5: In 2017, The Times’s Weinstein investigation helped ignite the #MeToo movement.**\
+`In 2017, The New York Times published its investigation into decades of sexual harassment accusations involving Harvey Weinstein, helping to ignite the #MeToo movement.`\
+https://www.nytimes.com/2026/10/05/learning/on-this-day-oct-5.html
+
 **‘Lanterns’ Season 1 Finale Recap: The Scene of the Crime**\
 `The earthy first season of this intergalactic superhero series ended where it began and rarely left: rural Nebraska.`\
 https://www.nytimes.com/2026/10/04/arts/television/lanterns-recap-season-1-episode-8.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html
 **Tight Competition: The Contest to Name Philly’s Best Parallel Parker**\
 `Out of more than 900 applicants, 15 were chosen to compete in three rounds, including “Tight Squeeze” and “Under Duress.”`\
 https://www.nytimes.com/2026/10/04/us/parallel-parking-competition-philadelphia.html
-
-**How Democrats Have Changed the Way They Talk About Trans Issues**\
-`Democrats competing in historically conservative territory in the midterms are more aggressively responding to Republican attacks casting them as extreme.`\
-https://www.nytimes.com/2026/10/04/us/politics/democrats-trans-athletes-midterms.html
-
-**How Trump Moved Ethical Lines With His Ads, Businesses and Summits**\
-`The president’s decision to hold an international summit at his own private golf club, an idea rejected in his first term, illustrates how much he has shattered norms.`\
-https://www.nytimes.com/2026/10/04/us/politics/trump-moving-ethical-lines.html
-
-**Some Democrats Say Senate Race In South Carolina Is Winnable. Others, Not So Much.**\
-`Dr. Annie Andrews, a Democrat, is hoping to defeat Senator Darline Graham. Even some of her most ardent supporters sense that her bid is a long shot.`\
-https://www.nytimes.com/2026/10/04/us/politics/south-carolina-senate-darline-graham-annie-andrews-donald-trump.html
-
-**Brazil Elections Head to Runoff Between Lula and Bolsonaro Son**\
-`Neither President Luiz Inácio Lula da Silva nor his top challenger, Flávio Bolsonaro, won a majority of votes in the first round, and the race appeared very close.`\
-https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro.html
-
-**Nobel Prizes 2026: What to Know**\
-`Six awards will be announced this week in science, literature, economics and peace work.`\
-https://www.nytimes.com/article/nobel-prizes-2026.html
 
