@@ -1,3 +1,7 @@
+**Spain Is to Hold Early Elections After Housing Crisis Topples Government**\
+`Pedro Sánchez, the Spanish prime minister, had faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
+https://www.nytimes.com/2026/10/05/world/europe/spain-snap-elections-sanchez.html
+
 **N.Y.C. Leaders Want Integrated Schools. Advocates Want a Plan.**\
 `For a city as diverse as New York, the school system is one of the most segregated in the United States.`\
 https://www.nytimes.com/2026/10/05/nyregion/schools-segregated-diversity-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/04/crosswords/wordle-review-1934.html
 **I’m in Exile, and I Go Home Every Day**\
 `You learn to live with the feeling that you’ll never go home. Then a portal opens.`\
 https://www.nytimes.com/2026/10/04/opinion/exile-displacement-belarus-portals.html
-
-**NYT Strands Hints for October 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
-https://www.nytimes.com/2026/10/04/crosswords/strands-sidekick-946.html
 
