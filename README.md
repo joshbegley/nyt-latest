@@ -1,3 +1,11 @@
+**Burst of Attacks in Gulf Heightens Fears Over Fragile Energy Trade**\
+`Strikes on tankers in the Strait of Hormuz and oil infrastructure in Saudi Arabia came as the region’s exporters were getting more oil to the world market.`\
+https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
+
+**Dennis Hastert, Powerful Politician Disgraced by Child Sex Scandal, Dies**\
+`The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
+https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
+
 **Democrats Target More Red Seats As They Try to Wrest Control of Congress and the Senate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/05/books/review/death-of-an-ordinary-man-sarah-p
 **Suzanne Farrell Brings Back Those Dancing Molecules**\
 `In “Pithoprakta,” a rarely seen Balanchine work set to an extraterrestrial score, New York City Ballet dancers enter a new realm: “It was like nothing we had ever done before.”`\
 https://www.nytimes.com/2026/10/05/arts/dance/suzanne-farrell-balanchine-new-york-city-ballet-pithoprakta.html
-
-**They Argued About Trump at a Dog Park. Then They Pulled Their Guns.**\
-`What happened between two dog owners one April afternoon in Ohio will soon be scrutinized by a judge and jury as both men grapple with the consequences.`\
-https://www.nytimes.com/2026/10/05/us/trump-ohio-dog-park-shooting.html
-
-**Jeff Tweedy: What Woody Guthrie Knew About Us**\
-`The lead vocalist in Wilco reflects on what Guthrie wrote in The Times in 1943.`\
-https://www.nytimes.com/2026/10/05/opinion/guthrie-tweedy-nyt-175.html
 
