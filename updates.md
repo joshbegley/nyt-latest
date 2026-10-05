@@ -1,3 +1,15 @@
+**High Interest Rates Aren’t Slowing the A.I. Boom. That’s a Problem for the Fed.**\
+`Rising borrowing costs are taking a toll on households and businesses. But they are doing little to dampen enthusiasm for investments in A.I. infrastructure, which are contributing to inflation.`\
+https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
+
+**Punishments at Cornell**\
+`We look at how the men accused of sexual assault were disciplined.`\
+https://www.nytimes.com/2026/10/05/briefing/punishments-at-cornell.html
+
+**Spain Calls Snap Election Amid Housing Protests**\
+`Prime Minister Pedro Sánchez of Spain called for an early election, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
+
 **Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
 `Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
 https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
