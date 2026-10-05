@@ -1,3 +1,27 @@
+**Saffron Pistachio Blondies**\
+`Saffron and pistachio, a combination known to many on the Indian subcontinent as kesar pista, is a classic flavoring in South Asian, Iranian and other desserts — and for good reason. The buttery richness of pistachios brings out the floral flavor in saffron.`\
+https://www.nytimes.com/video/dining/100000011194882/saffron-pistachio-blondies.html
+
+**Pumpkin Date Tiramisù**\
+`Steering away from classic tiramisù, this celebration of fall flavors tucks chai-soaked ladyfingers between dollops of pumpkin-date mascarpone cream.`\
+https://www.nytimes.com/video/dining/100000011194847/pumpkin-date-tiramisu.html
+
+**Chicken-Zucchini Meatballs With Feta**\
+`These meatballs harbor a secret: They’re half vegetable, half chicken. More than just a surprise, the grated zucchini provides moisture that ground chicken can lack.`\
+https://www.nytimes.com/video/dining/100000011194833/chicken-zucchini-meatballs-with-feta.html
+
+**Midnight Pasta With Roasted Garlic, Olive Oil and Chile**\
+`This recipe is a version of aglio e olio pasta, which is often known as midnight pasta because it can be made quickly with a few pantry staples: garlic, olive oil, red-pepper flakes and pasta.`\
+https://www.nytimes.com/video/dining/100000011194795/midnight-pasta-with-roasted-garlic-olive-oil-and-chile.html
+
+**Miso-Butter Roasted Broccoli**\
+`Flavorful and easy, this simple roasted broccoli dish makes a great accompaniment to roasted salmon or chicken, and adds depth to grain bowls or quickly cooked leftovers.`\
+https://www.nytimes.com/video/dining/100000011194783/miso-butter-roasted-broccoli.html
+
+**Halloumi and Sweet Potato Tacos**\
+`The idiosyncratic taco recipe is a perfect weeknight staple to pair with a simple coleslaw and store-bought salsa verde.`\
+https://www.nytimes.com/video/dining/100000011194767/halloumi-and-sweet-potato-tacos.html
+
 **Why Cities and States Are Fighting Climate Change in Courtrooms**\
 `Faced with a president who has called global warming a hoax, officials have filed dozens of suits against oil companies to try to cover the costs of extreme weather.`\
 https://www.nytimes.com/2026/10/05/climate/climate-lawsuits-courts-boulder-oil.html
@@ -149,28 +173,4 @@ https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
-
-**Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
-`A fierce and nimble speaker, Ms. Leavitt is the third of Mr. Trump’s former press secretaries to join the cable news network.`\
-https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
-
-**CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
-`Mark Thompson told the network’s employees that he had faith that David Ellison, the chief executive of Skydance, would support “independent news that CNN has always stood for.”`\
-https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
-
-**Saudi and Yemeni Forces Attack Houthis to Retake Control of Red Sea Coast**\
-`The offensive is an effort to wrest control of the Bab al-Mandab Strait from the Houthis, a militia in Yemen backed by Iran.`\
-https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-bab-al-mandab-strait.html
-
-**In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
-`Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
-https://www.nytimes.com/2026/10/05/world/americas/bolsanaro-lula-brazil-presidency-trump.html
-
-**Spain Calls Snap Election Amid Spiraling Crises**\
-`Prime Minister Pedro Sánchez of Spain called for an early election after facing challenges including a migration crisis, outrage over housing policies and corruption accusations involving his inner circle.`\
-https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
-
-**What’s the Right “Level of Care” for A.I.?**\
-`Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
-https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
 
