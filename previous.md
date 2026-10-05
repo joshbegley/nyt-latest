@@ -1,3 +1,7 @@
+**Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
+`Andrew Mountbatten-Windsor was arrested this year as part of an investigation into his links with Jeffrey Epstein, the convicted sex offender.`\
+https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
+
 **Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
 `Evacuation is almost impossible and food is running out in Russian-occupied Oleshky, a city menaced by mines and drones.`\
 https://www.nytimes.com/2026/10/05/world/europe/oleshky-ukraine-russia-war-food.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011193246/brazil-election-lul
 **This Is How AIPAC Lost Its Way**\
 `There remains an opportunity for the group to play a positive and honest role in American politics.`\
 https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
-
-**‘Carrie’ and 10 More Things to Watch on TV This Week**\
-`The Stephen King novel is reimagined for a contemporary audience. And a documentary goes backstage with the reunited Oasis.`\
-https://www.nytimes.com/2026/10/05/arts/television/carrie-what-to-watch-on-tv.html
 

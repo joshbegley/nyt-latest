@@ -1,3 +1,7 @@
+**Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
+`Andrew Mountbatten-Windsor was arrested this year as part of an investigation into his links with Jeffrey Epstein, the convicted sex offender.`\
+https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
+
 **Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
 `Evacuation is almost impossible and food is running out in Russian-occupied Oleshky, a city menaced by mines and drones.`\
 https://www.nytimes.com/2026/10/05/world/europe/oleshky-ukraine-russia-war-food.html
