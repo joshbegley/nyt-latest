@@ -1,3 +1,27 @@
+**Supreme Court’s Climate Ruling Could Affect Many Kinds of Lawsuits**\
+`Briefs filed in the case asked the justices to consider what their decision could mean for issues as varied as gun violence and defamation.`\
+https://www.nytimes.com/2026/10/05/climate/supreme-court-climate-ruling-effects.html
+
+**Why Saudi Arabia’s Last War in Yemen Turned Into a Quagmire**\
+`A Saudi-led coalition has announced a military campaign against the Iran-backed Houthi militia in the country, reviving memories of its previous effort.`\
+https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-war-yemen-houthis-quagmire.html
+
+**Burst of Attacks in Gulf Heightens Fears Over Fragile Energy Trade**\
+`Strikes on tankers in the Strait of Hormuz and oil infrastructure in Saudi Arabia came as the region’s exporters were getting more oil to the world market.`\
+https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
+
+**Dennis Hastert, Powerful Politician Disgraced by Child Sex Scandal, Dies**\
+`The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
+https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
+
+**Democrats Target More Red Seats as They Try to Wrest Control of Congress and the Senate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/05/us/midterms-elections
+
+**Midterm Elections: Who Is Winning the Race for Congress? Latest Data**\
+`It’s Oct. 5 — 29 days away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/10/05/us/politics/midterm-elections-control-congress.html
+
 **Democrats Target More Red Seats As They Try to Wrest Control of Congress and the Senate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
