@@ -1,3 +1,7 @@
+**Democrats Target More Red Seats As They Try to Wrest Control of Congress and the Senate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/05/us/midterms-elections
+
 **Live Updates: Supreme Court to Hear Major Climate Case Against Oil Companies**\
 `The justices will consider whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court

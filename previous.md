@@ -1,3 +1,7 @@
+**Democrats Target More Red Seats As They Try to Wrest Control of Congress and the Senate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/05/us/midterms-elections
+
 **Live Updates: Supreme Court to Hear Major Climate Case Against Oil Companies**\
 `The justices will consider whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/us/trump-ohio-dog-park-shooting.html
 **Jeff Tweedy: What Woody Guthrie Knew About Us**\
 `The lead vocalist in Wilco reflects on what Guthrie wrote in The Times in 1943.`\
 https://www.nytimes.com/2026/10/05/opinion/guthrie-tweedy-nyt-175.html
-
-**Christopher Jackson Is Back in ‘Hamilton.’ He Still Has Something to Prove.**\
-`The actor, now 51, is reprising his Tony-nominated role on Broadway, as an older, wiser Washington.`\
-https://www.nytimes.com/2026/10/05/theater/christopher-jackson-hamilton-broadway.html
 
