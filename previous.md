@@ -1,3 +1,7 @@
+**Congolese Town Struggles with One of Country’s Worst Ebola Outbreaks**\
+`Ebola has spread rapidly in the Congolese town of Mangala since June, becoming one of the worst Ebola outbreaks in the country.`\
+https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-mangala.html
+
 **Nashville Symphony Receives $10 Million Lifeline From Oracle**\
 `The symphony announced last week that it was pausing the rest of the season after disclosing financial trouble. The concerts are back on now, thanks to a tech company gift.`\
 https://www.nytimes.com/2026/10/05/arts/music/nashville-symphony-oracle-gift.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
 **Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
 `Andrew Mountbatten-Windsor is taking action over the warrants used to search two properties after his arrest in February, as part of a British investigation into his ties to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
-
-**Trapped in a Kill Zone, a Ukrainian City Is Beginning to Starve**\
-`Evacuation is almost impossible and food is running out in Russian-occupied Oleshky, a city menaced by mines and drones.`\
-https://www.nytimes.com/2026/10/05/world/europe/oleshky-ukraine-russia-war-food.html
 

@@ -1,3 +1,7 @@
+**Congolese Town Struggles with One of Country’s Worst Ebola Outbreaks**\
+`Ebola has spread rapidly in the Congolese town of Mangala since June, becoming one of the worst Ebola outbreaks in the country.`\
+https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-mangala.html
+
 **Senate Debates on Deck in Battleground States as Polls Show Democratic Strength**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
