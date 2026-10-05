@@ -1,3 +1,83 @@
+**Family of Epstein Victim Appears in Ad Targeting Republican**\
+`In a tough new ad for the Democrat running against Representative Jeff Crank, the brother and sister-in-law of Virginia Giuffre say the congressman refused to meet with them.`\
+https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virginia-giuffre.html
+
+**5 Challenges David Ellison Faces as He Snags His Hollywood Prize**\
+`The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
+https://www.nytimes.com/2026/10/05/business/media/5-challenges-david-ellison-faces-as-he-snags-his-hollywood-prize.html
+
+**Book Review: ‘Cormac McCarthy: A Legacy Revisited,’ by Tracy Daugherty**\
+`A new biography of the late novelist details his youthful escapades, messy relationships and intense commitment to his craft.`\
+https://www.nytimes.com/2026/10/05/books/review/tracy-daugherty-cormac-mccarthy.html
+
+**How a Dancer Lives on $13,500 in East Harlem**\
+`For the past three decades, the dancer Kristine Bendul has hustled to afford life in the city crucial for her career.`\
+https://www.nytimes.com/interactive/2026/10/05/nyregion/nyc-budgeting-affordability-bendul.html
+
+**Who’s Winning the Battle for Congress?**\
+`It’s Oct. 5 — 29 days away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/10/05/us/politics/whos-winning-the-race-for-congress.html
+
+**Jeff Koons Is Selling $100 Million of His Personal Art Collection**\
+`Much of the trove, offered this fall at Christie’s, comes from a buying spree in the late 2000s and includes Dutch Golden Age art and paintings by Picasso and Manet.`\
+https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-is-selling-100-million-of-his-personal-art-collection.html
+
+**Should I Be Wearing Sheer Black Stockings?**\
+`A reader questions the longevity of a trend.`\
+https://www.nytimes.com/2026/10/05/style/sheer-black-stockings-trend.html
+
+**Supreme Court to Hear Major Environmental Lawsuit**\
+`The justices will begin their new term with a landmark case about whether local governments can sue oil companies over damages caused by climate change.`\
+https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.html
+
+**Will Midterm Elections Complicate the Supreme Court’s New Term?**\
+`The Supreme Court is starting its new term already mired in election disputes. Our reporter Ann E. Marimow explains why the court is likely to get pulled into even more of these cases.`\
+https://www.nytimes.com/video/us/100000011184795/will-midterm-elections-complicate-the-supreme-courts-new-term.html
+
+**What Ada Lovelace Would Have Said About A.I.**\
+`What Ada Lovelace can teach us as we develop artificial intelligence.`\
+https://www.nytimes.com/2026/10/05/opinion/ada-lovelace-ai.html
+
+**‘Double Dare’ Debuted 40 Years Ago. Children’s TV Was Never the Same.**\
+`The host of the celebrated Nickelodeon children’s show reflects on the decades since slime and slop first lovingly enveloped our youth.`\
+https://www.nytimes.com/2026/10/05/arts/television/double-dare-40-year-anniversary-marc-summers-nickelodeon.html
+
+**Alejandro G. Iñárritu Knows That ‘Digger’ Is Polarizing. That’s the Point.**\
+`Alejandro G. Iñárritu knows that “Digger” is polarizing. “I prefer that to the lukewarm reception,” he says of the climate-change satire with Tom Cruise.`\
+https://www.nytimes.com/2026/10/05/movies/alejandro-g-inarritu-digger-movie.html
+
+**Democrats Expect Record Number of Women in Party in House After Midterm Elections**\
+`Democrats are increasingly confident they will have a record number of women serving in the House next year, after backing women in competitive districts they are now positioned to win.`\
+https://www.nytimes.com/2026/10/05/us/politics/democrats-congress-women-house.html
+
+**How Congress Surrendered to the Supreme Court**\
+`Trump and his allies in the Capitol have revealed a problem that has been developing for decades.`\
+https://www.nytimes.com/2026/10/05/magazine/supreme-court-congress.html
+
+**What Mary Peltola Knows About Winning in Red States**\
+`Inside the weird campaign that could flip the Senate to the Democrats.`\
+https://www.nytimes.com/2026/10/05/opinion/mary-peltola-alaska-campaign-senate.html
+
+**How the Midterms Could Complicate the Supreme Court’s New Term**\
+`Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
+https://www.nytimes.com/2026/10/05/us/politics/how-the-midterms-could-complicate-the-supreme-courts-new-term.html
+
+**20 Chestnut Trees: A Cause for Celebration at the Bronx Zoo**\
+`American chestnut trees were wiped out more than a century ago. Now, new trees that are fungus-resistant are being planted at the zoo.`\
+https://www.nytimes.com/2026/10/05/nyregion/chestnut-trees-bronx-zoo.html
+
+**What Are the Biggest Questions in Science Today? 100 Scientists Weigh In.**\
+`We asked 100 scientists about unsolved problems in their fields. They sent back provocations — on the origins of life, the possibilities for human progress and much more.`\
+https://www.nytimes.com/2026/10/05/science/100-unanswered-questions-science.html
+
+**Word of the Day: gratis**\
+`This word has appeared in 68 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/05/learning/word-of-the-day-gratis.html
+
+**The Humanoid Robot Future Has Arrived at a South Korean Park. Sort of.**\
+`I went to Galaxy Robot Park in Seoul to see how we might one day live with robots. It was part cutting-edge technology, part theatrics.`\
+https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park.html
+
 **How to Get a VAT Tax Refund**\
 `Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
 https://www.nytimes.com/2026/10/05/travel/how-to-get-a-refund-on-value-added-taxes.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/2026/10/05/pageoneplus/quote-of-the-day-chinas-push-to-e
 **Pay Phone, a Lifeline During 2019 Australia Wildfires, Gains Heritage Status**\
 `Hundreds lined up to call loved ones as the internet went down and the flames closed in on the Australian town of Narooma in 2019.`\
 https://www.nytimes.com/2026/10/05/world/australia/narooma-pay-phone-heritage-listing.html
-
-**U.S. Sanctions Aim to ‘Shut Down’ Iran’s Airlines, but This Boeing Plane Is Still Flying**\
-`The Trump administration says all Iranian airlines are being “shut down.” So why is this jumbo jet still flying from Tehran to Southeast Asia?`\
-https://www.nytimes.com/2026/10/05/world/asia/boeing-777-plane-iran-us-sanctions-flights.html
-
-**On This Day, Oct. 5: In 2017, The Times’s Weinstein investigation helped ignite the #MeToo movement.**\
-`In 2017, The New York Times published its investigation into decades of sexual harassment accusations involving Harvey Weinstein, helping to ignite the #MeToo movement.`\
-https://www.nytimes.com/2026/10/05/learning/on-this-day-oct-5.html
-
-**‘Lanterns’ Season 1 Finale Recap: The Scene of the Crime**\
-`The earthy first season of this intergalactic superhero series ended where it began and rarely left: rural Nebraska.`\
-https://www.nytimes.com/2026/10/04/arts/television/lanterns-recap-season-1-episode-8.html
-
-**Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
-`A sheriff said the tractor appeared to be traveling at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
-https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
-
-**10-Minute Challenge: 43 Paintings in One**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://www.nytimes.com/interactive/2026/10/04/upshot/10-minute-challenge-van-der-geest.html
-
-**The Most Glamorous Show at Paris Fashion Week**\
-`At Michael Rider’s latest Celine show, unexpected proportions, belts and styling choices pointed to a more effortless idea of glamour. Vanessa Friedman, chief fashion critic for The Times, explains.`\
-https://www.nytimes.com/video/style/100000011131914/the-most-glamorous-show-at-paris-fashion-week.html
-
-**NYT Crossword Answers for Oct. 5, 2026**\
-`Chase Dittrich invites us to solve, perchance to smile.`\
-https://www.nytimes.com/2026/10/04/crosswords/daily-puzzle-2026-10-05.html
-
-**At Trump’s Rallies, a Familiar Mix of Rituals and a Plea to ‘Please Pretend’**\
-`President Trump is doggedly lending his support to Republican candidates facing a rough midterm season. He is the same campaigner he has always been, but his crowds have changed.`\
-https://www.nytimes.com/2026/10/04/us/politics/trump-rallies-midterms-rituals.html
-
-**Fall for Dance Returns, With an A-for-Effort Stunt**\
-`The Australian theater collective Pony Cam and Israel’s Lior Tavori Dance Company were among the offerings in the final three of this year’s programs.`\
-https://www.nytimes.com/2026/10/04/arts/dance/fall-for-dance-city-center-pony-cam.html
-
-**Measles Outbreak in Amish Country Forces Some to Rethink Vaccines**\
-`The spread of measles in Pennsylvania and Ohio is largely affecting Amish communities where vaccinations levels are low.`\
-https://www.nytimes.com/2026/10/04/us/amish-vaccines-measles.html
-
-**The Return of Middle East Oil**\
-`More oil is moving through the Strait of Hormuz. What does that mean for Iran’s wartime leverage?`\
-https://www.nytimes.com/2026/10/04/world/strait-hormuz-oil-yemen-brazil.html
-
-**U.S. Rushes to Withdraw Bombers From U.K. Air Base After New Threats**\
-`The withdrawal came with unusual speed, following what U.S. officials said were threats of an Iran-based plot against the installation.`\
-https://www.nytimes.com/2026/10/04/us/politics/us-bombers-britain-raf-fairford-iran.html
-
-**Steve Hilton’s ‘Just Try It’ Ad on Mail Voting Denounced by Republicans**\
-`An online spot for Mr. Hilton, the G.O.P. candidate, is full of sexual innuendo that has befuddled Republicans and Democrats watching the race for governor in California.`\
-https://www.nytimes.com/2026/10/04/us/steve-hilton-just-try-it-ad.html
-
-**Court Tosses ​​Sentence After A.I. Video of Victim ‘Forgiving’ His Killer Is Played**\
-`An appellate court in Arizona threw out the prison sentence of a man convicted of manslaughter after an A.I.-generated video of his victim was played in court.`\
-https://www.nytimes.com/2026/10/04/us/manslaughter-conviction-overturned-ai-video-statement.html
-
-**Popular Cookie Chain Abruptly Shuts Down in New York City**\
-`The chain, which began as a shop in Astoria, Queens, and expanded as far as Texas, closed all locations on Friday.`\
-https://www.nytimes.com/2026/10/04/nyregion/chip-city-stores-closed.html
-
-**With ‘Verity,’ Anne Hathaway Has Her Third No. 1 Movie This Year**\
-`“Verity,” Hathaway’s fifth film of the year, opened this weekend with $33 million months after “The Devil Wears Prada 2” and “The Odyssey” also topped the box office.`\
-https://www.nytimes.com/2026/10/04/movies/anne-hathaway-verity-odyssey-devil-wears-prada.html
-
-**Medical Plane Goes Missing Off Massachusetts Coast**\
-`A medical transport plane carrying six people was flying from Bermuda to Boston when it lost contact near Nantucket.`\
-https://www.nytimes.com/video/us/100000011192722/plane-missing-nantucket-massachusetts-coast-guard.html
-
-**Rebuked by Bond Market, Bessent Says ‘House’ Does Not Always Win**\
-`The Treasury secretary said in an interview with Axios that he cannot control the Treasury market but argued that U.S. bond yields would come back down over time.`\
-https://www.nytimes.com/2026/10/04/business/bond-market-scott-bessent.html
-
-**After Week of Turmoil at Cornell, a Heavy Cloud Hangs Over Student Life**\
-`As the weekend arrived, much of the nightlife in the upstate New York college town was subdued. But there were still some students looking to cut loose.`\
-https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.html
-
-**How Kansas Suddenly Became a Battleground State for Senate Control**\
-`The state hasn’t elected a Democrat to the Senate in nearly a century. Economic challenges during President Trump’s second term, as well as other factors, have put it in play.`\
-https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html
 
