@@ -1,3 +1,79 @@
+**How to Get a VAT Tax Refund**\
+`Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
+https://www.nytimes.com/2026/10/05/travel/how-to-get-a-refund-on-value-added-taxes.html
+
+**Book Review: ‘Blockers,’ by Michael Lewis**\
+`A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
+https://www.nytimes.com/2026/10/05/books/review/blockers-michael-lewis.html
+
+**LL Cool J Makes His Way Back Home With ‘NCIS: New York’**\
+`The veteran rapper and actor reprises his longtime “NCIS: Los Angeles” role of Sam Hanna for the procedural’s new spinoff.`\
+https://www.nytimes.com/2026/10/05/arts/television/ll-cool-j-ncis-new-york-premiere.html
+
+**What Movie Do You Watch Over and Over Again?**\
+`What is it about this film that keeps drawing you to it even though you’ve seen it many times before?`\
+https://www.nytimes.com/2026/10/05/learning/what-movie-do-you-watch-over-and-over-again.html
+
+**Do You Miss Spy Magazine? For One Month, It’s Back.**\
+`To celebrate the 40th anniversary of its first issue, the long-defunct satirical monthly is resurfacing vintage articles about Trump on Substack.`\
+https://www.nytimes.com/2026/10/05/style/spy-magazine-donald-trump-substack.html
+
+**Inside the Group of Texans Accused of Being Antifa Terrorists**\
+`The strange story behind the first federal terrorism prosecution of American protesters.`\
+https://www.nytimes.com/2026/10/05/magazine/prairieland-iprotesters-socialist-rifle-association.html
+
+**Book Review: ‘Death of an Ordinary Man,’ by Sarah Perry**\
+`In “Death of an Ordinary Man,” the award-winning writer Sarah Perry pays tribute to her father-in-law.`\
+https://www.nytimes.com/2026/10/05/books/review/death-of-an-ordinary-man-sarah-perry.html
+
+**Suzanne Farrell Brings Back Those Dancing Molecules**\
+`In “Pithoprakta,” a rarely seen Balanchine work set to an extraterrestrial score, New York City Ballet dancers enter a new realm: “It was like nothing we had ever done before.”`\
+https://www.nytimes.com/2026/10/05/arts/dance/suzanne-farrell-balanchine-new-york-city-ballet-pithoprakta.html
+
+**They Argued About Trump at a Dog Park. Then They Pulled Their Guns.**\
+`What happened between two dog owners one April afternoon in Ohio will soon be scrutinized by a judge and jury as both men grapple with the consequences.`\
+https://www.nytimes.com/2026/10/05/us/trump-ohio-dog-park-shooting.html
+
+**Jeff Tweedy: What Woody Guthrie Knew About Us**\
+`The lead vocalist in Wilco reflects on what Guthrie wrote in The Times in 1943.`\
+https://www.nytimes.com/2026/10/05/opinion/guthrie-tweedy-nyt-175.html
+
+**Christopher Jackson Is Back in ‘Hamilton.’ He Still Has Something to Prove.**\
+`The actor, now 51, is reprising his Tony-nominated role on Broadway, as an older, wiser Washington.`\
+https://www.nytimes.com/2026/10/05/theater/christopher-jackson-hamilton-broadway.html
+
+**Visiting Llamas and Alpacas at 5 Farms**\
+`If you’re looking for something a little different on your next road trip, stop by a farm where you can commune with these fan-favorite animals.`\
+https://www.nytimes.com/2026/10/05/travel/llamas-alpacas-tourism.html
+
+**Book Review: ‘Partita,’ by Barbara Kingsolver**\
+`In “Partita,” a former piano prodigy is sent reeling into the past after she receives a call from the man who derailed her ambitions.`\
+https://www.nytimes.com/2026/10/05/books/review/partita-barbara-kingsolver.html
+
+**We Need to Rethink How We Diagnose Mental Illness**\
+`More than half of people who qualify for one diagnosis also qualify for another during their lifetime.`\
+https://www.nytimes.com/2026/10/05/opinion/mental-health-diagnosis-labels.html
+
+**Mayors Are Filming Videos, Mamdani Style, With Varying Degrees of Cringe**\
+`The growing use of walk-and-talk social videos can be traced to Zohran Mamdani’s successful campaign for mayor of New York City. But not all candidates are naturals on camera.`\
+https://www.nytimes.com/2026/10/05/us/mayors-tiktok-video-instagram-mamdani.html
+
+**US Solar Panel Makers Try to Catch China With a Big Leap in Technology**\
+`Manufacturers say they are close to perfecting a new, more efficient solar panel that could help the United States reclaim ground it lost.`\
+https://www.nytimes.com/2026/10/05/business/energy-environment/tandem-solar-panels-us-china.html
+
+**Assisted Death Is Not a Choice of Last Resort in Canada**\
+`Assisted dying accounts for more than 5 percent of deaths in Canada.`\
+https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counseling.html
+
+**To Make More Money, Rolls-Royce Is Aiming Higher on Price, Not Production**\
+`The luxury carmaker is expanding its factory in Britain to focus on rarefied custom cars. First up is a $3.5 million-plus electric roadster.`\
+https://www.nytimes.com/2026/10/05/business/rolls-royce-wealth.html
+
+**Are Babies Conscious?**\
+`By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
+https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
+
 **Live Updates: Spain Calls Early Election After Housing Crisis Roils Government**\
 `Prime Minister Pedro Sánchez of Spain has faced rising challenges to his authority amid a migration crisis and several corruption scandals involving his inner circle.`\
 https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez
@@ -121,80 +197,4 @@ https://www.nytimes.com/2026/10/04/nyregion/cornell-university-campus-students.h
 **How Kansas Suddenly Became a Battleground State for Senate Control**\
 `The state hasn’t elected a Democrat to the Senate in nearly a century. Economic challenges during President Trump’s second term, as well as other factors, have put it in play.`\
 https://www.nytimes.com/2026/10/04/us/politics/kansas-senate-race-hamilton-marshall.html
-
-**Search for Missing Medical Plane Near Nantucket Called Off. What to Know.**\
-`A Gulfstream G100 carrying six people was flying from Bermuda to Boston when it lost contact near the Massachusetts island. A search for survivors has ended.`\
-https://www.nytimes.com/2026/10/04/us/missing-medical-plane-nantucket-what-to-know.html
-
-**Biljana Plavsic, a Former Bosnian Serb Political Leader, Has Died**\
-`Biljana Plavsic, a Bosnian Serb, pleaded guilty to one count of crimes against humanity. She later recanted and said she “would do the same again.”`\
-https://www.nytimes.com/2026/10/04/world/europe/biljana-plavsic-dead.html
-
-**Trust the Thing That Moves You**\
-`Michael Rider is the anointed designer. How do you know you’re not just falling for the hype?`\
-https://www.nytimes.com/2026/10/04/style/paris-fashion-week-michael-rider.html
-
-**Now’s the Perfect Time for Ratatouille, Actually**\
-`Especially my sheet-pan version, which adds crispy spiced chickpeas for protein and crunch.`\
-https://www.nytimes.com/2026/10/04/dining/nows-the-perfect-time-for-ratatouille-actually.html
-
-**Shooting in Vienna, Ga., Leaves 2 Dead and Dozens Wounded**\
-`A motive for the shooting, which happened in Vienna, Ga., early on Sunday, was not immediately known.`\
-https://www.nytimes.com/2026/10/04/us/shooting-vienna-georgia-block-party.html
-
-**Houthis Claim Attack on Saudi Oil Site as Yemen Conflict Grows**\
-`The Iranian-backed militia said it had targeted a refinery in Riyadh belonging to Saudi Arabia’s state-owned oil company as fresh airstrikes hit Yemen’s capital.`\
-https://www.nytimes.com/video/world/middleeast/100000011192557/houthis-attack-saudi-arabia-oil-yemen-aramco-strikes.html
-
-**Iran’s Top Security Official Warns of Dire Economic Crisis**\
-`The rare admission from Mohsen Rezaei, the security chief, came weeks after the U.S. tightened sanctions and its naval blockade.`\
-https://www.nytimes.com/2026/10/04/world/middleeast/iran-economy-rial.html
-
-**The ‘Most Profound Documentary Series in the History of Cinema’ Is Over**\
-`In the “Up” series, a TV crew followed more than a dozen people over six decades of their lives.`\
-https://www.nytimes.com/2026/10/04/briefing/70-up-series.html
-
-**‘S.N.L.’ Recap: Taylor Swift Makes a Surprise Cameo and Trump Gets Some Last-Minute Promo**\
-`Taylor Swift made a surprise cameo during the opening monologue of Dakota Johnson, who was hosting “Saturday Night Live” this weekend with the musical guest Turnstile.`\
-https://www.nytimes.com/2026/10/04/arts/television/snl-offers-midterm-promo-help-to-trump-and-hegseth.html
-
-**Silky Chicken Stew With Beans and Greens**\
-`And more soothing recipes to ease us into fall.`\
-https://www.nytimes.com/2026/10/04/dining/silky-chicken-stew-with-beans-and-greens.html
-
-**A New World Disorder, or the Same Old One?**\
-`Readers respond to an essay by the historian Margaret MacMillan with geopolitical and historical analyses of their own.`\
-https://www.nytimes.com/2026/10/04/opinion/world-disorder.html
-
-**Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot**\
-`The Omani co-pilot who officials said tried to crash the plane was said to have embraced extremist Islamist views.`\
-https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html
-
-**How to Die**\
-`We look at one family’s struggle to navigate a terminal illness.`\
-https://www.nytimes.com/2026/10/04/briefing/how-to-die.html
-
-**Houthis Claim Attack on Aramco as Yemen Conflict Escalates**\
-`More than 200 U.S. intelligence and military analysts are in Saudi Arabia helping it provide assistance to its Yemeni allies, current and former U.S. officials say.`\
-https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html
-
-**I Consulted With Christa Pike’s Death Row Team. I Knew This Could Happen.**\
-`Lethal injection failures are not glitches; they are features of the process.`\
-https://www.nytimes.com/2026/10/04/opinion/christa-pike-botched-execution.html
-
-**The Restaurant Industry Is Broken. Can It Be Fixed?**\
-`The creative — and sometimes radical — solutions that restaurant owners are trying to address an industry in crisis.`\
-https://www.nytimes.com/2026/10/04/podcasts/the-daily/the-restaurant-industry-is-broken-can-it-be-fixed.html
-
-**The Met Gala Needs a Razzle-Dazzle Reset: Bob Mackie**\
-`“Bob did costumes, and fashion people looked down on him for some reason.”`\
-https://www.nytimes.com/2026/10/04/opinion/met-gala-bob-mackie-john-galliano.html
-
-**Why My Gen Z Students Are Fascinated by the King James Bible**\
-`The King James Version is a master class in cooperative intellectual struggle.`\
-https://www.nytimes.com/2026/10/04/opinion/bible-gen-z-king-james.html
-
-**NYT Connections Answers for October 5, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 5, 2026.`\
-https://www.nytimes.com/2026/10/04/crosswords/connections-companion-1212.html
 
