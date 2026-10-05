@@ -1,3 +1,7 @@
+**U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
+`All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
+https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
+
 **Spain Calls Snap Election Amid Spiraling Crises**\
 `Prime Minister Pedro Sánchez of Spain called for an early election after facing challenges including a migration crisis, outrage over housing policies and corruption accusations involving his inner circle.`\
 https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html

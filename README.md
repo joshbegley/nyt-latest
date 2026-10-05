@@ -1,3 +1,7 @@
+**‘Kramer/Fauci’ Review: A Thrilling Episode From the AIDS Battlefield**\
+`Daniel Fish’s staging of a C-SPAN segment reveals the complex yet tender relationship between the fiery Larry Kramer and the diplomatic Anthony Fauci.`\
+https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
+
 **U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
 `All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
 https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
 
 **Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
-`A fierce and nimble speaker, Ms. Leavitt is the second of Mr. Trump’s former press secretaries to join the cable news network.`\
+`A fierce and nimble speaker, Ms. Leavitt is the third of Mr. Trump’s former press secretaries to join the cable news network.`\
 https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
 
 **CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/interactive/2026/10/05/nyregion/nyc-budgeting-affordabil
 **Midterm Elections: Who Is Winning the Race for Congress? Latest Data**\
 `It’s Oct. 5 — 29 days away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/10/05/us/politics/midterm-elections-control-congress.html
-
-**Jeff Koons Is Selling $100 Million of His Personal Art Collection**\
-`Much of the trove, offered this fall at Christie’s, comes from a buying spree in the late 2000s and includes Dutch Golden Age art and paintings by Picasso and Manet.`\
-https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-art-collection-christies.html
 
