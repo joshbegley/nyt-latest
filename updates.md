@@ -1,3 +1,7 @@
+**Karoline Leavitt, Trump’s ‘Machine Gun,’ Has a New Gig at Fox News**\
+`A fierce and nimble speaker, Ms. Leavitt is the second of Mr. Trump’s former press secretaries to join the cable news network.`\
+https://www.nytimes.com/2026/10/05/business/media/fox-news-karoline-leavitt.html
+
 **CNN C.E.O. Mark Thompson Says He Will Stay On Under New Owner Skydance**\
 `Mark Thompson told the network’s employees that he had faith that David Ellison, the chief executive of Skydance, would support “independent news that CNN has always stood for.”`\
 https://www.nytimes.com/2026/10/05/business/cnn-mark-thompson-ellison-paramount-skydance.html
