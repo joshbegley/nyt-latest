@@ -1,3 +1,31 @@
+**Saffron Pistachio Blondies**\
+`Saffron and pistachio, a combination known to many on the Indian subcontinent as kesar pista, is a classic flavoring in South Asian, Iranian and other desserts — and for good reason. The buttery richness of pistachios brings out the floral flavor in saffron.`\
+https://www.nytimes.com/video/dining/100000011194882/saffron-pistachio-blondies.html
+
+**Pumpkin Date Tiramisù**\
+`Steering away from classic tiramisù, this celebration of fall flavors tucks chai-soaked ladyfingers between dollops of pumpkin-date mascarpone cream.`\
+https://www.nytimes.com/video/dining/100000011194847/pumpkin-date-tiramisu.html
+
+**Chicken-Zucchini Meatballs With Feta**\
+`These meatballs harbor a secret: They’re half vegetable, half chicken. More than just a surprise, the grated zucchini provides moisture that ground chicken can lack.`\
+https://www.nytimes.com/video/dining/100000011194833/chicken-zucchini-meatballs-with-feta.html
+
+**Midnight Pasta With Roasted Garlic, Olive Oil and Chile**\
+`This recipe is a version of aglio e olio pasta, which is often known as midnight pasta because it can be made quickly with a few pantry staples: garlic, olive oil, red-pepper flakes and pasta.`\
+https://www.nytimes.com/video/dining/100000011194795/midnight-pasta-with-roasted-garlic-olive-oil-and-chile.html
+
+**Miso-Butter Roasted Broccoli**\
+`Flavorful and easy, this simple roasted broccoli dish makes a great accompaniment to roasted salmon or chicken, and adds depth to grain bowls or quickly cooked leftovers.`\
+https://www.nytimes.com/video/dining/100000011194783/miso-butter-roasted-broccoli.html
+
+**Halloumi and Sweet Potato Tacos**\
+`The idiosyncratic taco recipe is a perfect weeknight staple to pair with a simple coleslaw and store-bought salsa verde.`\
+https://www.nytimes.com/video/dining/100000011194767/halloumi-and-sweet-potato-tacos.html
+
+**Why Cities and States Are Fighting Climate Change in Courtrooms**\
+`Faced with a president who has called global warming a hoax, officials have filed dozens of suits against oil companies to try to cover the costs of extreme weather.`\
+https://www.nytimes.com/2026/10/05/climate/climate-lawsuits-courts-boulder-oil.html
+
 **The Rise of Gig Economy Warfare**\
 `An incident at a British air base may demonstrate a new era of low-intensity conflict.`\
 https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.html
