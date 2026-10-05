@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebe
 `In a tough new ad for the Democrat running against Representative Jeff Crank, the brother and sister-in-law of Virginia Giuffre say the congressman refused to meet with them.`\
 https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virginia-giuffre.html
 
-**5 Challenges David Ellison Faces as He Snags His Hollywood Prize**\
+**5 Challenges David Ellison Faces as  Warner Bros. Discovery and Paramount Merge**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
 https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
 
@@ -128,7 +128,7 @@ https://www.nytimes.com/2026/10/05/world/asia/south-korea-ai-humanoid-robot-park
 
 **How to Get a VAT Tax Refund**\
 `Here are the steps to get your money back on VAT taxes, which are widespread in Europe and are bundled into the costs of certain items that travelers take home with them.`\
-https://www.nytimes.com/2026/10/05/travel/how-to-get-a-refund-on-value-added-taxes.html
+https://www.nytimes.com/2026/10/05/travel/vat-tax-refund-travel-shopping.html
 
 **Book Review: ‘Blockers,’ by Michael Lewis**\
 `A new book celebrates the federal bureaucrats who were quietly doing their jobs when the Department of Government Efficiency started squeezing them out last year.`\
