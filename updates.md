@@ -1,3 +1,7 @@
+**Why A.I. Food Slop Looks So Gross**\
+`Is anything even real anymore?`\
+https://www.nytimes.com/interactive/2026/10/06/technology/ai-slop-food-images-restaurant-menus.html
+
 **Student News Quiz: Campus Outrage, Yemen, Phoebe Bridgers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/quiz/2026/10/05/learning/05studentnewsquiz-ln.html

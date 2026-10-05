@@ -1,3 +1,7 @@
+**Why A.I. Food Slop Looks So Gross**\
+`Is anything even real anymore?`\
+https://www.nytimes.com/interactive/2026/10/06/technology/ai-slop-food-images-restaurant-menus.html
+
 **Student News Quiz: Campus Outrage, Yemen, Phoebe Bridgers**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/quiz/2026/10/05/learning/05studentnewsquiz-ln.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins
 **Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
 `The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
-
-**War With Iran Is Forcing the World to Reckon With Geography’s Power**\
-`Trade blockages in the Persian Gulf have reminded the world that there are forces as great as or greater than technology and globalization.`\
-https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
