@@ -1,3 +1,11 @@
+**Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
+`In a life of achievement and disgrace, ambition, self-promotion, misbehavior and scandal were themes that he knew intimately and that propelled his best-selling novels.`\
+https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
+
+**Chicago Woman Shot by Border Patrol Agent Sues Federal Government**\
+`The lawsuit is the latest in a widening push from people who claim they were harmed by the Trump administration’s immigration crackdown and now want justice.`\
+https://www.nytimes.com/2026/10/05/us/marimar-martinez-lawsuit-ice-chicago.html
+
 **Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
 `Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
 https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/10/05/business/economy/iran-war-oil-geography.html
 **As Students Protest Handling of Cornell Sexual Assault Case, a Building Is Vandalized**\
 `An administration building was defaced and a glass door smashed early Monday after an emotional week following revelations about 2024 sexual assault allegations.`\
 https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism.html
-
-**California Prepares to Ban Quartz Countertop Production**\
-`The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
-https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
