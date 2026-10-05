@@ -1,3 +1,7 @@
+**Brazil’s Problem Is Bigger Than Bolsonaro**\
+`Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
+https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
+
 **Philly Holds Its First Parallel Parking Championship**\
 `Fourteen drivers competed in three rounds, “One Shot,” Tight Squeeze” and “Under Duress,” to determine who’s the city’s best parallel parker.`\
 https://www.nytimes.com/video/us/100000011193930/philadelphia-parallel-parking-championship.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants
 **On the Docket**\
 `We look at the cases before the Supreme Court this term.`\
 https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
-
-**Midterm Surprise: Democrats Are Surging in Red America**\
-`Our chief political analyst breaks down the latest polling before next month’s elections.`\
-https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html
 
