@@ -1,3 +1,7 @@
+**Voters in Quebec Election Go to Polls as Separatist Parti Québécois Leads**\
+`The Parti Québécois, which promised an independence referendum if elected on Monday, could return to power after more than a decade.`\
+https://www.nytimes.com/2026/10/05/world/canada/quebec-election-vote-parti-quebecois-cac-liberals.html
+
 **Family of Epstein Victim Appears in Ad Targeting Republican**\
 `In a tough new ad for the Democrat running against Representative Jeff Crank, the brother and sister-in-law of Virginia Giuffre say the congressman refused to meet with them.`\
 https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virginia-giuffre.html
