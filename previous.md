@@ -1,3 +1,11 @@
+**This Is How AIPAC Lost Its Way**\
+`There remains an opportunity for the group to play a positive and honest role in American politics.`\
+https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
+
+**‘Carrie’ and 10 More Things to Watch on TV This Week**\
+`The Stephen King novel is reimagined for a contemporary audience. And a documentary goes backstage with the reunited Oasis.`\
+https://www.nytimes.com/2026/10/05/arts/television/carrie-what-to-watch-on-tv.html
+
 **How Congo’s Ebola Epidemic Got So Bad So Quickly**\
 `What happened in Mangala, where residents were left with little outside support, helps explain how this outbreak became the worst seen in the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/04/us/oregon-man-pinned-boulder-siri-rescue.html
 **Democrats Lead Governor Races Deep in Republican Territory, Polls Show**\
 `Democratic advantages in the races for governor in Texas, Iowa, Ohio and Alaska reflect deep unhappiness with President Trump and the economy. A Republican leads in Kansas.`\
 https://www.nytimes.com/2026/10/04/us/politics/governors-poll-democrats-lead.html
-
-**U.K. Base Would Be Ambitious Target for ‘Gig Economy’ Warfare**\
-`The U.S. war in Iran unleashed small-scale attacks by local criminals or disenfranchised young men hired anonymously to target Jewish and American sites in Europe and North America, experts say.`\
-https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html
-
-**Tight Competition: The Contest to Name Philly’s Best Parallel Parker**\
-`Out of more than 900 applicants, 15 were chosen to compete in three rounds, including “Tight Squeeze” and “Under Duress.”`\
-https://www.nytimes.com/2026/10/04/us/parallel-parking-competition-philadelphia.html
 

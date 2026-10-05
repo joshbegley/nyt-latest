@@ -1,3 +1,11 @@
+**This Is How AIPAC Lost Its Way**\
+`There remains an opportunity for the group to play a positive and honest role in American politics.`\
+https://www.nytimes.com/2026/10/05/opinion/aipac-israel-lobby-netanyahu-gaza.html
+
+**‘Carrie’ and 10 More Things to Watch on TV This Week**\
+`The Stephen King novel is reimagined for a contemporary audience. And a documentary goes backstage with the reunited Oasis.`\
+https://www.nytimes.com/2026/10/05/arts/television/carrie-what-to-watch-on-tv.html
+
 **How Congo’s Ebola Epidemic Got So Bad So Quickly**\
 `What happened in Mangala, where residents were left with little outside support, helps explain how this outbreak became the worst seen in the Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/10/05/world/africa/ebola-congo-slow-response.html
