@@ -1,3 +1,7 @@
+**On the Docket**\
+`We look at the cases before the Supreme Court this term.`\
+https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
+
 **Midterm Surprise: Democrats Are Surging in Red America**\
 `Our chief political analyst breaks down the latest polling before next month’s elections.`\
 https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html

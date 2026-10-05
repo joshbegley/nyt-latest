@@ -1,3 +1,7 @@
+**On the Docket**\
+`We look at the cases before the Supreme Court this term.`\
+https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
+
 **Midterm Surprise: Democrats Are Surging in Red America**\
 `Our chief political analyst breaks down the latest polling before next month’s elections.`\
 https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/05/business/rolls-royce-wealth.html
 **Are Babies Conscious?**\
 `By pinpointing when it begins in young humans, scientists hope to better understand what consciousness is, and how it arises, in all of us.`\
 https://www.nytimes.com/2026/10/05/science/consciousness-brain-babies.html
-
-**15-Minute Lesson Plan: Internet Slang**\
-`What can The New York Times learn from your students about the latest slang and why it’s popular?`\
-https://www.nytimes.com/2026/10/05/learning/15-minute-lesson-plan-internet-slang.html
 
