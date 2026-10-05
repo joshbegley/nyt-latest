@@ -1,3 +1,11 @@
+**The City Leader Who Revived Central Park Dies at 85**\
+`Gordon J. Davis was New York City’s first Black parks commissioner and one of the most effective. He also led Lincoln Center.`\
+https://www.nytimes.com/2026/10/05/arts/gordon-j-davis-dead.html
+
+**The Local: New Minneapolis amphitheater rises**\
+`Also, a canoe captures attention at the Twin Cities Marathon.`\
+https://www.nytimes.com/2026/10/05/briefing/new-minneapolis-amphitheater.html
+
 **Congolese Town Struggles with One of Country’s Worst Ebola Outbreaks**\
 `Ebola has spread rapidly in the Congolese town of Mangala since June, becoming one of the worst Ebola outbreaks in the country.`\
 https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-mangala.html
@@ -169,12 +177,4 @@ https://www.nytimes.com/2026/10/05/crosswords/wordle-review-1935.html
 **NYT Strands Hints for October 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
 https://www.nytimes.com/2026/10/05/crosswords/strands-sidekick-947.html
-
-**Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
-`Karl Deisseroth, Peter Hegemann and Georg Nagel were recognized for their work on light-gated ion channels and optogenetics, a technique that uses pulses of light to activate neurons in the brain.`\
-https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
-
-**Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation**\
-`Andrew Mountbatten-Windsor is taking action over the warrants used to search two properties after his arrest in February, as part of a British investigation into his ties to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html
 
