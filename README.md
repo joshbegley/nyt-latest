@@ -1,3 +1,7 @@
+**Philly Holds Its First Parallel Parking Championship**\
+`Fourteen drivers competed in three rounds, “One Shot,” Tight Squeeze” and “Under Duress,” to determine who’s the city’s best parallel parker.`\
+https://www.nytimes.com/video/us/100000011193930/philadelphia-parallel-parking-championship.html
+
 **2 People, Including Winter Haven High School Student, Killed in Florida Bus Crash**\
 `A school bus carrying 39 people to Winter Haven High School in Florida was struck by a sedan and rolled over, killing a student and a person in another vehicle, officials said.`\
 https://www.nytimes.com/2026/10/05/us/florida-school-bus-crash.html
@@ -169,12 +173,4 @@ https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
 **Midterm Surprise: Democrats Are Surging in Red America**\
 `Our chief political analyst breaks down the latest polling before next month’s elections.`\
 https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html
-
-**The Supreme Court’s New Term, and a Race for Nuclear Power on the Moon**\
-`Plus, why school music classes are under threat.`\
-https://www.nytimes.com/2026/10/05/podcasts/supreme-court-new-term-nuclear-power-moon.html
-
-**NYT Connections Answers for October 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
-https://www.nytimes.com/2026/10/05/crosswords/connections-companion-1213.html
 
