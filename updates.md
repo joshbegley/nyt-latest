@@ -1,3 +1,7 @@
+**The Cornell Case and Trump’s America**\
+`Nearly a decade after #MeToo, the Cornell case has raised questions about whether any progress has been made. On “The Opinions,” Jamelle Bouie argues that the case reflects a political culture that glorifies “aggressive and predatory” masculinity.`\
+https://www.nytimes.com/video/opinion/100000011188278/the-cornell-case-and-trumps-america.html
+
 **The City Leader Who Revived Central Park Dies at 85**\
 `Gordon J. Davis was New York City’s first Black parks commissioner and one of the most effective. He also led Lincoln Center.`\
 https://www.nytimes.com/2026/10/05/arts/gordon-j-davis-dead.html
