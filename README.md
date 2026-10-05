@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-art-collection-christi
 `A reader questions the longevity of a trend.`\
 https://www.nytimes.com/2026/10/05/style/sheer-black-stockings-trend.html
 
-**Supreme Court to Hear Major Environmental Lawsuit**\
-`The justices will begin their new term with a landmark case about whether local governments can sue oil companies over damages caused by climate change.`\
-https://www.nytimes.com/2026/10/05/us/politics/supreme-court-climate-change-oil.html
-
