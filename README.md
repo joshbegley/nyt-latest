@@ -1,3 +1,7 @@
+**Why Cities and States Are Fighting Climate Change in Courtrooms**\
+`Faced with a president who has called global warming a hoax, officials have filed dozens of suits against oil companies to try to cover the costs of extreme weather.`\
+https://www.nytimes.com/2026/10/05/climate/climate-lawsuits-courts-boulder-oil.html
+
 **The Rise of Gig Economy Warfare**\
 `An incident at a British air base may demonstrate a new era of low-intensity conflict.`\
 https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housin
 **What’s the Right “Level of Care” for A.I.?**\
 `Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
 https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
-
-**Housing, Corruption and a Migrant Surge: Why Spain Is Holding an Early Election**\
-`Spain’s prime minister, Pedro Sánchez, dissolved Parliament on Monday, after months of spiraling crises.`\
-https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants-corruption.html
 

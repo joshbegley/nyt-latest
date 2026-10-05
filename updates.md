@@ -1,3 +1,7 @@
+**The Rise of Gig Economy Warfare**\
+`An incident at a British air base may demonstrate a new era of low-intensity conflict.`\
+https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.html
+
 **Brazil’s Problem Is Bigger Than Bolsonaro**\
 `Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
 https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
