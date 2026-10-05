@@ -1,3 +1,27 @@
+**Midterm Surprise: Democrats Are Surging in Red America**\
+`Our chief political analyst breaks down the latest polling before next month’s elections.`\
+https://www.nytimes.com/2026/10/05/podcasts/the-daily/polls-democrats-midterm-elections.html
+
+**The Supreme Court’s New Term, and a Race for Nuclear Power on the Moon**\
+`Plus, why school music classes are under threat.`\
+https://www.nytimes.com/2026/10/05/podcasts/supreme-court-new-term-nuclear-power-moon.html
+
+**NYT Connections Answers for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/connections-companion-1213.html
+
+**Today’s Wordle Hints for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/wordle-review-1935.html
+
+**NYT Strands Hints for October 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/05/crosswords/strands-sidekick-947.html
+
+**Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
+`Karl Deisseroth, Peter Hegemann, Georg Nagel were awarded the prize for their work on light-gated ion channels and optogenetics.`\
+https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
+
 **How the Midterms Could Complicate the Supreme Court’s New Term**\
 `Even before the justices start their new term on Monday, the court has spent the summer resolving fast-moving requests on election-related disputes.`\
 https://www.nytimes.com/2026/10/05/us/politics/supreme-court-midterms-elections-trump.html
