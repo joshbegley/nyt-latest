@@ -1,3 +1,11 @@
+**Inside Trump's Plan to Fence Off a Historic Protest Site**\
+`The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
+https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
+
+**Justice Dept. Officials Objected to Biden-Era Covid Memo, Report Shows**\
+`The Trump administration painted the memo as evidence of bias against conservatives. But it has also forced out many of the career Justice Department and F.B.I. officials who objected at the time.`\
+https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
+
 **Supreme Court Begins Term With Major Climate Case**\
 `Also, consider these 100 big unanswered questions. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oil.html
@@ -169,10 +177,6 @@ https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
 **The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
 `A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
 https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
-
-**Supreme Court’s Climate Ruling Could Affect Many Kinds of Lawsuits**\
-`Briefs filed in the case asked the justices to consider what their decision could mean for issues as varied as gun violence and defamation.`\
-https://www.nytimes.com/2026/10/05/climate/supreme-court-climate-ruling-effects.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

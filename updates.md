@@ -1,3 +1,15 @@
+**Supreme Court Begins Term With Major Climate Case**\
+`Also, consider these 100 big unanswered questions. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oil.html
+
+**Hispanic Voters Overwhelmingly Disapprove of Trump, New Poll Shows**\
+`Latino voters, who shifted Republican in the 2024 presidential election, view the party more negatively than they have in the past decade, according to an NBC News/Telemundo poll released on Monday.`\
+https://www.nytimes.com/2026/10/05/us/hispanic-voters-trump-poll-approval.html
+
+**How Ketamine Emerged as a Key Factor in an Alleged Cornell Sex Assault**\
+`The powerful anesthetic has gained popularity as a party drug, including among a certain social set on the university’s campus.`\
+https://www.nytimes.com/2026/10/05/nyregion/cornell-university-jane-doe-ketamine.html
+
 **Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
 `The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia.`\
 https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
