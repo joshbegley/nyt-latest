@@ -1,3 +1,11 @@
+**5 Challenges David Ellison Faces as He Snags His Hollywood Prize**\
+`The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
+https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
+
+**Jeff Koons Is Selling $100 Million of His Personal Art Collection**\
+`Much of the trove, offered this fall at Christie’s, comes from a buying spree in the late 2000s and includes Dutch Golden Age art and paintings by Picasso and Manet.`\
+https://www.nytimes.com/2026/10/05/arts/design/jeff-koons-art-collection-christies.html
+
 **Nobel Prize in Physiology or Medicine Is Awarded for Discoveries in Neuroscience**\
 `Karl Deisseroth, Peter Hegemann and Georg Nagel were recognized for their work on light-gated ion channels and optogenetics, a technique that uses tiny lights to activate neurons in the brain.`\
 https://www.nytimes.com/2026/10/05/health/nobel-prize-medicine-physiology.html
