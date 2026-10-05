@@ -1,3 +1,11 @@
+**In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency**\
+`Flávio Bolsonaro’s first round lead leaves President Luiz Inácio Lula da Silva three weeks to find the votes to stop Brazil’s, and Latin America’s, rightward shift.`\
+https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
+
+**Spain Calls Snap Elections Amid Housing Protests**\
+`Prime Minister Pedro Sánchez of Spain called for early elections on Monday, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
+
 **What’s the Right “Level of Care” for A.I.?**\
 `Another executive departed OpenAI, raising questions about the company’s commitment to safety.`\
 https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/05/opinion/mental-health-diagnosis-labels.html
 **Mayors Are Filming Videos, Mamdani Style, With Varying Degrees of Cringe**\
 `The growing use of walk-and-talk social videos can be traced to Zohran Mamdani’s successful campaign for mayor of New York City. But not all candidates are naturals on camera.`\
 https://www.nytimes.com/2026/10/05/us/mayors-tiktok-video-instagram-mamdani.html
-
-**US Solar Panel Makers Try to Catch China With a Big Leap in Technology**\
-`Manufacturers say they are close to perfecting a new, more efficient solar panel that could help the United States reclaim ground it lost.`\
-https://www.nytimes.com/2026/10/05/business/energy-environment/tandem-solar-panels-us-china.html
-
-**Assisted Death Is Not a Choice of Last Resort in Canada**\
-`Assisted dying accounts for more than 5 percent of deaths in Canada.`\
-https://www.nytimes.com/2026/10/05/opinion/medical-assistance-in-dying-counseling.html
 
