@@ -1,3 +1,7 @@
+**The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
+`A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
+https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
+
 **Supreme Court’s Climate Ruling Could Affect Many Kinds of Lawsuits**\
 `Briefs filed in the case asked the justices to consider what their decision could mean for issues as varied as gun violence and defamation.`\
 https://www.nytimes.com/2026/10/05/climate/supreme-court-climate-ruling-effects.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-war-yemen-houth
 `Strikes on tankers in the Strait of Hormuz and oil infrastructure in Saudi Arabia came as the region’s exporters were getting more oil to the world market.`\
 https://www.nytimes.com/2026/10/05/business/hormuz-saudi-iran-houthis.html
 
-**Dennis Hastert, Powerful Politician Disgraced by Child Sex Scandal, Dies**\
+**Dennis Hastert, Powerful Politician Disgraced by Child Sexual Abuse, Dies**\
 `The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
 https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
 
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/10/05/arts/television/ll-cool-j-ncis-new-york-premi
 **What Movie Do You Watch Over and Over Again?**\
 `What is it about this film that keeps drawing you to it even though you’ve seen it many times before?`\
 https://www.nytimes.com/2026/10/05/learning/what-movie-do-you-watch-over-and-over-again.html
-
-**Do You Miss Spy Magazine? For One Month, It’s Back.**\
-`To celebrate the 40th anniversary of its first issue, the long-defunct satirical monthly is resurfacing vintage articles about Trump on Substack.`\
-https://www.nytimes.com/2026/10/05/style/spy-magazine-donald-trump-substack.html
-
-**Inside the Group of Texans Accused of Being Antifa Terrorists**\
-`The strange story behind the first federal terrorism prosecution of American protesters.`\
-https://www.nytimes.com/2026/10/05/magazine/prairieland-iprotesters-socialist-rifle-association.html
 

@@ -1,3 +1,11 @@
+**The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
+`A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
+https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
+
+**Dennis Hastert, Powerful Politician Disgraced by Child Sexual Abuse, Dies**\
+`The longest-serving Republican speaker of the House admitted in 2016 to abusing teenage boys decades earlier. He was 84.`\
+https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
+
 **Supreme Court’s Climate Ruling Could Affect Many Kinds of Lawsuits**\
 `Briefs filed in the case asked the justices to consider what their decision could mean for issues as varied as gun violence and defamation.`\
 https://www.nytimes.com/2026/10/05/climate/supreme-court-climate-ruling-effects.html
