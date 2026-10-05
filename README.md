@@ -1,3 +1,7 @@
+**The Rise of Gig Economy Warfare**\
+`An incident at a British air base may demonstrate a new era of low-intensity conflict.`\
+https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.html
+
 **Brazil’s Problem Is Bigger Than Bolsonaro**\
 `Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
 https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/05/business/dealbook/ai-safety-openai.html
 **Housing, Corruption and a Migrant Surge: Why Spain Is Holding an Early Election**\
 `Spain’s prime minister, Pedro Sánchez, dissolved Parliament on Monday, after months of spiraling crises.`\
 https://www.nytimes.com/2026/10/05/world/europe/spain-elections-housing-migrants-corruption.html
-
-**On the Docket**\
-`We look at the cases before the Supreme Court this term.`\
-https://www.nytimes.com/2026/10/05/briefing/on-the-docket.html
 
