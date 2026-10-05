@@ -1,3 +1,7 @@
+**Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
+`Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
+https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
+
 **Inside Trump's Plan to Fence Off a Historic Protest Site**\
 `The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
 https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html

@@ -1,3 +1,7 @@
+**Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
+`Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
+https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
+
 **Inside Trump's Plan to Fence Off a Historic Protest Site**\
 `The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
 https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/05/nyregion/cornell-rape-case-protests-vandalism
 **California Prepares to Ban Quartz Countertop Production**\
 `The state would be the first to block an industry that has been connected to a deadly lung disease in workers.`\
 https://www.nytimes.com/2026/10/05/us/politics/quartz-counters-california.html
-
-**The Unlikely Theatrical Journey of Vincenzo Latronico’s ‘Perfection’**\
-`A theatrical adaptation of “Perfection” by Vincenzo Latronico leans into political critique for an audience that looks a lot like the book’s characters.`\
-https://www.nytimes.com/2026/10/05/theater/perfection-volksbuehne-vincenzo-latronico.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
