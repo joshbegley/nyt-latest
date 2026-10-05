@@ -1,3 +1,7 @@
+**Brazil Elections Head to Runoff Between Lula and Bolsonaro Son**\
+`Neither President Luiz Inácio Lula da Silva nor his top challenger, Flávio Bolsonaro, won a majority of votes in the first round. But for now, Mr. Bolsonaro is leading the race.`\
+https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro.html
+
 **Tractor Pulling Hayride in Upstate New York Flips, Injuring at Least 6**\
 `A sheriff said the tractor appeared to be going at a high rate of speed and was out of control when it overturned Sunday in Wellsburg, N.Y., near the Pennsylvania border.`\
 https://www.nytimes.com/2026/10/04/nyregion/tractor-hayride-crash-wellsburg-upstate-new-york.html
