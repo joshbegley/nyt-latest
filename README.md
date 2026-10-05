@@ -1,3 +1,7 @@
+**2 People, Including Winter Haven High School Student, Killed in Florida Bus Crash**\
+`A school bus carrying 39 people to Winter Haven High School in Florida was struck by a sedan and rolled over, killing a student and a person in another vehicle, officials said.`\
+https://www.nytimes.com/2026/10/05/us/florida-school-bus-crash.html
+
 **The Cornell Case and Trump’s America**\
 `Nearly a decade after #MeToo, the Cornell case has raised questions about whether any progress has been made. On “The Opinions,” Jamelle Bouie argues that the case reflects a political culture that glorifies “aggressive and predatory” masculinity.`\
 https://www.nytimes.com/video/opinion/100000011188278/the-cornell-case-and-trumps-america.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/podcasts/supreme-court-new-term-nuclear-power
 **NYT Connections Answers for October 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
 https://www.nytimes.com/2026/10/05/crosswords/connections-companion-1213.html
-
-**Today’s Wordle Hints for October 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 6, 2026.`\
-https://www.nytimes.com/2026/10/05/crosswords/wordle-review-1935.html
 
