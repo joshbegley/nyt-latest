@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/10/05/obituaries/dennis-hastert-dead.html
 `(No description)`\
 https://www.nytimes.com/live/2026/10/05/us/midterms-elections
 
-**Live Updates: Supreme Court Hears Major Climate Case Against Oil Companies**\
+**Live Updates: Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
 https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
 
@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-yemen-houthis-b
 https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html
 
 **Spain Calls Snap Election Amid Housing Protests**\
-`Prime Minister Pedro Sánchez of Spain called for an early election, days after his left-wing governing coalition lost a parliamentary vote to pass a package of emergency housing measures.`\
+`Prime Minister Pedro Sánchez of Spain called for an early election after facing challenges including a migration crisis, outrage over housing policies and corruption accusations involving his inner circle.`\
 https://www.nytimes.com/video/world/europe/100000011193496/spain-election-housing-sanchez.html
 
 **What’s the Right “Level of Care” for A.I.?**\
