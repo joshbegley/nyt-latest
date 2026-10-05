@@ -1,3 +1,7 @@
+**This High-Profile Campaign May Be the Ugliest in the Country**\
+`The candidates for Ohio governor have significant policy differences, but the campaign ads have been strikingly personal, with exaggerated portrayals of one candidate as a con artist and the other as a drunk.`\
+https://www.nytimes.com/2026/10/05/us/elections/ohio-governor-election.html
+
 **Ben Watson, a Cider Expert Known as Brother Apple, Has Died at 64.**\
 `Ben Watson, also known as Brother Apple, played a pivotal role in turning cider into a thriving slice of America’s craft-beverage movement. He has died at 64.`\
 https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/05/us/politics/jeff-crank-jeffrey-epstein-virgin
 **5 Challenges David Ellison Faces as Warner Bros. Discovery and Paramount Merge**\
 `The tech scion has given his combination of Warner Bros. Discovery and Paramount a new name: Skydance. Now he must make tough decisions about news, movies, streaming, sports and debt.`\
 https://www.nytimes.com/2026/10/05/business/media/david-ellison-skydance-cnn-hollywood.html
-
-**Book Review: ‘Cormac McCarthy: A Legacy Revisited,’ by Tracy Daugherty**\
-`A new biography of the late novelist details his youthful escapades, messy relationships and intense commitment to his craft.`\
-https://www.nytimes.com/2026/10/05/books/review/tracy-daugherty-cormac-mccarthy.html
 
