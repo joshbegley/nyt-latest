@@ -1,3 +1,7 @@
+**In This Painter’s Seductive World, the Past and Present Meet**\
+`In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
+https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html
+
 **Your Finicky Cat**\
 `We look at the pet food market.`\
 https://www.nytimes.com/2026/10/06/briefing/pet-food.html
