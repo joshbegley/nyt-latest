@@ -1,3 +1,7 @@
+**Judge Sides With Justice Dept. in Dispute Over Subpoena to Times Freelancer**\
+`The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
+https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
+
 **Live Updates: Australian Lawmakers to Question OpenAI Officials on Breaches**\
 `The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
 https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
@@ -181,10 +185,6 @@ https://www.nytimes.com/quiz/2026/10/05/bookreview/recent-childrens-adaptations.
 **‘Such a Super Easy Meal and So Rewarding’**\
 `Ali Slagle’s salmon ssam may not be traditional, but it is delicious (according to many happy reader comments).`\
 https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewarding.html
-
-**E-Day’s 6-Year Journey Inside the Rapidly Changing Xbox Industry**\
-`The pressure is on for the sci-fi game Gears of War: E-Day as an Xbox exclusive, with “blood, sweat, and tears” extending beyond its virtual battlefields.`\
-https://www.nytimes.com/2026/10/05/arts/gears-of-war-e-day-coalition-xbox.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

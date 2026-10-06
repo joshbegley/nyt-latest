@@ -1,3 +1,7 @@
+**Judge Sides With Justice Dept. in Dispute Over Subpoena to Times Freelancer**\
+`The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
+https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
+
 **Live Updates: Australian Lawmakers to Question OpenAI Officials on Breaches**\
 `The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
 https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
