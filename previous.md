@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
 `The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
 https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
 
-**Live Updates: Collins and Jackson to Meet for Maine Senate Debate**\
-`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and longtime state lawmaker.`\
+**Live Updates: First Debate of Crucial Maine Senate Race Is About to Begin**\
+`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and former state lawmaker.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
 
 **Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\

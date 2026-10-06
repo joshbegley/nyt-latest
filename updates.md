@@ -1,3 +1,7 @@
+**Live Updates: First Debate of Crucial Maine Senate Race Is About to Begin**\
+`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and former state lawmaker.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
 **In Iceland, Rubio Dodges a Diplomatic Flap Over a Trump Map**\
 `President Trump had posted a map on his Truth Social account in September depicting Iceland as part of U.S. territory.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-map-iceland-rubio.html
