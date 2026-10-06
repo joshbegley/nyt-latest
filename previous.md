@@ -1,3 +1,15 @@
+**Cornell Students Protest University’s Handling of Sexual Assault Case**\
+`Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
+https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
+
+**L.A. Philanthropist Says Suit Over Fire Damage Is a Blow for the People**\
+`Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
+https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
+
+**Emmys Leave Their Broadcast Home for Amazon**\
+`The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
+https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
+
 **Paramount Closes Its Deal for Warner Bros. Discovery**\
 `After a legal battle, Paramount has finally acquired Warner Bros. Discovery. The new company, Skydance, combines Hollywood studios, streaming services and cable networks.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
@@ -142,7 +154,7 @@ https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-ab
 `Lesson plan ideas for bringing the midterms and what’s at stake into your classroom, using New York Times maps, graphs and reporting.`\
 https://www.nytimes.com/2026/10/06/learning/lesson-plans/teach-the-2026-midterm-elections.html
 
-**A Highly Coveted Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
+**An Alluring Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
 `Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
 https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/06/realestate/gardening-backyard-ponds-biodivers
 **In ‘Lady,’ Sian Clifford Wants Fame. In Real Life, It Makes Her Cringe**\
 `The introverted Sian Clifford, best known as Fleabag’s uptight older sister, stars in a new film about an attention-seeking aristocrat.`\
 https://www.nytimes.com/2026/10/06/style/sian-clifford-lady-movie.html
-
-**Book Review: ‘The Inheritance,’ by Janet Reitman**\
-`Following the lives of ordinary citizens, a new book by Janet Reitman fashions an intimate, morally complex portrait of an insecure America.`\
-https://www.nytimes.com/2026/10/06/books/review/the-inheritance-janet-reitman.html
-
-**Book Review: ‘The Invisible Hand of Maria Edgeworth,’ by Jeanna Smialek**\
-`In “The Invisible Hand of Maria Edgeworth,” Jeanna Smialek tells the story of a 19th-century author whose fiction brought economic theory down to earth.`\
-https://www.nytimes.com/2026/10/06/books/review/the-invisible-hand-of-maria-edgeworth-jeanna-smialek.html
-
-**Should Robert Rauschenberg’s Art Studio Be Saved?**\
-`The potential sale of the groundbreaking painter’s home in New York by his foundation, on the heels of the sale of his Florida studio, has alarmed many in the art community.`\
-https://www.nytimes.com/2026/10/06/arts/design/should-robert-rauschenbergs-art-studio-be-saved.html
 

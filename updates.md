@@ -1,3 +1,19 @@
+**Cornell Students Protest University’s Handling of Sexual Assault Case**\
+`Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
+https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
+
+**L.A. Philanthropist Says Suit Over Fire Damage Is a Blow for the People**\
+`Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
+https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
+
+**Emmys Leave Their Broadcast Home for Amazon**\
+`The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
+https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
+
+**An Alluring Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
+`Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
+https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
+
 **Paramount Closes Its Deal for Warner Bros. Discovery**\
 `After a legal battle, Paramount has finally acquired Warner Bros. Discovery. The new company, Skydance, combines Hollywood studios, streaming services and cable networks.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
