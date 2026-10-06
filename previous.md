@@ -1,3 +1,7 @@
+**Christa Pike Regains Consciousness After Her Failed Execution**\
+`The death row inmate in Tennessee received two doses of a lethal injection drug last week, but lived. She was taken from the execution chamber in an ambulance.`\
+https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html
+
 **What We Saw at the French Protests**\
 `Our reporter Ségolène Le Stradic reports from Paris as labor unions rally in solidarity with high school students protesting school conditions.`\
 https://www.nytimes.com/video/world/europe/100000011196285/what-we-saw-at-the-french-protests.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
 **Student Protests Expand to More Than 40 French Cities**\
 `Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
-
-**Secret Billionaires, Mafia Brides, Alpha Kings: The Insane World of Microdramas**\
-`Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
-https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
