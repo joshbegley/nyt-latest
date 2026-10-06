@@ -1,3 +1,7 @@
+**Quiz: Can You Name 16 Iconic Figures From History?**\
+`These 16 people were covered in The Times over the past 175 years. Guess who they are.`\
+https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
+
 **Spain Clears Way for Separatist Leader to Return to Catalonia**\
 `The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
 https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
-`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
-https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
-
 **What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
 `What it will take for Israel to overcome the ghosts of Oct. 7.`\
 https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
+
+**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
+https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
 **Battle Between Disney and the F.C.C. Moves to the Courts**\
 `On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
 https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
-
-**Meta Is Crushing Small Online Retailers**\
-`Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
-https://www.nytimes.com/2026/10/06/opinion/meta-ecommerce-ad-prices.html
 
