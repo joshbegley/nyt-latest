@@ -2,7 +2,7 @@
 `The plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
 https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
 
-**Animal Taste Testers Help Pet Food Makers Capture A Growing Market**\
+**Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
 `As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
 
