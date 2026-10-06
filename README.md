@@ -1,3 +1,11 @@
+**What the Data Center Boom Looks Like From the Sky**\
+`In the race for A.I. computing power, hundreds of new projects are coming online across the country — and they’re getting bigger.`\
+https://www.nytimes.com/interactive/2026/10/05/upshot/data-center-scale.html
+
+**A.I. Officials Stonewall on Questions About Technology’s Risks**\
+`A New York City Council hearing on artificial intelligence yielded few answers or assurances about how the industry would provide safeguards against catastrophic scenarios.`\
+https://www.nytimes.com/2026/10/05/nyregion/ai-city-council-hearing.html
+
 **Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
 `In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
 https://www.nytimes.com/2026/10/05/business/trump-to-allow-cheaper-dyed-diesel-to-be-used-in-nonfarm-vehicles.html
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
 **Can Health Trackers Help You Manage Menopause Symptoms?**\
 `Apple, Oura and Whoop have all recently added features for midlife women. Here’s what the tools can — and can’t — measure.`\
 https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ring-whoop-apple.html
-
-**Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
-`The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
-https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
