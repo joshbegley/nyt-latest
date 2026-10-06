@@ -1,3 +1,15 @@
+**Are 60-Second Microdramas the Future of Hollywood, or the End?**\
+`Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
+https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
+
+**Top Super PAC for Senate Democrats Raises Record $151 Million in Third Quarter**\
+`Democratic Senate candidates have generally out-raised Republicans, but are struggling to match outside spending from Trump-affiliated groups.`\
+https://www.nytimes.com/2026/10/06/us/politics/senate-majority-pac-democrats.html
+
+**Student Protests Spread Across France**\
+`Protesters and the police clashed in France as thousands of people joined the student-led demonstrations against school conditions.`\
+https://www.nytimes.com/video/world/europe/100000011195907/france-protests-school-students.html
+
 **Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
 `The Nobel Committee honored Francis Halzen for his “vision and scientific leadership” of a telescope within the ice at the South Pole.`\
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
