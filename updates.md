@@ -1,3 +1,19 @@
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A Spy’s Guide to Fighting A.I. Propaganda**\
+`In the age of AI disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
+`The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
+https://www.nytimes.com/2026/10/06/us/politics/justice-department-civil-rights-division.html
+
+**Christa Pike Regains Consciousness After Failed Execution in Tennessee**\
+`The death row inmate in Tennessee received two doses of a lethal injection drug last week, but lived. She was taken from the execution chamber in an ambulance.`\
+https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html
+
 **Christa Pike Regains Consciousness After Her Failed Execution**\
 `The death row inmate in Tennessee received two doses of a lethal injection drug last week, but lived. She was taken from the execution chamber in an ambulance.`\
 https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html

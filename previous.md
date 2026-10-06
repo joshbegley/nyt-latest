@@ -1,4 +1,16 @@
-**Christa Pike Regains Consciousness After Her Failed Execution**\
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A Spy’s Guide to Fighting A.I. Propaganda**\
+`In the age of AI disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
+`The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
+https://www.nytimes.com/2026/10/06/us/politics/justice-department-civil-rights-division.html
+
+**Christa Pike Regains Consciousness After Failed Execution in Tennessee**\
 `The death row inmate in Tennessee received two doses of a lethal injection drug last week, but lived. She was taken from the execution chamber in an ambulance.`\
 https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html
 
@@ -173,18 +185,6 @@ https://www.nytimes.com/interactive/2026/10/06/weather/koguma-map-path-tracker.h
 **‘Dirty Dancing’ Musical Heads to Broadway This Season**\
 `The musical, which underwhelmed critics but attracted audiences while touring for years, has been significantly overhauled.`\
 https://www.nytimes.com/2026/10/06/theater/dirty-dancing-broadway.html
-
-**Here Are the Finalists for the 2026 National Book Awards**\
-`Novels by Edwidge Danticat and Valeria Luiselli are among the books up for the fiction prize, while Karl Ove Knausgaard’s latest is a contender for the translated literature prize.`\
-https://www.nytimes.com/2026/10/06/books/national-book-award-finalists.html
-
-**Drones Hit Ships Off Bulgaria’s Black Sea Coast, Prime Minister Says**\
-`A rescue effort was underway, Prime Minister Rumen Radev said, after one of the two ships sank. It was not immediately clear where the drones originated.`\
-https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
-
-**Student Protests Expand to More Than 40 French Cities**\
-`Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
-https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
