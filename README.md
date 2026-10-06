@@ -1,3 +1,7 @@
+**UK Security Adviser Jonathan Powell Traveled to Israel Ahead of Consulate Closure**\
+`Jonathan Powell, Britain’s national security adviser, visited Israel last week to try to negotiate over the looming closure of his country’s consulate in Jerusalem, according to three officials.`\
+https://www.nytimes.com/2026/10/06/world/europe/uk-security-adviser-traveled-to-israel-ahead-of-consulate-closure.html
+
 **Live From the Barracks: Three Juntas Launch TV Channel**\
 `Three African countries have started Tafouk TV, a Russia-partnered broadcast channel, after throwing out Western journalists and cracking down on local media.`\
 https://www.nytimes.com/2026/10/06/world/africa/russia-africa-propaganda-sahel-tafouk.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/06/briefing/pet-food.html
 **Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
 `Plus, the ancient treasures revealed by melting glaciers.`\
 https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
-
-**Call My A.I. Agent**\
-`Muse, Meta’s A.I. agent, helped a Times reporter with dental insurance, dinner reservations and more. It also required his trust.`\
-https://www.nytimes.com/2026/10/06/podcasts/the-daily/meta-ai-agent-muse.html
 
