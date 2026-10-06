@@ -1,3 +1,7 @@
+**What We Saw at the French Protests**\
+`Our reporter Ségolène Le Stradic reports from Paris as labor unions rally in solidarity with high school students protesting school conditions.`\
+https://www.nytimes.com/video/world/europe/100000011196285/what-we-saw-at-the-french-protests.html
+
 **Understanding France’s Polycrisis**\
 `An autumn of discontent has gripped the country ahead of its presidential election.`\
 https://www.nytimes.com/2026/10/06/world/france-student-protests-kenya-robots.html
