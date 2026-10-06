@@ -1,3 +1,15 @@
+**‘Dirty Dancing’ Musical Heads to Broadway This Season**\
+`The musical, which underwhelmed critics but attracted audiences while touring for years, has been significantly overhauled.`\
+https://www.nytimes.com/2026/10/06/theater/dirty-dancing-broadway.html
+
+**Here Are the Finalists for the 2026 National Book Awards**\
+`Novels by Edwidge Danticat and Valeria Luiselli are among the books up for the fiction prize, while Karl Ove Knausgaard’s latest is a contender for the translated literature prize.`\
+https://www.nytimes.com/2026/10/06/books/national-book-award-finalists.html
+
+**Drones Hit Ships Off Bulgaria’s Black Sea Coast, Prime Minister Says**\
+`A rescue effort was underway, Prime Minister Rumen Radev said, after one of the two ships sank. It was not immediately clear where the drones originated.`\
+https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
+
 **Live Updates: Protests Spread Across France as Unions Join Student Demonstrations**\
 `The rallies are a test of the strength of the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools

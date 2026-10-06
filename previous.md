@@ -1,3 +1,15 @@
+**‘Dirty Dancing’ Musical Heads to Broadway This Season**\
+`The musical, which underwhelmed critics but attracted audiences while touring for years, has been significantly overhauled.`\
+https://www.nytimes.com/2026/10/06/theater/dirty-dancing-broadway.html
+
+**Here Are the Finalists for the 2026 National Book Awards**\
+`Novels by Edwidge Danticat and Valeria Luiselli are among the books up for the fiction prize, while Karl Ove Knausgaard’s latest is a contender for the translated literature prize.`\
+https://www.nytimes.com/2026/10/06/books/national-book-award-finalists.html
+
+**Drones Hit Ships Off Bulgaria’s Black Sea Coast, Prime Minister Says**\
+`A rescue effort was underway, Prime Minister Rumen Radev said, after one of the two ships sank. It was not immediately clear where the drones originated.`\
+https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
+
 **Live Updates: Protests Spread Across France as Unions Join Student Demonstrations**\
 `The rallies are a test of the strength of the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/06/opinion/oil-companies-supreme-court.html
 **Monster Mash-Up: New Comics for Fans of Horror**\
 `These spine-tingling stories cast light on creatures of the dark and reimagine superheroes with darker narratives, just in time for Halloween.`\
 https://www.nytimes.com/2026/10/06/arts/comics-horror-halloween.html
-
-**How Dudamel Conducts Mahler**\
-`Gustavo Dudamel, the new music director of the New York Philharmonic, begins his tenure with a piece that made him famous: Gustav Mahler’s Symphony No. 5. One of our classical music critics, Joshua Barone, describes how Dudamel breathes new life into the music.`\
-https://www.nytimes.com/video/arts/music/100000011179477/how-dudamel-conducts-mahler.html
-
-**Word of the Day: acquiescence**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/06/learning/word-of-the-day-acquiescence.html
-
-**Presley Gerber Documented His Own Struggles, in His Own Words for Years**\
-`The son of Cindy Crawford, who died last month, left behind a trove of first-person testimonials about years of drug use, trying to stay clean and his mental health.`\
-https://www.nytimes.com/2026/10/06/style/for-years-presley-gerber-documented-his-own-struggles-in-his-own-words.html
 
