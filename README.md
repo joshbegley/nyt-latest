@@ -1,3 +1,11 @@
+**Trump to Announce Investment in Maryland Submarine Facility**\
+`The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines.html
+
+**A Soup to Make You Feel You’re in the French Countryside**\
+`This classic Provençal soup welcomes whatever greens you’ve got, whether they were foraged from the hills or picked up from the store.`\
+https://www.nytimes.com/2026/10/06/dining/a-soup-to-make-you-feel-youre-in-the-french-countryside.html
+
 **Man Arrested in Connection With Incident at UK Air Base RAF Fairford**\
 `A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
 https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/video/world/europe/100000011195907/france-protests-schoo
 `Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
 https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
 
-**L.A. Philanthropist Says Suit Over Fire Damage Is a Blow for the People**\
+**This L.A. Power Broker Is Suing Over His Uninhabitable $20 Million Mansion**\
 `Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
 https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
 
@@ -50,8 +58,8 @@ https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
 `After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
 
-**U.S. Trade Deficit Widens in August**\
-`New data from the Commerce Department showed that imports grew in the month, despite the Trump administration’s efforts to limit foreign products.`\
+**U.S. Trade Deficit Hits 17-Month High Despite Trump’s Tariffs**\
+`Imports and the trade deficit have ballooned in recent months, defying the Trump administration’s efforts to reduce it through tariffs.`\
 https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
 
 **Resolved Sexual Assault Cases Drop Under Trump Administration**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mik
 **What Are You Thinking and Feeling About the Midterm Elections?**\
 `What gives you hope about politics right now? What troubles you? What do you think shaped your political beliefs and values?`\
 https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-about-the-midterm-elections.html
-
-**2026 Midterm Election Lesson Plan**\
-`Lesson plan ideas for bringing the midterms and what’s at stake into your classroom, using New York Times maps, graphs and reporting.`\
-https://www.nytimes.com/2026/10/06/learning/lesson-plans/teach-the-2026-midterm-elections.html
-
-**An Alluring Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
-`Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
-https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
 
