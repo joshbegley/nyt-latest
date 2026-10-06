@@ -1,3 +1,11 @@
+**Hans Werner Henze’s Music Carried on Tradition With Skepticism**\
+`Hans Werner Henze, born 100 years ago and the son of a Nazi, captured the ambivalence of making art in the shadow of the 20th century.`\
+https://www.nytimes.com/2026/10/06/arts/music/hans-werner-henze-composer.html
+
+**Melting Ice Reveals Artifacts in the Swiss Alps**\
+`Switzerland has lost almost 20 percent of its ice within just five years. One surprising consequence of this melting is that ancient artifacts once frozen in the glaciers are now revealing themselves. Our climate reporter Raymond Zhong takes us on a search for ancient objects.`\
+https://www.nytimes.com/video/climate/100000011052401/melting-ice-reveals-artifacts-in-the-swiss-alps.html
+
 **France’s School Protests Go Nationwide**\
 `High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
 https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-r
 `The faculty senate plans to vote on a rare resolution of no confidence over administrators’ handling of allegations of sexual assault by fraternity members in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/cornell-faculty-no-confidence.html
 
-**South Korea Investigates Possible Use of A.I. in Hacks on Its Banks**\
+**South Korea Investigates Possible Use of A.I. in Hackings on Its Banks**\
 `The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
 https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
 
@@ -118,7 +126,7 @@ https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
 `The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
 https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
 
-**OpenAI Says It Changed Systems After Australia Hack**\
+**OpenAI Says It Changed Systems After Australia Hacking**\
 `A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
 https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oi
 **Hispanic Voters Overwhelmingly Disapprove of Trump, New Poll Shows**\
 `Latino voters, who shifted Republican in the 2024 presidential election, view the party more negatively than they have in the past decade, according to an NBC News/Telemundo poll released on Monday.`\
 https://www.nytimes.com/2026/10/05/us/hispanic-voters-trump-poll-approval.html
-
-**How Ketamine Emerged as a Key Factor in an Alleged Cornell Sex Assault**\
-`The powerful anesthetic has gained popularity as a party drug, including among a certain social set on the university’s campus.`\
-https://www.nytimes.com/2026/10/05/nyregion/cornell-university-jane-doe-ketamine.html
-
-**Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
-`A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
-https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
 

@@ -1,3 +1,175 @@
+**The Gender Gap Has Taken a Strange Twist**\
+`Republican and Democratic voters are seeing masculinity and femininity very differently.`\
+https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
+
+**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
+`What it will take for Israel to overcome the ghosts of Oct. 7.`\
+https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
+
+**A Pensioner’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+`The eviction of an 87-year-old woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
+https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
+
+**Wirecutter’s Hall of Fame**\
+`We look at the products that have earned our recommendation year after year, and why they stand out.`\
+https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
+
+**After a Failed Execution, Scrutiny of the 5 Methods Used to Kill**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike with a lethal injection is spurring debate over capital punishment techniques, and whether the death penalty should exist at all.`\
+https://www.nytimes.com/2026/10/06/us/execution-methods.html
+
+**Corrections: Oct. 6, 2026**\
+`Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
+https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
+
+**Democrats Eyeing the House Face a Conundrum: Rent or Buy?**\
+`With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
+https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
+
+**U.S. Sends Reaper Drones to Colombia and Ecuador to Hunt Cartels**\
+`MQ-9 Reaper drones — known for high-profile deadly strikes — have been shifted from Africa to Colombia and Ecuador, U.S. officials said.`\
+https://www.nytimes.com/2026/10/06/world/americas/us-reaper-drones-colombia-ecuador-cartels.html
+
+**Cornell Case Highlights Drop in Resolved Sexual Assault Cases Under Trump**\
+`The administration has shifted its enforcement of a civil rights law from allegations of sexual misconduct to issues like blocking protections for transgender students.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
+
+**Are Noise Cameras Too Nosy?**\
+`Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
+https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
+
+**Battle Between Disney and the F.C.C. Moves to the Courts**\
+`On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
+https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
+
+**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
+`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
+https://www.nytimes.com/2026/10/06/science/in-race-with-us-china-struggles-to-recruit-foreign-ai-researchers.html
+
+**Meta Is Crushing Small Online Retailers**\
+`Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
+https://www.nytimes.com/2026/10/06/opinion/meta-ecommerce-ad-prices.html
+
+**Trump’s Try, Try Again Supreme Court Strategy**\
+`Supreme Court decisions that were small comfort in 2026 will turn out to be no comfort at all in 2028.`\
+https://www.nytimes.com/2026/10/06/opinion/trump-supreme-court-decisions.html
+
+**Beef, Comedy, Sports and a Big Bad Bet. George Gillett Jr., Tycoon, Dies.**\
+`Over six decades, he owned TV stations, a meatpacking plant, the Globetrotters, the Montreal Canadiens and the Liverpool soccer club. It didn’t all end well.`\
+https://www.nytimes.com/2026/10/06/obituaries/george-gillett-jr-dead.html
+
+**How A.I. Can Boost Democracy**\
+`A.I. doesn’t have to be a disruptive force, least of all when it comes to government services.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
+
+**What Are You Thinking and Feeling About the Midterm Elections?**\
+`What gives you hope about politics right now? What troubles you? What do you think shaped your political beliefs and values?`\
+https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-about-the-midterm-elections.html
+
+**What to Know About ‘Carrie’ Before Watching the New TV Adaptation**\
+`The novel, written over 50 years ago, has had several adaptations, not all of them good. A new series from Mike Flanagan has Stephen King’s imprimatur.`\
+https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mike-flanagan.html
+
+**2026 Midterm Election Lesson Plan**\
+`Lesson plan ideas for bringing the midterms and what’s at stake into your classroom, using New York Times maps, graphs and reporting.`\
+https://www.nytimes.com/2026/10/06/learning/lesson-plans/teach-the-2026-midterm-elections.html
+
+**In the Florida Keys, Floating Cocaine Remains an Alluring Catch**\
+`Bricks of cocaine frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
+https://www.nytimes.com/2026/10/06/us/in-the-florida-keys-floating-cocaine-remains-an-alluring-catch.html
+
+**Are Polyglot Creators Capturing Real Human Connection, or Gaming Social Media?**\
+`People who speak many languages in man-on-the-street videos are impressive, but they’re also turning conversation into a chance for optimization.`\
+https://www.nytimes.com/2026/10/06/magazine/polyglot-languages-youtube-tiktok.html
+
+**The Science That Has Oil Companies Running Scared**\
+`However the U.S. Supreme Court rules, the work of holding oil companies accountable for climate change has a bright future.`\
+https://www.nytimes.com/2026/10/06/opinion/oil-companies-supreme-court.html
+
+**Monster Mash-Up: New Comics for Fans of Horror**\
+`These spine-tingling stories cast light on creatures of the dark and reimagine superheroes with darker narratives, just in time for Halloween.`\
+https://www.nytimes.com/2026/10/06/arts/comics-horror-halloween.html
+
+**How Dudamel Conducts Mahler**\
+`Gustavo Dudamel, the new music director of the New York Philharmonic, begins his tenure with a piece that made him famous: Gustav Mahler’s Symphony No. 5. One of our classical music critics, Joshua Barone, describes how Dudamel breathes new life into the music.`\
+https://www.nytimes.com/video/arts/music/100000011179477/how-dudamel-conducts-mahler.html
+
+**Word of the Day: acquiescence**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/06/learning/word-of-the-day-acquiescence.html
+
+**Presley Gerber Documented His Own Struggles, in His Own Words for Years**\
+`The son of Cindy Crawford, who died last month, left behind a trove of first-person testimonials about years of drug use, trying to stay clean and his mental health.`\
+https://www.nytimes.com/2026/10/06/style/for-years-presley-gerber-documented-his-own-struggles-in-his-own-words.html
+
+**Book Review: ‘Brink,’ by Brett McGurk**\
+`In “Brink,” the U.S. diplomat Brett McGurk gives a diaristic account of his work with the Biden and Trump administrations in the wake of the Hamas attack.`\
+https://www.nytimes.com/2026/10/06/books/review/brink-brett-mcgurk.html
+
+**Could a Fight Over Fish Flip the Senate?**\
+`Widespread anger at a billion-dollar fishing industry is shaping Alaska’s key Senate race — and could determine which party takes control of the chamber in the midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000011166068/fishing-alaska-senate-race.html
+
+**Turn Your Backyard Pond Into a Hotbed of Biodiversity, Even in Winter**\
+`Create a “water garden” to support the vulnerable creatures, animals and organisms that make up your hyperlocal food chain.`\
+https://www.nytimes.com/2026/10/06/realestate/gardening-backyard-ponds-biodiversity.html
+
+**In ‘Lady,’ Sian Clifford Wants Fame. In Real Life, It Makes Her Cringe**\
+`The introverted Sian Clifford, best known as Fleabag’s uptight older sister, stars in a new film about an attention-seeking aristocrat.`\
+https://www.nytimes.com/2026/10/06/style/sian-clifford-lady-movie.html
+
+**Book Review: ‘The Inheritance,’ by Janet Reitman**\
+`Following the lives of ordinary citizens, a new book by Janet Reitman fashions an intimate, morally complex portrait of an insecure America.`\
+https://www.nytimes.com/2026/10/06/books/review/the-inheritance-janet-reitman.html
+
+**Book Review: ‘The Invisible Hand of Maria Edgeworth,’ by Jeanna Smialek**\
+`In “The Invisible Hand of Maria Edgeworth,” Jeanna Smialek tells the story of a 19th-century author whose fiction brought economic theory down to earth.`\
+https://www.nytimes.com/2026/10/06/books/review/the-invisible-hand-of-maria-edgeworth-jeanna-smialek.html
+
+**Should Robert Rauschenberg’s Art Studio Be Saved?**\
+`The potential sale of the groundbreaking painter’s home in New York by his foundation, on the heels of the sale of his Florida studio, has alarmed many in the art community.`\
+https://www.nytimes.com/2026/10/06/arts/design/should-robert-rauschenbergs-art-studio-be-saved.html
+
+**Gears of War: E-Day Is Nostalgic With Rich Visuals**\
+`In Gears of War: E-Day, it’s fun to see the origins of beloved characters in grand scale, even if its play feels conservative.`\
+https://www.nytimes.com/2026/10/06/arts/gears-of-war-e-day-review.html
+
+**How Alaska’s Fish Became a Defining Issue for the Midterms**\
+`In the battle for an Alaska Senate seat and the governor’s mansion, the oil-dependent state’s declining fisheries loom large, but no one wants to look at the biggest culprit, climate change.`\
+https://www.nytimes.com/2026/10/06/us/politics/alaska-fish-midterms.html
+
+**Melting Swiss Glaciers Release Archaeological Treasures**\
+`Archaeologists are scouring mountain passes as artifacts from a bygone world all but tumble out of Switzerland’s shrinking ice.`\
+https://www.nytimes.com/2026/10/06/climate/glacier-archaeology-melting-alps.html
+
+**The Ballet Star David Hallberg Returns to New York as the Man in Charge**\
+`Hallberg, the former Ballet Theater star, is now the artistic director of the Australian Ballet, which is bringing “Oscar,” about Oscar Wilde, to City Center.`\
+https://www.nytimes.com/2026/10/06/arts/dance/david-hallberg-australian-ballet-oscar-wilde.html
+
+**Donna Summer, Queen of Disco, Shows Her Range**\
+`Hits like “Love to Love You Baby” and “I Feel Love” made her a face of disco, but a new compilation shows Summer’s detours into rock, synth-pop, country and other sounds.`\
+https://www.nytimes.com/2026/10/06/arts/music/donna-summer-casablanca-records-compilation.html
+
+**My Doctor Says I Have Fibroids. What Happens Next?**\
+`Here’s what experts say about how the noncancerous growths are treated.`\
+https://www.nytimes.com/2026/10/06/well/health-fibroids-treatments.html
+
+**Teeing Off in the Birthplace of Golf, in St. Andrews, Scotland**\
+`In St. Andrews, Scotland, history and golf intertwine, on and off the famous courses.`\
+https://www.nytimes.com/2026/10/06/travel/golf-st-andrews-scotland-courses.html
+
+**These Taste Testers Have Four Legs and Picky Palates**\
+`Global pet food makers chasing a growing market are pouring big money into studying the taste buds of dogs and cats.`\
+https://www.nytimes.com/2026/10/06/business/cat-food-pets-royal-canin.html
+
+**Book Review: ‘The AGI Chronicles,’ by Kevin Roose**\
+`In “The AGI Chronicles,” the tech journalist Kevin Roose looks for clues that artificial intelligence might already be smarter than humans.`\
+https://www.nytimes.com/2026/10/06/books/review/the-agi-chronicles-kevin-roose.html
+
+**It Can Keep Cancer in Remission. Why Is No One Talking About It?**\
+`Despite mounting evidence that exercise programs can improve cancer outcomes, access to them remains limited.`\
+https://www.nytimes.com/2026/10/06/well/cancer-prevention-exercise-treatment.html
+
 **Hans Werner Henze’s Music Carried on Tradition With Skepticism**\
 `Hans Werner Henze, born 100 years ago and the son of a Nazi, captured the ambivalence of making art in the shadow of the 20th century.`\
 https://www.nytimes.com/2026/10/06/arts/music/hans-werner-henze-composer.html
@@ -25,164 +197,4 @@ https://www.nytimes.com/2026/10/06/world/asia/trump-los-angeles-san-diego-iran.h
 **Mamdani Backs Bill to Let Consumers Sue Over Unfair Business Practices**\
 `The proposed New York City legislation would also allow nonprofits, including tenants’ unions, to sue companies directly rather than relying on agency enforcement.`\
 https://www.nytimes.com/2026/10/06/nyregion/mamdani-power-act-bill-nyc.html
-
-**NYT Spelling Bee Answers for October 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/06/crosswords/spelling-bee-forum.html
-
-**Late Night Roasts Vivek Ramaswamy for His Loose Grip**\
-`“It’s fun to have a video of the exact moment you lost your campaign,” Jimmy Fallon said after Ramaswamy struggled to lift a child during a campaign rally in Ohio over the weekend.`\
-https://www.nytimes.com/2026/10/06/arts/television/late-night-jimmy-fallon-vivek-ramaswamy.html
-
-**Jeffrey Archer on His Favorite Books and His Final Novel**\
-`“London Falling” and “Dissection of a Murder” were among his recent favorite books. “War and Peace” and “A Clockwork Orange” went unfinished.`\
-https://www.nytimes.com/2026/10/06/books/review/jeffrey-archer-by-the-book.html
-
-**India Cut 130 Million From Voter Roll, Fueling Protests Against Modi**\
-`Public anger is growing over an exercise that critics say undermines the world’s largest democracy, particularly disenfranchising Muslims under the Hindu nationalist government.`\
-https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-roll-fueling-protests-against-modi.html
-
-**Cornell Faculty Members Signal Deep Anger With University Leaders**\
-`The faculty senate plans to vote on a rare resolution of no confidence over administrators’ handling of allegations of sexual assault by fraternity members in 2024.`\
-https://www.nytimes.com/2026/10/06/nyregion/cornell-faculty-no-confidence.html
-
-**South Korea Investigates Possible Use of A.I. in Hackings on Its Banks**\
-`The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
-https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
-
-**Strikes, Barricades and Fiscal Turmoil: An Autumn of Discontent Grips France**\
-`Chaos in schools, on the streets and in the markets is rooted in France’s struggles to fund its social welfare state, with a presidential election approaching.`\
-https://www.nytimes.com/2026/10/06/world/europe/france-crisis-autumn-discontent.html
-
-**Quote of the Day: Superpowers Racing to Put Nuclear Reactors on Moon**\
-`Quotation of the Day for Tuesday, October 6, 2026.`\
-https://www.nytimes.com/2026/10/06/pageoneplus/quote-of-the-day-superpowers-racing-to-put-nuclear-reactors-on-moon.html
-
-**France Set for Nationwide Strikes, as School Protests Escalate**\
-`The scale of the demonstrations planned for Tuesday will test the strength of the student-led protest movement that has spread across French high schools since late September.`\
-https://www.nytimes.com/2026/10/06/world/europe/france-student-strikes-protests.html
-
-**FIFA Found Congo Player Ineligible, Let Him Play in World Cup**\
-`Officials determined that a goalkeeper from the Democratic Republic of Congo did not have the correct paperwork, documents show. But no action was taken, renewing questions about FIFA’s governance.`\
-https://www.nytimes.com/2026/10/06/world/europe/fifa-infantino-congo-nigeria-eligibility.html
-
-**As Japan’s Population Shrinks, a City Is Accused of Padding Census Numbers**\
-`The police are investigating how about 3,000 nonexistent residents were added to official data for Toyama.`\
-https://www.nytimes.com/2026/10/06/world/asia/japan-population-falsified-census.html
-
-**The Hidden Policies That Power China’s Export Boom**\
-`Huge tax breaks and a weak currency sustain exports, widen the government budget deficit and complicate the country’s efforts to rebalance its economy.`\
-https://www.nytimes.com/2026/10/06/business/china-exports-currency.html
-
-**On This Day, Oct. 6: In 1981, Sadat Was Assassinated**\
-`In 1981, President Anwar el-Sadat of Egypt was assassinated by extremists while attending a military parade.`\
-https://www.nytimes.com/2026/10/06/learning/on-this-day-oct-6.html
-
-**Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
-`With his wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
-https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
-
-**Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
-`The Senegalese writer was lauded as one of the founding fathers of African literature despite publishing only two novels.`\
-https://www.nytimes.com/2026/10/05/obituaries/cheikh-hamidou-dead.html
-
-**The Separatist Parti Québécois Wins Quebec Election, Reviving Sovereignty Push**\
-`The separatist party’s victory fell short of clinching a majority that would have all but guaranteed a potential showdown with Ottawa over Canada’s future.`\
-https://www.nytimes.com/2026/10/05/world/canada/quebec-election-parti-quebecois-separatism.html
-
-**Alexandria Ocasio-Cortez Says, ‘If Abdul Can Win in Michigan, Anybody Can Win Anywhere’**\
-`Representative Alexandria Ocasio-Cortez made the remarks about Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, as she considers whether to run for president in 2028.`\
-https://www.nytimes.com/2026/10/05/us/politics/aoc-abdul-el-sayed-2028.html
-
-**Potential Iranian Drone Attack Led to Exit of U.S. Aircraft From British Air Base**\
-`According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
-https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
-
-**NYT Crossword Answers for Oct. 6, 2026**\
-`There’s plenty to do in Adam Vincent’s crossword puzzle.`\
-https://www.nytimes.com/2026/10/05/crosswords/daily-puzzle-2026-10-06.html
-
-**Trump Orders Execution by Firing Squad for Gunman in 2009 Fort Hood Shooting**\
-`The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
-https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
-
-**U.S. Citizen Accused of Surveilling Taiwanese Family on China’s Behalf**\
-`The woman, Wanying Zhang, was arrested at the Los Angeles airport on Sunday. She was accused of watching the son of Taiwan’s president in Seattle.`\
-https://www.nytimes.com/2026/10/05/us/wanying-zhang-china-spy-arrest.html
-
-**Hochul Declares a Measles Emergency as Cases Rise in Rural New York**\
-`The state has had 108 cases this year, the most since 2019. The declaration comes amid a national resurgence of the highly contagious viral illness.`\
-https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html
-
-**White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
-`The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
-https://www.nytimes.com/2026/10/05/us/politico-blocked-trump-nebraska.html
-
-**Caleb Flynn, Who Appeared on ‘American Idol,’ Gets Life Sentence for Wife’s Murder**\
-`Caleb Flynn maintained his innocence at his sentencing hearing in Ohio on Monday.`\
-https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
-
-**Judge Sides With Justice Dept. in Dispute Over Subpoena to Times Freelancer**\
-`The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
-https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
-
-**OpenAI Says It Changed Systems After Australia Hacking**\
-`A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
-https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
-
-**Australian Lawmakers Question OpenAI Officials on Breaches**\
-`The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
-https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
-
-**What the Data Center Boom Looks Like From the Sky**\
-`In the race for A.I. computing power, hundreds of new projects are coming online across the country — and they’re getting bigger.`\
-https://www.nytimes.com/interactive/2026/10/05/upshot/data-center-scale.html
-
-**A.I. Officials Stonewall on Questions About Technology’s Risks**\
-`A New York City Council hearing on artificial intelligence yielded few answers or assurances about how the industry would provide safeguards against catastrophic scenarios.`\
-https://www.nytimes.com/2026/10/05/nyregion/ai-city-council-hearing.html
-
-**Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
-`In Nebraska, President Trump signed an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
-https://www.nytimes.com/2026/10/05/business/trump-dyed-diesel-fuel-executive-order.html
-
-**Why A.I. Food Slop Looks So Gross**\
-`Is anything even real anymore?`\
-https://www.nytimes.com/interactive/2026/10/06/technology/ai-slop-food-images-restaurant-menus.html
-
-**Student News Quiz: Campus Outrage, Yemen, Phoebe Bridgers**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/quiz/2026/10/05/learning/05studentnewsquiz-ln.html
-
-**Facing Backlash, Trump Says His Super PAC Will Pay for Taxpayer-Funded Ads**\
-`The president said that his PAC, MAGA, Inc., would pay for TV ads promoting him that had been paid for with taxpayer money.`\
-https://www.nytimes.com/2026/10/05/us/politics/trump-taxpayer-funded-ads-pac.html
-
-**Jeffrey Archer, Novelist Whose Real Life Rivaled His Thrillers, Dies at 86**\
-`In a life of achievement and disgrace, he wrote best-selling novels with themes he knew intimately: ambition, self-promotion, misbehavior and scandal.`\
-https://www.nytimes.com/2026/10/05/books/jeffrey-archer-dead.html
-
-**Chicago Woman Shot by Border Patrol Agent Sues Federal Government**\
-`The lawsuit is the latest in a widening push from people who claim they were harmed by the Trump administration’s immigration crackdown and now want justice.`\
-https://www.nytimes.com/2026/10/05/us/marimar-martinez-lawsuit-ice-chicago.html
-
-**Attacks Over Epstein Files Lobbed in Iowa Senate Ads**\
-`Representative Ashley Hinson, the Republican nominee, and Josh Turek, her Democratic opponent, have both been targeted over campaign donations.`\
-https://www.nytimes.com/2026/10/05/us/elections/iowa-senate-epstein-hinson-turek-ads.html
-
-**Inside Trump's Plan to Fence Off a Historic Protest Site**\
-`The president’s proposal to enclose a park in Washington could alter how the space has been used for generations.`\
-https://www.nytimes.com/interactive/2026/10/05/us/politics/trump-free-speech-fence-lafayette-park.html
-
-**Biden-Era Memo on Covid and Schools Set Off Dispute in Justice Dept.**\
-`The Trump administration released a report showing career officials had objected to the 2021 memo as evidence that the policy was biased against conservatives. But in an ironic twist, the administration has forced out many of the objectors.`\
-https://www.nytimes.com/2026/10/05/us/politics/garland-memo-covid-schools.html
-
-**Supreme Court Begins Term With Major Climate Case**\
-`Also, consider these 100 big unanswered questions. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oil.html
-
-**Hispanic Voters Overwhelmingly Disapprove of Trump, New Poll Shows**\
-`Latino voters, who shifted Republican in the 2024 presidential election, view the party more negatively than they have in the past decade, according to an NBC News/Telemundo poll released on Monday.`\
-https://www.nytimes.com/2026/10/05/us/hispanic-voters-trump-poll-approval.html
 

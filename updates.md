@@ -1,3 +1,19 @@
+**Hans Werner Henze’s Music Carried on Tradition With Skepticism**\
+`Hans Werner Henze, born 100 years ago and the son of a Nazi, captured the ambivalence of making art in the shadow of the 20th century.`\
+https://www.nytimes.com/2026/10/06/arts/music/hans-werner-henze-composer.html
+
+**Melting Ice Reveals Artifacts in the Swiss Alps**\
+`Switzerland has lost almost 20 percent of its ice within just five years. One surprising consequence of this melting is that ancient artifacts once frozen in the glaciers are now revealing themselves. Our climate reporter Raymond Zhong takes us on a search for ancient objects.`\
+https://www.nytimes.com/video/climate/100000011052401/melting-ice-reveals-artifacts-in-the-swiss-alps.html
+
+**South Korea Investigates Possible Use of A.I. in Hackings on Its Banks**\
+`The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
+https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
+
+**OpenAI Says It Changed Systems After Australia Hacking**\
+`A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
+https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
+
 **France’s School Protests Go Nationwide**\
 `High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
 https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
