@@ -1,3 +1,7 @@
+**Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
+`The Senegalese writer was lauded as one of the founding fathers of African literature despite publishing only two novels.`\
+https://www.nytimes.com/2026/10/05/obituaries/cheikh-hamidou-dead.html
+
 **The Separatist Parti Québécois Wins Quebec Election, Reviving Sovereignty Push**\
 `The separatist party’s victory fell short of clinching a majority that would have all but guaranteed a potential showdown with Ottawa over Canada’s future.`\
 https://www.nytimes.com/2026/10/05/world/canada/quebec-election-parti-quebecois-separatism.html
@@ -173,12 +177,4 @@ https://www.nytimes.com/2026/10/05/arts/music/nashville-symphony-oracle-gift.htm
 **Brazil Election Could Give Bolsonaro a Key Role in Trump’s Latin America Map**\
 `Flávio Bolsonaro, now the favorite to win Brazil’s presidency, would give President Trump a critical new ally in Latin America, particularly on security.`\
 https://www.nytimes.com/2026/10/05/world/americas/brazil-election-bolsonaro-trump.html
-
-**British Museum Says It’s Extending Bayeux Tapestry Viewing Hours**\
-`The museum has been struggling to fit ticket holders into the exceptionally popular display, and it’s also up against the constraints of protecting the artwork.`\
-https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.html
-
-**The Miracle of Hands: Loving, Caring, Healing, Learning**\
-`Readers respond to an Opinion guest essay by Roger Rosenblatt about holding hands. Also: Ads praising President Trump; my phones, smart and dumb.`\
-https://www.nytimes.com/2026/10/05/opinion/hands-loving-caring-healing-learning.html
 
