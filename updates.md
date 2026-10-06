@@ -1,3 +1,7 @@
+**Hochul Declares a Measles Emergency as Cases Rise in Rural New York**\
+`The state has had 108 cases this year, the most since 2019. The declaration comes amid a national resurgence of the highly contagious viral illness.`\
+https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html
+
 **White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
 `The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
 https://www.nytimes.com/2026/10/05/us/politico-blocked-trump-nebraska.html
