@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.ht
 
 **A Shirt That Works Double Time**\
 `The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
-https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
+https://www.nytimes.com/2026/10/06/style/townwear-paris-fashion-week.html
 
 **We Let an A.I. Agent Get Lunch for Our Host**\
 `Eli Tan, a technology reporter for The New York Times, gave Meta’s A.I. agent Muse access to his personal information to test its abilities. Then, he let it get lunch for Natalie Kitroeff, a host of “The Daily.” Here’s what happened.`\
