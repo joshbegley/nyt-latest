@@ -1,3 +1,7 @@
+**Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
+`With his then-wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
+https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
+
 **Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
 `The Senegalese writer was lauded as one of the founding fathers of African literature despite publishing only two novels.`\
 https://www.nytimes.com/2026/10/05/obituaries/cheikh-hamidou-dead.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-
 **Nashville Symphony Receives $10 Million Lifeline From Oracle**\
 `The symphony announced last week that it was pausing the rest of the season after disclosing financial trouble. The concerts are back on now, thanks to a tech company gift.`\
 https://www.nytimes.com/2026/10/05/arts/music/nashville-symphony-oracle-gift.html
-
-**Brazil Election Could Give Bolsonaro a Key Role in Trump’s Latin America Map**\
-`Flávio Bolsonaro, now the favorite to win Brazil’s presidency, would give President Trump a critical new ally in Latin America, particularly on security.`\
-https://www.nytimes.com/2026/10/05/world/americas/brazil-election-bolsonaro-trump.html
 
