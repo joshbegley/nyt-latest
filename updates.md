@@ -1,3 +1,7 @@
+**Eva Marie Saint, Oscar Winner for ‘On the Waterfront,’ Is Dead at 102**\
+`A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
+https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
+
 **Maps: Tracking Tropical Depression Nine**\
 `See the likely path and wind arrival times for Nine`\
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
