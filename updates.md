@@ -1,3 +1,7 @@
+**Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
+`The Nobel Committee honored Francis Halzen for his “vision and scientific leadership” of a telescope within the ice at the South Pole.`\
+https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
+
 **Cornell Students Protest University’s Handling of Sexual Assault Case**\
 `Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
 https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
