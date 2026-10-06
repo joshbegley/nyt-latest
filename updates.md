@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 6, 2026**\
+`There’s plenty to do in Adam Vincent’s crossword puzzle.`\
+https://www.nytimes.com/2026/10/05/crosswords/daily-puzzle-2026-10-06.html
+
+**Trump Orders Execution of Gunman in 2009 Attack at Fort Hood**\
+`The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
+https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
+
 **U.S. Citizen Accused of Surveilling Taiwanese Family on China’s Behalf**\
 `The woman, Wanying Zhang, was arrested at the Los Angeles airport on Sunday. She was accused of watching the son of Taiwan’s president in Seattle.`\
 https://www.nytimes.com/2026/10/05/us/wanying-zhang-china-spy-arrest.html
