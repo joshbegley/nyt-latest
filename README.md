@@ -1,3 +1,7 @@
+**How Trump’s Tariff War With Canada Ensnared the Can-Am Spyder**\
+`The Can-Am Spyder has a devoted fan base across the United States. Now it’s a casualty in the trade war with Canada.`\
+https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
+
 **People of All Ages Join French Student Protests, as Movement Broadens**\
 `Union members, parents, teachers and others took part in mass demonstrations around the country, backing student demands that the government invest more in schools.`\
 https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-college.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
 **Are Noise Cameras Too Nosy?**\
 `Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
 https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
-
-**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
-`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
-https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
 
