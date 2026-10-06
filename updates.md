@@ -1,5 +1,13 @@
 **White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
 `The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
+https://www.nytimes.com/2026/10/05/us/politico-blocked-trump-nebraska.html
+
+**Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
+`In Nebraska, President Trump signed an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
+https://www.nytimes.com/2026/10/05/business/trump-dyed-diesel-fuel-executive-order.html
+
+**White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
+`The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
 https://www.nytimes.com/2026/10/05/us/white-house-blocked-politico-from-air-force-one-for-trumps-trip-to-nebraska.html
 
 **Caleb Flynn, Who Appeared on ‘American Idol,’ Gets Life Sentence for Wife’s Murder**\

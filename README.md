@@ -1,3 +1,7 @@
+**Hochul Declares a Measles Emergency as Cases Rise in Rural New York**\
+`The state has had 108 cases this year, the most since 2019. The declaration comes amid a national resurgence of the highly contagious viral illness.`\
+https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html
+
 **White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
 `The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
 https://www.nytimes.com/2026/10/05/us/politico-blocked-trump-nebraska.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
 **Punishments at Cornell**\
 `We look at how the men accused of sexual assault were disciplined.`\
 https://www.nytimes.com/2026/10/05/briefing/punishments-at-cornell.html
-
-**Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
-`Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
-https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
