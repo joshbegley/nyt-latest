@@ -35,8 +35,8 @@ https://www.nytimes.com/2026/10/06/crosswords/wordle-review-1936.html
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
 
 **German Officials Arrest Former Spy Chief on Espionage Charges**\
-`August Henning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
-https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-henning-arrested-espionage.html
+`August Hanning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
+https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-hanning-arrested-espionage.html
 
 **Artists’ Studios Where Creativity Is on Display**\
 `The studio of the Pop master Tom Wesselmann opened briefly for a peek. Other exhibitions continue at the studios of Donald Judd and Sean Scully.`\

@@ -1,3 +1,7 @@
+**German Officials Arrest Former Spy Chief on Espionage Charges**\
+`August Hanning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
+https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-hanning-arrested-espionage.html
+
 **Kenya Records Ebola Case for First Time**\
 `The authorities said that the virus had been diagnosed in a man arriving from the Democratic Republic of Congo and that they were taking measures to prevent any spread.`\
 https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html
