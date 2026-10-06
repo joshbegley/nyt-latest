@@ -1,3 +1,11 @@
+**Artists’ Studios Where Creativity Is on Display**\
+`The studio of the Pop master Tom Wesselmann opened briefly for a peek. Other exhibitions continue at the studios of Donald Judd and Sean Scully.`\
+https://www.nytimes.com/2026/10/06/arts/design/artists-studios-wesselmann-matsuyama.html
+
+**The Ex-Pro Wrestler Fighting the N.F.L.’s C.T.E. ‘Cover-Up’**\
+`What does the latest research tell us about the future of football?`\
+https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-up.html
+
 **The Gender Gap Has Taken a Strange Twist**\
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
