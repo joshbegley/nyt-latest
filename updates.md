@@ -1,3 +1,7 @@
+**France’s School Protests Go Nationwide**\
+`High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
+https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
+
 **Lawmakers Set to Elect Germany’s 1st Far-Right Statehouse Speaker Since 1945**\
 `After winning a state election last month, the AfD is now on the cusp of being the first far-right party to oversee a state Parliament since the Nazi era.`\
 https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
