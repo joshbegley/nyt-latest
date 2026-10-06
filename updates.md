@@ -1,3 +1,15 @@
+**Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
+`James Blair and Chris LaCivita, who are leading the president’s congressional campaign operation, traveled to Republika Srpska to provide election advice.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-advisers-republika-srpska.html
+
+**Discontent Grips France**\
+`Also, an ex-C.I.A. officer admits to a $145 million scam. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/06/briefing/discontent-grips-france.html
+
+**Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
+`The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
+https://www.nytimes.com/2026/10/06/arts/music/kennedy-center-records-trump-lawyers.html
+
 **Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
 `The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
 https://www.nytimes.com/2026/10/06/arts/music/trump-lawyers-cite-executive-privilege-to-deny-kennedy-center-records.html
