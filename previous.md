@@ -1,3 +1,15 @@
+**Strikes, Barricades and Fiscal Turmoil: An Autumn of Discontent Grips France**\
+`Chaos in schools, on the streets and in the markets is rooted in France’s struggles to fund its social welfare state, with a presidential election approaching.`\
+https://www.nytimes.com/2026/10/06/world/europe/france-crisis-autumn-discontent.html
+
+**Quote of the Day: Superpowers Racing to Put Nuclear Reactors on Moon**\
+`Quotation of the Day for Tuesday, October 6, 2026.`\
+https://www.nytimes.com/2026/10/06/pageoneplus/quote-of-the-day-superpowers-racing-to-put-nuclear-reactors-on-moon.html
+
+**France Set for Nationwide Strikes, as School Protests Escalate**\
+`The scale of the demonstrations planned for Tuesday will test the strength of the student-led protest movement that has spread across French high schools since late September.`\
+https://www.nytimes.com/2026/10/06/world/europe/france-student-strikes-protests.html
+
 **FIFA Found Congo Player Ineligible, Let Him Play in World Cup**\
 `Officials determined that a goalkeeper from the Democratic Republic of Congo did not have the correct paperwork, documents show. But no action was taken, renewing questions about FIFA’s governance.`\
 https://www.nytimes.com/2026/10/06/world/europe/fifa-infantino-congo-nigeria-eligibility.html
@@ -165,16 +177,4 @@ https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.htm
 **Brazil’s Problem Is Bigger Than Bolsonaro**\
 `Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
 https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
-
-**Philly Holds Its First Parallel Parking Championship**\
-`Fourteen drivers competed in three rounds, “One Shot,” Tight Squeeze” and “Under Duress,” to determine who’s the city’s best parallel parker.`\
-https://www.nytimes.com/video/us/100000011193930/philadelphia-parallel-parking-championship.html
-
-**2 People, Including Winter Haven High School Student, Killed in Florida Bus Crash**\
-`A school bus carrying 39 people to Winter Haven High School in Florida was struck by a sedan and rolled over, killing a student and a person in another vehicle, officials said.`\
-https://www.nytimes.com/2026/10/05/us/florida-school-bus-crash.html
-
-**The Cornell Case and Trump’s America**\
-`Nearly a decade after #MeToo, the Cornell case has raised questions about whether any progress has been made. On “The Opinions,” Jamelle Bouie argues that the case reflects a political culture that glorifies “aggressive and predatory” masculinity.`\
-https://www.nytimes.com/video/opinion/100000011188278/the-cornell-case-and-trumps-america.html
 
