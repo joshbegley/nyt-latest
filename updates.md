@@ -1,3 +1,23 @@
+**Student Protests in France**\
+`We also look at a demonstration on Cornell’s campus.`\
+https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
+
+**Trump to Announce Investment in Maryland Submarine Facility**\
+`The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines.html
+
+**A Soup to Make You Feel You’re in the French Countryside**\
+`This classic Provençal soup welcomes whatever greens you’ve got, whether they were foraged from the hills or picked up from the store.`\
+https://www.nytimes.com/2026/10/06/dining/a-soup-to-make-you-feel-youre-in-the-french-countryside.html
+
+**This L.A. Power Broker Is Suing Over His Uninhabitable $20 Million Mansion**\
+`Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
+https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
+
+**U.S. Trade Deficit Hits 17-Month High Despite Trump’s Tariffs**\
+`Imports and the trade deficit have ballooned in recent months, defying the Trump administration’s efforts to reduce it through tariffs.`\
+https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
+
 **G.O.P.’s Economic Message: Things Are Tough, But Democrats Would Make Them Worse**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections
