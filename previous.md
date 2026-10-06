@@ -1,3 +1,7 @@
+**Review: At Chanel, Matthieu Blazy Creates Something New**\
+`Innovation has been in short supply this season. Matthieu Blazy changed that.`\
+https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html
+
 **Fury in California After Trump Suggests Iran Could ‘Take Out’ L.A. or San Diego**\
 `Gov. Gavin Newsom called the president “dangerous and deranged” after his remarks at a political rally, where Mr. Trump said the Iran war was necessary to “keep the world safe.”`\
 https://www.nytimes.com/2026/10/06/world/asia/trump-los-angeles-san-diego-iran.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/05/world/africa/nigeria-military-aircraft-crash.
 **Saffron Pistachio Blondies**\
 `Saffron and pistachio, a combination known to many on the Indian subcontinent as kesar pista, is a classic flavoring in South Asian, Iranian and other desserts — and for good reason. The buttery richness of pistachios brings out the floral flavor in saffron.`\
 https://www.nytimes.com/video/dining/100000011194882/saffron-pistachio-blondies.html
-
-**Pumpkin Date Tiramisù**\
-`Steering away from classic tiramisù, this celebration of fall flavors tucks chai-soaked ladyfingers between dollops of pumpkin-date mascarpone cream.`\
-https://www.nytimes.com/video/dining/100000011194847/pumpkin-date-tiramisu.html
 
