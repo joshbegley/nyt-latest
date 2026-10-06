@@ -1,3 +1,7 @@
+**F.B.I. Charges American in Plot Behind Canada’s Tumbler Ridge School Shooting**\
+`The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
+https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
+
 **Live Updates: Collins and Jackson to Meet for Maine Senate Debate**\
 `Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and longtime state lawmaker.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
@@ -22,13 +26,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A Spy’s Guide to Fighting A.I. Propaganda**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalon
 **Sally Yates to Lead Internal Investigation Into Cornell’s Handling of Sexual Assault Report**\
 `The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
-
-**Restaurant Review: Burmese Bites in New York**\
-`Burmese Bites has traveled a three-decade road, from street fairs to a market stall to this Astoria spot where the fine-tuned cooking enthralls.`\
-https://www.nytimes.com/2026/10/06/dining/restaurant-review-burmese-bites-nyc.html
 
