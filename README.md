@@ -1,4 +1,8 @@
-**What, Exactly, Did Trump Say About Iran Taking Out Los Angeles?**\
+**How Does Someone Acquire 1,200 Copies of ‘Wedding Crashers’?**\
+`More important: How does she get rid of them?`\
+https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
+
+**What, Exactly, Did Trump Say About Iran Taking Out Los Angeles and San Diego?**\
 `President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html
 **In This Painter’s Seductive World, the Past and Present Meet**\
 `In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
 https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html
-
-**Your Finicky Cat**\
-`We look at the pet food market.`\
-https://www.nytimes.com/2026/10/06/briefing/pet-food.html
 
