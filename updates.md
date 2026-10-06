@@ -1,3 +1,7 @@
+**Trump Orders Execution by Firing Squad for Gunman in 2009 Fort Hood Shooting**\
+`The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
+https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
+
 **Potential Iranian Drone Attack Led to Exit of U.S. Aircraft from British Air Base**\
 `According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
 https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
