@@ -1,3 +1,7 @@
+**A Highly Coveted Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
+`Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
+https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
+
 **Resolved Sexual Assault Cases Drop Under Trump Administration**\
 `In the wake of sexual assault allegations at Cornell, Michael C. Bender, a Washington correspondent for The New York Times, explains how the Department of Education’s Office for Civil Rights in the Trump administration has seen an apparent drop in the number of Title IX cases it has resolved.`\
 https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-cases-drop-under-trump-administration.html
