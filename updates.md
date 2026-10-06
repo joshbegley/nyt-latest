@@ -1,3 +1,7 @@
+**‘Sudden’ Sam McDowell, Ace Pitcher for the Cleveland Indians, Has Died**\
+`Known as “Sudden Sam,” he led the American League in strikeouts five times and posted a single-season high of 325 in 1965.`\
+https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
+
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections

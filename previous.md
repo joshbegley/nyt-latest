@@ -1,3 +1,7 @@
+**‘Sudden’ Sam McDowell, Ace Pitcher for the Cleveland Indians, Has Died**\
+`Known as “Sudden Sam,” he led the American League in strikeouts five times and posted a single-season high of 325 in 1965.`\
+https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
+
 **How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
 `In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
 https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/06/podcasts/the-daily/meta-ai-agent-muse.html
 **NYT Connections Answers for October 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
 https://www.nytimes.com/2026/10/06/crosswords/connections-companion-1214.html
-
-**NYT Strands Hints for October 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
-https://www.nytimes.com/2026/10/06/crosswords/strands-sidekick-948.html
 
