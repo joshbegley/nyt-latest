@@ -2,7 +2,7 @@
 `The plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
 https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
 
-**Animal Taste Testers Help Pet Food Makers Capture A Growing Market**\
+**Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
 `As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
 
@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
 `Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
 
-**Are 60-Second Microdramas the Future of Hollywood, or the End?**\
+**Secret Billionaires, Mafia Brides, Alpha Kings: The Insane World of Microdramas**\
 `Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
 https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
 

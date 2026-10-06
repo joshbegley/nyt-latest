@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
 
 **How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
-`More important: How does she get rid of them?`\
+`What better place than the Little Free Libraries of Minneapolis?`\
 https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
 
 **What, Exactly, Did Trump Say About Iran Taking Out Los Angeles and San Diego?**\
