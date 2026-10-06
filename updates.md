@@ -1,3 +1,11 @@
+**Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
+`“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
+https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
+
+**Bulgaria Says Drones Hit Ships Off Black Sea Coast**\
+`Rescue operations were underway after drones hit ships off Bulgaria’s Black Sea coast on Tuesday, Prime Minister Rumen Radev said.`\
+https://www.nytimes.com/video/world/europe/100000011196155/bulgaria-drones-strike-ships-black-sea.html
+
 **Trump’s Remark About Iran Taking Out California Cities Spurs Criticism**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections

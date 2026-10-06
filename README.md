@@ -1,3 +1,7 @@
+**Steak Houses on Parade**\
+`Bar á Part serves wine in the West Village next to Zimmi’s, and joins openings like Booth’s Extra Fine and STK Steak.`\
+https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
+
 **Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
 `“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
 https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/10/06/books/national-book-award-finalists.html
 `A rescue effort was underway, Prime Minister Rumen Radev said, after one of the two ships sank. It was not immediately clear where the drones originated.`\
 https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
 
-**Live Updates: Student Protests Expand to More Than 40 French Cities**\
+**Student Protests Expand to More Than 40 French Cities**\
 `Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/arts/design/artists-studios-wesselmann-matsuy
 **The Ex-Pro Wrestler Fighting the N.F.L.’s C.T.E. ‘Cover-Up’**\
 `What does the latest research tell us about the future of football?`\
 https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-up.html
-
-**The Gender Gap Has Taken a Strange Twist**\
-`Republican and Democratic voters are seeing masculinity and femininity very differently.`\
-https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
