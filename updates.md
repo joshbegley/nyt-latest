@@ -1,3 +1,7 @@
+**Lawmakers Set to Elect Germany’s 1st Far-Right Statehouse Speaker Since 1945**\
+`After winning a state election last month, the AfD is now on the cusp of being the first far-right party to oversee a state Parliament since the Nazi era.`\
+https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
+
 **Review: At Chanel, Matthieu Blazy Creates Something New**\
 `Innovation has been in short supply this season. Matthieu Blazy changed that.`\
 https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html

@@ -1,3 +1,7 @@
+**Lawmakers Set to Elect Germany’s 1st Far-Right Statehouse Speaker Since 1945**\
+`After winning a state election last month, the AfD is now on the cusp of being the first far-right party to oversee a state Parliament since the Nazi era.`\
+https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
+
 **Review: At Chanel, Matthieu Blazy Creates Something New**\
 `Innovation has been in short supply this season. Matthieu Blazy changed that.`\
 https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.ht
 **Nigeria Military Helicopter Crashes With 32 Onboard**\
 `The crash was one of Nigeria’s worst military aviation accidents in years. The country has a history of fatal military aircraft crashes.`\
 https://www.nytimes.com/2026/10/05/world/africa/nigeria-military-aircraft-crash.html
-
-**Saffron Pistachio Blondies**\
-`Saffron and pistachio, a combination known to many on the Indian subcontinent as kesar pista, is a classic flavoring in South Asian, Iranian and other desserts — and for good reason. The buttery richness of pistachios brings out the floral flavor in saffron.`\
-https://www.nytimes.com/video/dining/100000011194882/saffron-pistachio-blondies.html
 
