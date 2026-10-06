@@ -1,3 +1,11 @@
+**How Much Do You Know About Train Travel? Take This Quiz.**\
+`Is there anything as fun as enjoying the clickety-clack of the rails while watching the countryside whiz by from a comfy train car? How about a little train trivia? See how you do on these 10 questions.`\
+https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
+
+**Candidates in Crucial Maine Senate Race Set to Debate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/06/us/midterms-elections
+
 **Eva Marie Saint, Oscar Winner for ‘On the Waterfront,’ Is Dead at 102**\
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html

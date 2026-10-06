@@ -1,3 +1,7 @@
+**How Much Do You Know About Train Travel? Take This Quiz.**\
+`Is there anything as fun as enjoying the clickety-clack of the rails while watching the countryside whiz by from a comfy train car? How about a little train trivia? See how you do on these 10 questions.`\
+https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
+
 **Eva Marie Saint, Oscar Winner for ‘On the Waterfront,’ Is Dead at 102**\
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/2026/10/06/dining/a-soup-to-make-you-feel-youre-in-the-f
 `A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
 https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html
 
-**Maps: Tracking Tropical Storm Koguma**\
-`See the likely path and wind arrival times for Koguma`\
-https://www.nytimes.com/interactive/2026/10/06/weather/koguma-map-path-tracker.html
-
-**Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
+**Candidates in Crucial Maine Senate Race Set to Debate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections
 
