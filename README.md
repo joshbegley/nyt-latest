@@ -182,7 +182,3 @@ https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.ht
 `Readers respond to an Opinion guest essay by Roger Rosenblatt about holding hands. Also: Ads praising President Trump; my phones, smart and dumb.`\
 https://www.nytimes.com/2026/10/05/opinion/hands-loving-caring-healing-learning.html
 
-**The Campaign for Ohio’s Next Governor May Be the Ugliest in the Country**\
-`The candidates for Ohio governor have significant policy differences, but the campaign ads have been strikingly personal, with exaggerated portrayals of one candidate as a con artist and the other as a drunk.`\
-https://www.nytimes.com/2026/10/05/us/elections/ohio-governor-election.html
-
