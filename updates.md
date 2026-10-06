@@ -1,3 +1,7 @@
+**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
+https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
+
 **Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
 `The Nobel Committee praised his “vision and scientific leadership” at a research project at the South Pole.`\
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
