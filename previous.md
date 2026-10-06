@@ -1,3 +1,7 @@
+**Nobel Prize in Physics Is Awarded to Francis Halzen**\
+`The Nobel was awarded “for the discovery of high-energy neutrinos of astrophysical origin,” the Royal Swedish Academy of Sciences said.`\
+https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
+
 **German Officials Arrest Former Spy Chief on Espionage Charges**\
 `August Henning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
 https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-henning-arrested-espionage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/climate/100000011052401/melting-ice-reveals-artifa
 **France’s School Protests Go Nationwide**\
 `High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
 https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
-
-**Lawmakers Set to Elect Germany’s 1st Far-Right Statehouse Speaker Since 1945**\
-`After winning a state election last month, the AfD is now on the cusp of being the first far-right party to oversee a state Parliament since the Nazi era.`\
-https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
 

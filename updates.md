@@ -1,3 +1,7 @@
+**Nobel Prize in Physics Is Awarded to Francis Halzen**\
+`The Nobel was awarded “for the discovery of high-energy neutrinos of astrophysical origin,” the Royal Swedish Academy of Sciences said.`\
+https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
+
 **German Officials Arrest Former Spy Chief on Espionage Charges**\
 `August Henning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
 https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-henning-arrested-espionage.html
