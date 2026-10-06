@@ -1,3 +1,7 @@
+**A New Open-Weight Challenger to Anthropic, Reflection, Emerges**\
+`Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
+https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
+
 **Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
 `A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
 https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
