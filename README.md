@@ -154,7 +154,7 @@ https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-
 `Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
 https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
 
-**Trump’s Remark About Iran Taking Out California Cities Spurs Criticism**\
+**Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections
 

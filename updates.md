@@ -1,3 +1,27 @@
+**How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
+`In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
+https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
+
+**What Our Critic’s Been Listening to Lately (and More Phone Songs)**\
+`Dial up songs from Greg Freeman, the Womack Sisters and Jim Croce.`\
+https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-jim-croce.html
+
+**An Influential Voice in the Climate Debate Has Died at 66**\
+`Joe Romm was a prolific writer who never hesitated to take on climate change deniers and the fossil-fuel industry — or even ostensible allies.`\
+https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
+
+**Trump-Appointed Judge Accuses ICE of Lying and Fabricating Records**\
+`Two men were mistakenly arrested in the Bronx by Immigration and Customs Enforcement agents. Gary R. Brown, a federal judge, condemned the agency’s actions.`\
+https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified-records.html
+
+**Steak Houses on Parade**\
+`Bar á Part serves wine in the West Village next to Zimmi’s, and joins openings like Booth’s Extra Fine and STK Steak.`\
+https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
+
+**Student Protests Expand to More Than 40 French Cities**\
+`Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
+https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
+
 **Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
 `“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
 https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
