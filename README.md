@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
 https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 
-**Democrats Eyeing the House Face a Conundrum: Rent or Buy?**\
+**Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
 `With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
 https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
 
