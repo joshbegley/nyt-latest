@@ -1,3 +1,7 @@
+**Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
+`The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
+https://www.nytimes.com/2026/10/06/arts/music/trump-lawyers-cite-executive-privilege-to-deny-kennedy-center-records.html
+
 **How Much Do You Know About Train Travel? Take This Quiz.**\
 `Is there anything as fun as watching the countryside whiz by from a train car? How about a little train trivia? See how you do on these 10 questions.`\
 https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines-anduril
 **A Soup to Make You Feel You’re in the French Countryside**\
 `This classic Provençal soup welcomes whatever greens you’ve got, whether they were foraged from the hills or picked up from the store.`\
 https://www.nytimes.com/2026/10/06/dining/a-soup-to-make-you-feel-youre-in-the-french-countryside.html
-
-**Man Arrested in Connection With Incident at UK Air Base RAF Fairford**\
-`A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
-https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html
 
 **Candidates in Crucial Maine Senate Race Set to Debate**\
 `(No description)`\

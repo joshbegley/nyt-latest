@@ -1,5 +1,5 @@
 **How Much Do You Know About Train Travel? Take This Quiz.**\
-`Is there anything as fun as enjoying the clickety-clack of the rails while watching the countryside whiz by from a comfy train car? How about a little train trivia? See how you do on these 10 questions.`\
+`Is there anything as fun as watching the countryside whiz by from a train car? How about a little train trivia? See how you do on these 10 questions.`\
 https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 
 **Eva Marie Saint, Oscar Winner for ‘On the Waterfront,’ Is Dead at 102**\
