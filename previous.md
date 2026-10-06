@@ -62,6 +62,10 @@ https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-
 `Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
 https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
 
+**G.O.P.’s Economic Message: Things Are Tough, But Democrats Would Make Them Worse**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/06/us/midterms-elections
+
 **Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
 `A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
 https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
@@ -138,7 +142,7 @@ https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
 https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 
-**Democrats Eyeing the House Face a Conundrum: Rent or Buy?**\
+**Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
 `With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
 https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/learning/lesson-plans/teach-the-2026-midterm-
 **An Alluring Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
 `Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
 https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
-
-**Are Polyglot Creators Capturing Real Human Connection, or Gaming Social Media?**\
-`People who speak many languages in man-on-the-street videos are impressive, but they’re also turning conversation into a chance for optimization.`\
-https://www.nytimes.com/2026/10/06/magazine/polyglot-languages-youtube-tiktok.html
 

@@ -1,3 +1,11 @@
+**G.O.P.’s Economic Message: Things Are Tough, But Democrats Would Make Them Worse**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/06/us/midterms-elections
+
+**Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
+`With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
+https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
+
 **In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
 `China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
 https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
