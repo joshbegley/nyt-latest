@@ -1,3 +1,7 @@
+**Trump Orders Execution of Gunman in 2009 Attack at Fort Hood**\
+`The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
+https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
+
 **U.S. Citizen Accused of Surveilling Taiwanese Family on China’s Behalf**\
 `The woman, Wanying Zhang, was arrested at the Los Angeles airport on Sunday. She was accused of watching the son of Taiwan’s president in Seattle.`\
 https://www.nytimes.com/2026/10/05/us/wanying-zhang-china-spy-arrest.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
 **U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
 `All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
 https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
-
-**High Interest Rates Aren’t Slowing the A.I. Boom. That’s a Problem for the Fed.**\
-`Rising borrowing costs are taking a toll on households and businesses. But they are doing little to dampen enthusiasm for investments in A.I. infrastructure, which are contributing to inflation.`\
-https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
