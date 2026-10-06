@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
 `There’s plenty to do in Adam Vincent’s crossword puzzle.`\
 https://www.nytimes.com/2026/10/05/crosswords/daily-puzzle-2026-10-06.html
 
-**Trump Orders Execution of Gunman in 2009 Attack at Fort Hood**\
+**Trump Orders Execution by Firing Squad for Gunman in 2009 Fort Hood Shooting**\
 `The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
 https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
 
