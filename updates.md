@@ -1,3 +1,7 @@
+**Potential Iranian Drone Attack Led to Exit of U.S. Aircraft From British Air Base**\
+`According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
+https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
+
 **Strikes, Barricades and Fiscal Turmoil: An Autumn of Discontent Grips France**\
 `Chaos in schools, on the streets and in the markets is rooted in France’s struggles to fund its social welfare state, with a presidential election approaching.`\
 https://www.nytimes.com/2026/10/06/world/europe/france-crisis-autumn-discontent.html
