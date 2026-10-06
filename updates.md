@@ -1,3 +1,7 @@
+**Live Updates: Australian Lawmakers Question OpenAI Officials on Breaches**\
+`The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
+https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
+
 **Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
 `The Senegalese writer was lauded as one of the founding fathers of African literature despite publishing only two novels.`\
 https://www.nytimes.com/2026/10/05/obituaries/cheikh-hamidou-dead.html
