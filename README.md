@@ -1,3 +1,7 @@
+**In This Painter’s Seductive World, the Past and Present Meet**\
+`In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
+https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html
+
 **Your Finicky Cat**\
 `We look at the pet food market.`\
 https://www.nytimes.com/2026/10/06/briefing/pet-food.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/arts/music/donna-summer-casablanca-records-co
 **My Doctor Says I Have Fibroids. What Happens Next?**\
 `Here’s what experts say about how the noncancerous growths are treated.`\
 https://www.nytimes.com/2026/10/06/well/health-fibroids-treatments.html
-
-**Teeing Off in the Birthplace of Golf, in St. Andrews, Scotland**\
-`In St. Andrews, Scotland, history and golf intertwine, on and off the famous courses.`\
-https://www.nytimes.com/2026/10/06/travel/golf-st-andrews-scotland-courses.html
 
