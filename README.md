@@ -1,3 +1,11 @@
+**Restaurant Review: Hungry Spicy in New York**\
+`At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors a vivid, but proceed up the spice levels with caution.`\
+https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
+
+**Two Arab Fighters for Democracy Have Lessons for America**\
+`Sitting on your hands is not an option when democracy is at stake.`\
+https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.html
+
 **Energy Firms Try to Squeeze More Power Out of Old Nuclear Plants**\
 `It takes a long time to build new nuclear plants. So, some U.S. companies are looking to get more electricity out of reactors that already exist.`\
 https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
 **Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
 `After a legal battle, the two Hollywood giants have become one. But the new company is saddled with debt, and in a memo to employees, its leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
-
-**U.S. Trade Deficit Hits 17-Month High Despite Trump’s Tariffs**\
-`Imports and the trade deficit have ballooned in recent months, defying the Trump administration’s efforts to reduce it through tariffs.`\
-https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
-
-**Resolved Sexual Assault Cases Drop Under Trump Administration**\
-`In the wake of sexual assault allegations at Cornell, Michael C. Bender, a Washington correspondent for The New York Times, explains how the Department of Education’s Office for Civil Rights in the Trump administration has seen an apparent drop in the number of Title IX cases it has resolved.`\
-https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-cases-drop-under-trump-administration.html
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
