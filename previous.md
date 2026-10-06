@@ -1,3 +1,7 @@
+**Five Takeaways in New Book From Thom Tillis, Who Turned on Trump**\
+`In “How to Lose Friends and Antagonize Presidents,” Senator Thom Tillis details his regrets about backing President Trump’s agenda.`\
+https://www.nytimes.com/2026/10/06/us/politics/takeaways-book-thom-tillis-trump.html
+
 **In Iceland, Rubio Dodges a Diplomatic Flap Over a Trump Map**\
 `President Trump had posted a map on his Truth Social account in September depicting Iceland as part of U.S. territory.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-map-iceland-rubio.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
 `The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
 https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
 
-**Live Updates: First Debate of Crucial Maine Senate Race Is About to Begin**\
-`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and former state lawmaker.`\
+**Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
+`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, affordability and their approach to governing in a spirited debate.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
 
 **Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
@@ -42,13 +46,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**A Spy’s Guide to Fighting A.I. Propaganda**\
-`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
-
 **Maps: Tracking Tropical Depression Nine**\
 `See the likely path and wind arrival times for Nine`\
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A Spy’s Guide to Fighting A.I. Propaganda**\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.ht
 **How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
 `Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
 https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
-
-**How a Painstaking Scholar Reinterpreted African History**\
-`In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
-https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
 

@@ -1,3 +1,11 @@
+**Five Takeaways in New Book From Thom Tillis, Who Turned on Trump**\
+`In “How to Lose Friends and Antagonize Presidents,” Senator Thom Tillis details his regrets about backing President Trump’s agenda.`\
+https://www.nytimes.com/2026/10/06/us/politics/takeaways-book-thom-tillis-trump.html
+
+**Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
+`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, affordability and their approach to governing in a spirited debate.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
 **Live Updates: First Debate of Crucial Maine Senate Race Is About to Begin**\
 `Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and former state lawmaker.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
