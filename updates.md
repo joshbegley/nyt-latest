@@ -1,3 +1,7 @@
+**Alexandria Ocasio-Cortez Says, ‘If Abdul Can Win in Michigan, Anybody Can Win Anywhere’**\
+`Representative Alexandria Ocasio-Cortez made the remarks about Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, as she considers whether to run for president in 2028.`\
+https://www.nytimes.com/2026/10/05/us/politics/aoc-abdul-el-sayed-2028.html
+
 **Trump Orders Execution by Firing Squad for Gunman in 2009 Fort Hood Shooting**\
 `The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
 https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html

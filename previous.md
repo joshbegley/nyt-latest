@@ -1,3 +1,7 @@
+**Alexandria Ocasio-Cortez Says, ‘If Abdul Can Win in Michigan, Anybody Can Win Anywhere’**\
+`Representative Alexandria Ocasio-Cortez made the remarks about Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, as she considers whether to run for president in 2028.`\
+https://www.nytimes.com/2026/10/05/us/politics/aoc-abdul-el-sayed-2028.html
+
 **Potential Iranian Drone Attack Led to Exit of U.S. Aircraft from British Air Base**\
 `According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
 https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/05/us/elections/ohio-governor-election.html
 **Ben Watson, a Cider Expert Known as Brother Apple, Has Died at 64.**\
 `Ben Watson, also known as Brother Apple, played a pivotal role in turning cider into a thriving slice of America’s craft-beverage movement. He has died at 64.`\
 https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
-
-**Two Sisters Took a Circuitous Route to Becoming Roommates**\
-`Circumstances and geography kept them apart, but they settled into a Brooklyn two-bedroom last year and have largely mastered the sibling dynamics.`\
-https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brooklyn.html
 
