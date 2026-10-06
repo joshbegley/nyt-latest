@@ -1,3 +1,11 @@
+**How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
+`Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
+https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
+
+**A Shirt That Works Double Time**\
+`The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
+https://www.nytimes.com/2026/10/06/style/townwear-paris-fashion-week.html
+
 **How a Painstaking Scholar Reinterpreted African History**\
 `In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
 https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html

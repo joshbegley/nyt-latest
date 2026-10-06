@@ -1,3 +1,7 @@
+**How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
+`Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
+https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
+
 **How a Painstaking Scholar Reinterpreted African History**\
 `In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
 https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.ht
 
 **A Shirt That Works Double Time**\
 `The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
-https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
+https://www.nytimes.com/2026/10/06/style/townwear-paris-fashion-week.html
 
 **We Let an A.I. Agent Get Lunch for Our Host**\
 `Eli Tan, a technology reporter for The New York Times, gave Meta’s A.I. agent Muse access to his personal information to test its abilities. Then, he let it get lunch for Natalie Kitroeff, a host of “The Daily.” Here’s what happened.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 **Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
 `Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
 https://www.nytimes.com/2026/10/06/us/execution-methods.html
-
-**Corrections: Oct. 6, 2026**\
-`Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
-https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 
