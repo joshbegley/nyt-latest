@@ -1,3 +1,7 @@
+**Your Finicky Cat**\
+`We look at the pet food market.`\
+https://www.nytimes.com/2026/10/06/briefing/pet-food.html
+
 **Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
 `Plus, the ancient treasures revealed by melting glaciers.`\
 https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
