@@ -1,3 +1,7 @@
+**U.S. Citizen Accused of Surveilling Taiwanese Family on China’s Behalf**\
+`The woman, Wanying Zhang, was arrested at the Los Angeles airport on Sunday. She was accused of watching the son of Taiwan’s president in Seattle.`\
+https://www.nytimes.com/2026/10/05/us/wanying-zhang-china-spy-arrest.html
+
 **Hochul Declares a Measles Emergency as Cases Rise in Rural New York**\
 `The state has had 108 cases this year, the most since 2019. The declaration comes amid a national resurgence of the highly contagious viral illness.`\
 https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf
 **High Interest Rates Aren’t Slowing the A.I. Boom. That’s a Problem for the Fed.**\
 `Rising borrowing costs are taking a toll on households and businesses. But they are doing little to dampen enthusiasm for investments in A.I. infrastructure, which are contributing to inflation.`\
 https://www.nytimes.com/2026/10/05/business/ai-boom-interest-rates-fed.html
-
-**Punishments at Cornell**\
-`We look at how the men accused of sexual assault were disciplined.`\
-https://www.nytimes.com/2026/10/05/briefing/punishments-at-cornell.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

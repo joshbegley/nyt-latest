@@ -1,3 +1,7 @@
+**U.S. Citizen Accused of Surveilling Taiwanese Family on China’s Behalf**\
+`The woman, Wanying Zhang, was arrested at the Los Angeles airport on Sunday. She was accused of watching the son of Taiwan’s president in Seattle.`\
+https://www.nytimes.com/2026/10/05/us/wanying-zhang-china-spy-arrest.html
+
 **Hochul Declares a Measles Emergency as Cases Rise in Rural New York**\
 `The state has had 108 cases this year, the most since 2019. The declaration comes amid a national resurgence of the highly contagious viral illness.`\
 https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html
