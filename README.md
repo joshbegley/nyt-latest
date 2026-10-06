@@ -1,4 +1,8 @@
-**S&P 500 Hits Record High Amid Rising Interest Rates and Oil Prices**\
+**Understanding France’s Polycrisis**\
+`An autumn of discontent has gripped the country ahead of its presidential election.`\
+https://www.nytimes.com/2026/10/06/world/france-student-protests-kenya-robots.html
+
+**S&P 500 Hits Record High Amid Rising Interest Rates and Elevated Oil Prices**\
 `The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
 https://www.nytimes.com/2026/10/06/business/stock-market-record.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-enter
 **Top Super PAC for Senate Democrats Raises Record $151 Million in Third Quarter**\
 `Democratic Senate candidates have generally out-raised Republicans, but are struggling to match outside spending from Trump-affiliated groups.`\
 https://www.nytimes.com/2026/10/06/us/politics/senate-majority-pac-democrats.html
-
-**Student Protests Spread Across France**\
-`Protesters and the police clashed in France as thousands of people joined the student-led demonstrations against school conditions.`\
-https://www.nytimes.com/video/world/europe/100000011195907/france-protests-school-students.html
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
