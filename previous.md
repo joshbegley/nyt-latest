@@ -1,3 +1,7 @@
+**Wrongly Indicted Man Seeks Inquiry of Official Conduct in Reflecting Pool Case**\
+`Lawyers for the former Olympian David Hearn accused prosecutors of ignoring their own evidence to indict him and then providing “blatantly false” information about what they knew when.`\
+https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.html
+
 **A Shirt That Works Double Time**\
 `The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
 https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-co
 `These notable people were covered in The Times over the past 175 years. Guess who they are.`\
 https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
 
-**Spain Clears Way for Separatist Leader to Return to Catalonia**\
+**Spain Cancels Arrest Warrant for Carles Puigdemont, Catalan Separatist Leader**\
 `The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
 https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
 
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarizati
 `What it will take for Israel to overcome the ghosts of Oct. 7.`\
 https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
 
-**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+**As Spain Heads Into a Snap Election, Sánchez Turns an Eviction Into a Campaign Cause**\
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 **Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
 `With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
 https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
-
-**U.S. Sends Reaper Drones to Colombia and Ecuador to Hunt Cartels**\
-`MQ-9 Reaper drones — known for high-profile deadly strikes — have been shifted from Africa to Colombia and Ecuador, U.S. officials said.`\
-https://www.nytimes.com/2026/10/06/world/americas/us-reaper-drones-colombia-ecuador-cartels.html
 
