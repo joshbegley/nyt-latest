@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
-`What it will take for Israel to overcome the ghosts of Oct. 7.`\
-https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
-
 **An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
+
+**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
+`What it will take for Israel to overcome the ghosts of Oct. 7.`\
+https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
 
 **Why These 5 Methods Used in Executions Have Stirred Debate**\
 `Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
