@@ -1,3 +1,11 @@
+**Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
+`A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
+https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
+
+**Why These 5 Methods Used in Executions Have Stirred Debate**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
+https://www.nytimes.com/2026/10/06/us/execution-methods.html
+
 **German Officials Arrest Former Spy Chief on Espionage Charges**\
 `August Hanning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
 https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-hanning-arrested-espionage.html
