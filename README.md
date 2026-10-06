@@ -1,3 +1,7 @@
+**Potential Iranian Drone Attack Led to Exit of U.S. Aircraft from British Air Base**\
+`According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
+https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html
+
 **NYT Crossword Answers for Oct. 6, 2026**\
 `There’s plenty to do in Adam Vincent’s crossword puzzle.`\
 https://www.nytimes.com/2026/10/05/crosswords/daily-puzzle-2026-10-06.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
 **Two Sisters Took a Circuitous Route to Becoming Roommates**\
 `Circumstances and geography kept them apart, but they settled into a Brooklyn two-bedroom last year and have largely mastered the sibling dynamics.`\
 https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brooklyn.html
-
-**‘Kramer/Fauci’ Review: A Thrilling Episode From the AIDS Battlefield**\
-`Daniel Fish’s staging of a C-SPAN segment reveals the complex yet tender relationship between the fiery Larry Kramer and the diplomatic Anthony Fauci.`\
-https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
 
