@@ -1,3 +1,23 @@
+**FIFA Found Congo Player Ineligible, Let Him Play in World Cup**\
+`Officials determined that a goalkeeper from the Democratic Republic of Congo did not have the correct paperwork, documents show. But no action was taken, renewing questions about FIFA’s governance.`\
+https://www.nytimes.com/2026/10/06/world/europe/fifa-infantino-congo-nigeria-eligibility.html
+
+**As Japan’s Population Shrinks, a City Is Accused of Padding Census Numbers**\
+`The police are investigating how about 3,000 nonexistent residents were added to official data for Toyama.`\
+https://www.nytimes.com/2026/10/06/world/asia/japan-population-falsified-census.html
+
+**The Hidden Policies That Power China’s Export Boom**\
+`Huge tax breaks and a weak currency sustain exports, widen the government budget deficit and complicate the country’s efforts to rebalance its economy.`\
+https://www.nytimes.com/2026/10/06/business/china-exports-currency.html
+
+**On This Day, Oct. 6: In 1981, Sadat Was Assassinated**\
+`In 1981, President Anwar el-Sadat of Egypt was assassinated by extremists while attending a military parade.`\
+https://www.nytimes.com/2026/10/06/learning/on-this-day-oct-6.html
+
+**Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
+`With his wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
+https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
+
 **Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
 `With his then-wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
 https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
