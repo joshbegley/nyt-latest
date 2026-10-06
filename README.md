@@ -1,6 +1,14 @@
+**Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
+`James Blair and Chris LaCivita, who are leading the president’s congressional campaign operation, traveled to Republika Srpska to provide election advice.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-advisers-republika-srpska.html
+
+**Discontent Grips France**\
+`Also, an ex-C.I.A. officer admits to a $145 million scam. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/06/briefing/discontent-grips-france.html
+
 **Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
 `The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
-https://www.nytimes.com/2026/10/06/arts/music/trump-lawyers-cite-executive-privilege-to-deny-kennedy-center-records.html
+https://www.nytimes.com/2026/10/06/arts/music/kennedy-center-records-trump-lawyers.html
 
 **How Much Do You Know About Train Travel? Take This Quiz.**\
 `Is there anything as fun as watching the countryside whiz by from a train car? How about a little train trivia? See how you do on these 10 questions.`\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
 **Trump to Announce Investment in Maryland Submarine Facility**\
 `The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines-anduril-baltimore.html
-
-**A Soup to Make You Feel You’re in the French Countryside**\
-`This classic Provençal soup welcomes whatever greens you’ve got, whether they were foraged from the hills or picked up from the store.`\
-https://www.nytimes.com/2026/10/06/dining/a-soup-to-make-you-feel-youre-in-the-french-countryside.html
-
-**Candidates in Crucial Maine Senate Race Set to Debate**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/06/us/midterms-elections
 

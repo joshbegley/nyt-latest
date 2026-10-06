@@ -1,3 +1,7 @@
+**Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
+`The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
+https://www.nytimes.com/2026/10/06/arts/music/trump-lawyers-cite-executive-privilege-to-deny-kennedy-center-records.html
+
 **How Much Do You Know About Train Travel? Take This Quiz.**\
 `Is there anything as fun as watching the countryside whiz by from a train car? How about a little train trivia? See how you do on these 10 questions.`\
 https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
