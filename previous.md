@@ -1,3 +1,7 @@
+**The Separatist Parti Québécois Wins Quebec Election, Reviving Sovereignty Push**\
+`The separatist party’s victory fell short of clinching a majority that would have all but guaranteed a potential showdown with Ottawa over Canada’s future.`\
+https://www.nytimes.com/2026/10/05/world/canada/quebec-election-parti-quebecois-separatism.html
+
 **Alexandria Ocasio-Cortez Says, ‘If Abdul Can Win in Michigan, Anybody Can Win Anywhere’**\
 `Representative Alexandria Ocasio-Cortez made the remarks about Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, as she considers whether to run for president in 2028.`\
 https://www.nytimes.com/2026/10/05/us/politics/aoc-abdul-el-sayed-2028.html
@@ -177,12 +181,4 @@ https://www.nytimes.com/2026/10/05/arts/design/bayeux-tapestry-british-museum.ht
 **The Miracle of Hands: Loving, Caring, Healing, Learning**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt about holding hands. Also: Ads praising President Trump; my phones, smart and dumb.`\
 https://www.nytimes.com/2026/10/05/opinion/hands-loving-caring-healing-learning.html
-
-**The Campaign for Ohio’s Next Governor May Be the Ugliest in the Country**\
-`The candidates for Ohio governor have significant policy differences, but the campaign ads have been strikingly personal, with exaggerated portrayals of one candidate as a con artist and the other as a drunk.`\
-https://www.nytimes.com/2026/10/05/us/elections/ohio-governor-election.html
-
-**Ben Watson, a Cider Expert Known as Brother Apple, Has Died at 64.**\
-`Ben Watson, also known as Brother Apple, played a pivotal role in turning cider into a thriving slice of America’s craft-beverage movement. He has died at 64.`\
-https://www.nytimes.com/2026/10/05/dining/drinks/ben-watson-dead.html
 

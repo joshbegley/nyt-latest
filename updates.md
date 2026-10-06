@@ -1,3 +1,7 @@
+**The Separatist Parti Québécois Wins Quebec Election, Reviving Sovereignty Push**\
+`The separatist party’s victory fell short of clinching a majority that would have all but guaranteed a potential showdown with Ottawa over Canada’s future.`\
+https://www.nytimes.com/2026/10/05/world/canada/quebec-election-parti-quebecois-separatism.html
+
 **Alexandria Ocasio-Cortez Says, ‘If Abdul Can Win in Michigan, Anybody Can Win Anywhere’**\
 `Representative Alexandria Ocasio-Cortez made the remarks about Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, as she considers whether to run for president in 2028.`\
 https://www.nytimes.com/2026/10/05/us/politics/aoc-abdul-el-sayed-2028.html
