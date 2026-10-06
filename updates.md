@@ -1,3 +1,7 @@
+**Paramount Closes Its Deal for Warner Bros. Discovery**\
+`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
+https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
+
 **‘Dirty Dancing’ Musical Heads to Broadway This Season**\
 `The musical, which underwhelmed critics but attracted audiences while touring for years, has been significantly overhauled.`\
 https://www.nytimes.com/2026/10/06/theater/dirty-dancing-broadway.html
