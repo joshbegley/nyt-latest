@@ -1,3 +1,7 @@
+**What, Exactly, Did Trump Say About Iran Taking Out Los Angeles?**\
+`President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
+
 **UK Security Adviser Jonathan Powell Traveled to Israel Ahead of Consulate Closure**\
 `Jonathan Powell, Britain’s national security adviser, visited Israel last week to try to negotiate over the looming closure of his country’s consulate in Jerusalem, according to three officials.`\
 https://www.nytimes.com/2026/10/06/world/europe/uk-security-adviser-traveled-to-israel-ahead-of-consulate-closure.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.htm
 **Your Finicky Cat**\
 `We look at the pet food market.`\
 https://www.nytimes.com/2026/10/06/briefing/pet-food.html
-
-**Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
-`Plus, the ancient treasures revealed by melting glaciers.`\
-https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
 

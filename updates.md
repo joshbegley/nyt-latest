@@ -1,3 +1,11 @@
+**UK Security Adviser Jonathan Powell Traveled to Israel Ahead of Consulate Closure**\
+`Jonathan Powell, Britain’s national security adviser, visited Israel last week to try to negotiate over the looming closure of his country’s consulate in Jerusalem, according to three officials.`\
+https://www.nytimes.com/2026/10/06/world/europe/uk-security-adviser-traveled-to-israel-ahead-of-consulate-closure.html
+
+**Live From the Barracks: Three Juntas Launch TV Channel**\
+`Three African countries have started Tafouk TV, a Russia-partnered broadcast channel, after throwing out Western journalists and cracking down on local media.`\
+https://www.nytimes.com/2026/10/06/world/africa/russia-africa-propaganda-sahel-tafouk.html
+
 **‘Sudden’ Sam McDowell, Ace Pitcher for the Cleveland Indians, Has Died**\
 `Known as “Sudden Sam,” he led the American League in strikeouts five times and posted a single-season high of 325 in 1965.`\
 https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
