@@ -1,3 +1,11 @@
+**Jeffrey Archer on His Favorite Books and His Final Novel**\
+`“London Falling” and “Dissection of a Murder” were among his recent favorite books. “War and Peace” and “A Clockwork Orange” went unfinished.`\
+https://www.nytimes.com/2026/10/06/books/review/jeffrey-archer-by-the-book.html
+
+**Australian Lawmakers Question OpenAI Officials on Breaches**\
+`The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
+https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
+
 **OpenAI Says it Changed Systems After Australia Hack**\
 `A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
 https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
