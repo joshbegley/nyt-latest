@@ -1,3 +1,7 @@
+**South Korea Investigates Possible Use of A.I. in Hacks on Its Banks**\
+`The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
+https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
+
 **Potential Iranian Drone Attack Led to Exit of U.S. Aircraft From British Air Base**\
 `According to U.S. and British officials, 12 B-1 Air Force bombers from R.A.F. Fairford air base were withdrawn because of the risk of a drone attack ordered by Iran’s Islamic Revolutionary Guard Corps.`\
 https://www.nytimes.com/2026/10/05/us/politics/iran-drone-attack-threat.html

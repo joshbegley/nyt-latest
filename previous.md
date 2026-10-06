@@ -1,3 +1,7 @@
+**South Korea Investigates Possible Use of A.I. in Hacks on Its Banks**\
+`The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
+https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
+
 **Strikes, Barricades and Fiscal Turmoil: An Autumn of Discontent Grips France**\
 `Chaos in schools, on the streets and in the markets is rooted in France’s struggles to fund its social welfare state, with a presidential election approaching.`\
 https://www.nytimes.com/2026/10/06/world/europe/france-crisis-autumn-discontent.html
