@@ -134,9 +134,9 @@ https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-ab
 `Lesson plan ideas for bringing the midterms and what’s at stake into your classroom, using New York Times maps, graphs and reporting.`\
 https://www.nytimes.com/2026/10/06/learning/lesson-plans/teach-the-2026-midterm-elections.html
 
-**In the Florida Keys, Floating Cocaine Remains an Alluring Catch**\
-`Bricks of cocaine frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
-https://www.nytimes.com/2026/10/06/us/in-the-florida-keys-floating-cocaine-remains-an-alluring-catch.html
+**A Highly Coveted Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
+`Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
+https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
 
 **Are Polyglot Creators Capturing Real Human Connection, or Gaming Social Media?**\
 `People who speak many languages in man-on-the-street videos are impressive, but they’re also turning conversation into a chance for optimization.`\
