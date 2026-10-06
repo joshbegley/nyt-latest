@@ -1,3 +1,7 @@
+**Trump’s Remark About Iran Taking Out California Cities Spurs Criticism**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/06/us/midterms-elections
+
 **Kenya Announces Its First Ebola Case**\
 `Kenya announced on Tuesday that it has recorded its first case of Ebola, saying it derived from a man arriving from the Democratic Republic of Congo.`\
 https://www.nytimes.com/video/world/africa/100000011196254/kenya-ebola-case-congo.html

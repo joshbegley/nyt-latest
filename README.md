@@ -1,3 +1,11 @@
+**Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
+`“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
+https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
+
+**Bulgaria Says Drones Hit Ships Off Black Sea Coast**\
+`Rescue operations were underway after drones hit ships off Bulgaria’s Black Sea coast on Tuesday, Prime Minister Rumen Radev said.`\
+https://www.nytimes.com/video/world/europe/100000011196155/bulgaria-drones-strike-ships-black-sea.html
+
 **Kenya Announces Its First Ebola Case**\
 `Kenya announced on Tuesday that it has recorded its first case of Ebola, saying it derived from a man arriving from the Democratic Republic of Congo.`\
 https://www.nytimes.com/video/world/africa/100000011196254/kenya-ebola-case-congo.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 **The Gender Gap Has Taken a Strange Twist**\
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
-
-**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
-`What it will take for Israel to overcome the ghosts of Oct. 7.`\
-https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
-
-**As Spain Heads Into a Snap Election, Sánchez Turns an Eviction Into a Campaign Cause**\
-`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
-https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
