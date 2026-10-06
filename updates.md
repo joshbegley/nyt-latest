@@ -1,3 +1,11 @@
+**Fury in California After Trump Suggests Iran Could ‘Take Out’ L.A. or San Diego**\
+`Gov. Gavin Newsom called the president “dangerous and deranged” after his remarks at a political rally, where Mr. Trump said the Iran war was necessary to “keep the world safe.”`\
+https://www.nytimes.com/2026/10/06/world/asia/trump-los-angeles-san-diego-iran.html
+
+**OpenAI Says It Changed Systems After Australia Hack**\
+`A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
+https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
+
 **Mamdani Backs Bill to Let Consumers Sue Over Unfair Business Practices**\
 `The proposed New York City legislation would also allow nonprofits, including tenants’ unions, to sue companies directly rather than relying on agency enforcement.`\
 https://www.nytimes.com/2026/10/06/nyregion/mamdani-power-act-bill-nyc.html
