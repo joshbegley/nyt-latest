@@ -1,3 +1,7 @@
+**Live Updates: Australian Lawmakers to Question OpenAI Officials on Breaches**\
+`The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
+https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
+
 **What the Data Center Boom Looks Like From the Sky**\
 `In the race for A.I. computing power, hundreds of new projects are coming online across the country — and they’re getting bigger.`\
 https://www.nytimes.com/interactive/2026/10/05/upshot/data-center-scale.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/10/05/nyregion/ai-city-council-hearing.html
 
 **Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
 `In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
-https://www.nytimes.com/2026/10/05/business/trump-to-allow-cheaper-dyed-diesel-to-be-used-in-nonfarm-vehicles.html
+https://www.nytimes.com/2026/10/05/business/trump-dyed-diesel-fuel-executive-order.html
 
 **Why A.I. Food Slop Looks So Gross**\
 `Is anything even real anymore?`\
@@ -181,14 +185,6 @@ https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewardin
 **E-Day’s 6-Year Journey Inside the Rapidly Changing Xbox Industry**\
 `The pressure is on for the sci-fi game Gears of War: E-Day as an Xbox exclusive, with “blood, sweat, and tears” extending beyond its virtual battlefields.`\
 https://www.nytimes.com/2026/10/05/arts/gears-of-war-e-day-coalition-xbox.html
-
-**With Trump Flailing, Some Conservatives Are Having Second Thoughts About Trumpism**\
-`What is the future of the conservative movement?`\
-https://www.nytimes.com/2026/10/05/opinion/trump-conservatism-maga.html
-
-**Can Health Trackers Help You Manage Menopause Symptoms?**\
-`Apple, Oura and Whoop have all recently added features for midlife women. Here’s what the tools can — and can’t — measure.`\
-https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ring-whoop-apple.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
