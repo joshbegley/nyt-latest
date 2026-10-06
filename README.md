@@ -1,3 +1,11 @@
+**Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
+`The plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
+https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
+
+**Animal Taste Testers Help Pet Food Makers Capture A Growing Market**\
+`As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
+https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
+
 **How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
 `More important: How does she get rid of them?`\
 https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/live/2026/10/06/us/midterms-elections
 **Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
 `A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
 https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
-
-**Kenya Records Ebola Case for First Time**\
-`The authorities said that the virus had been diagnosed in a man arriving from the Democratic Republic of Congo and that they were taking measures to prevent any spread.`\
-https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html
-
-**In This Painter’s Seductive World, the Past and Present Meet**\
-`In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
-https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html
 

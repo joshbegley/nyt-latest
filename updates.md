@@ -1,3 +1,15 @@
+**How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
+`More important: How does she get rid of them?`\
+https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
+
+**What, Exactly, Did Trump Say About Iran Taking Out Los Angeles and San Diego?**\
+`President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
+
+**Trump to Announce Investment in Maryland Submarine Facility**\
+`The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines-anduril-baltimore.html
+
 **What, Exactly, Did Trump Say About Iran Taking Out Los Angeles?**\
 `President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
