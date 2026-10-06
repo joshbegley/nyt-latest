@@ -1,3 +1,7 @@
+**Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/06/us/midterms-elections
+
 **How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
 `In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
 https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
