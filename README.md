@@ -1,3 +1,7 @@
+**Resolved Sexual Assault Cases Drop Under Trump Administration**\
+`In the wake of sexual assault allegations at Cornell, Michael C. Bender, a Washington correspondent for The New York Times, explains how the Department of Education’s Office for Civil Rights in the Trump administration has seen an apparent drop in the number of Title IX cases it has resolved.`\
+https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-cases-drop-under-trump-administration.html
+
 **A New Open-Weight Challenger to Anthropic, Reflection, Emerges**\
 `Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
 https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/arts/gears-of-war-e-day-review.html
 **How Alaska’s Fish Became a Defining Issue for the Midterms**\
 `In the battle for an Alaska Senate seat and the governor’s mansion, the oil-dependent state’s declining fisheries loom large, but no one wants to look at the biggest culprit, climate change.`\
 https://www.nytimes.com/2026/10/06/us/politics/alaska-fish-midterms.html
-
-**Melting Swiss Glaciers Release Archaeological Treasures**\
-`Archaeologists are scouring mountain passes as artifacts from a bygone world all but tumble out of Switzerland’s shrinking ice.`\
-https://www.nytimes.com/2026/10/06/climate/glacier-archaeology-melting-alps.html
 
