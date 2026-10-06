@@ -1,3 +1,7 @@
+**Couple Charged With Conspiring to Abuse Numerous Surrogate Children**\
+`A Southern California couple were arrested and charged with conspiring to abuse 15 children, nearly all of whom were born to surrogate mothers, prosecutors said.`\
+https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
+
 **F.B.I. Charges American in Plot Behind Canada’s Tumbler Ridge School Shooting**\
 `The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
 https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hur
 https://www.nytimes.com/2026/10/06/us/politics/justice-department-civil-rights-division.html
 
 **Christa Pike Regains Consciousness After Failed Execution in Tennessee**\
-`The death row inmate in Tennessee received two doses of a lethal injection drug last week, but lived. She was taken from the execution chamber in an ambulance.`\
+`The death row inmate in Tennessee received two doses of a lethal injection drug last week but lived. She was taken from the execution chamber in an ambulance.`\
 https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html
 
 **What We Saw at the French Protests**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
 **People of All Ages Join French Student Protests, as Movement Broadens**\
 `Union members, parents, teachers and others took part in mass demonstrations around the country, backing student demands that the government invest more in schools.`\
 https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-college.html
-
-**Quiz: Can You Name 16 Iconic Figures From History?**\
-`These notable people were covered in The Times over the past 175 years. Guess who they are.`\
-https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
 
