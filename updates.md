@@ -1,3 +1,7 @@
+**Live Updates: Protests Spread Across France as Unions Join Student Demonstrations**\
+`The rallies are a test of the strength of the student-led protest movement that has closed hundreds of French high schools since late September.`\
+https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
+
 **Are 60-Second Microdramas the Future of Hollywood, or the End?**\
 `Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
 https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
