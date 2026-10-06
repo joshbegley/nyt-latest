@@ -1,3 +1,11 @@
+**Hans Werner Henze’s Music Carried on Tradition With Skepticism**\
+`Hans Werner Henze, born 100 years ago and the son of a Nazi, captured the ambivalence of making art in the shadow of the 20th century.`\
+https://www.nytimes.com/2026/10/06/arts/music/hans-werner-henze-composer.html
+
+**Melting Ice Reveals Artifacts in the Swiss Alps**\
+`Switzerland has lost almost 20 percent of its ice within just five years. One surprising consequence of this melting is that ancient artifacts once frozen in the glaciers are now revealing themselves. Our climate reporter Raymond Zhong takes us on a search for ancient objects.`\
+https://www.nytimes.com/video/climate/100000011052401/melting-ice-reveals-artifacts-in-the-swiss-alps.html
+
 **France’s School Protests Go Nationwide**\
 `High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
 https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/05/briefing/supreme-court-climate-middle-east-oi
 **Hispanic Voters Overwhelmingly Disapprove of Trump, New Poll Shows**\
 `Latino voters, who shifted Republican in the 2024 presidential election, view the party more negatively than they have in the past decade, according to an NBC News/Telemundo poll released on Monday.`\
 https://www.nytimes.com/2026/10/05/us/hispanic-voters-trump-poll-approval.html
-
-**How Ketamine Emerged as a Key Factor in an Alleged Cornell Sex Assault**\
-`The powerful anesthetic has gained popularity as a party drug, including among a certain social set on the university’s campus.`\
-https://www.nytimes.com/2026/10/05/nyregion/cornell-university-jane-doe-ketamine.html
-
-**Logma, London’s Hit Iranian-Iraqi Cafe, Throws a Celebration**\
-`A little more than half a year after opening Logma, the chef-owners invited their closest friends and collaborators for a celebratory dinner.`\
-https://www.nytimes.com/2026/10/05/t-magazine/logma-hackney-london-party-cafe.html
 
