@@ -1,3 +1,19 @@
+**How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
+`In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
+https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
+
+**What Our Critic’s Been Listening to Lately (and More Phone Songs)**\
+`Dial up songs from Greg Freeman, the Womack Sisters and Jim Croce.`\
+https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-jim-croce.html
+
+**An Influential Voice in the Climate Debate Has Died at 66**\
+`Joe Romm was a prolific writer who never hesitated to take on climate change deniers and the fossil-fuel industry — or even ostensible allies.`\
+https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
+
+**Trump-Appointed Judge Accuses ICE of Lying and Fabricating Records**\
+`Two men were mistakenly arrested in the Bronx by Immigration and Customs Enforcement agents. Gary R. Brown, a federal judge, condemned the agency’s actions.`\
+https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified-records.html
+
 **Steak Houses on Parade**\
 `Bar á Part serves wine in the West Village next to Zimmi’s, and joins openings like Booth’s Extra Fine and STK Steak.`\
 https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
@@ -173,24 +189,4 @@ https://www.nytimes.com/2026/10/06/crosswords/connections-companion-1214.html
 **NYT Strands Hints for October 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
 https://www.nytimes.com/2026/10/06/crosswords/strands-sidekick-948.html
-
-**Today’s Wordle Hints for October 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
-https://www.nytimes.com/2026/10/06/crosswords/wordle-review-1936.html
-
-**Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
-`The Nobel Committee honored Francis Halzen for his “vision and scientific leadership” of a telescope within the ice at the South Pole.`\
-https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
-
-**German Officials Arrest Former Spy Chief on Espionage Charges**\
-`August Hanning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
-https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-hanning-arrested-espionage.html
-
-**Artists’ Studios Where Creativity Is on Display**\
-`The studio of the Pop master Tom Wesselmann opened briefly for a peek. Other exhibitions continue at the studios of Donald Judd and Sean Scully.`\
-https://www.nytimes.com/2026/10/06/arts/design/artists-studios-wesselmann-matsuyama.html
-
-**The Ex-Pro Wrestler Fighting the N.F.L.’s C.T.E. ‘Cover-Up’**\
-`What does the latest research tell us about the future of football?`\
-https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-up.html
 
