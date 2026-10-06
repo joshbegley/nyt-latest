@@ -1,3 +1,7 @@
+**Live Updates: Collins and Jackson to Meet for Maine Senate Debate**\
+`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and longtime state lawmaker.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
 **Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
 `James Blair and Chris LaCivita, who are leading the president’s congressional campaign operation, traveled to Republika Srpska to provide election advice.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-advisers-republika-srpska.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **A Spy’s Guide to Fighting A.I. Propaganda**\
-`In the age of AI disinformation, we all need to use the tools of counterespionage to find the truth.`\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.
 `At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors are vivid, but proceed up the spice levels with caution.`\
 https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
 
-**Two Arab Fighters for Democracy Have Lessons for America**\
+**Two Democracy Heroes on America**\
 `Sitting on your hands is not an option when democracy is at stake.`\
 https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.html
 
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-c
 **Restaurant Review: Burmese Bites in New York**\
 `Burmese Bites has traveled a three-decade road, from street fairs to a market stall to this Astoria spot where the fine-tuned cooking enthralls.`\
 https://www.nytimes.com/2026/10/06/dining/restaurant-review-burmese-bites-nyc.html
-
-**Student Protests in France**\
-`We also look at a demonstration on Cornell’s campus.`\
-https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
-
-**Trump to Announce Investment in Maryland Submarine Facility**\
-`The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines-anduril-baltimore.html
 

@@ -1,3 +1,15 @@
+**Live Updates: Collins and Jackson to Meet for Maine Senate Debate**\
+`Senator Susan Collins, one of the most vulnerable Republicans heading into the midterms, is being challenged by Troy Jackson, a logger and longtime state lawmaker.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
+**A Spy’s Guide to Fighting A.I. Propaganda**\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Two Democracy Heroes on America**\
+`Sitting on your hands is not an option when democracy is at stake.`\
+https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.html
+
 **Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
 `James Blair and Chris LaCivita, who are leading the president’s congressional campaign operation, traveled to Republika Srpska to provide election advice.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-advisers-republika-srpska.html
