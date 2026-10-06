@@ -1,3 +1,7 @@
+**Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
+`In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
+https://www.nytimes.com/2026/10/05/business/trump-to-allow-cheaper-dyed-diesel-to-be-used-in-nonfarm-vehicles.html
+
 **Why A.I. Food Slop Looks So Gross**\
 `Is anything even real anymore?`\
 https://www.nytimes.com/interactive/2026/10/06/technology/ai-slop-food-images-restaurant-menus.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/well/live/menopause-symptoms-trackers-oura-ri
 **Kash Patel Is Engaged to Country Singer Alexis Wilkins**\
 `The director of the F.B.I. and his girlfriend announced their engagement on social media over the weekend.`\
 https://www.nytimes.com/2026/10/05/us/politics/kash-patel-engaged-alexis-wilkins.html
-
-**Russia Moves to Tamp Down Rumors About Plague Outbreak in Siberia**\
-`The country’s consumer watchdog has said only that “an employee of an anti-plague institute in the Irkutsk Region” contracted pneumonia.`\
-https://www.nytimes.com/2026/10/05/world/europe/russia-plague-siberia.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
