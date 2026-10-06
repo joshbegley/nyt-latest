@@ -23,7 +23,7 @@ https://www.nytimes.com/interactive/2026/10/05/upshot/data-center-scale.html
 https://www.nytimes.com/2026/10/05/nyregion/ai-city-council-hearing.html
 
 **Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
-`In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
+`In Nebraska, President Trump signed an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
 https://www.nytimes.com/2026/10/05/business/trump-dyed-diesel-fuel-executive-order.html
 
 **Why A.I. Food Slop Looks So Gross**\
