@@ -1,3 +1,7 @@
+**A Reckoning at Cornell, and Beyond**\
+`Readers respond to The Times’s coverage of the Cornell rape investigation and the history of sexual assault on campuses.`\
+https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.html
+
 **How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
 `Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
 https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html

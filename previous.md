@@ -1,3 +1,7 @@
+**A Reckoning at Cornell, and Beyond**\
+`Readers respond to The Times’s coverage of the Cornell rape investigation and the history of sexual assault on campuses.`\
+https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.html
+
 **How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
 `Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
 https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-elec
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
 https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
-
-**Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
-`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
-https://www.nytimes.com/2026/10/06/us/execution-methods.html
 
