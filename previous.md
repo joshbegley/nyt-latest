@@ -1,3 +1,7 @@
+**Pastor Who Appeared on ‘American Idol’ Gets Life Sentence for Wife’s Murder**\
+`Caleb Flynn maintained his innocence at his sentencing hearing in Ohio on Monday.`\
+https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
+
 **Judge Sides With Justice Dept. in Dispute Over Subpoena to Times Freelancer**\
 `The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
 https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
 **Do You Know the Books That Inspired These Films?**\
 `These picture books and novels have been adapted into popular movies released in the last few decades. Try this quiz and see how many you remember.`\
 https://www.nytimes.com/quiz/2026/10/05/bookreview/recent-childrens-adaptations.html
-
-**‘Such a Super Easy Meal and So Rewarding’**\
-`Ali Slagle’s salmon ssam may not be traditional, but it is delicious (according to many happy reader comments).`\
-https://www.nytimes.com/2026/10/05/dining/such-a-super-easy-meal-and-so-rewarding.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

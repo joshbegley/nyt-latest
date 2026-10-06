@@ -1,4 +1,8 @@
-**Pastor Who Appeared on ‘American Idol’ Gets Life Sentence for Wife’s Murder**\
+**White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
+`The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
+https://www.nytimes.com/2026/10/05/us/white-house-blocked-politico-from-air-force-one-for-trumps-trip-to-nebraska.html
+
+**Caleb Flynn, Who Appeared on ‘American Idol,’ Gets Life Sentence for Wife’s Murder**\
 `Caleb Flynn maintained his innocence at his sentencing hearing in Ohio on Monday.`\
 https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/05/briefing/punishments-at-cornell.html
 **Texas Pediatricians Face Paxton Investigations for Vaccinating Children**\
 `Ken Paxton, the Texas attorney general and Republican Senate candidate, has alleged a sprawling profit-driven conspiracy. Pediatricians say the accusations are an attempt at intimidation.`\
 https://www.nytimes.com/2026/10/05/health/ken-paxton-pediatricians-vaccines.html
-
-**Do You Know the Books That Inspired These Films?**\
-`These picture books and novels have been adapted into popular movies released in the last few decades. Try this quiz and see how many you remember.`\
-https://www.nytimes.com/quiz/2026/10/05/bookreview/recent-childrens-adaptations.html
 
 **Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
 `The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\

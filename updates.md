@@ -1,3 +1,7 @@
+**Pastor Who Appeared on ‘American Idol’ Gets Life Sentence for Wife’s Murder**\
+`Caleb Flynn maintained his innocence at his sentencing hearing in Ohio on Monday.`\
+https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
+
 **Judge Sides With Justice Dept. in Dispute Over Subpoena to Times Freelancer**\
 `The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
 https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
