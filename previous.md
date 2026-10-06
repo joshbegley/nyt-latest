@@ -1,3 +1,7 @@
+**Late Night Roasts Vivek Ramaswamy for His Loose Grip**\
+`“It’s fun to have a video of the exact moment you lost your campaign,” Jimmy Fallon said after Ramaswamy struggled to lift a child during a campaign rally in Ohio over the weekend.`\
+https://www.nytimes.com/2026/10/06/arts/television/late-night-jimmy-fallon-vivek-ramaswamy.html
+
 **Jeffrey Archer on His Favorite Books and His Final Novel**\
 `“London Falling” and “Dissection of a Murder” were among his recent favorite books. “War and Peace” and “A Clockwork Orange” went unfinished.`\
 https://www.nytimes.com/2026/10/06/books/review/jeffrey-archer-by-the-book.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011194795/midnight-pasta-with-roasted
 **Miso-Butter Roasted Broccoli**\
 `Flavorful and easy, this simple roasted broccoli dish makes a great accompaniment to roasted salmon or chicken, and adds depth to grain bowls or quickly cooked leftovers.`\
 https://www.nytimes.com/video/dining/100000011194783/miso-butter-roasted-broccoli.html
-
-**Halloumi and Sweet Potato Tacos**\
-`The idiosyncratic taco recipe is a perfect weeknight staple to pair with a simple coleslaw and store-bought salsa verde.`\
-https://www.nytimes.com/video/dining/100000011194767/halloumi-and-sweet-potato-tacos.html
 
