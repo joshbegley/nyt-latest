@@ -1,3 +1,7 @@
+**Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
+`A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
+https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
+
 **Kenya Records Ebola Case for First Time**\
 `The authorities said that the virus had been diagnosed in a man arriving from the Democratic Republic of Congo and that they were taking measures to prevent any spread.`\
 https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flyduba
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
 https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 
-**After a Failed Execution, Scrutiny of the 5 Methods Used to Kill**\
-`Tennessee’s unsuccessful attempt to end the life of Christa Pike with a lethal injection is spurring debate over capital punishment techniques, and whether the death penalty should exist at all.`\
+**Why These 5 Methods Used in Executions Have Stirred Debate**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
 https://www.nytimes.com/2026/10/06/us/execution-methods.html
 
 **Corrections: Oct. 6, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/climate/glacier-archaeology-melting-alps.html
 **The Ballet Star David Hallberg Returns to New York as the Man in Charge**\
 `Hallberg, the former Ballet Theater star, is now the artistic director of the Australian Ballet, which is bringing “Oscar,” about Oscar Wilde, to City Center.`\
 https://www.nytimes.com/2026/10/06/arts/dance/david-hallberg-australian-ballet-oscar-wilde.html
-
-**Donna Summer, Queen of Disco, Shows Her Range**\
-`Hits like “Love to Love You Baby” and “I Feel Love” made her a face of disco, but a new compilation shows Summer’s detours into rock, synth-pop, country and other sounds.`\
-https://www.nytimes.com/2026/10/06/arts/music/donna-summer-casablanca-records-compilation.html
 
