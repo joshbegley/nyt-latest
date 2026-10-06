@@ -1,3 +1,7 @@
+**Live Updates: Protests Spread Across France as Unions Join Student Demonstrations**\
+`The rallies are a test of the strength of the student-led protest movement that has closed hundreds of French high schools since late September.`\
+https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
+
 **Are 60-Second Microdramas the Future of Hollywood, or the End?**\
 `Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
 https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/learning/word-of-the-day-acquiescence.html
 **Presley Gerber Documented His Own Struggles, in His Own Words for Years**\
 `The son of Cindy Crawford, who died last month, left behind a trove of first-person testimonials about years of drug use, trying to stay clean and his mental health.`\
 https://www.nytimes.com/2026/10/06/style/for-years-presley-gerber-documented-his-own-struggles-in-his-own-words.html
-
-**Book Review: ‘Brink,’ by Brett McGurk**\
-`In “Brink,” the U.S. diplomat Brett McGurk gives a diaristic account of his work with the Biden and Trump administrations in the wake of the Hamas attack.`\
-https://www.nytimes.com/2026/10/06/books/review/brink-brett-mcgurk.html
 
