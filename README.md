@@ -1,3 +1,7 @@
+**German Officials Arrest Former Spy Chief on Espionage Charges**\
+`August Henning is accused of helping foreign governments. His arrest shook the German political world and had roots in a steakhouse-heiress kidnapping plot.`\
+https://www.nytimes.com/2026/10/06/world/europe/germany-spy-chief-henning-arrested-espionage.html
+
 **Artists’ Studios Where Creativity Is on Display**\
 `The studio of the Pop master Tom Wesselmann opened briefly for a peek. Other exhibitions continue at the studios of Donald Judd and Sean Scully.`\
 https://www.nytimes.com/2026/10/06/arts/design/artists-studios-wesselmann-matsuyama.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011195547/france-student-protes
 **Lawmakers Set to Elect Germany’s 1st Far-Right Statehouse Speaker Since 1945**\
 `After winning a state election last month, the AfD is now on the cusp of being the first far-right party to oversee a state Parliament since the Nazi era.`\
 https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
-
-**Review: At Chanel, Matthieu Blazy Creates Something New**\
-`Innovation has been in short supply this season. Matthieu Blazy changed that.`\
-https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html
 
