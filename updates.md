@@ -1,3 +1,11 @@
+**Understanding France’s Polycrisis**\
+`An autumn of discontent has gripped the country ahead of its presidential election.`\
+https://www.nytimes.com/2026/10/06/world/france-student-protests-kenya-robots.html
+
+**S&P 500 Hits Record High Amid Rising Interest Rates and Elevated Oil Prices**\
+`The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
+https://www.nytimes.com/2026/10/06/business/stock-market-record.html
+
 **S&P 500 Hits Record High Amid Rising Interest Rates and Oil Prices**\
 `The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
 https://www.nytimes.com/2026/10/06/business/stock-market-record.html
