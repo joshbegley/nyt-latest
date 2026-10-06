@@ -1,3 +1,15 @@
+**Energy Firms Try to Squeeze More Power Out of Old Nuclear Plants**\
+`It takes a long time to build new nuclear plants. So, some U.S. companies are looking to get more electricity out of reactors that already exist.`\
+https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
+
+**Trump Does Not Plan to Reimburse Taxpayers for Promotional Ads**\
+`A day after the president said his super PAC, would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
+
+**How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
+`What better place than the Little Free Libraries of Minneapolis?`\
+https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
+
 **Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
 `As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
