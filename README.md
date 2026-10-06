@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-co
 `These notable people were covered in The Times over the past 175 years. Guess who they are.`\
 https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
 
-**Spain Cancels Arrest Warrant for Carles Puigdemont, Catalan Separatist Leader**\
-`The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
-https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
-

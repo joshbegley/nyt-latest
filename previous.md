@@ -182,7 +182,3 @@ https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
 `The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
 https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
 
-**Sally Yates to Lead Internal Investigation Into Cornell’s Handling of Sexual Assault Report**\
-`The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
-https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
-
