@@ -1,3 +1,11 @@
+**S&P 500 Hits Record High Amid Rising Interest Rates and Oil Prices**\
+`The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
+https://www.nytimes.com/2026/10/06/business/stock-market-record.html
+
+**Supreme Court Hears Boulder Climate Case**\
+`Monday’s arguments were highly technical. A decision about whether the case could move forward isn’t expected until June or July.`\
+https://www.nytimes.com/2026/10/06/climate/boulder-supreme-court-climate.html
+
 **Bolsonaro Family Emerges Triumphant in Brazil’s Elections, Mounting a Surprising Resurrection**\
 `The Bolsonaro family emerged triumphant in Brazil’s elections, mounting a surprising political resurrection in Latin America’s largest nation.`\
 https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bolsonaro.html
@@ -19,11 +27,11 @@ https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.h
 https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
 
 **Trump Does Not Plan to Reimburse Taxpayers for Promotional Ads**\
-`A day after the president said his super PAC, would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
+`A day after the president said his super PAC would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
 
 **Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
-`The plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
+`A plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
 https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
 
 **Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/06/us/politics/senate-majority-pac-democrats.htm
 **Student Protests Spread Across France**\
 `Protesters and the police clashed in France as thousands of people joined the student-led demonstrations against school conditions.`\
 https://www.nytimes.com/video/world/europe/100000011195907/france-protests-school-students.html
-
-**Cornell Students Protest University’s Handling of Sexual Assault Case**\
-`Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
-https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
-
-**This L.A. Power Broker Is Suing Over His Uninhabitable $20 Million Mansion**\
-`Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
-https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\

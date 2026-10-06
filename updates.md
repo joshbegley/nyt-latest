@@ -1,3 +1,19 @@
+**S&P 500 Hits Record High Amid Rising Interest Rates and Oil Prices**\
+`The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
+https://www.nytimes.com/2026/10/06/business/stock-market-record.html
+
+**Supreme Court Hears Boulder Climate Case**\
+`Monday’s arguments were highly technical. A decision about whether the case could move forward isn’t expected until June or July.`\
+https://www.nytimes.com/2026/10/06/climate/boulder-supreme-court-climate.html
+
+**Trump Does Not Plan to Reimburse Taxpayers for Promotional Ads**\
+`A day after the president said his super PAC would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
+
+**Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
+`A plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
+https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
+
 **Bolsonaro Family Emerges Triumphant in Brazil’s Elections, Mounting a Surprising Resurrection**\
 `The Bolsonaro family emerged triumphant in Brazil’s elections, mounting a surprising political resurrection in Latin America’s largest nation.`\
 https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bolsonaro.html
