@@ -1,3 +1,11 @@
+**Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
+`The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
+https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
+
+**Restaurant Review: Burmese Bites in New York**\
+`Burmese Bites has traveled a three-decade road, from street fairs to a market stall to this Astoria spot where the fine-tuned cooking enthralls.`\
+https://www.nytimes.com/2026/10/06/dining/restaurant-review-burmese-bites-nyc.html
+
 **Emmy Awards Move to Prime Video in Six-Year Deal With Amazon**\
 `The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
 https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html

@@ -1,3 +1,11 @@
+**Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
+`The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
+https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
+
+**Restaurant Review: Burmese Bites in New York**\
+`Burmese Bites has traveled a three-decade road, from street fairs to a market stall to this Astoria spot where the fine-tuned cooking enthralls.`\
+https://www.nytimes.com/2026/10/06/dining/restaurant-review-burmese-bites-nyc.html
+
 **Student Protests in France**\
 `We also look at a demonstration on Cornell’s campus.`\
 https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/06/opinion/meta-ecommerce-ad-prices.html
 **Trump’s Try, Try Again Supreme Court Strategy**\
 `Supreme Court decisions that were small comfort in 2026 will turn out to be no comfort at all in 2028.`\
 https://www.nytimes.com/2026/10/06/opinion/trump-supreme-court-decisions.html
-
-**Beef, Comedy, Sports and a Big Bad Bet. George Gillett Jr., Tycoon, Dies.**\
-`Over six decades, he owned TV stations, a meatpacking plant, the Globetrotters, the Montreal Canadiens and the Liverpool soccer club. It didn’t all end well.`\
-https://www.nytimes.com/2026/10/06/obituaries/george-gillett-jr-dead.html
-
-**How A.I. Can Boost Democracy**\
-`A.I. doesn’t have to be a disruptive force, least of all when it comes to government services.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
 

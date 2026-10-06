@@ -1,3 +1,7 @@
+**Spain Clears Way for Separatist Leader to Return to Catalonia**\
+`The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
+https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
+
 **Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
 `The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
-`What it will take for Israel to overcome the ghosts of Oct. 7.`\
-https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
-
 **An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
+
+**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
+`What it will take for Israel to overcome the ghosts of Oct. 7.`\
+https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
 
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.h
 **Meta Is Crushing Small Online Retailers**\
 `Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
 https://www.nytimes.com/2026/10/06/opinion/meta-ecommerce-ad-prices.html
-
-**Trump’s Try, Try Again Supreme Court Strategy**\
-`Supreme Court decisions that were small comfort in 2026 will turn out to be no comfort at all in 2028.`\
-https://www.nytimes.com/2026/10/06/opinion/trump-supreme-court-decisions.html
 
