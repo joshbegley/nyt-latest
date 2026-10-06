@@ -1,3 +1,7 @@
+**Student Protests in France**\
+`We also look at a demonstration on Cornell’s campus.`\
+https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
+
 **Trump to Announce Investment in Maryland Submarine Facility**\
 `The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines.html
@@ -166,13 +170,13 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
 `Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
 https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 
-**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
-`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
-https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
-
 **Battle Between Disney and the F.C.C. Moves to the Courts**\
 `On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
 https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
+
+**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
+`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
+https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
 
 **Meta Is Crushing Small Online Retailers**\
 `Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
 **What to Know About ‘Carrie’ Before Watching the New TV Adaptation**\
 `The novel, written over 50 years ago, has had several adaptations, not all of them good. A new series from Mike Flanagan has Stephen King’s imprimatur.`\
 https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mike-flanagan.html
-
-**What Are You Thinking and Feeling About the Midterm Elections?**\
-`What gives you hope about politics right now? What troubles you? What do you think shaped your political beliefs and values?`\
-https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-about-the-midterm-elections.html
 
