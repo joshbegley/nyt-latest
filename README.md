@@ -1,3 +1,7 @@
+**Your Finicky Cat**\
+`We look at the pet food market.`\
+https://www.nytimes.com/2026/10/06/briefing/pet-food.html
+
 **Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
 `Plus, the ancient treasures revealed by melting glaciers.`\
 https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/well/health-fibroids-treatments.html
 **Teeing Off in the Birthplace of Golf, in St. Andrews, Scotland**\
 `In St. Andrews, Scotland, history and golf intertwine, on and off the famous courses.`\
 https://www.nytimes.com/2026/10/06/travel/golf-st-andrews-scotland-courses.html
-
-**These Taste Testers Have Four Legs and Picky Palates**\
-`Global pet food makers chasing a growing market are pouring big money into studying the taste buds of dogs and cats.`\
-https://www.nytimes.com/2026/10/06/business/cat-food-pets-royal-canin.html
 
