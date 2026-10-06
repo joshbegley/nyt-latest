@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/10/05/realestate/sisters-renting-williamsbug-brookl
 `Daniel Fish’s staging of a C-SPAN segment reveals the complex yet tender relationship between the fiery Larry Kramer and the diplomatic Anthony Fauci.`\
 https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
 
-**U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
-`All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
-https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
-
