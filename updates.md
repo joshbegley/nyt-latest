@@ -1,3 +1,7 @@
+**Kenya Announces Its First Ebola Case**\
+`Kenya announced on Tuesday that it has recorded its first case of Ebola, saying it derived from a man arriving from the Democratic Republic of Congo.`\
+https://www.nytimes.com/video/world/africa/100000011196254/kenya-ebola-case-congo.html
+
 **A Reckoning at Cornell, and Beyond**\
 `Readers respond to The Times’s coverage of the Cornell rape investigation and the history of sexual assault on campuses.`\
 https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.html
