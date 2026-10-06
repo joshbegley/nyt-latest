@@ -1,3 +1,7 @@
+**Cornell Faculty Members Signal Deep Anger With University Leaders**\
+`The faculty senate plans to vote on a rare resolution of no confidence over administrators’ handling of allegations of sexual assault by fraternity members in 2024.`\
+https://www.nytimes.com/2026/10/06/nyregion/cornell-faculty-no-confidence.html
+
 **South Korea Investigates Possible Use of A.I. in Hacks on Its Banks**\
 `The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
 https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/05/climate/climate-lawsuits-courts-boulder-oil.h
 **The Rise of Gig Economy Warfare**\
 `An incident at a British air base may demonstrate a new era of low-intensity conflict.`\
 https://www.nytimes.com/2026/10/05/world/gig-economy-warfare-fairford-brazil.html
-
-**Brazil’s Problem Is Bigger Than Bolsonaro**\
-`Brazil is fertile ground for authoritarian politics, no matter who wins this election.`\
-https://www.nytimes.com/2026/10/05/opinion/brazil-elections-bolsonaro-lula.html
 
