@@ -1,3 +1,11 @@
+**Man Arrested in Connection With Incident at UK Air Base RAF Fairford**\
+`A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
+https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html
+
+**Maps: Tracking Tropical Storm Koguma**\
+`See the likely path and wind arrival times for Koguma`\
+https://www.nytimes.com/interactive/2026/10/06/weather/koguma-map-path-tracker.html
+
 **Paramount Closes Its Deal for Warner Bros. Discovery**\
 `After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
