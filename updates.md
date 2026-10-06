@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Widens in August**\
+`New data from the Commerce Department showed that imports grew in the month, despite the Trump administration’s efforts to limit foreign products.`\
+https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
+
 **A Highly Coveted Catch in the Florida Keys Isn’t a Fish. It’s Cocaine.**\
 `Bricks of the drug frequently surface in the waters off the island chain. Despite the risks, some who discover “square grouper,” as they’re known, hang onto them.`\
 https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html

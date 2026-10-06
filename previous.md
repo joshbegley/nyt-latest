@@ -1,3 +1,7 @@
+**U.S. Trade Deficit Widens in August**\
+`New data from the Commerce Department showed that imports grew in the month, despite the Trump administration’s efforts to limit foreign products.`\
+https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
+
 **Resolved Sexual Assault Cases Drop Under Trump Administration**\
 `In the wake of sexual assault allegations at Cornell, Michael C. Bender, a Washington correspondent for The New York Times, explains how the Department of Education’s Office for Civil Rights in the Trump administration has seen an apparent drop in the number of Title IX cases it has resolved.`\
 https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-cases-drop-under-trump-administration.html
@@ -70,13 +74,13 @@ https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flyduba
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
-**Wirecutter’s Hall of Fame**\
-`We look at the products that have earned our recommendation year after year, and why they stand out.`\
-https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
-
 **Why These 5 Methods Used in Executions Have Stirred Debate**\
 `Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
 https://www.nytimes.com/2026/10/06/us/execution-methods.html
+
+**Wirecutter’s Hall of Fame**\
+`We look at the products that have earned our recommendation year after year, and why they stand out.`\
+https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 
 **Corrections: Oct. 6, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/arts/design/should-robert-rauschenbergs-art-s
 **Gears of War: E-Day Is Nostalgic With Rich Visuals**\
 `In Gears of War: E-Day, it’s fun to see the origins of beloved characters in grand scale, even if its play feels conservative.`\
 https://www.nytimes.com/2026/10/06/arts/gears-of-war-e-day-review.html
-
-**How Alaska’s Fish Became a Defining Issue for the Midterms**\
-`In the battle for an Alaska Senate seat and the governor’s mansion, the oil-dependent state’s declining fisheries loom large, but no one wants to look at the biggest culprit, climate change.`\
-https://www.nytimes.com/2026/10/06/us/politics/alaska-fish-midterms.html
 
