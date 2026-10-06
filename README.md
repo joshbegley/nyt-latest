@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**A Pensioner’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
-`The eviction of an 87-year-old woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
+**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
 **What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
