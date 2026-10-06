@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flyduba
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
-**Why These 5 Methods Used in Executions Have Stirred Debate**\
-`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
-https://www.nytimes.com/2026/10/06/us/execution-methods.html
-
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
 https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
+
+**Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
+https://www.nytimes.com/2026/10/06/us/execution-methods.html
 
 **Corrections: Oct. 6, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
