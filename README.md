@@ -1,3 +1,7 @@
+**How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
+`Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
+https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
+
 **How a Painstaking Scholar Reinterpreted African History**\
 `In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
 https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 **Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
 `Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
 https://www.nytimes.com/2026/10/06/us/execution-methods.html
-
-**Corrections: Oct. 6, 2026**\
-`Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
-https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 

@@ -1,3 +1,7 @@
+**How a Painstaking Scholar Reinterpreted African History**\
+`In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
+https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
+
 **Wrongly Indicted Man Seeks Inquiry of Official Conduct in Reflecting Pool Case**\
 `Lawyers for the former Olympian David Hearn accused prosecutors of ignoring their own evidence to indict him and then providing “blatantly false” information about what they knew when.`\
 https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.html
