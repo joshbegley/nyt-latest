@@ -1,3 +1,19 @@
+**Live Updates: Australian Lawmakers to Question OpenAI Officials on Breaches**\
+`The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
+https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
+
+**What the Data Center Boom Looks Like From the Sky**\
+`In the race for A.I. computing power, hundreds of new projects are coming online across the country — and they’re getting bigger.`\
+https://www.nytimes.com/interactive/2026/10/05/upshot/data-center-scale.html
+
+**A.I. Officials Stonewall on Questions About Technology’s Risks**\
+`A New York City Council hearing on artificial intelligence yielded few answers or assurances about how the industry would provide safeguards against catastrophic scenarios.`\
+https://www.nytimes.com/2026/10/05/nyregion/ai-city-council-hearing.html
+
+**Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
+`In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
+https://www.nytimes.com/2026/10/05/business/trump-dyed-diesel-fuel-executive-order.html
+
 **Trump Allows Cheaper, Dyed Diesel to Be Used in Nonfarm Vehicles**\
 `In Nebraska, President Trump announced an executive order to waive an off-road requirement for the fuel, which is exempt from the federal highway tax.`\
 https://www.nytimes.com/2026/10/05/business/trump-to-allow-cheaper-dyed-diesel-to-be-used-in-nonfarm-vehicles.html
