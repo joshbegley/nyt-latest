@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-r
 `The faculty senate plans to vote on a rare resolution of no confidence over administrators’ handling of allegations of sexual assault by fraternity members in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/cornell-faculty-no-confidence.html
 
-**South Korea Investigates Possible Use of A.I. in Hacks on Its Banks**\
+**South Korea Investigates Possible Use of A.I. in Hackings on Its Banks**\
 `The president said there were signs that such models were used in recent attacks on several banks involving customer data. Police are investigating.`\
 https://www.nytimes.com/2026/10/06/world/asia/south-korea-banks-hacked-ai.html
 
@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/10/05/us/caleb-flynn-murder-sentence-life.html
 `The magistrate judge’s conclusion is only a recommendation, and a Federal District Court judge is scheduled to hold a hearing on the issue next month.`\
 https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelance-reporter.html
 
-**OpenAI Says It Changed Systems After Australia Hack**\
+**OpenAI Says It Changed Systems After Australia Hacking**\
 `A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
 https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
 
