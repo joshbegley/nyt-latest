@@ -1,3 +1,7 @@
+**The Ex-Pro Wrestler Fighting the N.F.L.’s C.T.E. ‘Cover-Up’**\
+`What does the latest research tell us about the future of football?`\
+https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-up.html
+
 **The Gender Gap Has Taken a Strange Twist**\
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html
 **Fury in California After Trump Suggests Iran Could ‘Take Out’ L.A. or San Diego**\
 `Gov. Gavin Newsom called the president “dangerous and deranged” after his remarks at a political rally, where Mr. Trump said the Iran war was necessary to “keep the world safe.”`\
 https://www.nytimes.com/2026/10/06/world/asia/trump-los-angeles-san-diego-iran.html
-
-**Mamdani Backs Bill to Let Consumers Sue Over Unfair Business Practices**\
-`The proposed New York City legislation would also allow nonprofits, including tenants’ unions, to sue companies directly rather than relying on agency enforcement.`\
-https://www.nytimes.com/2026/10/06/nyregion/mamdani-power-act-bill-nyc.html
 
