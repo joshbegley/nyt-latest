@@ -1,3 +1,7 @@
+**Jeffrey Archer on His Favorite Books and His Final Novel**\
+`“London Falling” and “Dissection of a Murder” were among his recent favorite books. “War and Peace” and “A Clockwork Orange” went unfinished.`\
+https://www.nytimes.com/2026/10/06/books/review/jeffrey-archer-by-the-book.html
+
 **India Cut 130 Million From Voter Roll, Fueling Protests Against Modi**\
 `Public anger is growing over an exercise that critics say undermines the world’s largest democracy, particularly disenfranchising Muslims under the Hindu nationalist government.`\
 https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-roll-fueling-protests-against-modi.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/10/05/us/politics/magistrate-judge-subpoena-freelan
 `A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
 https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
 
-**Live Updates: Australian Lawmakers Question OpenAI Officials on Breaches**\
+**Australian Lawmakers Question OpenAI Officials on Breaches**\
 `The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
 https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011194783/miso-butter-roasted-broccol
 **Halloumi and Sweet Potato Tacos**\
 `The idiosyncratic taco recipe is a perfect weeknight staple to pair with a simple coleslaw and store-bought salsa verde.`\
 https://www.nytimes.com/video/dining/100000011194767/halloumi-and-sweet-potato-tacos.html
-
-**Why Cities and States Are Fighting Climate Change in Courtrooms**\
-`Faced with a president who has called global warming a hoax, officials have filed dozens of suits against oil companies to try to cover the costs of extreme weather.`\
-https://www.nytimes.com/2026/10/05/climate/climate-lawsuits-courts-boulder-oil.html
 

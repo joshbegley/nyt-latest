@@ -1,3 +1,7 @@
+**OpenAI Says it Changed Systems After Australia Hack**\
+`A top executive was questioned by lawmakers about the breach of a government health care data portal, as the company has faced public outrage and questions of liability.`\
+https://www.nytimes.com/2026/10/05/world/australia/australia-openai-hearing-breach.html
+
 **India Cut 130 Million From Voter Roll, Fueling Protests Against Modi**\
 `Public anger is growing over an exercise that critics say undermines the world’s largest democracy, particularly disenfranchising Muslims under the Hindu nationalist government.`\
 https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-roll-fueling-protests-against-modi.html
