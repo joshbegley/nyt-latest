@@ -1,3 +1,7 @@
+**India Cut 130 Million From Voter Roll, Fueling Protests Against Modi**\
+`Public anger is growing over an exercise that critics say undermines the world’s largest democracy, particularly disenfranchising Muslims under the Hindu nationalist government.`\
+https://www.nytimes.com/2026/10/06/world/asia/india-cut-130-million-from-voter-roll-fueling-protests-against-modi.html
+
 **Cornell Faculty Members Signal Deep Anger With University Leaders**\
 `The faculty senate plans to vote on a rare resolution of no confidence over administrators’ handling of allegations of sexual assault by fraternity members in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/cornell-faculty-no-confidence.html
