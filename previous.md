@@ -1,3 +1,11 @@
+**A Shirt That Works Double Time**\
+`The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
+https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
+
+**We Let an A.I. Agent Get Lunch for Our Host**\
+`Eli Tan, a technology reporter for The New York Times, gave Meta’s A.I. agent Muse access to his personal information to test its abilities. Then, he let it get lunch for Natalie Kitroeff, a host of “The Daily.” Here’s what happened.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011196559/muse-eli-tan-clip-the-daily.html
+
 **How Trump’s Tariff War With Canada Ensnared the Can-Am Spyder**\
 `The Can-Am Spyder has a devoted fan base across the United States. Now it’s a casualty in the trade war with Canada.`\
 https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
@@ -83,7 +91,7 @@ https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fir
 https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
 
 **Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
-`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
+`After a legal battle, the two Hollywood giants have become one. But the new company is saddled with debt, and in a memo to employees, its leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
 
 **U.S. Trade Deficit Hits 17-Month High Despite Trump’s Tariffs**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.ht
 **U.S. Sends Reaper Drones to Colombia and Ecuador to Hunt Cartels**\
 `MQ-9 Reaper drones — known for high-profile deadly strikes — have been shifted from Africa to Colombia and Ecuador, U.S. officials said.`\
 https://www.nytimes.com/2026/10/06/world/americas/us-reaper-drones-colombia-ecuador-cartels.html
-
-**Cornell Case Highlights Drop in Resolved Sexual Assault Cases Under Trump**\
-`The administration has shifted its enforcement of a civil rights law from allegations of sexual misconduct to issues like blocking protections for transgender students.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
-
-**Are Noise Cameras Too Nosy?**\
-`Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
-https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 

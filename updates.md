@@ -1,3 +1,15 @@
+**A Shirt That Works Double Time**\
+`The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
+https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
+
+**We Let an A.I. Agent Get Lunch for Our Host**\
+`Eli Tan, a technology reporter for The New York Times, gave Meta’s A.I. agent Muse access to his personal information to test its abilities. Then, he let it get lunch for Natalie Kitroeff, a host of “The Daily.” Here’s what happened.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011196559/muse-eli-tan-clip-the-daily.html
+
+**Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
+`After a legal battle, the two Hollywood giants have become one. But the new company is saddled with debt, and in a memo to employees, its leaders hinted at cost cuts.`\
+https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
+
 **How Trump’s Tariff War With Canada Ensnared the Can-Am Spyder**\
 `The Can-Am Spyder has a devoted fan base across the United States. Now it’s a casualty in the trade war with Canada.`\
 https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
