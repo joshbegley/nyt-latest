@@ -1,4 +1,4 @@
-**How Does Someone Acquire 1,200 Copies of ‘Wedding Crashers’?**\
+**How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
 `More important: How does she get rid of them?`\
 https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
 
@@ -104,7 +104,7 @@ https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html
 
 **Trump to Announce Investment in Maryland Submarine Facility**\
 `The deal is designed to demonstrate that President Trump is focused on one of his main campaign pledges: bringing back manufacturing jobs.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines.html
+https://www.nytimes.com/2026/10/06/us/politics/trump-maryland-submarines-anduril-baltimore.html
 
 **A Soup to Make You Feel You’re in the French Countryside**\
 `This classic Provençal soup welcomes whatever greens you’ve got, whether they were foraged from the hills or picked up from the store.`\
