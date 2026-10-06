@@ -1,3 +1,7 @@
+**Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
+`With his then-wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
+https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
+
 **Live Updates: Australian Lawmakers Question OpenAI Officials on Breaches**\
 `The artificial intelligence company apologized after its agents infiltrated nonpublic data on a government website. Australia is examining potential legal consequences and new A.I. regulations.`\
 https://www.nytimes.com/live/2026/10/05/world/openai-australia-hearing
