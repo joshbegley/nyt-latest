@@ -1,5 +1,21 @@
+**FIFA Found Congo Player Ineligible, Let Him Play in World Cup**\
+`Officials determined that a goalkeeper from the Democratic Republic of Congo did not have the correct paperwork, documents show. But no action was taken, renewing questions about FIFA’s governance.`\
+https://www.nytimes.com/2026/10/06/world/europe/fifa-infantino-congo-nigeria-eligibility.html
+
+**As Japan’s Population Shrinks, a City Is Accused of Padding Census Numbers**\
+`The police are investigating how about 3,000 nonexistent residents were added to official data for Toyama.`\
+https://www.nytimes.com/2026/10/06/world/asia/japan-population-falsified-census.html
+
+**The Hidden Policies That Power China’s Export Boom**\
+`Huge tax breaks and a weak currency sustain exports, widen the government budget deficit and complicate the country’s efforts to rebalance its economy.`\
+https://www.nytimes.com/2026/10/06/business/china-exports-currency.html
+
+**On This Day, Oct. 6: In 1981, Sadat Was Assassinated**\
+`In 1981, President Anwar el-Sadat of Egypt was assassinated by extremists while attending a military parade.`\
+https://www.nytimes.com/2026/10/06/learning/on-this-day-oct-6.html
+
 **Jim Bakker, Television Preacher Felled by Sex and Financial Scandals, Dies at 86**\
-`With his then-wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
+`With his wife, Tammy Faye, Mr. Bakker built a broadcasting juggernaut around the gospel of prosperity.`\
 https://www.nytimes.com/2026/10/05/us/jim-bakker-dead.html
 
 **Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
@@ -161,20 +177,4 @@ https://www.nytimes.com/2026/10/05/us/florida-school-bus-crash.html
 **The Cornell Case and Trump’s America**\
 `Nearly a decade after #MeToo, the Cornell case has raised questions about whether any progress has been made. On “The Opinions,” Jamelle Bouie argues that the case reflects a political culture that glorifies “aggressive and predatory” masculinity.`\
 https://www.nytimes.com/video/opinion/100000011188278/the-cornell-case-and-trumps-america.html
-
-**The City Leader Who Revived Central Park Dies at 85**\
-`Gordon J. Davis was New York City’s first Black parks commissioner and one of the most effective. He also led Lincoln Center.`\
-https://www.nytimes.com/2026/10/05/arts/gordon-j-davis-dead.html
-
-**The Local: New Minneapolis amphitheater rises**\
-`Also, a canoe captures attention at the Twin Cities Marathon.`\
-https://www.nytimes.com/2026/10/05/briefing/new-minneapolis-amphitheater.html
-
-**Congolese Town Struggles with One of Country’s Worst Ebola Outbreaks**\
-`Ebola has spread rapidly in the Congolese town of Mangala since June, becoming one of the worst Ebola outbreaks in the country.`\
-https://www.nytimes.com/video/world/africa/100000011193772/ebola-congo-outbreak-mangala.html
-
-**Nashville Symphony Receives $10 Million Lifeline From Oracle**\
-`The symphony announced last week that it was pausing the rest of the season after disclosing financial trouble. The concerts are back on now, thanks to a tech company gift.`\
-https://www.nytimes.com/2026/10/05/arts/music/nashville-symphony-oracle-gift.html
 
