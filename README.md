@@ -1,3 +1,7 @@
+**Wrongly Indicted Man Seeks Inquiry of Official Conduct in Reflecting Pool Case**\
+`Lawyers for the former Olympian David Hearn accused prosecutors of ignoring their own evidence to indict him and then providing “blatantly false” information about what they knew when.`\
+https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.html
+
 **A Shirt That Works Double Time**\
 `The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
 https://www.nytimes.com/2026/10/06/style/paris-fashion-week-double-layered.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
 **Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
 `With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
 https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
-
-**U.S. Sends Reaper Drones to Colombia and Ecuador to Hunt Cartels**\
-`MQ-9 Reaper drones — known for high-profile deadly strikes — have been shifted from Africa to Colombia and Ecuador, U.S. officials said.`\
-https://www.nytimes.com/2026/10/06/world/americas/us-reaper-drones-colombia-ecuador-cartels.html
 
