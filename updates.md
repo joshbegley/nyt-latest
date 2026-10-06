@@ -1,3 +1,15 @@
+**In Iceland, Rubio Dodges a Diplomatic Flap Over a Trump Map**\
+`President Trump had posted a map on his Truth Social account in September depicting Iceland as part of U.S. territory.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-map-iceland-rubio.html
+
+**Freddie Jackson, ‘You Are My Lady’ Singer That Topped R&B Charts, Dead at 69**\
+`With hits like “Rock Me Tonight (For Old Times Sake)” and “You Are My Lady,” he made slow jams feel like grand romance.`\
+https://www.nytimes.com/2026/10/06/arts/music/freddie-jackson-dead.html
+
+**Democrats Look Strong in Polls, Thanks to These Voter Groups**\
+`Different blocs are moving left. They could swing key Senate races.`\
+https://www.nytimes.com/2026/10/06/us/politics/democrats-senate-polls-voters.html
+
 **Couple Charged With Conspiring to Abuse Numerous Surrogate Children**\
 `A Southern California couple were arrested and charged with conspiring to abuse 15 children, nearly all of whom were born to surrogate mothers, prosecutors said.`\
 https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
