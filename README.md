@@ -1,3 +1,7 @@
+**How a Painstaking Scholar Reinterpreted African History**\
+`In six major books, John Iliffe centered his research not on kings, dictators and guerrilla chiefs but rather on ordinary African citizens. He has died at 87.`\
+https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
+
 **Wrongly Indicted Man Seeks Inquiry of Official Conduct in Reflecting Pool Case**\
 `Lawyers for the former Olympian David Hearn accused prosecutors of ignoring their own evidence to indict him and then providing “blatantly false” information about what they knew when.`\
 https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/us/execution-methods.html
 **Corrections: Oct. 6, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
 https://www.nytimes.com/2026/10/06/pageoneplus/corrections-oct-6-2026.html
-
-**Short on Cash, Democrats Weigh Big Bets to Unseat Entrenched Republicans**\
-`With less money than G.O.P., Democrats are torn over where to spend in the final weeks. The party is making its biggest move in years against one of G.O.P.’s biggest blue-district survivors.`\
-https://www.nytimes.com/2026/10/06/us/politics/democrats-house-races-spending.html
 
