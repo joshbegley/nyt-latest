@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fir
 https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
 
 **Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
-`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
+`After a legal battle, the two Hollywood giants have become one. But the new company is saddled with debt, and in a memo to employees, its leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
 
 **U.S. Trade Deficit Hits 17-Month High Despite Trump’s Tariffs**\

@@ -1,3 +1,23 @@
+**How Trump’s Tariff War With Canada Ensnared the Can-Am Spyder**\
+`The Can-Am Spyder has a devoted fan base across the United States. Now it’s a casualty in the trade war with Canada.`\
+https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
+
+**People of All Ages Join French Student Protests, as Movement Broadens**\
+`Union members, parents, teachers and others took part in mass demonstrations around the country, backing student demands that the government invest more in schools.`\
+https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-college.html
+
+**Quiz: Can You Name 16 Iconic Figures From History?**\
+`These notable people were covered in The Times over the past 175 years. Guess who they are.`\
+https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
+
+**Sally Yates to Lead Internal Investigation Into Cornell’s Handling of Sexual Assault Report**\
+`The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
+https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
+
+**Live Updates: Student Protests Expand to More Than 40 French Cities**\
+`Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
+https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
+
 **Quiz: Can You Name 16 Iconic Figures From History?**\
 `These 16 people were covered in The Times over the past 175 years. Guess who they are.`\
 https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
