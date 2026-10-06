@@ -1,3 +1,7 @@
+**A New Open-Weight Challenger to Anthropic, Reflection, Emerges**\
+`Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
+https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
+
 **Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
 `A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
 https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
-`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
-https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
-
 **What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
 `What it will take for Israel to overcome the ghosts of Oct. 7.`\
 https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
+
+**An 87-Year-Old’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
+`The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
+https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
@@ -114,13 +118,13 @@ https://www.nytimes.com/2026/10/06/obituaries/george-gillett-jr-dead.html
 `A.I. doesn’t have to be a disruptive force, least of all when it comes to government services.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
 
-**What Are You Thinking and Feeling About the Midterm Elections?**\
-`What gives you hope about politics right now? What troubles you? What do you think shaped your political beliefs and values?`\
-https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-about-the-midterm-elections.html
-
 **What to Know About ‘Carrie’ Before Watching the New TV Adaptation**\
 `The novel, written over 50 years ago, has had several adaptations, not all of them good. A new series from Mike Flanagan has Stephen King’s imprimatur.`\
 https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mike-flanagan.html
+
+**What Are You Thinking and Feeling About the Midterm Elections?**\
+`What gives you hope about politics right now? What troubles you? What do you think shaped your political beliefs and values?`\
+https://www.nytimes.com/2026/10/06/learning/what-are-you-thinking-and-feeling-about-the-midterm-elections.html
 
 **2026 Midterm Election Lesson Plan**\
 `Lesson plan ideas for bringing the midterms and what’s at stake into your classroom, using New York Times maps, graphs and reporting.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/us/politics/alaska-fish-midterms.html
 **Melting Swiss Glaciers Release Archaeological Treasures**\
 `Archaeologists are scouring mountain passes as artifacts from a bygone world all but tumble out of Switzerland’s shrinking ice.`\
 https://www.nytimes.com/2026/10/06/climate/glacier-archaeology-melting-alps.html
-
-**The Ballet Star David Hallberg Returns to New York as the Man in Charge**\
-`Hallberg, the former Ballet Theater star, is now the artistic director of the Australian Ballet, which is bringing “Oscar,” about Oscar Wilde, to City Center.`\
-https://www.nytimes.com/2026/10/06/arts/dance/david-hallberg-australian-ballet-oscar-wilde.html
 
