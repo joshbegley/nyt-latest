@@ -1,3 +1,15 @@
+**In Iceland, Rubio Dodges a Diplomatic Flap Over a Trump Map**\
+`President Trump had posted a map on his Truth Social account in September depicting Iceland as part of U.S. territory.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-map-iceland-rubio.html
+
+**Freddie Jackson, ‘You Are My Lady’ Singer That Topped R&B Charts, Dead at 69**\
+`With hits like “Rock Me Tonight (For Old Times Sake)” and “You Are My Lady,” he made slow jams feel like grand romance.`\
+https://www.nytimes.com/2026/10/06/arts/music/freddie-jackson-dead.html
+
+**Democrats Look Strong in Polls, Thanks to These Voter Groups**\
+`Different blocs are moving left. They could swing key Senate races.`\
+https://www.nytimes.com/2026/10/06/us/politics/democrats-senate-polls-voters.html
+
 **Couple Charged With Conspiring to Abuse Numerous Surrogate Children**\
 `A Southern California couple were arrested and charged with conspiring to abuse 15 children, nearly all of whom were born to surrogate mothers, prosecutors said.`\
 https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
@@ -165,16 +177,4 @@ https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.ht
 **A Shirt That Works Double Time**\
 `The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
 https://www.nytimes.com/2026/10/06/style/townwear-paris-fashion-week.html
-
-**We Let an A.I. Agent Get Lunch for Our Host**\
-`Eli Tan, a technology reporter for The New York Times, gave Meta’s A.I. agent Muse access to his personal information to test its abilities. Then, he let it get lunch for Natalie Kitroeff, a host of “The Daily.” Here’s what happened.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011196559/muse-eli-tan-clip-the-daily.html
-
-**How Trump’s Tariff War With Canada Ensnared the Can-Am Spyder**\
-`The Can-Am Spyder has a devoted fan base across the United States. Now it’s a casualty in the trade war with Canada.`\
-https://www.nytimes.com/2026/10/06/business/canada-tariffs-can-am-spyder.html
-
-**People of All Ages Join French Student Protests, as Movement Broadens**\
-`Union members, parents, teachers and others took part in mass demonstrations around the country, backing student demands that the government invest more in schools.`\
-https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-college.html
 
