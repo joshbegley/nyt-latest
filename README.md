@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/10/06/obituaries/john-iliffe-dead.html
 `Lawyers for the former Olympian David Hearn accused prosecutors of ignoring their own evidence to indict him and then providing “blatantly false” information about what they knew when.`\
 https://www.nytimes.com/2026/10/06/us/politics/reflecting-pool-vandalism-case.html
 
-**A Shirt That Works Double Time**\
-`The delight of Townwear, a new low-key British label, is in its clever simplicity.`\
-https://www.nytimes.com/2026/10/06/style/townwear-paris-fashion-week.html
-
