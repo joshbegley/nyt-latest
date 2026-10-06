@@ -1,3 +1,7 @@
+**Cheikh Hamidou Kane, Author of Seminal Anticolonial Novel, Dies at 98**\
+`The Senegalese writer was lauded as one of the founding fathers of African literature despite publishing only two novels.`\
+https://www.nytimes.com/2026/10/05/obituaries/cheikh-hamidou-dead.html
+
 **The Separatist Parti Québécois Wins Quebec Election, Reviving Sovereignty Push**\
 `The separatist party’s victory fell short of clinching a majority that would have all but guaranteed a potential showdown with Ottawa over Canada’s future.`\
 https://www.nytimes.com/2026/10/05/world/canada/quebec-election-parti-quebecois-separatism.html
