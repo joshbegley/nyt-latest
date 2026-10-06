@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 6, 2026**\
+`There’s plenty to do in Adam Vincent’s crossword puzzle.`\
+https://www.nytimes.com/2026/10/05/crosswords/daily-puzzle-2026-10-06.html
+
 **Trump Orders Execution of Gunman in 2009 Attack at Fort Hood**\
 `The Pentagon said that Maj. Nidal Malik Hasan, who carried out the deadliest mass shooting at an American military base, would be executed by firing squad.`\
 https://www.nytimes.com/2026/10/05/us/politics/trump-execution-fort-hood-gunman.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/05/theater/kramer-fauci-review.html
 **U.S. Military Withdraws Bombers From U.K. Base After New Threats**\
 `All 12 U.S. Air Force bombers stationed at an air base in Britain were moved after new threats linked to an Iran-backed plot targeting the base, according to U.S. officials.`\
 https://www.nytimes.com/video/world/europe/100000011193534/air-force-bombers-raf-fairford-uk-iran.html
-
-**Justices Grapple With Questions of Jurisdiction in Case Against Oil Companies**\
-`The justices are considering whether states and localities can try to hold oil companies responsible for damages from climate change. If Boulder, Colo., wins, the companies could owe enormous sums.`\
-https://www.nytimes.com/live/2026/10/05/climate/oil-companies-climate-supreme-court
 
