@@ -1,3 +1,11 @@
+**Energy Firms Try to Squeeze More Power Out of Old Nuclear Plants**\
+`It takes a long time to build new nuclear plants. So, some U.S. companies are looking to get more electricity out of reactors that already exist.`\
+https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
+
+**Trump Does Not Plan to Reimburse Taxpayers for Promotional Ads**\
+`A day after the president said his super PAC, would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
+https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
+
 **Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
 `The plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
 https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
 `In the wake of sexual assault allegations at Cornell, Michael C. Bender, a Washington correspondent for The New York Times, explains how the Department of Education’s Office for Civil Rights in the Trump administration has seen an apparent drop in the number of Title IX cases it has resolved.`\
 https://www.nytimes.com/video/education/100000011194215/resolved-sexual-assault-cases-drop-under-trump-administration.html
 
-**A New Open-Weight Challenger to Anthropic, Reflection, Emerges**\
-`Reflection AI, a start-up backed by Nvidia, unveiled an open-weight artificial intelligence model meant to compete with Chinese tools — and other U.S. ones.`\
-https://www.nytimes.com/2026/10/06/business/dealbook/anthropic-reflection-open-weight-ai.html
-
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/06/us/midterms-elections
-
-**Democratic Effort Aims to Keep 2028 Hopefuls Focused on General Election**\
-`A new polling project called Project 270 will work to focus candidates on voters’ interests in presidential battleground states.`\
-https://www.nytimes.com/2026/10/06/us/democratic-effort-aims-to-keep-2028-hopefuls-focused-on-general-election.html
 
