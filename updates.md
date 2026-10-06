@@ -1,3 +1,11 @@
+**Emmy Awards Move to Prime Video in Six-Year Deal With Amazon**\
+`The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
+https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
+
+**Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
+`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
+https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
+
 **Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
 `Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
 https://www.nytimes.com/2026/10/06/us/execution-methods.html

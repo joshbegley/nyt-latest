@@ -54,11 +54,11 @@ https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual
 `Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
 https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
 
-**Emmys Leave Their Broadcast Home for Amazon**\
+**Emmy Awards Move to Prime Video in Six-Year Deal With Amazon**\
 `The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
 https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
 
-**Paramount Closes Its Deal for Warner Bros. Discovery**\
+**Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
 `After a legal battle, Paramount has finally acquired Warner Bros. Discovery. In a memo to employees, the combined company’s leaders hinted at cost cuts.`\
 https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/10/06/obituaries/george-gillett-jr-dead.html
 **How A.I. Can Boost Democracy**\
 `A.I. doesn’t have to be a disruptive force, least of all when it comes to government services.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
-
-**What to Know About ‘Carrie’ Before Watching the New TV Adaptation**\
-`The novel, written over 50 years ago, has had several adaptations, not all of them good. A new series from Mike Flanagan has Stephen King’s imprimatur.`\
-https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mike-flanagan.html
 
