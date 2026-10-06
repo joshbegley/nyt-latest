@@ -1,3 +1,7 @@
+**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
+`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
+https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
+
 **Man Arrested in Connection With Incident at UK Air Base RAF Fairford**\
 `A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
 https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html

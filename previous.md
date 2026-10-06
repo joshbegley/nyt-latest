@@ -156,7 +156,7 @@ https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 
 **In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
 `China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
-https://www.nytimes.com/2026/10/06/science/in-race-with-us-china-struggles-to-recruit-foreign-ai-researchers.html
+https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
 
 **Battle Between Disney and the F.C.C. Moves to the Courts**\
 `On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
