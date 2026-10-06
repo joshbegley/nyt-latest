@@ -1,3 +1,23 @@
+**Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
+`Plus, the ancient treasures revealed by melting glaciers.`\
+https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
+
+**Call My A.I. Agent**\
+`Muse, Meta’s A.I. agent, helped a Times reporter with dental insurance, dinner reservations and more. It also required his trust.`\
+https://www.nytimes.com/2026/10/06/podcasts/the-daily/meta-ai-agent-muse.html
+
+**NYT Connections Answers for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/connections-companion-1214.html
+
+**NYT Strands Hints for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/strands-sidekick-948.html
+
+**Today’s Wordle Hints for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/wordle-review-1936.html
+
 **Nobel Prize in Physics Is Awarded to Francis Halzen**\
 `The Nobel was awarded “for the discovery of high-energy neutrinos of astrophysical origin,” the Royal Swedish Academy of Sciences said.`\
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/06/travel/golf-st-andrews-scotland-courses.html
 **These Taste Testers Have Four Legs and Picky Palates**\
 `Global pet food makers chasing a growing market are pouring big money into studying the taste buds of dogs and cats.`\
 https://www.nytimes.com/2026/10/06/business/cat-food-pets-royal-canin.html
-
-**Book Review: ‘The AGI Chronicles,’ by Kevin Roose**\
-`In “The AGI Chronicles,” the tech journalist Kevin Roose looks for clues that artificial intelligence might already be smarter than humans.`\
-https://www.nytimes.com/2026/10/06/books/review/the-agi-chronicles-kevin-roose.html
-
-**It Can Keep Cancer in Remission. Why Is No One Talking About It?**\
-`Despite mounting evidence that exercise programs can improve cancer outcomes, access to them remains limited.`\
-https://www.nytimes.com/2026/10/06/well/cancer-prevention-exercise-treatment.html
-
-**Hans Werner Henze’s Music Carried on Tradition With Skepticism**\
-`Hans Werner Henze, born 100 years ago and the son of a Nazi, captured the ambivalence of making art in the shadow of the 20th century.`\
-https://www.nytimes.com/2026/10/06/arts/music/hans-werner-henze-composer.html
-
-**Melting Ice Reveals Artifacts in the Swiss Alps**\
-`Switzerland has lost almost 20 percent of its ice within just five years. One surprising consequence of this melting is that ancient artifacts once frozen in the glaciers are now revealing themselves. Our climate reporter Raymond Zhong takes us on a search for ancient objects.`\
-https://www.nytimes.com/video/climate/100000011052401/melting-ice-reveals-artifacts-in-the-swiss-alps.html
-
-**France’s School Protests Go Nationwide**\
-`High school students are preparing for nationwide protests in France on Tuesday as they demand improvements to their schools.`\
-https://www.nytimes.com/video/world/europe/100000011195547/france-student-protests.html
 

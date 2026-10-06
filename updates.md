@@ -1,3 +1,23 @@
+**Huge Protests Put France on Edge, and How Meta Exploited a Tax Credit to Save Billions**\
+`Plus, the ancient treasures revealed by melting glaciers.`\
+https://www.nytimes.com/2026/10/06/podcasts/the-headlines/protests-france-meta-tax.html
+
+**Call My A.I. Agent**\
+`Muse, Meta’s A.I. agent, helped a Times reporter with dental insurance, dinner reservations and more. It also required his trust.`\
+https://www.nytimes.com/2026/10/06/podcasts/the-daily/meta-ai-agent-muse.html
+
+**NYT Connections Answers for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/connections-companion-1214.html
+
+**NYT Strands Hints for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/strands-sidekick-948.html
+
+**Today’s Wordle Hints for October 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/06/crosswords/wordle-review-1936.html
+
 **Nobel Prize in Physics Is Awarded to Francis Halzen**\
 `The Nobel was awarded “for the discovery of high-energy neutrinos of astrophysical origin,” the Royal Swedish Academy of Sciences said.`\
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
