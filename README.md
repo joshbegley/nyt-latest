@@ -1,6 +1,6 @@
 **White House Blocked Politico From Air Force One for Trump’s Trip to Nebraska**\
 `The move is the latest round in the fight over presidential access after Mr. Trump declared a ban on CNN, Politico and MS NOW.`\
-https://www.nytimes.com/2026/10/05/us/white-house-blocked-politico-from-air-force-one-for-trumps-trip-to-nebraska.html
+https://www.nytimes.com/2026/10/05/us/politico-blocked-trump-nebraska.html
 
 **Caleb Flynn, Who Appeared on ‘American Idol,’ Gets Life Sentence for Wife’s Murder**\
 `Caleb Flynn maintained his innocence at his sentencing hearing in Ohio on Monday.`\
