@@ -1,3 +1,7 @@
+**Kenya Announces Its First Ebola Case**\
+`Kenya announced on Tuesday that it has recorded its first case of Ebola, saying it derived from a man arriving from the Democratic Republic of Congo.`\
+https://www.nytimes.com/video/world/africa/100000011196254/kenya-ebola-case-congo.html
+
 **A Reckoning at Cornell, and Beyond**\
 `Readers respond to The Times’s coverage of the Cornell rape investigation and the history of sexual assault on campuses.`\
 https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flyduba
 **As Spain Heads Into a Snap Election, Sánchez Turns an Eviction Into a Campaign Cause**\
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
-
-**Wirecutter’s Hall of Fame**\
-`We look at the products that have earned our recommendation year after year, and why they stand out.`\
-https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
 
