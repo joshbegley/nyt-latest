@@ -1,3 +1,7 @@
+**Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
+https://www.nytimes.com/2026/10/06/us/execution-methods.html
+
 **Student Protests in France**\
 `We also look at a demonstration on Cornell’s campus.`\
 https://www.nytimes.com/2026/10/06/briefing/student-protests-in-france.html

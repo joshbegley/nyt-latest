@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flyduba
 `The eviction of the woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
 
-**Why These 5 Methods Used in Executions Have Stirred Debate**\
-`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
-https://www.nytimes.com/2026/10/06/us/execution-methods.html
-
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
 https://www.nytimes.com/2026/10/06/podcasts/wirecutters-hall-of-fame.html
+
+**Christa Pike’s Case Puts Execution Methods Under Scrutiny**\
+`Tennessee’s unsuccessful attempt to end the life of Christa Pike is spurring more scrutiny over capital punishment techniques, and whether the death penalty should exist at all.`\
+https://www.nytimes.com/2026/10/06/us/execution-methods.html
 
 **Corrections: Oct. 6, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 6, 2026.`\
@@ -170,13 +170,13 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
 `Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
 https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 
-**Battle Between Disney and the F.C.C. Moves to the Courts**\
-`On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
-https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
-
 **In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
 `China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
 https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
+
+**Battle Between Disney and the F.C.C. Moves to the Courts**\
+`On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
+https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
 
 **Meta Is Crushing Small Online Retailers**\
 `Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
