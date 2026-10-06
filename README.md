@@ -1,3 +1,7 @@
+**Artists’ Studios Where Creativity Is on Display**\
+`The studio of the Pop master Tom Wesselmann opened briefly for a peek. Other exhibitions continue at the studios of Donald Judd and Sean Scully.`\
+https://www.nytimes.com/2026/10/06/arts/design/artists-studios-wesselmann-matsuyama.html
+
 **The Ex-Pro Wrestler Fighting the N.F.L.’s C.T.E. ‘Cover-Up’**\
 `What does the latest research tell us about the future of football?`\
 https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-up.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/2026/10/06/podcasts/nowinski-wwe-fighting-nfl-cte-cover-
 `Republican and Democratic voters are seeing masculinity and femininity very differently.`\
 https://www.nytimes.com/2026/10/06/opinion/gender-identity-gap-voting-polarization.html
 
-**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
-`What it will take for Israel to overcome the ghosts of Oct. 7.`\
-https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
-
 **A Pensioner’s Eviction Dragged Down Spain’s Leader. Will It Also Save Him?**\
 `The eviction of an 87-year-old woman in Madrid last month helped unravel Pedro Sánchez’s government. It also gave him an election platform.`\
 https://www.nytimes.com/2026/10/06/world/europe/pedro-sanchez-spain-housing-election.html
+
+**What It Will Take for Israel to Overcome the Ghosts of Oct. 7**\
+`What it will take for Israel to overcome the ghosts of Oct. 7.`\
+https://www.nytimes.com/2026/10/06/opinion/israel-palestinians-netanyahu-flydubai.html
 
 **Wirecutter’s Hall of Fame**\
 `We look at the products that have earned our recommendation year after year, and why they stand out.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/world/europe/germany-afd-saxony-anhalt.html
 **Review: At Chanel, Matthieu Blazy Creates Something New**\
 `Innovation has been in short supply this season. Matthieu Blazy changed that.`\
 https://www.nytimes.com/2026/10/06/style/chanel-matthieu-blazy-pfw.html
-
-**Fury in California After Trump Suggests Iran Could ‘Take Out’ L.A. or San Diego**\
-`Gov. Gavin Newsom called the president “dangerous and deranged” after his remarks at a political rally, where Mr. Trump said the Iran war was necessary to “keep the world safe.”`\
-https://www.nytimes.com/2026/10/06/world/asia/trump-los-angeles-san-diego-iran.html
 
