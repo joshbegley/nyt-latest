@@ -1,3 +1,11 @@
+**Mamdani Backs Bill to Let Consumers Sue Over Unfair Business Practices**\
+`The proposed New York City legislation would also allow nonprofits, including tenants’ unions, to sue companies directly rather than relying on agency enforcement.`\
+https://www.nytimes.com/2026/10/06/nyregion/mamdani-power-act-bill-nyc.html
+
+**NYT Spelling Bee Answers for October 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/06/crosswords/spelling-bee-forum.html
+
 **Late Night Roasts Vivek Ramaswamy for His Loose Grip**\
 `“It’s fun to have a video of the exact moment you lost your campaign,” Jimmy Fallon said after Ramaswamy struggled to lift a child during a campaign rally in Ohio over the weekend.`\
 https://www.nytimes.com/2026/10/06/arts/television/late-night-jimmy-fallon-vivek-ramaswamy.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/video/dining/100000011194847/pumpkin-date-tiramisu.html
 **Chicken-Zucchini Meatballs With Feta**\
 `These meatballs harbor a secret: They’re half vegetable, half chicken. More than just a surprise, the grated zucchini provides moisture that ground chicken can lack.`\
 https://www.nytimes.com/video/dining/100000011194833/chicken-zucchini-meatballs-with-feta.html
-
-**Midnight Pasta With Roasted Garlic, Olive Oil and Chile**\
-`This recipe is a version of aglio e olio pasta, which is often known as midnight pasta because it can be made quickly with a few pantry staples: garlic, olive oil, red-pepper flakes and pasta.`\
-https://www.nytimes.com/video/dining/100000011194795/midnight-pasta-with-roasted-garlic-olive-oil-and-chile.html
-
-**Miso-Butter Roasted Broccoli**\
-`Flavorful and easy, this simple roasted broccoli dish makes a great accompaniment to roasted salmon or chicken, and adds depth to grain bowls or quickly cooked leftovers.`\
-https://www.nytimes.com/video/dining/100000011194783/miso-butter-roasted-broccoli.html
 

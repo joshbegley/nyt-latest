@@ -1,3 +1,11 @@
+**Mamdani Backs Bill to Let Consumers Sue Over Unfair Business Practices**\
+`The proposed New York City legislation would also allow nonprofits, including tenants’ unions, to sue companies directly rather than relying on agency enforcement.`\
+https://www.nytimes.com/2026/10/06/nyregion/mamdani-power-act-bill-nyc.html
+
+**NYT Spelling Bee Answers for October 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/06/crosswords/spelling-bee-forum.html
+
 **Late Night Roasts Vivek Ramaswamy for His Loose Grip**\
 `“It’s fun to have a video of the exact moment you lost your campaign,” Jimmy Fallon said after Ramaswamy struggled to lift a child during a campaign rally in Ohio over the weekend.`\
 https://www.nytimes.com/2026/10/06/arts/television/late-night-jimmy-fallon-vivek-ramaswamy.html
