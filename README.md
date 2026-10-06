@@ -1,3 +1,11 @@
+**Man Arrested in Connection With Incident at UK Air Base RAF Fairford**\
+`A 22-year-old from London was the seventh person to be arrested by the counterterrorism police investigating an incident at R.A.F. Fairford last month.`\
+https://www.nytimes.com/2026/10/06/world/europe/arrest-raf-fairford-air-base-incident-uk.html
+
+**Maps: Tracking Tropical Storm Koguma**\
+`See the likely path and wind arrival times for Koguma`\
+https://www.nytimes.com/interactive/2026/10/06/weather/koguma-map-path-tracker.html
+
 **‘Dirty Dancing’ Musical Heads to Broadway This Season**\
 `The musical, which underwhelmed critics but attracted audiences while touring for years, has been significantly overhauled.`\
 https://www.nytimes.com/2026/10/06/theater/dirty-dancing-broadway.html
@@ -146,13 +154,13 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-cornell.html
 `Some privacy advocates say the cameras, intended to pick up muffler noise, loud music and horns, could be used to listen to just about anything.`\
 https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 
-**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
-`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
-https://www.nytimes.com/2026/10/06/science/in-race-with-us-china-struggles-to-recruit-foreign-ai-researchers.html
-
 **Battle Between Disney and the F.C.C. Moves to the Courts**\
 `On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
 https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
+
+**In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
+`China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
+https://www.nytimes.com/2026/10/06/science/in-race-with-us-china-struggles-to-recruit-foreign-ai-researchers.html
 
 **Meta Is Crushing Small Online Retailers**\
 `Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/06/us/florida-keys-cocaine.html
 **Are Polyglot Creators Capturing Real Human Connection, or Gaming Social Media?**\
 `People who speak many languages in man-on-the-street videos are impressive, but they’re also turning conversation into a chance for optimization.`\
 https://www.nytimes.com/2026/10/06/magazine/polyglot-languages-youtube-tiktok.html
-
-**The Science That Has Oil Companies Running Scared**\
-`However the U.S. Supreme Court rules, the work of holding oil companies accountable for climate change has a bright future.`\
-https://www.nytimes.com/2026/10/06/opinion/oil-companies-supreme-court.html
-
-**Monster Mash-Up: New Comics for Fans of Horror**\
-`These spine-tingling stories cast light on creatures of the dark and reimagine superheroes with darker narratives, just in time for Halloween.`\
-https://www.nytimes.com/2026/10/06/arts/comics-horror-halloween.html
 
