@@ -1,5 +1,13 @@
+**Bolsonaro Family Emerges Triumphant in Brazil’s Elections, Mounting a Surprising Resurrection**\
+`The Bolsonaro family emerged triumphant in Brazil’s elections, mounting a surprising political resurrection in Latin America’s largest nation.`\
+https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bolsonaro.html
+
+**Massachusetts Man Pleads Guilty to Selling Plutonium From Russia**\
+`The man, Jacob Miller, 44, had sold the material to dozens of customers through a business he operated from his home, prosecutors alleged.`\
+https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.html
+
 **Restaurant Review: Hungry Spicy in New York**\
-`At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors a vivid, but proceed up the spice levels with caution.`\
+`At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors are vivid, but proceed up the spice levels with caution.`\
 https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
 
 **Two Arab Fighters for Democracy Have Lessons for America**\
@@ -177,14 +185,6 @@ https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual
 **This L.A. Power Broker Is Suing Over His Uninhabitable $20 Million Mansion**\
 `Austin Beutner has filed a lawsuit that highlights a central dispute after the 2025 Los Angeles fires: Who pays when a house survives the flames but not the smoke?`\
 https://www.nytimes.com/2026/10/06/us/austin-beutner-chubb-lawsuit-palisades-fire.html
-
-**Emmy Awards Move to Prime Video in Six-Year Deal With Amazon**\
-`The Television Academy is moving its awards telecast to streaming, following the lead of the Oscars.`\
-https://www.nytimes.com/2026/10/06/business/media/emmy-awards-amazon.html
-
-**Paramount Closes Merger With Warner Bros. Discovery to Form Skydance**\
-`After a legal battle, the two Hollywood giants have become one. But the new company is saddled with debt, and in a memo to employees, its leaders hinted at cost cuts.`\
-https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
 
 **Candidates Pounce on Trump’s Remark About Iran Taking Out L.A. and San Diego**\
 `(No description)`\

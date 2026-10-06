@@ -1,3 +1,15 @@
+**Bolsonaro Family Emerges Triumphant in Brazil’s Elections, Mounting a Surprising Resurrection**\
+`The Bolsonaro family emerged triumphant in Brazil’s elections, mounting a surprising political resurrection in Latin America’s largest nation.`\
+https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bolsonaro.html
+
+**Massachusetts Man Pleads Guilty to Selling Plutonium From Russia**\
+`The man, Jacob Miller, 44, had sold the material to dozens of customers through a business he operated from his home, prosecutors alleged.`\
+https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.html
+
+**Restaurant Review: Hungry Spicy in New York**\
+`At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors are vivid, but proceed up the spice levels with caution.`\
+https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
+
 **Restaurant Review: Hungry Spicy in New York**\
 `At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors a vivid, but proceed up the spice levels with caution.`\
 https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
