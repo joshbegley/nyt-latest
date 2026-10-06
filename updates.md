@@ -1,3 +1,7 @@
+**Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
+`The Nobel Committee praised his “vision and scientific leadership” at a research project at the South Pole.`\
+https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
+
 **In This Painter’s Seductive World, the Past and Present Meet**\
 `In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
 https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html

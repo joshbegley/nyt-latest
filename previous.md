@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/10/06/crosswords/strands-sidekick-948.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 7, 2026.`\
 https://www.nytimes.com/2026/10/06/crosswords/wordle-review-1936.html
 
-**Nobel Prize in Physics Is Awarded to Francis Halzen**\
-`The Nobel was awarded “for the discovery of high-energy neutrinos of astrophysical origin,” the Royal Swedish Academy of Sciences said.`\
+**Nobel Prize in Physics Is Awarded to Francis Halzen for Work on Neutrinos**\
+`The Nobel Committee praised his “vision and scientific leadership” at a research project at the South Pole.`\
 https://www.nytimes.com/2026/10/06/science/nobel-prize-physics.html
 
 **German Officials Arrest Former Spy Chief on Espionage Charges**\
