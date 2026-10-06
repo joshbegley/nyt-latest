@@ -1,3 +1,15 @@
+**After Death of Bill Harris, a Look Back at the Symbionese Liberation Army**\
+`A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
+https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
+
+**One of Patty Hearst’s Kidnappers Has Died**\
+`Bill Harris was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
+https://www.nytimes.com/2026/10/06/us/bill-harris-dead.html
+
+**OpenAI Releases Findings on 377 Math Problems, Further Roiling Field**\
+`After a previous solution angered mathematicians, the company characterized the new release as being more responsive to concerns about A.I. disrupting research.`\
+https://www.nytimes.com/2026/10/06/science/openai-math-problems.html
+
 **Five Takeaways in New Book From Thom Tillis, Who Turned on Trump**\
 `In “How to Lose Friends and Antagonize Presidents,” Senator Thom Tillis details his regrets about backing President Trump’s agenda.`\
 https://www.nytimes.com/2026/10/06/us/politics/takeaways-book-thom-tillis-trump.html
@@ -46,13 +58,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**A Spy’s Guide to Fighting A.I. Propaganda**\
-`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
-
 **Maps: Tracking Tropical Depression Nine**\
 `See the likely path and wind arrival times for Nine`\
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A.I. Is Lying to You. Here’s How to Fight Back.**\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -157,16 +169,4 @@ https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-est
 **Bulgaria Says Drones Hit Ships Off Black Sea Coast**\
 `Rescue operations were underway after drones hit ships off Bulgaria’s Black Sea coast on Tuesday, Prime Minister Rumen Radev said.`\
 https://www.nytimes.com/video/world/europe/100000011196155/bulgaria-drones-strike-ships-black-sea.html
-
-**Kenya Announces Its First Ebola Case**\
-`Kenya announced on Tuesday that it has recorded its first case of Ebola, saying it derived from a man arriving from the Democratic Republic of Congo.`\
-https://www.nytimes.com/video/world/africa/100000011196254/kenya-ebola-case-congo.html
-
-**A Reckoning at Cornell, and Beyond**\
-`Readers respond to The Times’s coverage of the Cornell rape investigation and the history of sexual assault on campuses.`\
-https://www.nytimes.com/2026/10/06/opinion/letters/cornell-rape-investigation.html
-
-**How to Destroy a Reputation in Hollywood, as Told in 5 Women’s Lawsuits**\
-`Five women have said they were the targets of malicious public relations campaigns that were spearheaded by three influential players.`\
-https://www.nytimes.com/2026/10/06/nyregion/smear-campaigns-blake-lively-bryan-freedman.html
 
