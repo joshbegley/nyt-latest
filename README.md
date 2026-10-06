@@ -1,3 +1,15 @@
+**Are 60-Second Microdramas the Future of Hollywood, or the End?**\
+`Vertical soap operas for your phone have taken over film and TV production, and they may soon need no humans at all.`\
+https://www.nytimes.com/2026/10/06/magazine/microdramas-tv-shows-hollywood-entertainment.html
+
+**Top Super PAC for Senate Democrats Raises Record $151 Million in Third Quarter**\
+`Democratic Senate candidates have generally out-raised Republicans, but are struggling to match outside spending from Trump-affiliated groups.`\
+https://www.nytimes.com/2026/10/06/us/politics/senate-majority-pac-democrats.html
+
+**Student Protests Spread Across France**\
+`Protesters and the police clashed in France as thousands of people joined the student-led demonstrations against school conditions.`\
+https://www.nytimes.com/video/world/europe/100000011195907/france-protests-school-students.html
+
 **Cornell Students Protest University’s Handling of Sexual Assault Case**\
 `Cornell students staged a campus protest on Monday, demanding a firmer response from the school to the lawsuit alleging that a student was raped at a fraternity house in 2024.`\
 https://www.nytimes.com/video/us/100000011195867/cornell-students-protest-sexual-assault-jane-doe.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/06/style/for-years-presley-gerber-documented-his
 **Book Review: ‘Brink,’ by Brett McGurk**\
 `In “Brink,” the U.S. diplomat Brett McGurk gives a diaristic account of his work with the Biden and Trump administrations in the wake of the Hamas attack.`\
 https://www.nytimes.com/2026/10/06/books/review/brink-brett-mcgurk.html
-
-**Could a Fight Over Fish Flip the Senate?**\
-`Widespread anger at a billion-dollar fishing industry is shaping Alaska’s key Senate race — and could determine which party takes control of the chamber in the midterm elections.`\
-https://www.nytimes.com/video/us/politics/100000011166068/fishing-alaska-senate-race.html
-
-**Turn Your Backyard Pond Into a Hotbed of Biodiversity, Even in Winter**\
-`Create a “water garden” to support the vulnerable creatures, animals and organisms that make up your hyperlocal food chain.`\
-https://www.nytimes.com/2026/10/06/realestate/gardening-backyard-ponds-biodiversity.html
-
-**In ‘Lady,’ Sian Clifford Wants Fame. In Real Life, It Makes Her Cringe**\
-`The introverted Sian Clifford, best known as Fleabag’s uptight older sister, stars in a new film about an attention-seeking aristocrat.`\
-https://www.nytimes.com/2026/10/06/style/sian-clifford-lady-movie.html
 
