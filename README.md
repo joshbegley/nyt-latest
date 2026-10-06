@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/06/obituaries/george-gillett-jr-dead.html
 `A.I. doesn’t have to be a disruptive force, least of all when it comes to government services.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-democracy.html
 
-**What to Know About ‘Carrie’ Before Watching the New TV Adaptation**\
-`The novel, written over 50 years ago, has had several adaptations, not all of them good. A new series from Mike Flanagan has Stephen King’s imprimatur.`\
-https://www.nytimes.com/2026/10/06/arts/television/carrie-amazon-prime-video-mike-flanagan.html
-
