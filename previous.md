@@ -1,3 +1,7 @@
+**Paramount Closes Its Deal for Warner Bros. Discovery**\
+`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. The new company, Skydance, combines Hollywood studios, streaming services and cable networks.`\
+https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
+
 **U.S. Trade Deficit Widens in August**\
 `New data from the Commerce Department showed that imports grew in the month, despite the Trump administration’s efforts to limit foreign products.`\
 https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/books/review/the-invisible-hand-of-maria-edge
 **Should Robert Rauschenberg’s Art Studio Be Saved?**\
 `The potential sale of the groundbreaking painter’s home in New York by his foundation, on the heels of the sale of his Florida studio, has alarmed many in the art community.`\
 https://www.nytimes.com/2026/10/06/arts/design/should-robert-rauschenbergs-art-studio-be-saved.html
-
-**Gears of War: E-Day Is Nostalgic With Rich Visuals**\
-`In Gears of War: E-Day, it’s fun to see the origins of beloved characters in grand scale, even if its play feels conservative.`\
-https://www.nytimes.com/2026/10/06/arts/gears-of-war-e-day-review.html
 

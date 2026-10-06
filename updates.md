@@ -1,3 +1,7 @@
+**Paramount Closes Its Deal for Warner Bros. Discovery**\
+`After a legal battle, Paramount has finally acquired Warner Bros. Discovery. The new company, Skydance, combines Hollywood studios, streaming services and cable networks.`\
+https://www.nytimes.com/2026/10/06/business/media/paramount-warner-bros-discovery-skydance.html
+
 **U.S. Trade Deficit Widens in August**\
 `New data from the Commerce Department showed that imports grew in the month, despite the Trump administration’s efforts to limit foreign products.`\
 https://www.nytimes.com/2026/10/06/business/economy/us-trade-deficit.html
