@@ -1,12 +1,16 @@
+**People of All Ages Join French Student Protests, as Movement Broadens**\
+`Union members, parents, teachers and others took part in mass demonstrations around the country, backing student demands that the government invest more in schools.`\
+https://www.nytimes.com/2026/10/06/world/europe/french-student-protest-unions-college.html
+
 **Quiz: Can You Name 16 Iconic Figures From History?**\
-`These 16 people were covered in The Times over the past 175 years. Guess who they are.`\
+`These notable people were covered in The Times over the past 175 years. Guess who they are.`\
 https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
 
 **Spain Clears Way for Separatist Leader to Return to Catalonia**\
 `The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
 https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
 
-**Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
+**Sally Yates to Lead Internal Investigation Into Cornell’s Handling of Sexual Assault Report**\
 `The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
 
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/10/06/books/national-book-award-finalists.html
 `A rescue effort was underway, Prime Minister Rumen Radev said, after one of the two ships sank. It was not immediately clear where the drones originated.`\
 https://www.nytimes.com/2026/10/06/world/europe/bulgaria-drones-black-sea.html
 
-**Live Updates: Protests Spread Across France as Unions Join Student Demonstrations**\
-`The rallies are a test of the strength of the student-led protest movement that has closed hundreds of French high schools since late September.`\
+**Live Updates: Student Protests Expand to More Than 40 French Cities**\
+`Union members, parents and teachers joined the demonstrations, broadening the student-led protest movement that has closed hundreds of French high schools since late September.`\
 https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools
 
 **Are 60-Second Microdramas the Future of Hollywood, or the End?**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/06/nyregion/noise-cameras-nyc.html
 **In Race With U.S., China Struggles to Recruit Foreign A.I. Researchers**\
 `China’s booming artificial intelligence sector has given local researchers good reason to remain in the country, but it has yet to lure overseas scientists despite a government push.`\
 https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
-
-**Battle Between Disney and the F.C.C. Moves to the Courts**\
-`On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
-https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
 

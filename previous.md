@@ -1,3 +1,11 @@
+**Quiz: Can You Name 16 Iconic Figures From History?**\
+`These 16 people were covered in The Times over the past 175 years. Guess who they are.`\
+https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
+
+**Spain Clears Way for Separatist Leader to Return to Catalonia**\
+`The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
+https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
+
 **Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
 `The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/06/science/china-ai-research-recruitment.html
 **Battle Between Disney and the F.C.C. Moves to the Courts**\
 `On Tuesday, a federal judge will begin hearing arguments in Disney’s effort to stop the agency from reviewing its broadcast licenses.`\
 https://www.nytimes.com/2026/10/06/business/media/disney-abc-fcc-lawsuit-court.html
-
-**Meta Is Crushing Small Online Retailers**\
-`Meta is crushing small online businesses by charging more for less effective ads, a sign of its extraordinary grip on the market.`\
-https://www.nytimes.com/2026/10/06/opinion/meta-ecommerce-ad-prices.html
-
-**Trump’s Try, Try Again Supreme Court Strategy**\
-`Supreme Court decisions that were small comfort in 2026 will turn out to be no comfort at all in 2028.`\
-https://www.nytimes.com/2026/10/06/opinion/trump-supreme-court-decisions.html
 

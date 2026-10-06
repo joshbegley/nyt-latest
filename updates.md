@@ -1,3 +1,11 @@
+**Quiz: Can You Name 16 Iconic Figures From History?**\
+`These 16 people were covered in The Times over the past 175 years. Guess who they are.`\
+https://www.nytimes.com/interactive/2026/10/06/upshot/quiz-faces-history.html
+
+**Spain Clears Way for Separatist Leader to Return to Catalonia**\
+`The Spanish Supreme Court canceled an arrest warrant for Carles Puigdemont, who has been living in self-imposed exile in Belgium.`\
+https://www.nytimes.com/2026/10/06/world/europe/spain-separatist-amnesty-catalonia-return.html
+
 **Cornell Names Former Acting U.S. Attorney General to Lead Investigation**\
 `The university hired Sally Yates, a career federal prosecutor, to investigate how it handled a former student’s claim she was raped in 2024.`\
 https://www.nytimes.com/2026/10/06/nyregion/sally-yates-trump-attorney-general-cornell-case.html
