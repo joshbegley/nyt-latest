@@ -1,3 +1,7 @@
+**Kenya Records Ebola Case for First Time**\
+`The authorities said that the virus had been diagnosed in a man arriving from the Democratic Republic of Congo and that they were taking measures to prevent any spread.`\
+https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html
+
 **In This Painter’s Seductive World, the Past and Present Meet**\
 `In Salman Toor’s first major solo show in Europe, the artist borrows gestures and compositions from art history to put modern-day outsiders in the forefront.`\
 https://www.nytimes.com/2026/10/06/arts/salman-toor-courtauld-gallery-london.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/06/arts/dance/david-hallberg-australian-ballet-o
 **Donna Summer, Queen of Disco, Shows Her Range**\
 `Hits like “Love to Love You Baby” and “I Feel Love” made her a face of disco, but a new compilation shows Summer’s detours into rock, synth-pop, country and other sounds.`\
 https://www.nytimes.com/2026/10/06/arts/music/donna-summer-casablanca-records-compilation.html
-
-**My Doctor Says I Have Fibroids. What Happens Next?**\
-`Here’s what experts say about how the noncancerous growths are treated.`\
-https://www.nytimes.com/2026/10/06/well/health-fibroids-treatments.html
 
