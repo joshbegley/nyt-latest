@@ -1,3 +1,7 @@
+**University of Arizona Suspends Fraternity Activities, Citing Misconduct Reports**\
+`The university said it was putting its fraternity chapters on “activities suspension” while it investigated allegations that included assault, drug use and hazing.`\
+https://www.nytimes.com/2026/10/06/us/arizona-university-fraternities-suspended.html
+
 **Takeaways From the First Maine Senate Debate Between Susan Collins and Troy Jackson**\
 `Senator Susan Collins, one of the most vulnerable Republicans in the midterms, clashed with the Democratic challenger Troy Jackson over President Trump, ICE and more.`\
 https://www.nytimes.com/2026/10/06/us/politics/maine-senate-debate-takeaways.html

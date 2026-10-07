@@ -1,3 +1,7 @@
+**On This Day, Oct. 7: In 2023, Hamas-led Militants Launched Surprise Attacks on Israel**\
+`In 2023, Hamas-led militants launched surprise attacks on Israel from Gaza, killing civilians and soldiers, and taking hostages. Israel declared war the next day and began a large-scale, prolonged military campaign in Gaza.`\
+https://www.nytimes.com/2026/10/07/learning/on-this-day-oct-7.html
+
 **University of Arizona Suspends Fraternity Activities, Citing Misconduct Reports**\
 `The university said it was putting its fraternity chapters on “activities suspension” while it investigated allegations that included assault, drug use and hazing.`\
 https://www.nytimes.com/2026/10/06/us/arizona-university-fraternities-suspended.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/world/africa/russia-africa-propaganda-sahel-t
 **‘Sudden’ Sam McDowell, Ace Pitcher for the Cleveland Indians, Has Died**\
 `Known as “Sudden Sam,” he led the American League in strikeouts five times and posted a single-season high of 325 in 1965.`\
 https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
-
-**How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
-`In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
-https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
 
