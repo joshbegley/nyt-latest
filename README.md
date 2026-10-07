@@ -1,3 +1,11 @@
+**Can Bergdorf Goodman Return to Its Golden Age?**\
+`Bergdorf Goodman, which has survived two bankruptcies in six years, is getting back to its white-glove origins.`\
+https://www.nytimes.com/2026/10/07/business/bergdorf-goodman.html
+
+**Five Essential Songs From Freddie Jackson: ‘You Are My Lady’ and More**\
+`A central figure in the Quiet Storm R&B of the 1980s, Jackson explored a tender and refined longing on tracks like “You Are My Lady” and “Jam Tonight.”`\
+https://www.nytimes.com/2026/10/07/arts/music/freddie-jackson-essential-songs-you-are-my-lady.html
+
 **The Bra Top Is Everywhere This Fashion Season**\
 `Vanessa Friedman, our chief fashion critic, sees the next big trend at the influential Miu Miu show in Paris: the bra top.`\
 https://www.nytimes.com/video/style/100000011173258/the-bra-top-is-everywhere-this-fashion-season.html
@@ -94,7 +102,7 @@ https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
 `Filmmakers consider the influence of Barry Jenkins’s seminal Oscar-winner and the circumstances that helped create it.`\
 https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
 
-**HBO’s ‘Youth’ and the Reality of Dating After 50**\
+**‘Youth’ Embraces the Messy Truth of Dating After 50**\
 `On the HBO show, and in real life, women are grappling with their changing bodies, relationships and responsibilities.`\
 https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 **DNA From Water Bottle Leads to Arrest in Decades-Old Murder Case**\
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
-
-**Billionaires Love This School Policy. Many Regular Parents Hate It.**\
-`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
-https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
-
-**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
-`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
-https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
