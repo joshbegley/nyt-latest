@@ -1,3 +1,7 @@
+**Rubio Stresses Need for U.S. Security Work With Greece on Migration and Terrorism**\
+`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
+
 **Suit Seeks $549 Million for Historically Black College, Citing Disparities**\
 `The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
 https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/10/07/world/asia/us-marine-murder-okinawa-japan-tak
 `Energy and technology companies’ earnings are expected to keep driving up stock indexes. But what’s driving up their profits are weighing on the economy.`\
 https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.html
 
-**Chrysler Building Gets a New Owner With Big Renovation Plans**\
+**Tishman Speyer Takes Over Chrysler Building With Big Renovation Plans**\
 `A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
 https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-
 **A Scottish Hip-Hop Hoax Helped James McAvoy Find His Movie-Making Voice**\
 `In “California Schemin’,” the actor’s directorial debut, two Scottish rappers pretend to be American to make it in the business. It was much more personal than he thought.`\
 https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
-
-**Inheritances Can Shatter Families. Could a Therapist Help?**\
-`As the United States faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
-https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
 
