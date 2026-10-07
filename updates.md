@@ -1,3 +1,15 @@
+**A Plague Mystery in Siberia**\
+`The death of a Russian lab worker has spawned rumors. Here are the facts.`\
+https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html
+
+**3 Killed and Dozens Injured in Attacks on Saudi Airports, as Houthis Claim Strikes**\
+`The Saudi government said the dead included two women and a Sudanese man, and that its capital’s airport was hit. A Houthi spokesman said the militia had attacked the airports.`\
+https://www.nytimes.com/2026/10/07/world/middleeast/saudi-arabia-airports-houthis.html
+
+**Wealth Is Clouding the A.I. Safety Debate**\
+`There’s a conflict of interest at the core of the current discourse around A.I. On “The Ezra Klein Show,” David Robinson, a former OpenAI safety employee, discusses how wealth and other factors are influencing the conversation about A.I. safety.`\
+https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-safety-debate.html
+
 **Mamdani Draws Anger With Oct. 7 Statement Focused on Palestinians**\
 `After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
 https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html

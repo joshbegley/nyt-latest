@@ -1,3 +1,15 @@
+**A Plague Mystery in Siberia**\
+`The death of a Russian lab worker has spawned rumors. Here are the facts.`\
+https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html
+
+**3 Killed and Dozens Injured in Attacks on Saudi Airports, as Houthis Claim Strikes**\
+`The Saudi government said the dead included two women and a Sudanese man, and that its capital’s airport was hit. A Houthi spokesman said the militia had attacked the airports.`\
+https://www.nytimes.com/2026/10/07/world/middleeast/saudi-arabia-airports-houthis.html
+
+**Wealth Is Clouding the A.I. Safety Debate**\
+`There’s a conflict of interest at the core of the current discourse around A.I. On “The Ezra Klein Show,” David Robinson, a former OpenAI safety employee, discusses how wealth and other factors are influencing the conversation about A.I. safety.`\
+https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-safety-debate.html
+
 **Mamdani Draws Anger With Oct. 7 Statement Focused on Palestinians**\
 `After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
 https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
@@ -169,14 +181,6 @@ https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-executi
 **Messi Ends Career as National Hero With One Last Goal**\
 `Lionel Messi brought down the curtain on his international career on Tuesday with a goal and two assists, winning against Benin in his final appearance for Argentina. He bid farewell surrounded by his family and adoring fans as they battled tears.`\
 https://www.nytimes.com/video/sports/soccer/100000011199378/lionel-messi-argentina-benin-soccer.html
-
-**Messi’s Last Tango**\
-`Emma Bubola, a Times correspondent in Buenos Aires, joins host Natalie Kitroeff on “The Call”’ to watch the end of Lionel Messi’s legendary 21-year international soccer career.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tango.html
-
-**From Iran to the U.K., Trump Is Being Forced Into Retreat**\
-`A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
-https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
 **Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
