@@ -1,3 +1,7 @@
+**The Local: Our guide to election guides**\
+`Plus, “Wedding Crashers” DVDs have taken over Little Free Libraries in Minneapolis.`\
+https://www.nytimes.com/2026/10/07/briefing/twin-cities-election-guide.html
+
 **Wellness Culture is Coming for Polyester**\
 `Consumers across political and social groups are revolting against synthetic fabrics. The New York Times Styles reporter Yola Mzizi explores the backlash.`\
 https://www.nytimes.com/video/style/100000011173558/wellness-culture-is-coming-for-polyester.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
-**Live Updates: Judge Will Order Officials to Save Evidence After Christa Pike’s Failed Execution**\
-`The judge said the state must preserve drugs, syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
+**Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
+`A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
@@ -170,13 +174,9 @@ https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
 `Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
 https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
 
-**‘Atrophy, Servitude and Decline’: Rubio’s Bleak Warning for Europe**\
-`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+**Rubio Urges Europe to Awaken From ‘Slumber’ and Uphold Western Dominance**\
+`In Greece, Secretary of State Marco Rubio said Western nations must embrace an earlier ethos of exploration and conquest as part of their civilization, to remain ‘at the head of the world.’`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
-
-**Students at Lincoln University, an HBCU, Sue Missouri for $549 Million, Citing Funding Disparities**\
-`The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
-https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
 
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
 `(No description)`\

@@ -1,3 +1,15 @@
+**The Local: Our guide to election guides**\
+`Plus, “Wedding Crashers” DVDs have taken over Little Free Libraries in Minneapolis.`\
+https://www.nytimes.com/2026/10/07/briefing/twin-cities-election-guide.html
+
+**Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
+`A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
+**Rubio Urges Europe to Awaken From ‘Slumber’ and Uphold Western Dominance**\
+`In Greece, Secretary of State Marco Rubio said Western nations must embrace an earlier ethos of exploration and conquest as part of their civilization, to remain ‘at the head of the world.’`\
+https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
+
 **Wellness Culture is Coming for Polyester**\
 `Consumers across political and social groups are revolting against synthetic fabrics. The New York Times Styles reporter Yola Mzizi explores the backlash.`\
 https://www.nytimes.com/video/style/100000011173558/wellness-culture-is-coming-for-polyester.html
