@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
 `Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
 https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
 
-**Rubio Presses Trump’s Demands for More European Defense Spending**\
+**‘Atrophy, Servitude and Decline’: Rubio’s Bleak Warning for Europe**\
 `Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
 
