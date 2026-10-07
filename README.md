@@ -1,3 +1,7 @@
+**U.S. Formally Seeks Information From Russia About Possible Plague Death**\
+`The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
+
 **France in Crisis**\
 `We look at what’s driving the protests across France.`\
 https://www.nytimes.com/2026/10/07/briefing/france-in-crisis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-
 **MAHA,**\
 `The revolt against polyester.`\
 https://www.nytimes.com/2026/10/07/style/when-did-synthetic-fabrics-become-the-enemy.html
-
-**‘Sense and Sensibility’ Gets a Grittier Makeover in 2026 Adaptation**\
-`A new adaptation dispenses with period glamour in favor of a lived-in feel and realism. The goal is to bring emotions to the fore.`\
-https://www.nytimes.com/2026/10/07/movies/sense-and-sensibility-movie-2026.html
 
