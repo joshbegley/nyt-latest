@@ -1,3 +1,15 @@
+**Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
+`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire as they argued over a parking spot at a park in Baltimore over the weekend.`\
+https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
+
+**The Trump Outrages Keep Piling Up**\
+`Readers react to President Trump’s “take out Los Angeles” remark and his ethics flaws. Also: Climate risk; colleges and A.I.`\
+https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
+
+**Live Updates: Christa Pike’s Lawyers Ask Judge for More Access to Her After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, also want the judge to order the preservation of evidence in the case.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
 `The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
 https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html

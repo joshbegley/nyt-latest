@@ -1,3 +1,11 @@
+**Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
+`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire as they argued over a parking spot at a park in Baltimore over the weekend.`\
+https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
+
+**The Trump Outrages Keep Piling Up**\
+`Readers react to President Trump’s “take out Los Angeles” remark and his ethics flaws. Also: Climate risk; colleges and A.I.`\
+https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
+
 **More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
 `The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
 https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html
@@ -70,8 +78,8 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
-**Live Updates: Christa Pike’s Lawyers Appear Before Tennessee Judge After Failed Execution**\
-`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
+**Live Updates: Christa Pike’s Lawyers Ask Judge for More Access to Her After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, also want the judge to order the preservation of evidence in the case.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
@@ -173,16 +181,4 @@ https://www.nytimes.com/2026/10/07/podcasts/the-headlines/a-wall-street-record-a
 **NYT Connections Answers for October 8, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
 https://www.nytimes.com/2026/10/07/crosswords/connections-companion-1215.html
-
-**NYT Strands Hints for October 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
-https://www.nytimes.com/2026/10/07/crosswords/strands-sidekick-949.html
-
-**Today’s Wordle Hints for October 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
-https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
-
-**The School Near Paris That Shows Why French Students Are Protesting**\
-`Angered by poor classroom conditions, students at Paul Éluard High School in a suburb of the capital were among the first to blockade their campus during an ongoing round of unrest.`\
-https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
 
