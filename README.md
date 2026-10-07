@@ -1,3 +1,11 @@
+**Mamdani Draws Anger With Oct. 7 Statement Focused on Palestinians**\
+`After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
+https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
+
+**Fatal Stabbing of a 7-Year-Old Girl Rattles Chicago: ‘That Was a Baby’**\
+`The attack has raised questions about whether the suspect was overlooked by authorities despite a history of mental health problems and violent offenses.`\
+https://www.nytimes.com/2026/10/07/us/chicago-stabbing-girl.html
+
 **What Experts Want to Know About the Russia Plague Scare**\
 `Missing details about the death of a lab worker, including the cause, are worrying scientists.`\
 https://www.nytimes.com/2026/10/07/science/plague-russia-biosafety.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 **Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
-
-**Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
-`Technical trouble stalled the opening night of the Royal Shakespeare Company’s all-male take on the comedy. But it was worth the wait.`\
-https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.html
-
-**Texas Plans Execution After Botched Lethal Injection in Tennessee**\
-`Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
-https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
 
