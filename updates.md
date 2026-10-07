@@ -1,3 +1,11 @@
+**In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
+`A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
+https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html
+
+**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **My Grandmother Has Dementia. Do I Have to Tell Her That Her Daughter Died?**\
 `I worry that she might forget and then have to learn, and grieve, the loss repeatedly.`\
 https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.html

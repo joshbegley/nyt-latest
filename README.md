@@ -1,3 +1,7 @@
+**Trump Administration Delays Threaten Funding for HIV Research**\
+`The networks also develop treatments and preventions for other infectious diseases and were instrumental in testing the Covid vaccine.`\
+https://www.nytimes.com/2026/10/07/health/hiv-research-delay-cuts-hhs-nih.html
+
 **In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
 `A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
 https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
-**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+**Live Updates: Christa Pike’s Lawyers Appear Before Tennessee Judge After Failed Execution**\
 `Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/us/politics/angela-paxton-texas-senate-republ
 **Photos of Food With Black Dots? That’s A.I.**\
 `A.I. food slop generates images for menus and restaurants that can make the food quite unappealing.`\
 https://www.nytimes.com/2026/10/07/nyregion/food-photos-ai-slop.html
-
-**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
-`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
-https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.html
 
