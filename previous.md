@@ -1,3 +1,11 @@
+**August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
+`August Lamm wants you to put down your smartphone and reclaim your life.`\
+https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
+
+**I’m Through With My Rude Niece Until She Apologizes. Am I Being Extreme?**\
+`A reader was stunned when his adult niece brusquely ordered him to take his seat at a brunch — so much so that he resolved to write her out of his will.`\
+https://www.nytimes.com/2026/10/07/style/family-grudges-apologies.html
+
 **Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
 `Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to attack Los Angeles and San Diego, or as his seeing those cities as collateral.`\
 https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
@@ -62,13 +70,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
-`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
-https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
-
 **The School Policy Scam Turning Voters Blue**\
 `In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
 https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
 **The Problem With Hegseth’s Pentagon**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-weal
 **How Do I Decorate a Big Concrete Wall?**\
 `High ceilings and loft layouts can create particular decorating predicaments. Here’s how one design obsessive would tackle the issue.`\
 https://www.nytimes.com/2026/10/07/realestate/how-do-i-decorate-a-big-concrete-wall.html
-
-**A Reporter Following Culture to Unexpected Places**\
-`For Guy Trebay, writing about lucrative trees and homes with snow rooms is just part of the job.`\
-https://www.nytimes.com/2026/10/07/insider/guy-trebay.html
-
-**Need Help Paying for College? Try Bass Fishing.**\
-`The popularity of competitive bass fishing has inspired a growing number of youth, high school and college fishing programs.`\
-https://www.nytimes.com/2026/10/07/business/bass-fishing-college-recruitment.html
 

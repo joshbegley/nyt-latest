@@ -1,3 +1,11 @@
+**August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
+`August Lamm wants you to put down your smartphone and reclaim your life.`\
+https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
+
+**I’m Through With My Rude Niece Until She Apologizes. Am I Being Extreme?**\
+`A reader was stunned when his adult niece brusquely ordered him to take his seat at a brunch — so much so that he resolved to write her out of his will.`\
+https://www.nytimes.com/2026/10/07/style/family-grudges-apologies.html
+
 **Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
 `Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to attack Los Angeles and San Diego, or as his seeing those cities as collateral.`\
 https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
