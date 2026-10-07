@@ -1,3 +1,7 @@
+**Porsche’s New Look: Pricier Cars and 25% Fewer Employees**\
+`The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
+https://www.nytimes.com/2026/10/07/business/porsche-china-volkswagen.html
+
 **Putin’s Desperate, Dangerous Game in Europe**\
 `Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
 https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea
 **Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
 `As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
-
-**How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
-`What better place than the Little Free Libraries of Minneapolis?`\
-https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
 
