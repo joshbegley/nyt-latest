@@ -1,3 +1,15 @@
+**F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
+`A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
+https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
+
+**Fed Minutes Show Officials Saw More Work to Do to Quell Inflation**\
+`Policymakers grew increasingly concerned about inflation risks at their most recent meeting in September.`\
+https://www.nytimes.com/2026/10/07/business/fed-minutes-show-officials-saw-more-work-to-do-to-quell-inflation.html
+
+**Tropical Storm Isaias Will Bring Heavy Rain to the Gulf Coast, Forecasters Warn**\
+`The Atlantic hurricane season has been quiet, but Isaias could become its first hurricane.`\
+https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
+
 **A.I. Music Fraudster Who Drew Millions in Royalties Is Sentenced to 18 Months**\
 `Prosecutors say Michael Smith flooded music-streaming platforms with bots that repeatedly streamed his A.I.-generated music, earning him as much as $8 million.`\
 https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-
 **Case of U.S. Marine Accused of Murder in Japan Draws Outcry**\
 `Prime Minister Sanae Takaichi, a close Trump ally, is under pressure to strengthen oversight of the U.S. military in Japan.`\
 https://www.nytimes.com/2026/10/07/world/asia/us-marine-murder-okinawa-japan-takaichi.html
-
-**Why Markets Are Buoyant — and Under Pressure**\
-`Energy and technology companies’ earnings are expected to keep driving up stock indexes. But what’s driving up their profits are weighing on the economy.`\
-https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.html
-
-**Tishman Speyer Takes Over Chrysler Building With Big Renovation Plans**\
-`A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
-https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
-
-**Russia Says It Found No ‘Emergency’ in Plague Lab**\
-`New information around the death of a lab worker, including a statement that she had been vaccinated against the plague, came as U.S. officials demanded more data.`\
-https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
 

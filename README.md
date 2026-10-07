@@ -1,3 +1,7 @@
+**Canada Halts Plan to Allow Medically Assisted Death for the Mentally Ill**\
+`People who have mental illness alone will not qualify for assisted death, but patients who have other conditions and expect to have a cognitive decline can make an advanced request.`\
+https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
+
 **F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
 `A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
 https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
@@ -166,6 +170,10 @@ https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.
 `The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
 https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
 
+**Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/07/us/midterms-elections-iowa
+
 **August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
 `August Lamm wants you to put down your smartphone and reclaim your life.`\
 https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.
 **I’m Through With My Rude Niece Until She Apologizes. Am I Being Extreme?**\
 `A reader was stunned when his adult niece brusquely ordered him to take his seat at a brunch — so much so that he resolved to write her out of his will.`\
 https://www.nytimes.com/2026/10/07/style/family-grudges-apologies.html
-
-**Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
-`Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to attack Los Angeles and San Diego, or as his seeing those cities as collateral.`\
-https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
-
-**Case of U.S. Marine Accused of Murder in Japan Draws Outcry**\
-`Prime Minister Sanae Takaichi, a close Trump ally, is under pressure to strengthen oversight of the U.S. military in Japan.`\
-https://www.nytimes.com/2026/10/07/world/asia/us-marine-murder-okinawa-japan-takaichi.html
 

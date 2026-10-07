@@ -1,3 +1,15 @@
+**F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
+`A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
+https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
+
+**Fed Minutes Show Officials Saw More Work to Do to Quell Inflation**\
+`Policymakers grew increasingly concerned about inflation risks at their most recent meeting in September.`\
+https://www.nytimes.com/2026/10/07/business/fed-minutes-show-officials-saw-more-work-to-do-to-quell-inflation.html
+
+**Tropical Storm Isaias Will Bring Heavy Rain to the Gulf Coast, Forecasters Warn**\
+`The Atlantic hurricane season has been quiet, but Isaias could become its first hurricane.`\
+https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
+
 **A.I. Music Fraudster Who Drew Millions in Royalties Is Sentenced to 18 Months**\
 `Prosecutors say Michael Smith flooded music-streaming platforms with bots that repeatedly streamed his A.I.-generated music, earning him as much as $8 million.`\
 https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.html
