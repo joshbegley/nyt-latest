@@ -1,3 +1,11 @@
+**Subway Gates Deterred Fare Evasion, M.T.A. Says. More Will Be Installed.**\
+`A pilot program to replace subway turnstiles with high-tech entry gates has led to a major reduction in fare evasion, New York transit officials said, and 50 more stations will soon have them.`\
+https://www.nytimes.com/2026/10/07/nyregion/fare-gates-subway-mta.html
+
+**NYT Spelling Bee Answers for October 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/07/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Shames Trump for Suggesting Iran Could Bomb California**\
 `“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
 https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html

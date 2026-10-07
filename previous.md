@@ -1,3 +1,11 @@
+**Subway Gates Deterred Fare Evasion, M.T.A. Says. More Will Be Installed.**\
+`A pilot program to replace subway turnstiles with high-tech entry gates has led to a major reduction in fare evasion, New York transit officials said, and 50 more stations will soon have them.`\
+https://www.nytimes.com/2026/10/07/nyregion/fare-gates-subway-mta.html
+
+**NYT Spelling Bee Answers for October 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/07/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Shames Trump for Suggesting Iran Could Bomb California**\
 `“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
 https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.h
 **Energy Firms Try to Squeeze More Power Out of Old Nuclear Plants**\
 `It takes a long time to build new nuclear plants. So, some U.S. companies are looking to get more electricity out of reactors that already exist.`\
 https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
-
-**Trump Does Not Plan to Reimburse Taxpayers for Promotional Ads**\
-`A day after the president said his super PAC would pay for the ads, which had drawn bipartisan backlash, officials said that he meant moving forward. A new taxpayer-funded ad aired Tuesday.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
-
-**Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
-`A plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
-https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
 
