@@ -1,3 +1,7 @@
+**Suit Seeks $549 Million for Historically Black College, Citing Disparities**\
+`The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
+https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
+
 **Inheritances Can Shatter Families. Could a Therapist Help?**\
 `As the United States faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
 https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html

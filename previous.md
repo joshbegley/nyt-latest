@@ -1,3 +1,7 @@
+**Suit Seeks $549 Million for Historically Black College, Citing Disparities**\
+`The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
+https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
+
 **August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
 `August Lamm wants you to put down your smartphone and reclaim your life.`\
 https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
 **Inheritances Can Shatter Families. Could a Therapist Help?**\
 `As the United States faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
 https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
-
-**How Do I Decorate a Big Concrete Wall?**\
-`High ceilings and loft layouts can create particular decorating predicaments. Here’s how one design obsessive would tackle the issue.`\
-https://www.nytimes.com/2026/10/07/realestate/how-do-i-decorate-a-big-concrete-wall.html
 
