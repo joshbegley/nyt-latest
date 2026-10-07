@@ -1,3 +1,7 @@
+**‘The Twilight Zone’ Was a Warning America Ignored**\
+`With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
+https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
+
 **Army Sets Date for First Military Execution by Firing Squad Since 1945**\
 `Maj. Nidal Malik Hasan, a former Army psychiatrist, will be shot to death on Dec. 3 at Fort Hood, where he killed 13 and wounded 32 in 2009.`\
 https://www.nytimes.com/2026/10/07/us/politics/execution-fort-hood-shooting.html
