@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Nice rocks, Sly’s wisdom and peace in the kitchen.`\
+https://www.nytimes.com/2026/10/07/briefing/the-good-list-nice-rocks-stallone.html
+
 **Why A.I. Agents Are Going Rogue**\
 `Our journalists Sheera Frenkel and Dylan Freedman break down what A.I. agents are, how they differ from chatbots and why A.I. companies are worried about them now.`\
 https://www.nytimes.com/video/technology/100000011159494/why-ai-agents-are-going-rogue.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.ht
 **The Data Center Boom**\
 `We take a look at it from the sky.`\
 https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html
-
-**In Vienna and Beijing, the First Nuclear Clocks Begin to Tick**\
-`By measuring the squishing and unsquishing of thorium-229 nuclei, two teams created a new type of clock that could someday beat the precision of atomic clocks.`\
-https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
 
