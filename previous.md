@@ -1,3 +1,7 @@
+**Maine Senate Candidates Face Off in First Debate**\
+`Senator Susan Collins, Republican of Maine, and her Democratic challenger, Troy Jackson, faced off on the debate stage for the first time on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000011199035/maine-senate-debate-collins-jackson.html
+
 **Review: Louis Vuitton and Telfar Close Paris Fashion Week**\
 `The season, as summed up by Louis Vuitton and Telfar.`\
 https://www.nytimes.com/2026/10/07/style/louis-vuitton-telfar-pfw.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.
 **Restaurant Review: Hungry Spicy in New York**\
 `At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors are vivid, but proceed up the spice levels with caution.`\
 https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
-
-**Two Democracy Heroes on America**\
-`Sitting on your hands is not an option when democracy is at stake.`\
-https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.html
 
