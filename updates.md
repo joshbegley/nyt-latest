@@ -1,3 +1,11 @@
+**Israel Commemorates Three Years Since Oct. 7**\
+`Across Israel, people stood in silence on Tuesday morning to commemorate the three-year anniversary of the Hamas-led Oct. 7 attacks. The remembrance comes less than three weeks before the country votes in a general election.`\
+https://www.nytimes.com/video/world/middleeast/100000011199373/israel-october-7-hamas-attacks-gaza.html
+
+**How the Iran War Is Reaching U.S. Bases**\
+`As the U.S.-Israeli war with Iran continues, it’s being felt in a wider region. Eric Schmitt, a national security correspondent at The New York Times, explains how the conflict is reaching U.S. bases and why the United States is pulling back its military presence in some locations.`\
+https://www.nytimes.com/video/us/100000011194272/how-the-iran-war-is-reaching-us-bases.html
+
 **‘Ted Lasso’ Season 4, Episode 10 Recap: Wrapping Up**\
 `A very busy season finale brought old friends and new possibilities.`\
 https://www.nytimes.com/2026/10/07/arts/television/ted-lasso-season-finale-recap.html
