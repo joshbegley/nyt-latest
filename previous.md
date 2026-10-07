@@ -1,3 +1,11 @@
+**A.I. Music Fraudster Who Drew Millions in Royalties Is Sentenced to 18 Months**\
+`Prosecutors say Michael Smith flooded music-streaming platforms with bots that repeatedly streamed his A.I.-generated music, earning him as much as $8 million.`\
+https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.html
+
+**Unlicensed Wellness-Spa Director in Bronx Faces Murder Charge for Fatal Injection**\
+`A 27-year-old woman who received a shot of a longevity supplement at Luis Rojas Cabrera’s office in the Bronx died of an embolism.`\
+https://www.nytimes.com/2026/10/07/nyregion/bronx-wellness-spa-murder-charge-nyc.html
+
 **6 Broken Bathrooms Force Flight to Make an Urgent Landing**\
 `An American Airlines flight was diverted to New York on Tuesday because of an “inadequate number of operational lavatories” — two, on a plane that normally has eight.`\
 https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathrooms-landing.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.htm
 **Russia Says It Found No ‘Emergency’ in Plague Lab**\
 `New information around the death of a lab worker, including a statement that she had been vaccinated against the plague, came as U.S. officials demanded more data.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
-
-**France in Crisis**\
-`We look at what’s driving the protests across France.`\
-https://www.nytimes.com/2026/10/07/briefing/france-in-crisis.html
-
-**Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
-`The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
-https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
 

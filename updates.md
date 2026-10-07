@@ -1,3 +1,11 @@
+**A.I. Music Fraudster Who Drew Millions in Royalties Is Sentenced to 18 Months**\
+`Prosecutors say Michael Smith flooded music-streaming platforms with bots that repeatedly streamed his A.I.-generated music, earning him as much as $8 million.`\
+https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.html
+
+**Unlicensed Wellness-Spa Director in Bronx Faces Murder Charge for Fatal Injection**\
+`A 27-year-old woman who received a shot of a longevity supplement at Luis Rojas Cabrera’s office in the Bronx died of an embolism.`\
+https://www.nytimes.com/2026/10/07/nyregion/bronx-wellness-spa-murder-charge-nyc.html
+
 **6 Broken Bathrooms Force Flight to Make an Urgent Landing**\
 `An American Airlines flight was diverted to New York on Tuesday because of an “inadequate number of operational lavatories” — two, on a plane that normally has eight.`\
 https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathrooms-landing.html
