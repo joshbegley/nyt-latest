@@ -1,3 +1,11 @@
+**Trump’s Retreat: From the Gulf to Britain, American Forces Pull Back**\
+`A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
+https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
+
+**Students at Lincoln University, an HBCU, Sue Missouri for $549 Million, Citing Funding Disparities**\
+`The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
+https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
+
 **Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
 `Lawyers for Ms. Pike, a condemned murder who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution

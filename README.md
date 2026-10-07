@@ -1,3 +1,15 @@
+**Christa Pike’s Lawyers Prepare to Argue Over Preservation of Evidence**\
+`They believe that records of her failed execution in Tennessee will show “incompetent and reckless actions.”`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-execution.html
+
+**Messi Ends Career as National Hero With One Last Goal**\
+`Lionel Messi brought down the curtain on his international career on Tuesday with a goal and two assists, winning against Benin in his final appearance for Argentina. He bid farewell surrounded by his family and adoring fans as they battled tears.`\
+https://www.nytimes.com/video/sports/soccer/100000011199378/lionel-messi-argentina-benin-soccer.html
+
+**Messi’s Last Tango**\
+`Emma Bubola, a Times correspondent in Buenos Aires, joins host Natalie Kitroeff on “The Call”’ to watch the end of Lionel Messi’s legendary 21-year international soccer career.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tango.html
+
 **Trump’s Retreat: From the Gulf to Britain, American Forces Pull Back**\
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
@@ -130,13 +142,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
-`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
-https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
-
 **Billionaires Love This School Policy. Many Regular Parents Hate It.**\
 `In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
 https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
 **Pete Hegseth’s ‘Vast Overcorrection’**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/07/learning/15-minute-lesson-plan-ai-assisted-ma
 **Which $900,000 House Would You Choose?**\
 `For your consideration: A Tudor Revival in Salt Lake City, a farmhouse in Woodbury, Conn., and a Craftsman in Denver.`\
 https://www.nytimes.com/2026/10/07/realestate/which-900000-house-would-you-choose.html
-
-**Airfares Have Spiked. Is the Death of Spirit Airlines to Blame?**\
-`In the wake of the ultra-low-cost carrier’s closure, and with the cost of fuel and labor rising, domestic fares have become less competitive. But there are ways to parry higher prices.`\
-https://www.nytimes.com/2026/10/07/travel/airfares-flights-cost-spirit-airlines.html
-
-**Mass Trials Put Hundreds in One Dock in El Salvador**\
-`Lawyers warn that the mass trials of people imprisoned during President Nayib Bukele’s gang crackdown are marred by vague evidence and restrictions on a proper defense.`\
-https://www.nytimes.com/2026/10/07/world/americas/el-salvador-mass-trials-bukele.html
-
-**Ukraine Claws Back Land in the Donbas, Thwarting a Russian Push**\
-`Moscow says its capture of the region is inevitable. But Kyiv has so far stymied Russian efforts to encircle Ukrainian “fortress belt” cities.`\
-https://www.nytimes.com/2026/10/07/world/europe/ukraine-battlefield-operation-vivaldi.html
 

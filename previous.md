@@ -1,3 +1,7 @@
+**Trump’s Retreat: From the Gulf to Britain, American Forces Pull Back**\
+`A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
+https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
+
 **Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
 `Lawyers for Ms. Pike, a condemned murder who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.h
 `Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
 
-**Suit Seeks $549 Million for Historically Black College, Citing Disparities**\
+**Students at Lincoln University, an HBCU, Sue Missouri for $549 Million, Citing Funding Disparities**\
 `The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
 https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html
 
@@ -126,13 +130,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**Billionaires Love This School Policy. Many Regular Parents Hate It.**\
-`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
-https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
-
 **After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
 `Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
 https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
+
+**Billionaires Love This School Policy. Many Regular Parents Hate It.**\
+`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
+https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
 
 **Pete Hegseth’s ‘Vast Overcorrection’**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/world/americas/el-salvador-mass-trials-bukele
 **Ukraine Claws Back Land in the Donbas, Thwarting a Russian Push**\
 `Moscow says its capture of the region is inevitable. But Kyiv has so far stymied Russian efforts to encircle Ukrainian “fortress belt” cities.`\
 https://www.nytimes.com/2026/10/07/world/europe/ukraine-battlefield-operation-vivaldi.html
-
-**How a Small Business Got Entangled in U.S. Sanctions on Iranian Oil**\
-`The case of a small Malaysian shipping agency illustrates the challenges Washington faces in its effort to stanch the flow of Iranian oil.`\
-https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanctions.html
 
