@@ -1,4 +1,8 @@
 **Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
+`Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to attack Los Angeles and San Diego, or as his seeing those cities as collateral.`\
+https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
+
+**Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
 `Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to “take out” Los Angeles and San Diego, or as his seeing those cities as collateral.`\
 https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
 
