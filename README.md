@@ -1,3 +1,7 @@
+**Porsche’s New Look: Pricier Cars and 25% Fewer Employees**\
+`The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
+https://www.nytimes.com/2026/10/07/business/porsche-china-volkswagen.html
+
 **Putin’s Desperate, Dangerous Game in Europe**\
 `Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
 https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**A.I. Is Lying to You. Here’s How to Fight Back.**\
-`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
-
 **Maps: Tracking Tropical Depression Nine**\
 `See the likely path and wind arrival times for Nine`\
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A.I. Is Lying to You. Here’s How to Fight Back.**\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea
 **Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
 `As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
 https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
-
-**How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
-`What better place than the Little Free Libraries of Minneapolis?`\
-https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
 

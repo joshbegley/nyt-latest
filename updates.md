@@ -1,3 +1,7 @@
+**Putin’s Desperate, Dangerous Game in Europe**\
+`Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
+https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
+
 **Putin’s Dangerous Game in Europe**\
 `Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
 https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
