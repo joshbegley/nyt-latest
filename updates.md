@@ -1,3 +1,7 @@
+**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
+`The Nobel Committee recognized them for “the discovery of nonlinear effects and autocatalysis in asymmetric organic synthesis.”`\
+https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
+
 **Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
 `The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
