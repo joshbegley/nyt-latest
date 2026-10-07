@@ -1,3 +1,7 @@
+**More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
+`The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
+https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html
+
 **Can Bergdorf Goodman Return to Its Golden Age?**\
 `Bergdorf Goodman, which has survived two bankruptcies in six years, is getting back to its white-glove origins.`\
 https://www.nytimes.com/2026/10/07/business/bergdorf-goodman.html

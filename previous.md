@@ -1,3 +1,7 @@
+**More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
+`The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
+https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html
+
 **Can Bergdorf Goodman Return to Its Golden Age?**\
 `Bergdorf Goodman, which has survived two bankruptcies in six years, is getting back to its white-glove origins.`\
 https://www.nytimes.com/2026/10/07/business/bergdorf-goodman.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
 **The School Near Paris That Shows Why French Students Are Protesting**\
 `Angered by poor classroom conditions, students at Paul Éluard High School in a suburb of the capital were among the first to blockade their campus during an ongoing round of unrest.`\
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
-
-**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
-`The Nobel Committee recognized Henri Kagan and Kenso Soai for solving a century-old mystery about molecules with mirror images. Their work is crucial for pharmaceuticals and carries clues to the origins of life.`\
-https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
-
-**Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
-`Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
-https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
 
