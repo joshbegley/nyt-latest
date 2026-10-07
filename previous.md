@@ -1,3 +1,7 @@
+**Hiker, 16, Is Rescued From ‘Widowmaker’ Ledge After Using Chatbot to Plan Route**\
+`Bryce Vincent Gowryluk used Claude, Anthropic’s A.I. chatbot, to help him chart a course for the top of Crown Mountain, north of Vancouver, British Columbia. Things did not go as planned.`\
+https://www.nytimes.com/2026/10/07/world/canada/canada-bc-hiker-claude-rescue.html
+
 **‘The Twilight Zone’ Created a Blueprint for Surviving Our Surreal Moment**\
 `With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
 https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
 **If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
 `The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
-
-**Whistle-Blower Says I.R.S. Leaked His Tax Records in Retaliation**\
-`Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
-https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
 
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
 `(No description)`\
