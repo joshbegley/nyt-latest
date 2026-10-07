@@ -1,3 +1,11 @@
+**Leon Botstein, Former Bard President With Epstein Ties, Resigns From College Positions**\
+`Leon Botstein had already retired from the presidency of the liberal arts college this spring, after emails showed he had maintained a longtime friendship with Jeffrey Epstein.`\
+https://www.nytimes.com/2026/10/07/us/leon-botstein-bard-college-resign-epstein.html
+
+**Christa Pike, Confused After Failed Tennessee Execution, Is at Center of Legal Storm**\
+`Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
+
 **Delta Passenger Steals and Crashes Airport Tug in California, Officials Say**\
 `The episode briefly disrupted operations on Tuesday at John Wayne Airport in Santa Ana, Calif., where the man went onto the tarmac, the authorities said.`\
 https://www.nytimes.com/2026/10/07/us/delta-passenger-steals-tug-crashes-john-wayne-airport.html

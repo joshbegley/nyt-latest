@@ -1,3 +1,7 @@
+**Leon Botstein, Former Bard President With Epstein Ties, Resigns From College Positions**\
+`Leon Botstein had already retired from the presidency of the liberal arts college this spring, after emails showed he had maintained a longtime friendship with Jeffrey Epstein.`\
+https://www.nytimes.com/2026/10/07/us/leon-botstein-bard-college-resign-epstein.html
+
 **Delta Passenger Steals and Crashes Airport Tug in California, Officials Say**\
 `The episode briefly disrupted operations on Tuesday at John Wayne Airport in Santa Ana, Calif., where the man went onto the tarmac, the authorities said.`\
 https://www.nytimes.com/2026/10/07/us/delta-passenger-steals-tug-crashes-john-wayne-airport.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/07/us/politics/execution-fort-hood-shooting.html
 `Tens of thousands of student protesters are accusing the French government of neglecting public schools. We went inside the movement to find out why so many young people are risking their safety to demand a better education.`\
 https://www.nytimes.com/video/world/europe/100000011193493/france-students-protests-education.html
 
-**Christa Pike, Awake and Confused, Is at the Center of a Legal Storm**\
+**Christa Pike, Confused After Failed Tennessee Execution, Is at Center of Legal Storm**\
 `Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
 https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/07/business/bergdorf-goodman.html
 **Five Essential Songs From Freddie Jackson: ‘You Are My Lady’ and More**\
 `A central figure in the Quiet Storm R&B of the 1980s, Jackson explored a tender and refined longing on tracks like “You Are My Lady” and “Jam Tonight.”`\
 https://www.nytimes.com/2026/10/07/arts/music/freddie-jackson-essential-songs-you-are-my-lady.html
-
-**The Bra Top Is Everywhere This Fashion Season**\
-`Vanessa Friedman, our chief fashion critic, sees the next big trend at the influential Miu Miu show in Paris: the bra top.`\
-https://www.nytimes.com/video/style/100000011173258/the-bra-top-is-everywhere-this-fashion-season.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
