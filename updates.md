@@ -1,3 +1,15 @@
+**Rubio Stresses Need for U.S. Security Work With Greece on Migration and Terrorism**\
+`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
+
+**Tishman Speyer Takes Over Chrysler Building With Big Renovation Plans**\
+`A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
+https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
+
+**Billionaires Love This School Policy. Many Regular Parents Hate It.**\
+`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
+https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
 **Pete Hegseth’s ‘Vast Overcorrection’**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
 https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
