@@ -1,3 +1,11 @@
+**Religion Professor Accused of Harassing Colleague With Antisemitic Posts**\
+`The professor at Haverford College in Pennsylvania was charged with cyberstalking in connection with what federal prosecutors say was a series of threatening messages to a co-worker.`\
+https://www.nytimes.com/2026/10/07/us/haverford-professor-arrest-death-threats.html
+
+**Who Is Ken Paxton Turning to for Help in the Texas Senate Race?**\
+`Trump is in Texas tonight to stump for the Senate candidate.`\
+https://www.nytimes.com/2026/10/07/us/politics/ken-paxton-texas-senate-race.html
+
 **Leon Botstein, Former Bard President With Epstein Ties, Resigns From College Positions**\
 `Leon Botstein had already retired from the presidency of the liberal arts college this spring, after emails showed he had maintained a longtime friendship with Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/07/us/leon-botstein-bard-college-resign-epstein.html

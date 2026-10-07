@@ -1,3 +1,11 @@
+**Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
+`Margaret Hamilton, the first female programmer hired to work on the space project at M.I.T., was 90.`\
+https://www.nytimes.com/2026/10/07/obituaries/margaret-hamilton-dead.html
+
+**Kennedy to Announce Major Vaccine Injury Initiative, Including New Clinic**\
+`Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
+https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
+
 **Religion Professor Accused of Harassing Colleague With Antisemitic Posts**\
 `The professor at Haverford College in Pennsylvania was charged with cyberstalking in connection with what federal prosecutors say was a series of threatening messages to a co-worker.`\
 https://www.nytimes.com/2026/10/07/us/haverford-professor-arrest-death-threats.html
