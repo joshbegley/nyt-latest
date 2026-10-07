@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
 
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
-`The Nobel Committee recognized them for solving a century-old mystery about how molecules with mirror images can emerge in nature.`\
+`The Nobel Committee recognized Henri Kagan and Kenso Soai for solving a century-old mystery about molecules with mirror images. Their work is crucial for pharmaceuticals and carries clues to the origins of life.`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
 
 **Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
