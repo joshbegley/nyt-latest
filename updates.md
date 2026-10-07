@@ -1,3 +1,7 @@
+**Why Markets Are Buoyant — and Under Pressure**\
+`Energy and technology companies’ earnings are expected to keep driving up stock indexes. But what’s driving up their profits are weighing on the economy.`\
+https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.html
+
 **Chrysler Building Gets a New Owner With Big Renovation Plans**\
 `A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
 https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
