@@ -1,3 +1,7 @@
+**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
+`The Nobel Committee recognized Henri Kagan and Kenso Soai for solving a century-old mystery about molecules with mirror images. Their work is crucial for pharmaceuticals and carries clues to the origins of life.`\
+https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
+
 **Whistle-Blower Says I.R.S. Leaked His Tax Records in Retaliation**\
 `Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
 https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
