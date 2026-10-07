@@ -1,3 +1,7 @@
+**Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
+`A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **Maps: Tracking Tropical Storm Simon**\
 `See the likely path and wind arrival times for Simon`\
 https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.html
