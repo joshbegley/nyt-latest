@@ -2,7 +2,7 @@
 `Margaret Hamilton, the first female programmer hired to work on the space project at M.I.T., was 90.`\
 https://www.nytimes.com/2026/10/07/obituaries/margaret-hamilton-dead.html
 
-**Kennedy to Announce Major Vaccine Injury Initiative, Including New Clinic**\
+**RFK Jr. to Announce Major Vaccine Injury Initiative, Including New Clinic**\
 `Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
 
