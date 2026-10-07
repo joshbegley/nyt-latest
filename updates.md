@@ -1,3 +1,11 @@
+**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
+`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
+https://www.nytimes.com/video/opinion/100000011191541/this-is-nuts-an-openai-insider-explains-why-he-quit.html
+
+**Tropical Storm Isaias Could Become the First Atlantic Hurricane of the Year**\
+`The storm will move north toward the Gulf Coast of the United States over the next few days, forecasters said.`\
+https://www.nytimes.com/2026/10/07/weather/tropical-storm-isaias-gulf.html
+
 **What Life in Gaza Is Like Now**\
 `Nearly a year after Israel and Hamas agreed to end the war in Gaza, Saher Alghorra, a photographer for The New York Times, documents how residents are coping and working to rebuild their lives.`\
 https://www.nytimes.com/video/world/middleeast/100000011168313/what-life-in-gaza-is-like-now.html
