@@ -1,3 +1,7 @@
+**If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
+`The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
+https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
+
 **Whistle-Blower Says I.R.S. Leaked His Tax Records in Retaliation**\
 `Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
 https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
@@ -158,8 +162,8 @@ https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanc
 `Companies continue to service a “dark fleet” of Iranian tankers in waters off Malaysia in spite of Washington’s threat to target them.`\
 https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
 
-**Catch New Faces in These Long-Running Shows (On and Off Broadway)**\
-`Ethan Slater and Betsy Wolfe star in “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
+**Are ‘Little Shop,’ ‘Just in Time’ and ‘Maybe Happy Ending’ Still Worth the Ticket?**\
+`Ethan Slater and Betsy Wolfe are the current stars of “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
 https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
 
 **How Architects Transformed an Abandoned California Radio Tower**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/learning/word-of-the-day-debonair.html
 **Beach in Guam: Supreme Court Considers if Military Can Explode Bombs in This Habitat**\
 `The Supreme Court will hear arguments over whether the U.S. Air Force can keep destroying munitions on a beach in Guam, a practice it began in 1982.`\
 https://www.nytimes.com/2026/10/07/us/politics/supreme-court-air-force-guam.html
-
-**As Race Tightens, Republicans Resume Tepid Support For Max Miller in Ohio**\
-`The embattled congressman, accused of throwing scalding water at his ex-wife and breaking his daughter’s collarbone, rebuffed earlier Republican calls to drop out.`\
-https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-house.html
 

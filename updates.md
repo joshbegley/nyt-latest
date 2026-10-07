@@ -1,3 +1,11 @@
+**If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
+`The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
+https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
+
+**Are ‘Little Shop,’ ‘Just in Time’ and ‘Maybe Happy Ending’ Still Worth the Ticket?**\
+`Ethan Slater and Betsy Wolfe are the current stars of “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
+https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
+
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
 `The Nobel Committee recognized Henri Kagan and Kenso Soai for solving a century-old mystery about molecules with mirror images. Their work is crucial for pharmaceuticals and carries clues to the origins of life.`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html

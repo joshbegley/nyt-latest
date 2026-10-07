@@ -1,3 +1,27 @@
+**The Data Center Boom**\
+`We take a look at it from the sky.`\
+https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html
+
+**In Vienna and Beijing, the First Nuclear Clocks Begin to Tick**\
+`By measuring the squishing and unsquishing of thorium-229 nuclei, two teams created a new type of clock that could someday beat the precision of atomic clocks.`\
+https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
+
+**In ‘Allegra’, the Choreography Dives Deep Into Japan’s Ancient Court Dance**\
+`And the spirit of the ballerina Allegra Kent doesn’t hurt. The choreographer Benjamin Akio Kimitch dives into the art of Bugaku to create his fantasy of a Japanese American court dance.`\
+https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent-bugaku.html
+
+**The Only Tech Leader Who Really Matters**\
+`Our fate may be very well be in the hands of Jensen Huang.`\
+https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
+
+**‘Moonlight’ at 10: How the Movie Made an Impact**\
+`Filmmakers consider the influence of Barry Jenkins’s seminal Oscar-winner and the circumstances that helped create it.`\
+https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
+
+**HBO’s ‘Youth’ and the Reality of Dating After 50**\
+`On the HBO show, and in real life, women are grappling with their changing bodies, relationships and responsibilities.`\
+https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
+
 **If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
 `The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/07/realestate/a-radio-tower-reborn-in-topanga-ca
 **Are You Prepared for MoMA’s New Swamp?**\
 `The Danish artist Jakob Kudsk Steensen is driven by fascination with wetlands and a penchant for video games. His exhibition presents a mystical, esoteric world.`\
 https://www.nytimes.com/2026/10/07/arts/design/are-you-prepared-for-momas-new-swamp.html
-
-**Dispelling the Myth of Cormac McCarthy as Cowboy-Artist**\
-`The first biography of the elusive novelist shows how little the lore ever told us about the man — or his art.`\
-https://www.nytimes.com/2026/10/07/magazine/cormac-mccarthy-biography-myths.html
-
-**Book Review: ‘Will and Attention,’ by Meghan O’Gieblyn**\
-`In her new memoir, Meghan O’Gieblyn plumbs the philosophical implications of twin longings: for spiritual fulfillment and for drink.`\
-https://www.nytimes.com/2026/10/07/books/review/will-and-attention-meghan-ogieblyn.html
-
-**Book Review: ‘Sleeping Beauties,’ by David Byrne**\
-`“Sleeping Beauties,” by the musician David Byrne, explores artistic and scientific innovations that were overlooked before being embraced.`\
-https://www.nytimes.com/2026/10/07/books/review/sleeping-beauties-david-byrne.html
-
-**Bondage Photos Weren’t Part of the Campaign Plan**\
-`But Chris Gallant, a Black Hawk pilot and Democrat who is running to represent Long Island in Congress, is making the most of life post-tabloid reveal.`\
-https://www.nytimes.com/2026/10/07/style/chris-gallant-campaign-photos.html
-
-**Word of the Day: debonair**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/07/learning/word-of-the-day-debonair.html
-
-**Beach in Guam: Supreme Court Considers if Military Can Explode Bombs in This Habitat**\
-`The Supreme Court will hear arguments over whether the U.S. Air Force can keep destroying munitions on a beach in Guam, a practice it began in 1982.`\
-https://www.nytimes.com/2026/10/07/us/politics/supreme-court-air-force-guam.html
 
