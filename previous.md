@@ -1,3 +1,19 @@
+**Malawians Struggle to Survive After Fleeing Anti-Immigrant Violence**\
+`Anti-immigrant violence in South Africa has forced tens of thousands to return to Malawi, severing badly needed cash flows and leaving families hungry.`\
+https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.html
+
+**Quote of the Day: One Year in, Adjusting to Freedom.**\
+`Quotation of the Day for Wednesday, October 7, 2026.`\
+https://www.nytimes.com/2026/10/07/pageoneplus/quote-of-the-day-one-year-in-adjusting-to-freedom.html
+
+**The Fight for Britain’s Right: Can Kemi Badenoch Reboot the Conservatives?**\
+`Attendees at the party’s annual conference have been buoyed: both by leader Kemi Badenoch’s rising poll ratings and a mock Bayeux Tapestry. But the challenge from Reform U.K. remains.`\
+https://www.nytimes.com/2026/10/07/world/europe/uk-conservatives-kemi-badenoch-right-farage.html
+
+**On This Day, Oct. 7: In 2023, Hamas-led Militants Launched Surprise Attacks on Israel**\
+`In 2023, Hamas-led militants launched surprise attacks on Israel from Gaza, killing civilians and soldiers, and taking hostages. Israel declared war the next day and began a large-scale, prolonged military campaign in Gaza.`\
+https://www.nytimes.com/2026/10/07/learning/on-this-day-oct-7.html
+
 **University of Arizona Suspends Fraternity Activities, Citing Misconduct Reports**\
 `The university said it was putting its fraternity chapters on “activities suspension” while it investigated allegations that included assault, drug use and hazing.`\
 https://www.nytimes.com/2026/10/06/us/arizona-university-fraternities-suspended.html
@@ -86,13 +102,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -157,20 +173,4 @@ https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-librari
 **What, Exactly, Did Trump Say About Iran Taking Out Los Angeles and San Diego?**\
 `President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
 https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
-
-**UK Security Adviser Jonathan Powell Traveled to Israel Ahead of Consulate Closure**\
-`Jonathan Powell, Britain’s national security adviser, visited Israel last week to try to negotiate over the looming closure of his country’s consulate in Jerusalem, according to three officials.`\
-https://www.nytimes.com/2026/10/06/world/europe/uk-security-adviser-traveled-to-israel-ahead-of-consulate-closure.html
-
-**Live From the Barracks: Three Juntas Launch TV Channel**\
-`Three African countries have started Tafouk TV, a Russia-partnered broadcast channel, after throwing out Western journalists and cracking down on local media.`\
-https://www.nytimes.com/2026/10/06/world/africa/russia-africa-propaganda-sahel-tafouk.html
-
-**‘Sudden’ Sam McDowell, Ace Pitcher for the Cleveland Indians, Has Died**\
-`Known as “Sudden Sam,” he led the American League in strikeouts five times and posted a single-season high of 325 in 1965.`\
-https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
-
-**How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
-`In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
-https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
 
