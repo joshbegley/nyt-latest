@@ -1,3 +1,23 @@
+**‘Ted Lasso’ Season 4, Episode 10 Recap: Wrapping Up**\
+`A very busy season finale brought old friends and new possibilities.`\
+https://www.nytimes.com/2026/10/07/arts/television/ted-lasso-season-finale-recap.html
+
+**We Want to Know: How Have Your Halloween Candy Habits Changed?**\
+`Share your story and it might be included in an upcoming feature.`\
+https://www.nytimes.com/2026/10/07/dining/halloween-candy-prices-callout.html
+
+**Trump Administration Delays Threaten Funding for HIV Research**\
+`The networks also develop treatments and preventions for other infectious diseases and were instrumental in testing the Covid vaccine.`\
+https://www.nytimes.com/2026/10/07/health/hiv-research-delay-cuts-hhs-nih.html
+
+**From Iran to the U.K., Trump Is Being Forced Into Retreat**\
+`A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
+https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
+
+**Live Updates: Christa Pike’s Lawyers Appear Before Tennessee Judge After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
 `A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
 https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html

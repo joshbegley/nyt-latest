@@ -1,3 +1,15 @@
+**‘Ted Lasso’ Season 4, Episode 10 Recap: Wrapping Up**\
+`A very busy season finale brought old friends and new possibilities.`\
+https://www.nytimes.com/2026/10/07/arts/television/ted-lasso-season-finale-recap.html
+
+**We Want to Know: How Have Your Halloween Candy Habits Changed?**\
+`Share your story and it might be included in an upcoming feature.`\
+https://www.nytimes.com/2026/10/07/dining/halloween-candy-prices-callout.html
+
+**Trump Administration Delays Threaten Funding for HIV Research**\
+`The networks also develop treatments and preventions for other infectious diseases and were instrumental in testing the Covid vaccine.`\
+https://www.nytimes.com/2026/10/07/health/hiv-research-delay-cuts-hhs-nih.html
+
 **In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
 `A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
 https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html
@@ -22,11 +34,11 @@ https://www.nytimes.com/video/sports/soccer/100000011199378/lionel-messi-argenti
 `Emma Bubola, a Times correspondent in Buenos Aires, joins host Natalie Kitroeff on “The Call”’ to watch the end of Lionel Messi’s legendary 21-year international soccer career.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tango.html
 
-**Trump’s Retreat: From the Gulf to Britain, American Forces Pull Back**\
+**From Iran to the U.K., Trump Is Being Forced Into Retreat**\
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
-**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+**Live Updates: Christa Pike’s Lawyers Appear Before Tennessee Judge After Failed Execution**\
 `Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/07/learning/are-you-a-procrastinator.html
 **China’s ‘Self-Reliance’ Drive Is Upending Trade With Europe**\
 `China’s push to manufacture more at home has widened its trade imbalance with Europe, intensifying pressure on European industries and policymakers to take action.`\
 https://www.nytimes.com/2026/10/07/business/china-europe-trade-manufacturing.html
-
-**Why Ken Paxton’s Estranged Wife Is Making the Case for His Senate Campaign**\
-`Angela Paxton is urging Texas voters to support Mr. Paxton’s Senate campaign, even as she is divorcing him and accusing him of adultery. She has political aspirations of her own.`\
-https://www.nytimes.com/2026/10/07/us/politics/angela-paxton-texas-senate-republican.html
-
-**Photos of Food With Black Dots? That’s A.I.**\
-`A.I. food slop generates images for menus and restaurants that can make the food quite unappealing.`\
-https://www.nytimes.com/2026/10/07/nyregion/food-photos-ai-slop.html
-
-**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
-`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
-https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.html
 
