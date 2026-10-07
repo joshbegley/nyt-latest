@@ -1,3 +1,7 @@
+**Californians Criticize Trump for Saying Iran Could ‘Take Out’ Los Angeles and San Diego**\
+`Both Democrats and Republicans criticized President Trump for comments that were interpreted as either inviting Iran to “take out” Los Angeles and San Diego, or as his seeing those cities as collateral.`\
+https://www.nytimes.com/video/us/politics/100000011199411/california-trump-iran-los-angeles-san-diego.html
+
 **Case of U.S. Marine Accused of Murder in Japan Draws Outcry**\
 `Prime Minister Sanae Takaichi, a close Trump ally, is under pressure to strengthen oversight of the U.S. military in Japan.`\
 https://www.nytimes.com/2026/10/07/world/asia/us-marine-murder-okinawa-japan-takaichi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/insider/guy-trebay.html
 **Need Help Paying for College? Try Bass Fishing.**\
 `The popularity of competitive bass fishing has inspired a growing number of youth, high school and college fishing programs.`\
 https://www.nytimes.com/2026/10/07/business/bass-fishing-college-recruitment.html
-
-**A War America Could Win**\
-`America has let go of its maritime edge at its own peril.`\
-https://www.nytimes.com/2026/10/07/opinion/military-maritime-america-power.html
 
