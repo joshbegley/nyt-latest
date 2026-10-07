@@ -1,3 +1,7 @@
+**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
+`The Nobel Committee recognized them for “the discovery of non-linear effects and autocatalysis in asymmetric organic synthesis.”`\
+https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
+
 **Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
 `Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
 https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011199035/maine-senate-debate-c
 **Review: Louis Vuitton and Telfar Close Paris Fashion Week**\
 `The season, as summed up by Louis Vuitton and Telfar.`\
 https://www.nytimes.com/2026/10/07/style/louis-vuitton-telfar-pfw.html
-
-**NYT Spelling Bee Answers for October 7, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/07/crosswords/spelling-bee-forum.html
 
