@@ -1,3 +1,7 @@
+**Review: Louis Vuitton and Telfar Close Paris Fashion Week**\
+`The season, as summed up by Louis Vuitton and Telfar.`\
+https://www.nytimes.com/2026/10/07/style/louis-vuitton-telfar-pfw.html
+
 **NYT Spelling Bee Answers for October 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/07/crosswords/spelling-bee-forum.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.htm
 **Two Democracy Heroes on America**\
 `Sitting on your hands is not an option when democracy is at stake.`\
 https://www.nytimes.com/2026/10/06/opinion/middle-east-democracy-iran-us-yemen.html
-
-**Energy Firms Try to Squeeze More Power Out of Old Nuclear Plants**\
-`It takes a long time to build new nuclear plants. So, some U.S. companies are looking to get more electricity out of reactors that already exist.`\
-https://www.nytimes.com/2026/10/06/climate/nuclear-power-plant-google-data-centers.html
 

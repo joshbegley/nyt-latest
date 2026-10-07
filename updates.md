@@ -1,3 +1,7 @@
+**Review: Louis Vuitton and Telfar Close Paris Fashion Week**\
+`The season, as summed up by Louis Vuitton and Telfar.`\
+https://www.nytimes.com/2026/10/07/style/louis-vuitton-telfar-pfw.html
+
 **Subway Gates Deterred Fare Evasion, M.T.A. Says. More Will Be Installed.**\
 `A pilot program to replace subway turnstiles with high-tech entry gates has led to a major reduction in fare evasion, New York transit officials said, and 50 more stations will soon have them.`\
 https://www.nytimes.com/2026/10/07/nyregion/fare-gates-subway-mta.html
