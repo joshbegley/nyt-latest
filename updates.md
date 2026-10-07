@@ -1,3 +1,7 @@
+**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
+`The Nobel Committee recognized them for “the discovery of non-linear effects and autocatalysis in asymmetric organic synthesis.”`\
+https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
+
 **For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
 `Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
 https://www.nytimes.com/2026/10/07/world/middleeast/israel-october-7-attacks-hostages-twins-berman.html
