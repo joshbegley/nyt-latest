@@ -1,3 +1,11 @@
+**Trump Administration Investigates Wells Fargo for Race-Based Lending**\
+`The federal housing agency says bank’s efforts to encourage Black homeownership amount to discrimination.`\
+https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
+
+**How Alan Cumming’s Trauma Made Him a Better Actor**\
+`The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, about how the fear instilled in him by his father helped him develop certain acting skills.`\
+https://www.nytimes.com/video/podcasts/100000011200147/how-alan-cummings-trauma-made-him-a-better-actor.html
+
 **Corrections: Oct. 7, 2027**\
 `Corrections that appeared in print on Wednesday, Oct. 7, 2026.`\
 https://www.nytimes.com/2026/10/07/pageoneplus/corrections-oct-7-2027.html

@@ -1,5 +1,13 @@
+**Ukraine Claws Back Land**\
+`Also, scientists study a 194-year-old tortoise. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/07/briefing/ukraine-claws-back-land.html
+
+**Migrant Involved With Delaney Hall Protests Is Freed From Detention**\
+`The center in New Jersey became a flashpoint in the federal government’s effort to deport immigrants. Martin Soto had spent eight months in custody.`\
+https://www.nytimes.com/2026/10/07/nyregion/migrant-protester-delaney-freed.html
+
 **Trump Administration Investigates Wells Fargo for Race-Based Lending**\
-`The federal housing agency says bank’s efforts to encourage Black homeownership amount to discrimination.`\
+`The federal housing agency says the bank’s efforts to encourage Black homeownership amount to discrimination.`\
 https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
 
 **How Alan Cumming’s Trauma Made Him a Better Actor**\
@@ -165,14 +173,6 @@ https://www.nytimes.com/video/world/middleeast/100000011199373/israel-october-7-
 **How the Iran War Is Reaching U.S. Bases**\
 `As the U.S.-Israeli war with Iran continues, it’s being felt in a wider region. Eric Schmitt, a national security correspondent at The New York Times, explains how the conflict is reaching U.S. bases and why the United States is pulling back its military presence in some locations.`\
 https://www.nytimes.com/video/us/100000011194272/how-the-iran-war-is-reaching-us-bases.html
-
-**‘Ted Lasso’ Season 4, Episode 10 Recap: Wrapping Up**\
-`A very busy season finale brought old friends and new possibilities.`\
-https://www.nytimes.com/2026/10/07/arts/television/ted-lasso-season-finale-recap.html
-
-**We Want to Know: How Have Your Halloween Candy Habits Changed?**\
-`Share your story and it might be included in an upcoming feature.`\
-https://www.nytimes.com/2026/10/07/dining/halloween-candy-prices-callout.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
