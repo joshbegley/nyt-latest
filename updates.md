@@ -1,3 +1,7 @@
+**Jimmy Kimmel Shames Trump for Suggesting Iran Could Bomb California**\
+`“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
+https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html
+
 **Porsche’s New Look: Pricier Cars and 25% Fewer Employees**\
 `The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
 https://www.nytimes.com/2026/10/07/business/porsche-china-volkswagen.html

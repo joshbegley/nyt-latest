@@ -1,3 +1,7 @@
+**Jimmy Kimmel Shames Trump for Suggesting Iran Could Bomb California**\
+`“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
+https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html
+
 **Porsche’s New Look: Pricier Cars and 25% Fewer Employees**\
 `The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
 https://www.nytimes.com/2026/10/07/business/porsche-china-volkswagen.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/us/politics/trump-taxpayer-funded-ads.html
 **Ex-C.I.A. Officer Who Stashed Gold Bars Admits to Far Larger $145 Million Scam**\
 `A plea hearing revealed a far larger pattern of fraud against the government, while keeping some key secrets still hidden.`\
 https://www.nytimes.com/2026/10/06/us/politics/cia-officer-gold-bars-guilty-plea.html
-
-**Animal Taste Testers Help Pet Food Makers Capture a Growing Market**\
-`As the large swath of pets adopted during the pandemic enters middle age, pet food companies are pouring money into research to understand the palates of aging cats and dogs.`\
-https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-taste-testers.html
 
