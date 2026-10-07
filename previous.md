@@ -1,3 +1,7 @@
+**Education Dept. Is Investigating Sexual Misconduct in N.Y.C. Schools**\
+`The civil rights investigation was the latest salvo by the Trump administration against the largest school system in the country.`\
+https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-nyc-schools.html
+
 **Hiker, 16, Is Rescued From ‘Widowmaker’ Ledge After Using Chatbot to Plan Route**\
 `Bryce Vincent Gowryluk used Claude, Anthropic’s A.I. chatbot, to help him chart a course for the top of Crown Mountain, north of Vancouver, British Columbia. Things did not go as planned.`\
 https://www.nytimes.com/2026/10/07/world/canada/canada-bc-hiker-claude-rescue.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jor
 https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
 
 **The Trump Outrages Keep Piling Up**\
-`Readers react to President Trump’s “take out Los Angeles” remark and his ethics flaws. Also: Climate risk; colleges and A.I.`\
+`Readers react to President Trump’s “take out Los Angeles” remarks and his ethics flaws. Also: Climate risk; colleges and A.I.`\
 https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
 
 **More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
 **‘Youth’ Embraces the Messy Truth of Dating After 50**\
 `On the HBO show, and in real life, women are grappling with their changing bodies, relationships and responsibilities.`\
 https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
-
-**If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
-`The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
-https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
 
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
 `(No description)`\
