@@ -1,3 +1,7 @@
+**Corrections: Oct. 7, 2027**\
+`Corrections that appeared in print on Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/07/pageoneplus/corrections-oct-7-2027.html
+
 **Maps: Tracking Tropical Storm Simon**\
 `See the likely path and wind arrival times for Simon`\
 https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.html
@@ -169,14 +173,6 @@ https://www.nytimes.com/2026/10/07/health/hiv-research-delay-cuts-hhs-nih.html
 **In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
 `A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
 https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html
-
-**My Grandmother Has Dementia. Do I Have to Tell Her That Her Daughter Died?**\
-`I worry that she might forget and then have to learn, and grieve, the loss repeatedly.`\
-https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.html
-
-**‘Cupertino’ Review: The People v. A.I.**\
-`Robert and Michelle King have taken on law, politics and religion. Their delightful new legal drama suggests that tech might be the final boss.`\
-https://www.nytimes.com/2026/10/07/arts/television/cupertino-review.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\

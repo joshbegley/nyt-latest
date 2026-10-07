@@ -1,3 +1,7 @@
+**Corrections: Oct. 7, 2027**\
+`Corrections that appeared in print on Wednesday, Oct. 7, 2026.`\
+https://www.nytimes.com/2026/10/07/pageoneplus/corrections-oct-7-2027.html
+
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
