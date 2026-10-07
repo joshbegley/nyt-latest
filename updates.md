@@ -1,3 +1,7 @@
+**Christa Pike, Awake and Angry, Is at the Center of a Legal Storm**\
+`Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
+
 **Do We Even Want the A.I. Bet to Pay Off?**\
 `Assuming it’s achievable, should we even want superintelligence? On “The Ezra Klein Show,” Ezra Klein poses that question to David Robinson, who quit his role at OpenAI last week.`\
 https://www.nytimes.com/video/opinion/100000011191545/do-we-even-want-the-ai-bet-to-pay-off.html
