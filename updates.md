@@ -1,3 +1,7 @@
+**Wellness Culture is Coming for Polyester**\
+`Consumers across political and social groups are revolting against synthetic fabrics. The New York Times Styles reporter Yola Mzizi explores the backlash.`\
+https://www.nytimes.com/video/style/100000011173558/wellness-culture-is-coming-for-polyester.html
+
 **A Public Health-Minded Senator Asks: What Comes After Trump and Kennedy?**\
 `Senator Patty Murray, a former chair of the Senate health committee, is forming a group of experts to examine how to insulate the C.D.C. from political interference.`\
 https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
