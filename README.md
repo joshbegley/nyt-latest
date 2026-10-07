@@ -1,3 +1,11 @@
+**My Grandmother Has Dementia. Do I Have to Tell Her That Her Daughter Died?**\
+`I worry that she might forget and then have to learn, and grieve, the loss repeatedly.`\
+https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.html
+
+**‘Cupertino’ Review: The People v. A.I.**\
+`Robert and Michelle King have taken on law, politics and religion. Their delightful new legal drama suggests that tech might be the final boss.`\
+https://www.nytimes.com/2026/10/07/arts/television/cupertino-review.html
+
 **Christa Pike’s Lawyers Prepare to Argue Over Preservation of Evidence**\
 `They believe that records of her failed execution in Tennessee will show “incompetent and reckless actions.”`\
 https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-execution.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
 **Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
-`Lawyers for Ms. Pike, a condemned murder who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.
 https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
 
 **Was the Human Gut Healthier in Ancient Times?**\
-`The microbiome isn’t what it used to be in many parts of the world. The shift of species may be affecting the well-being of people in industrialized countries.`\
+`The microbiome isn’t what it used to be in many parts of the world. The shift may be affecting the well-being of people in industrialized countries.`\
 https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
 
 **The Data Center Boom**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.htm
 **Modern Love: Alan Cumming Escaped His Father**\
 `The actor grew up in fear of his father. Now, he wants to pass kindness on to the next generation.`\
 https://www.nytimes.com/2026/10/07/podcasts/how-alan-cumming-escaped-his-father-and-became-himself.html
-
-**15-Minute Lesson Plan: A.I.-Assisted Mathematics**\
-`A.I. is making big leaps. What are the implications for the field of mathematics — and for math students?`\
-https://www.nytimes.com/2026/10/07/learning/15-minute-lesson-plan-ai-assisted-mathematics.html
-
-**Which $900,000 House Would You Choose?**\
-`For your consideration: A Tudor Revival in Salt Lake City, a farmhouse in Woodbury, Conn., and a Craftsman in Denver.`\
-https://www.nytimes.com/2026/10/07/realestate/which-900000-house-would-you-choose.html
 
