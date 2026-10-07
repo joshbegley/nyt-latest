@@ -1,3 +1,7 @@
+**Trump Administration Investigates Wells Fargo for Race-Based Lending**\
+`The federal housing agency says bank’s efforts to encourage Black homeownership amount to discrimination.`\
+https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
+
 **How Alan Cumming’s Trauma Made Him a Better Actor**\
 `The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, about how the fear instilled in him by his father helped him develop certain acting skills.`\
 https://www.nytimes.com/video/podcasts/100000011200147/how-alan-cummings-trauma-made-him-a-better-actor.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/07/arts/television/ted-lasso-season-finale-recap
 **We Want to Know: How Have Your Halloween Candy Habits Changed?**\
 `Share your story and it might be included in an upcoming feature.`\
 https://www.nytimes.com/2026/10/07/dining/halloween-candy-prices-callout.html
-
-**Trump Administration Delays Threaten Funding for HIV Research**\
-`The networks also develop treatments and preventions for other infectious diseases and were instrumental in testing the Covid vaccine.`\
-https://www.nytimes.com/2026/10/07/health/hiv-research-delay-cuts-hhs-nih.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
