@@ -1,3 +1,7 @@
+**What Experts Want to Know About the Russia Plague Scare**\
+`Missing details about the death of a lab worker, including the cause, are worrying scientists.`\
+https://www.nytimes.com/2026/10/07/science/plague-russia-biosafety.html
+
 **At Least 20 People Killed Across Ukraine From Russian Airstrikes**\
 `At least 20 people were killed across Ukraine from Russian airstrikes on Wednesday, according to Ukrainian officials. Moscow has escalated its air war on Ukraianian cities as a ground advance stalls in the eastern Donbas region.`\
 https://www.nytimes.com/video/world/europe/100000011199852/ukraine-russia-strikes-dead.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.
 **Texas Plans Execution After Botched Lethal Injection in Tennessee**\
 `Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
 https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
-
-**Was the Human Gut Healthier in Ancient Times?**\
-`The microbiome isn’t what it used to be in many parts of the world. The shift may be affecting the well-being of people in industrialized countries.`\
-https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
 
