@@ -1,3 +1,31 @@
+**My Grandmother Has Dementia. Do I Have to Tell Her That Her Daughter Died?**\
+`I worry that she might forget and then have to learn, and grieve, the loss repeatedly.`\
+https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.html
+
+**‘Cupertino’ Review: The People v. A.I.**\
+`Robert and Michelle King have taken on law, politics and religion. Their delightful new legal drama suggests that tech might be the final boss.`\
+https://www.nytimes.com/2026/10/07/arts/television/cupertino-review.html
+
+**Christa Pike’s Lawyers Prepare to Argue Over Preservation of Evidence**\
+`They believe that records of her failed execution in Tennessee will show “incompetent and reckless actions.”`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-execution.html
+
+**Messi Ends Career as National Hero With One Last Goal**\
+`Lionel Messi brought down the curtain on his international career on Tuesday with a goal and two assists, winning against Benin in his final appearance for Argentina. He bid farewell surrounded by his family and adoring fans as they battled tears.`\
+https://www.nytimes.com/video/sports/soccer/100000011199378/lionel-messi-argentina-benin-soccer.html
+
+**Messi’s Last Tango**\
+`Emma Bubola, a Times correspondent in Buenos Aires, joins host Natalie Kitroeff on “The Call”’ to watch the end of Lionel Messi’s legendary 21-year international soccer career.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tango.html
+
+**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
+**Was the Human Gut Healthier in Ancient Times?**\
+`The microbiome isn’t what it used to be in many parts of the world. The shift may be affecting the well-being of people in industrialized countries.`\
+https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
+
 **Trump’s Retreat: From the Gulf to Britain, American Forces Pull Back**\
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html

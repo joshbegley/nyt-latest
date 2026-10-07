@@ -1,3 +1,7 @@
+**In F-Factor Diet Case, an Influencer’s Punishment is a Pinned Instagram Post**\
+`A dispute over online misinformation about the F-Factor diet led to an unusual agreement: an apology video that must be pinned to the top of social feeds for three and a half years.`\
+https://www.nytimes.com/2026/10/07/style/f-factor-diet-influencer-apology-zuckerbrot-gellis.html
+
 **My Grandmother Has Dementia. Do I Have to Tell Her That Her Daughter Died?**\
 `I worry that she might forget and then have to learn, and grieve, the loss repeatedly.`\
 https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
 **Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
-`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
+`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, want access to their client and the preservation of evidence.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/nyregion/food-photos-ai-slop.html
 **‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
 `David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
 https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.html
-
-**Modern Love: Alan Cumming Escaped His Father**\
-`The actor grew up in fear of his father. Now, he wants to pass kindness on to the next generation.`\
-https://www.nytimes.com/2026/10/07/podcasts/how-alan-cumming-escaped-his-father-and-became-himself.html
 
