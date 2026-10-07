@@ -1,3 +1,7 @@
+**How Alan Cumming Escaped His Father and Became Himself**\
+`The actor grew up in fear of his father. Now, he wants to pass kindness onto the next generation.`\
+https://www.nytimes.com/video/podcasts/100000011197824/how-alan-cumming-escaped-his-father-and-became-himself.html
+
 **FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
 `The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
 https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified
 **Steak Houses on Parade**\
 `Bar á Part serves wine in the West Village next to Zimmi’s, and joins openings like Booth’s Extra Fine and STK Steak.`\
 https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
-
-**Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
-`“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
-https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
 
