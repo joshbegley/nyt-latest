@@ -1,3 +1,27 @@
+**The Data Center Boom**\
+`We take a look at it from the sky.`\
+https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html
+
+**In Vienna and Beijing, the First Nuclear Clocks Begin to Tick**\
+`By measuring the squishing and unsquishing of thorium-229 nuclei, two teams created a new type of clock that could someday beat the precision of atomic clocks.`\
+https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
+
+**In ‘Allegra’, the Choreography Dives Deep Into Japan’s Ancient Court Dance**\
+`And the spirit of the ballerina Allegra Kent doesn’t hurt. The choreographer Benjamin Akio Kimitch dives into the art of Bugaku to create his fantasy of a Japanese American court dance.`\
+https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent-bugaku.html
+
+**The Only Tech Leader Who Really Matters**\
+`Our fate may be very well be in the hands of Jensen Huang.`\
+https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
+
+**‘Moonlight’ at 10: How the Movie Made an Impact**\
+`Filmmakers consider the influence of Barry Jenkins’s seminal Oscar-winner and the circumstances that helped create it.`\
+https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
+
+**HBO’s ‘Youth’ and the Reality of Dating After 50**\
+`On the HBO show, and in real life, women are grappling with their changing bodies, relationships and responsibilities.`\
+https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
+
 **If the Kennedy Center Is ‘Dangerous,’ Why Is the Symphony Rehearsing There?**\
 `The National Symphony Orchestra is practicing inside a building that President Trump and his allies say could fall on their heads.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
