@@ -1,3 +1,7 @@
+**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murder who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
 `Technical trouble stalled the opening night of the Royal Shakespeare Company’s all-male take on the comedy. But it was worth the wait.`\
 https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.html
@@ -122,13 +126,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
-`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
-https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
-
 **Billionaires Love This School Policy. Many Regular Parents Hate It.**\
 `In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
 https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
 **Pete Hegseth’s ‘Vast Overcorrection’**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/world/europe/ukraine-battlefield-operation-vi
 **How a Small Business Got Entangled in U.S. Sanctions on Iranian Oil**\
 `The case of a small Malaysian shipping agency illustrates the challenges Washington faces in its effort to stanch the flow of Iranian oil.`\
 https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanctions.html
-
-**How a Shadow Economy in Asia Is Keeping Iranian Oil Flowing**\
-`Companies continue to service a “dark fleet” of Iranian tankers in waters off Malaysia in spite of Washington’s threat to target them.`\
-https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
 

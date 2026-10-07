@@ -1,3 +1,7 @@
+**Live Updates: Tennessee Judge to Hear From Christa Pike’s Lawyers After Failed Execution**\
+`Lawyers for Ms. Pike, a condemned murder who survived two doses of an execution drug last week, are expected to seek access to their client and the preservation of evidence.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
 `Technical trouble stalled the opening night of the Royal Shakespeare Company’s all-male take on the comedy. But it was worth the wait.`\
 https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.html
