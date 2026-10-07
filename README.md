@@ -1,3 +1,7 @@
+**FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
+`The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
+https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
+
 **After Death of Bill Harris, a Look Back at the Symbionese Liberation Army**\
 `A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
 https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
@@ -58,13 +62,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
 **Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
 `“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
 https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
-
-**Bulgaria Says Drones Hit Ships Off Black Sea Coast**\
-`Rescue operations were underway after drones hit ships off Bulgaria’s Black Sea coast on Tuesday, Prime Minister Rumen Radev said.`\
-https://www.nytimes.com/video/world/europe/100000011196155/bulgaria-drones-strike-ships-black-sea.html
 
