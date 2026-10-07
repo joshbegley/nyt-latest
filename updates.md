@@ -1,3 +1,7 @@
+**Whistle-Blower Says I.R.S. Leaked His Tax Records in Retaliation**\
+`Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
+https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
+
 **Rubio Stresses Need for U.S. Security Work With Greece on Migration and Terrorism**\
 `Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html

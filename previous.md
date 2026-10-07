@@ -1,3 +1,7 @@
+**Whistle-Blower Says I.R.S. Leaked His Tax Records in Retaliation**\
+`Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
+https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
+
 **Rubio Stresses Need for U.S. Security Work With Greece on Migration and Terrorism**\
 `Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/us/politics/supreme-court-air-force-guam.html
 **As Race Tightens, Republicans Resume Tepid Support For Max Miller in Ohio**\
 `The embattled congressman, accused of throwing scalding water at his ex-wife and breaking his daughter’s collarbone, rebuffed earlier Republican calls to drop out.`\
 https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-house.html
-
-**A Scottish Hip-Hop Hoax Helped James McAvoy Find His Movie-Making Voice**\
-`In “California Schemin’,” the actor’s directorial debut, two Scottish rappers pretend to be American to make it in the business. It was much more personal than he thought.`\
-https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
 
