@@ -1,6 +1,6 @@
 **U.S. Formally Seeks Information From Russia About Possible Plague Death**\
 `The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
-https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
 
 **France in Crisis**\
 `We look at what’s driving the protests across France.`\
@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
 
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
-`The Nobel Committee recognized them for “the discovery of nonlinear effects and autocatalysis in asymmetric organic synthesis.”`\
+`The Nobel Committee recognized them for solving a century-old mystery about how molecules with mirror images can emerge in nature.`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
 
 **Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\

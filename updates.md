@@ -1,5 +1,13 @@
 **U.S. Formally Seeks Information From Russia About Possible Plague Death**\
 `The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
+
+**Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
+`The Nobel Committee recognized them for solving a century-old mystery about how molecules with mirror images can emerge in nature.`\
+https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
+
+**U.S. Formally Seeks Information From Russia About Possible Plague Death**\
+`The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
 
 **France in Crisis**\
