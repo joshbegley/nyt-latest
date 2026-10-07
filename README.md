@@ -1,3 +1,11 @@
+**Religion Professor Accused of Harassing Colleague With Antisemitic Posts**\
+`The professor at Haverford College in Pennsylvania was charged with cyberstalking in connection with what federal prosecutors say was a series of threatening messages to a co-worker.`\
+https://www.nytimes.com/2026/10/07/us/haverford-professor-arrest-death-threats.html
+
+**Who Is Ken Paxton Turning to for Help in the Texas Senate Race?**\
+`Trump is in Texas tonight to stump for the Senate candidate.`\
+https://www.nytimes.com/2026/10/07/us/politics/ken-paxton-texas-senate-race.html
+
 **Leon Botstein, Former Bard President With Epstein Ties, Resigns From College Positions**\
 `Leon Botstein had already retired from the presidency of the liberal arts college this spring, after emails showed he had maintained a longtime friendship with Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/07/us/leon-botstein-bard-college-resign-epstein.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
 **More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
 `The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
 https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html
-
-**Can Bergdorf Goodman Return to Its Golden Age?**\
-`Bergdorf Goodman, which has survived two bankruptcies in six years, is getting back to its white-glove origins.`\
-https://www.nytimes.com/2026/10/07/business/bergdorf-goodman.html
-
-**Five Essential Songs From Freddie Jackson: ‘You Are My Lady’ and More**\
-`A central figure in the Quiet Storm R&B of the 1980s, Jackson explored a tender and refined longing on tracks like “You Are My Lady” and “Jam Tonight.”`\
-https://www.nytimes.com/2026/10/07/arts/music/freddie-jackson-essential-songs-you-are-my-lady.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
