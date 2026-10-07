@@ -1,3 +1,7 @@
+**Man Posing as ICE Agent at Miami Polling Site Faces Felony Charges**\
+`Danilo Alves Silva wore an Immigration and Customs Enforcement costume from Amazon at a polling location for the Brazilian presidential election.`\
+https://www.nytimes.com/2026/10/07/us/miami-ice-agent-brazil-election.html
+
 **Israel Commemorates Three Years Since Oct. 7**\
 `Across Israel, people stood in silence on Tuesday morning to commemorate the three-year anniversary of the Hamas-led Oct. 7 attacks. The remembrance comes less than three weeks before the country votes in a general election.`\
 https://www.nytimes.com/video/world/middleeast/100000011199373/israel-october-7-hamas-attacks-gaza.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
 `And the spirit of the ballerina Allegra Kent doesn’t hurt. The choreographer Benjamin Akio Kimitch dives into the art of Bugaku to create his fantasy of a Japanese American court dance.`\
 https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent-bugaku.html
 
-**The Only Tech Leader Who Really Matters**\
+**Jensen Huang Thinks A.I. Is Going Great**\
 `Our fate may be very well be in the hands of Jensen Huang.`\
 https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
 **Why My Conversations with OpenAI’s ‘ChatGPT for Teens’ Made Me Very Worried**\
 `A new mode includes a study tool, but it still does a user’s homework. And a children’s safety nonprofit says the chatbot flunked its tests.`\
 https://www.nytimes.com/2026/10/07/technology/personaltech/chatgpt-teens-openai.html
-
-**The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
-`Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
-https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
 

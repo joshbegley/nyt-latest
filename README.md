@@ -1,3 +1,11 @@
+**The Bra Top Is Everywhere This Fashion Season**\
+`Vanessa Friedman, our chief fashion critic, sees the next big trend at the influential Miu Miu show in Paris: the bra top.`\
+https://www.nytimes.com/video/style/100000011173258/the-bra-top-is-everywhere-this-fashion-season.html
+
+**Tiny Love Stories: ‘He Wants Me to Have Sex With Someone Else?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/07/style/tiny-modern-love-stories-he-wants-me-to-have-sex-with-someone-else.html
+
 **Man Posing as ICE Agent at Miami Polling Site Faces Felony Charges**\
 `Danilo Alves Silva wore an Immigration and Customs Enforcement costume from Amazon at a polling location for the Brazilian presidential election.`\
 https://www.nytimes.com/2026/10/07/us/miami-ice-agent-brazil-election.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
 **After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
 `Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
 https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
-
-**Pete Hegseth’s ‘Vast Overcorrection’**\
-`A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
-https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
-
-**Why My Conversations with OpenAI’s ‘ChatGPT for Teens’ Made Me Very Worried**\
-`A new mode includes a study tool, but it still does a user’s homework. And a children’s safety nonprofit says the chatbot flunked its tests.`\
-https://www.nytimes.com/2026/10/07/technology/personaltech/chatgpt-teens-openai.html
 

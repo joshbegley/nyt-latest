@@ -1,3 +1,11 @@
+**Man Posing as ICE Agent at Miami Polling Site Faces Felony Charges**\
+`Danilo Alves Silva wore an Immigration and Customs Enforcement costume from Amazon at a polling location for the Brazilian presidential election.`\
+https://www.nytimes.com/2026/10/07/us/miami-ice-agent-brazil-election.html
+
+**Jensen Huang Thinks A.I. Is Going Great**\
+`Our fate may be very well be in the hands of Jensen Huang.`\
+https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
+
 **Israel Commemorates Three Years Since Oct. 7**\
 `Across Israel, people stood in silence on Tuesday morning to commemorate the three-year anniversary of the Hamas-led Oct. 7 attacks. The remembrance comes less than three weeks before the country votes in a general election.`\
 https://www.nytimes.com/video/world/middleeast/100000011199373/israel-october-7-hamas-attacks-gaza.html
