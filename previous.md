@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
 `Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
 https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
 
-**DNA From Water Bottle Leads to Arrest in Decades-Old Murder Case**\
-`Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
-https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
-

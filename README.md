@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluar
 `The Nobel Committee recognized Henri Kagan and Kenso Soai for solving a century-old mystery about molecules with mirror images. Their work is crucial for pharmaceuticals and carries clues to the origins of life.`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
 
-**Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
-`Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
-https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
-
