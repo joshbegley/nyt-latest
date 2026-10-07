@@ -1,3 +1,27 @@
+**Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
+`Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
+https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
+
+**DNA From Water Bottle Leads to Arrest in Decades-Old Murder Case**\
+`Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
+https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
+
+**The School Policy Scam Turning Voters Blue**\
+`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
+https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**The Problem With Hegseth’s Pentagon**\
+`A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
+https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
+
+**Why My Conversations with OpenAI’s ‘ChatGPT for Teens’ Made Me Very Worried**\
+`A new mode includes a study tool, but it still does a user’s homework. And a children’s safety nonprofit says the chatbot flunked its tests.`\
+https://www.nytimes.com/2026/10/07/technology/personaltech/chatgpt-teens-openai.html
+
 **The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
 `Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
 https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
