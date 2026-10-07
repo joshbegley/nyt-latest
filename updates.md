@@ -1,3 +1,7 @@
+**FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
+`The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
+https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
+
 **Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
 `Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election

@@ -1,3 +1,7 @@
+**FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
+`The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
+https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
+
 **After Death of Bill Harris, a Look Back at the Symbionese Liberation Army**\
 `A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
 https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
 **Bought for $30, Gertrude Abercrombie Painting Set Off $1.35 Million Bidding War**\
 `“He saved it from forever being lost,” the auction house said of the person who found a Gertrude Abercrombie painting at an estate sale in Kalamazoo, Mich.`\
 https://www.nytimes.com/2026/10/06/arts/design/gertrude-abercrombie-painting-estate-sale-auction.html
-
-**Bulgaria Says Drones Hit Ships Off Black Sea Coast**\
-`Rescue operations were underway after drones hit ships off Bulgaria’s Black Sea coast on Tuesday, Prime Minister Rumen Radev said.`\
-https://www.nytimes.com/video/world/europe/100000011196155/bulgaria-drones-strike-ships-black-sea.html
 
