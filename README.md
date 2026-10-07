@@ -178,11 +178,7 @@ https://www.nytimes.com/2026/10/07/magazine/grandmother-dementia-death-ethics.ht
 `Robert and Michelle King have taken on law, politics and religion. Their delightful new legal drama suggests that tech might be the final boss.`\
 https://www.nytimes.com/2026/10/07/arts/television/cupertino-review.html
 
-**Christa Pike’s Lawyers Prepare to Argue Over Preservation of Evidence**\
-`They believe that records of her failed execution in Tennessee will show “incompetent and reckless actions.”`\
-https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-execution.html
-
-**Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
+**Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 

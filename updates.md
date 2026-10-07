@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Storm Simon**\
+`See the likely path and wind arrival times for Simon`\
+https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.html
+
+**Mamdani Draws Anger With Oct. 7 Statement Denouncing Israel’s Gaza Attacks**\
+`After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
+https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
+
 **A Plague Mystery in Siberia**\
 `The death of a Russian lab worker has spawned rumors. Here are the facts.`\
 https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html

@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Simon**\
+`See the likely path and wind arrival times for Simon`\
+https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.html
+
 **A Plague Mystery in Siberia**\
 `The death of a Russian lab worker has spawned rumors. Here are the facts.`\
 https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/07/world/middleeast/saudi-arabia-airports-houthi
 `There’s a conflict of interest at the core of the current discourse around A.I. On “The Ezra Klein Show,” David Robinson, a former OpenAI safety employee, discusses how wealth and other factors are influencing the conversation about A.I. safety.`\
 https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-safety-debate.html
 
-**Mamdani Draws Anger With Oct. 7 Statement Focused on Palestinians**\
+**Mamdani Draws Anger With Oct. 7 Statement Denouncing Israel’s Gaza Attacks**\
 `After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
 https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/07/arts/television/cupertino-review.html
 **Christa Pike’s Lawyers Prepare to Argue Over Preservation of Evidence**\
 `They believe that records of her failed execution in Tennessee will show “incompetent and reckless actions.”`\
 https://www.nytimes.com/2026/10/07/us/christa-pike-preservation-evidence-execution.html
-
-**Messi Ends Career as National Hero With One Last Goal**\
-`Lionel Messi brought down the curtain on his international career on Tuesday with a goal and two assists, winning against Benin in his final appearance for Argentina. He bid farewell surrounded by his family and adoring fans as they battled tears.`\
-https://www.nytimes.com/video/sports/soccer/100000011199378/lionel-messi-argentina-benin-soccer.html
 
 **Live Updates: Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
