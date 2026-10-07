@@ -1,3 +1,7 @@
+**Case of U.S. Marine Accused of Murder in Japan Draws Outcry**\
+`Prime Minister Sanae Takaichi, a close Trump ally, is under pressure to strengthen oversight of the U.S. military in Japan.`\
+https://www.nytimes.com/2026/10/07/world/asia/us-marine-murder-okinawa-japan-takaichi.html
+
 **Why Markets Are Buoyant — and Under Pressure**\
 `Energy and technology companies’ earnings are expected to keep driving up stock indexes. But what’s driving up their profits are weighing on the economy.`\
 https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/business/bass-fishing-college-recruitment.htm
 **A War America Could Win**\
 `America has let go of its maritime edge at its own peril.`\
 https://www.nytimes.com/2026/10/07/opinion/military-maritime-america-power.html
-
-**Greg Freeman Is Trying to Level Up Without Selling Out**\
-`The incisive rocker’s impressive new album, “All Set the Bone,” may make his D.I.Y. impulses difficult to maintain.`\
-https://www.nytimes.com/2026/10/07/arts/music/greg-freeman-all-set-the-bone-album.html
 
