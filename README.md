@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.
 https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
 
 **Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
-`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire after arguing over a parking spot at a park in Baltimore over the weekend.`\
+`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire while arguing over a parking spot at a park in Baltimore over the weekend.`\
 https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
 
 **The Trump Outrages Keep Piling Up**\
