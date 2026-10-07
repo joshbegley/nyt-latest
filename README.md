@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
 
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
-`The Nobel Committee recognized them for “the discovery of nonlinear effects and autocatalysis in asymmetric organic synthesis.”`\
+`The Nobel Committee recognized them for solving a century-old mystery about how molecules with mirror images can emerge in nature.`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
 
 **Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
