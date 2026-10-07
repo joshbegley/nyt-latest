@@ -1,3 +1,7 @@
+**10 Great Eva Marie Saint Performances to Stream**\
+`From “On the Waterfront” to “North by Northwest,” Saint specialized in complex sympathetic women who did their best to weather domestic and cultural storms.`\
+https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-streaming.html
+
 **NYT Crossword Answers for Oct. 7, 2026**\
 `Ben Zimmer pares down.`\
 https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html

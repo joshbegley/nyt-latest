@@ -1,3 +1,7 @@
+**10 Great Eva Marie Saint Performances to Stream**\
+`From “On the Waterfront” to “North by Northwest,” Saint specialized in complex sympathetic women who did their best to weather domestic and cultural storms.`\
+https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-streaming.html
+
 **NYT Crossword Answers for Oct. 7, 2026**\
 `Ben Zimmer pares down.`\
 https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-re
 **What Our Critic’s Been Listening to Lately (and More Phone Songs)**\
 `Dial up songs from Greg Freeman, the Womack Sisters and Jim Croce.`\
 https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-jim-croce.html
-
-**An Influential Voice in the Climate Debate Has Died at 66**\
-`Joe Romm was a prolific writer who never hesitated to take on climate change deniers and the fossil-fuel industry — or even ostensible allies.`\
-https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
 
