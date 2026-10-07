@@ -1,3 +1,7 @@
+**Rubio Presses Trump’s Demands for More European Defense Spending**\
+`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
+
 **Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
 `Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire as they argued over a parking spot at a park in Baltimore over the weekend.`\
 https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html

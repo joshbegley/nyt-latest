@@ -1,3 +1,7 @@
+**The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
+`HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
+https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
+
 **Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
 `Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire as they argued over a parking spot at a park in Baltimore over the weekend.`\
 https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 `A war that was intended to demonstrate the reach of American power has now done the opposite. It is a lesson in unintended consequences.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
-**Live Updates: Christa Pike’s Lawyers Ask Judge for More Access to Her After Failed Execution**\
-`Lawyers for Ms. Pike, a condemned murderer who survived two doses of an execution drug last week, also want the judge to order the preservation of evidence in the case.`\
+**Live Updates: Judge Will Order Officials to Save Evidence After Christa Pike’s Failed Execution**\
+`The judge said the state must preserve drugs, syringes and other material from the execution chamber as well as videos, witness statements and other documentation. Ms. Pike, a convicted murderer, survived two doses of an execution drug last week.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/podcasts/the-daily/uk-air-base-threat-iran.ht
 **A Wall Street Record, and Why India Cut 130 Million Names From Its Voter Roll**\
 `Plus, the cats who taste-test kibble.`\
 https://www.nytimes.com/2026/10/07/podcasts/the-headlines/a-wall-street-record-and-why-india-cut-130-million-names-from-its-voter-roll.html
-
-**NYT Connections Answers for October 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
-https://www.nytimes.com/2026/10/07/crosswords/connections-companion-1215.html
 
