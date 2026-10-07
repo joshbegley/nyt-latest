@@ -1,3 +1,15 @@
+**U.S. Formally Seeks Information From Russia About Possible Plague Death**\
+`The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
+
+**France in Crisis**\
+`We look at what’s driving the protests across France.`\
+https://www.nytimes.com/2026/10/07/briefing/france-in-crisis.html
+
+**Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
+`A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
+https://www.nytimes.com/2026/10/07/podcasts/the-daily/uk-air-base-threat-iran.html
+
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
 `The Nobel Committee recognized them for “the discovery of nonlinear effects and autocatalysis in asymmetric organic synthesis.”`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html

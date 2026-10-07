@@ -1,6 +1,6 @@
 **U.S. Formally Seeks Information From Russia About Possible Plague Death**\
 `The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
-https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
 
 **France in Crisis**\
 `We look at what’s driving the protests across France.`\

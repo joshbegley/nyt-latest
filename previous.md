@@ -1,10 +1,18 @@
+**U.S. Formally Seeks Information From Russia About Possible Plague Death**\
+`The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-state-department.html
+
+**France in Crisis**\
+`We look at what’s driving the protests across France.`\
+https://www.nytimes.com/2026/10/07/briefing/france-in-crisis.html
+
 **Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
 `The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
 
 **Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
 `A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
-https://www.nytimes.com/2026/10/07/podcasts/the-daily/iran-terrorist-plot-air-base-britain.html
+https://www.nytimes.com/2026/10/07/podcasts/the-daily/uk-air-base-threat-iran.html
 
 **A Wall Street Record, and Why India Cut 130 Million Names From Its Voter Roll**\
 `Plus, the cats who taste-test kibble.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-
 **MAHA,**\
 `The revolt against polyester.`\
 https://www.nytimes.com/2026/10/07/style/when-did-synthetic-fabrics-become-the-enemy.html
-
-**‘Sense and Sensibility’ Gets a Grittier Makeover in 2026 Adaptation**\
-`A new adaptation dispenses with period glamour in favor of a lived-in feel and realism. The goal is to bring emotions to the fore.`\
-https://www.nytimes.com/2026/10/07/movies/sense-and-sensibility-movie-2026.html
-
-**Can Artificial Intelligence Learn the Art of Surgery?**\
-`Canada wants to leverage A.I. to improve its health care system. At a Toronto hospital, surgeons are training a machine to distinguish a safe incision from a catastrophic one.`\
-https://www.nytimes.com/2026/10/07/world/canada/surgery-artificial-intelligence-canada.html
 
