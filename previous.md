@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.h
 `A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
 https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
 
-**One of Patty Hearst’s Kidnappers Has Died**\
-`Bill Harris was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
+**Bill Harris Has Died. He Kidnapped Patty Hearst in 1974.**\
+`He was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
 https://www.nytimes.com/2026/10/06/us/bill-harris-dead.html
 
 **OpenAI Releases Findings on 377 Math Problems, Further Roiling Field**\
@@ -66,13 +66,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\

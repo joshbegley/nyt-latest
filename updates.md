@@ -1,3 +1,7 @@
+**Bill Harris Has Died. He Kidnapped Patty Hearst in 1974.**\
+`He was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
+https://www.nytimes.com/2026/10/06/us/bill-harris-dead.html
+
 **How Alan Cumming Escaped His Father and Became Himself**\
 `The actor grew up in fear of his father. Now, he wants to pass kindness onto the next generation.`\
 https://www.nytimes.com/video/podcasts/100000011197824/how-alan-cumming-escaped-his-father-and-became-himself.html
