@@ -1,3 +1,7 @@
+**Investigators Search Site of Warehouse Fire in Los Angeles**\
+`State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
+https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html
+
 **Bill Harris Has Died. He Kidnapped Patty Hearst in 1974.**\
 `He was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
 https://www.nytimes.com/2026/10/06/us/bill-harris-dead.html
