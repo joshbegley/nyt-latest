@@ -1,3 +1,15 @@
+**Army Sets Date for First Military Execution by Firing Squad Since 1945**\
+`Maj. Nidal Malik Hasan, a former Army psychiatrist, will be shot to death on Dec. 3 at Fort Hood, where he killed 13 and wounded 32 in 2009.`\
+https://www.nytimes.com/2026/10/07/us/politics/execution-fort-hood-shooting.html
+
+**Inside the Student Protest Movement in France**\
+`Tens of thousands of student protesters are accusing the French government of neglecting public schools. We went inside the movement to find out why so many young people are risking their safety to demand a better education.`\
+https://www.nytimes.com/video/world/europe/100000011193493/france-students-protests-education.html
+
+**Christa Pike, Awake and Confused, Is at the Center of a Legal Storm**\
+`Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
+
 **Christa Pike, Awake and Angry, Is at the Center of a Legal Storm**\
 `Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
 https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html

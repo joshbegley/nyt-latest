@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-
 `Bryce Vincent Gowryluk used Claude, Anthropic’s A.I. chatbot, to help him chart a course for the top of Crown Mountain, north of Vancouver, British Columbia. Things did not go as planned.`\
 https://www.nytimes.com/2026/10/07/world/canada/canada-bc-hiker-claude-rescue.html
 
-**‘The Twilight Zone’ Created a Blueprint for Surviving Our Surreal Moment**\
+**‘The Twilight Zone’ Was a Warning America Ignored**\
 `With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
 https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
 
