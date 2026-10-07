@@ -1,3 +1,7 @@
+**The School Near Paris That Shows Why French Students Are Protesting**\
+`Angered by poor classroom conditions, students at Paul Éluard High School in a suburb of the capital were among the first to blockade their campus during an ongoing round of unrest.`\
+https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
+
 **Nobel Prize in Chemistry Is Awarded to Henri Kagan and Kenso Soai**\
 `The Nobel Committee recognized them for “the discovery of non-linear effects and autocatalysis in asymmetric organic synthesis.”`\
 https://www.nytimes.com/2026/10/07/science/nobel-prize-chemistry.html
