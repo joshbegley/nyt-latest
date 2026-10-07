@@ -1,3 +1,15 @@
+**Ukraine Claws Back Land**\
+`Also, scientists study a 194-year-old tortoise. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/07/briefing/ukraine-claws-back-land.html
+
+**Migrant Involved With Delaney Hall Protests Is Freed From Detention**\
+`The center in New Jersey became a flashpoint in the federal government’s effort to deport immigrants. Martin Soto had spent eight months in custody.`\
+https://www.nytimes.com/2026/10/07/nyregion/migrant-protester-delaney-freed.html
+
+**Trump Administration Investigates Wells Fargo for Race-Based Lending**\
+`The federal housing agency says the bank’s efforts to encourage Black homeownership amount to discrimination.`\
+https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
+
 **Trump Administration Investigates Wells Fargo for Race-Based Lending**\
 `The federal housing agency says bank’s efforts to encourage Black homeownership amount to discrimination.`\
 https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
