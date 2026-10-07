@@ -1,3 +1,15 @@
+**The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
+`HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
+https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
+
+**Live Updates: Judge Will Order Officials to Save Evidence After Christa Pike’s Failed Execution**\
+`The judge said the state must preserve drugs, syringes and other material from the execution chamber as well as videos, witness statements and other documentation. Ms. Pike, a convicted murderer, survived two doses of an execution drug last week.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
+**‘Atrophy, Servitude and Decline’: Rubio’s Bleak Warning for Europe**\
+`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
+
 **Rubio Presses Trump’s Demands for More European Defense Spending**\
 `Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
