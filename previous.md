@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
 https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
 
 **Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
-`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, affordability and their approach to governing in a spirited debate.`\
+`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
 
 **Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\

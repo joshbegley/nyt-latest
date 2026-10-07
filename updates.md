@@ -1,3 +1,7 @@
+**Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
+`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
 **After Death of Bill Harris, a Look Back at the Symbionese Liberation Army**\
 `A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
 https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
