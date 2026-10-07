@@ -1,3 +1,11 @@
+**‘The Twilight Zone’ Created a Blueprint for Surviving Our Surreal Moment**\
+`With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
+https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
+
+**Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
+`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire while arguing over a parking spot at a park in Baltimore over the weekend.`\
+https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
+
 **The Local: Our guide to election guides**\
 `Plus, “Wedding Crashers” DVDs have taken over Little Free Libraries in Minneapolis.`\
 https://www.nytimes.com/2026/10/07/briefing/twin-cities-election-guide.html
