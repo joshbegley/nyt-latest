@@ -1,3 +1,27 @@
+**Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
+`The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
+https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
+
+**Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
+`A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
+https://www.nytimes.com/2026/10/07/podcasts/the-daily/iran-terrorist-plot-air-base-britain.html
+
+**A Wall Street Record, and Why India Cut 130 Million Names From Its Voter Roll**\
+`Plus, the cats who taste-test kibble.`\
+https://www.nytimes.com/2026/10/07/podcasts/the-headlines/a-wall-street-record-and-why-india-cut-130-million-names-from-its-voter-roll.html
+
+**NYT Connections Answers for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/connections-companion-1215.html
+
+**NYT Strands Hints for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/strands-sidekick-949.html
+
+**Today’s Wordle Hints for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
+
 **The School Near Paris That Shows Why French Students Are Protesting**\
 `Angered by poor classroom conditions, students at Paul Éluard High School in a suburb of the capital were among the first to blockade their campus during an ongoing round of unrest.`\
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/07/movies/sense-and-sensibility-movie-2026.html
 **Can Artificial Intelligence Learn the Art of Surgery?**\
 `Canada wants to leverage A.I. to improve its health care system. At a Toronto hospital, surgeons are training a machine to distinguish a safe incision from a catastrophic one.`\
 https://www.nytimes.com/2026/10/07/world/canada/surgery-artificial-intelligence-canada.html
-
-**Leon Botstein Remains at Bard College Amid Scrutiny Over Epstein Ties**\
-`Leon Botstein is no longer president of Bard College, but he continues to teach and play a prominent role in the school’s signature music programs.`\
-https://www.nytimes.com/2026/10/07/arts/music/leon-botstein-bard-college-epstein.html
-
-**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
-`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
-https://www.nytimes.com/video/opinion/100000011191541/this-is-nuts-an-openai-insider-explains-why-he-quit.html
-
-**Tropical Storm Isaias Could Become the First Atlantic Hurricane of the Year**\
-`The storm will move north toward the Gulf Coast of the United States over the next few days, forecasters said.`\
-https://www.nytimes.com/2026/10/07/weather/tropical-storm-isaias-gulf.html
-
-**What Life in Gaza Is Like Now**\
-`Nearly a year after Israel and Hamas agreed to end the war in Gaza, Saher Alghorra, a photographer for The New York Times, documents how residents are coping and working to rebuild their lives.`\
-https://www.nytimes.com/video/world/middleeast/100000011168313/what-life-in-gaza-is-like-now.html
-
-**For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
-`Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
-https://www.nytimes.com/2026/10/07/world/middleeast/israel-october-7-attacks-hostages-twins-berman.html
-
-**Maine Senate Candidates Face Off in First Debate**\
-`Senator Susan Collins, Republican of Maine, and her Democratic challenger, Troy Jackson, faced off on the debate stage for the first time on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000011199035/maine-senate-debate-collins-jackson.html
 
