@@ -1,3 +1,7 @@
+**Investigators Search Site of Warehouse Fire in Los Angeles**\
+`State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
+https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html
+
 **How Alan Cumming Escaped His Father and Became Himself**\
 `The actor grew up in fear of his father. Now, he wants to pass kindness onto the next generation.`\
 https://www.nytimes.com/video/podcasts/100000011197824/how-alan-cumming-escaped-his-father-and-became-himself.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
 **Trump-Appointed Judge Accuses ICE of Lying and Fabricating Records**\
 `Two men were mistakenly arrested in the Bronx by Immigration and Customs Enforcement agents. Gary R. Brown, a federal judge, condemned the agency’s actions.`\
 https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified-records.html
-
-**Steak Houses on Parade**\
-`Bar á Part serves wine in the West Village next to Zimmi’s, and joins openings like Booth’s Extra Fine and STK Steak.`\
-https://www.nytimes.com/2026/10/06/dining/nyc-restaurant-news.html
 
