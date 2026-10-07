@@ -1,3 +1,7 @@
+**For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
+`Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
+https://www.nytimes.com/2026/10/07/world/middleeast/for-twin-brothers-abducted-in-the-oct-7-attacks-adjusting-to-freedom-is-a-new-challenge.html
+
 **Maine Senate Candidates Face Off in First Debate**\
 `Senator Susan Collins, Republican of Maine, and her Democratic challenger, Troy Jackson, faced off on the debate stage for the first time on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011199035/maine-senate-debate-collins-jackson.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bo
 **Massachusetts Man Pleads Guilty to Selling Plutonium From Russia**\
 `The man, Jacob Miller, 44, had sold the material to dozens of customers through a business he operated from his home, prosecutors alleged.`\
 https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.html
-
-**Restaurant Review: Hungry Spicy in New York**\
-`At Hungry Spicy, from former employees of the beloved Ugly Baby, the flavors are vivid, but proceed up the spice levels with caution.`\
-https://www.nytimes.com/2026/10/06/dining/restaurant-review-hungry-spicy-nyc.html
 

@@ -1,3 +1,7 @@
+**For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
+`Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
+https://www.nytimes.com/2026/10/07/world/middleeast/for-twin-brothers-abducted-in-the-oct-7-attacks-adjusting-to-freedom-is-a-new-challenge.html
+
 **Maine Senate Candidates Face Off in First Debate**\
 `Senator Susan Collins, Republican of Maine, and her Democratic challenger, Troy Jackson, faced off on the debate stage for the first time on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011199035/maine-senate-debate-collins-jackson.html
