@@ -62,13 +62,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**The School Policy Scam Turning Voters Blue**\
-`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
-https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
-
 **After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
 `Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
 https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
+
+**The School Policy Scam Turning Voters Blue**\
+`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
+https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
 
 **The Problem With Hegseth’s Pentagon**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
