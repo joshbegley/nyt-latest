@@ -1,3 +1,7 @@
+**6 Broken Bathrooms Force Flight to Make an Urgent Landing**\
+`An American Airlines flight was diverted to New York on Tuesday because of an “inadequate number of operational lavatories” — two, on a plane that normally has eight.`\
+https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathrooms-landing.html
+
 **Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
 `Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
 https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/briefing/france-in-crisis.html
 **Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
 `The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
 https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
-
-**Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
-`A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
-https://www.nytimes.com/2026/10/07/podcasts/the-daily/uk-air-base-threat-iran.html
 
