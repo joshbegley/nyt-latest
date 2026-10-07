@@ -1,3 +1,27 @@
+**Trump Officials Ramp Up Investigations Into Voter Registration Groups**\
+`The Trump administration is investigating nonprofits that it says may be recruiting noncitizens for voter registration, documents show, even though noncitizen voting in the United States is rare.`\
+https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitizens-investigation.html
+
+**Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
+`A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
+https://www.nytimes.com/2026/10/07/podcasts/the-daily/iran-terrorist-plot-air-base-britain.html
+
+**A Wall Street Record, and Why India Cut 130 Million Names From Its Voter Roll**\
+`Plus, the cats who taste-test kibble.`\
+https://www.nytimes.com/2026/10/07/podcasts/the-headlines/a-wall-street-record-and-why-india-cut-130-million-names-from-its-voter-roll.html
+
+**NYT Connections Answers for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/connections-companion-1215.html
+
+**NYT Strands Hints for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/strands-sidekick-949.html
+
+**Today’s Wordle Hints for October 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 8, 2026.`\
+https://www.nytimes.com/2026/10/07/crosswords/wordle-review-1937.html
+
 **The School Near Paris That Shows Why French Students Are Protesting**\
 `Angered by poor classroom conditions, students at Paul Éluard High School in a suburb of the capital were among the first to blockade their campus during an ongoing round of unrest.`\
 https://www.nytimes.com/2026/10/07/world/europe/france-school-protest-paul-eluard.html
