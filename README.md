@@ -1,3 +1,27 @@
+**Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
+`Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
+https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html
+
+**DNA From Water Bottle Leads to Arrest in Decades-Old Murder Case**\
+`Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
+https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
+
+**The School Policy Scam Turning Voters Blue**\
+`In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
+https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**The Problem With Hegseth’s Pentagon**\
+`A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
+https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
+
+**Why My Conversations with OpenAI’s ‘ChatGPT for Teens’ Made Me Very Worried**\
+`A new mode includes a study tool, but it still does a user’s homework. And a children’s safety nonprofit says the chatbot flunked its tests.`\
+https://www.nytimes.com/2026/10/07/technology/personaltech/chatgpt-teens-openai.html
+
 **The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
 `Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
 https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/07/style/louis-vuitton-telfar-pfw.html
 **NYT Spelling Bee Answers for October 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/07/crosswords/spelling-bee-forum.html
-
-**Subway Gates Deterred Fare Evasion, M.T.A. Says. More Will Be Installed.**\
-`A pilot program to replace subway turnstiles with high-tech entry gates has led to a major reduction in fare evasion, New York transit officials said, and 50 more stations will soon have them.`\
-https://www.nytimes.com/2026/10/07/nyregion/fare-gates-subway-mta.html
-
-**Jimmy Kimmel Shames Trump for Suggesting Iran Could Bomb California**\
-`“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
-https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html
-
-**Porsche, Facing Falling Profits, Plans to Cut 25% of Its Work Force**\
-`The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
-https://www.nytimes.com/2026/10/07/business/porsche-china-job-cuts-volkswagen.html
-
-**Putin’s Desperate, Dangerous Game in Europe**\
-`Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
-https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
-
-**Malawians Struggle to Survive After Fleeing Anti-Immigrant Violence**\
-`Anti-immigrant violence in South Africa has forced tens of thousands to return to Malawi, severing badly needed cash flows and leaving families hungry.`\
-https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.html
-
-**Quote of the Day: One Year in, Adjusting to Freedom.**\
-`Quotation of the Day for Wednesday, October 7, 2026.`\
-https://www.nytimes.com/2026/10/07/pageoneplus/quote-of-the-day-one-year-in-adjusting-to-freedom.html
 

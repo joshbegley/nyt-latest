@@ -1,3 +1,151 @@
+**The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
+`Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
+https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
+
+**Europe’s Trade Tensions With China Are Coming to a Head**\
+`The European Union is weighing tougher trade measures as negotiators prepare to meet Chinese officials in Beijing, with surging exports from China pressuring key industries in Europe.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-issues.html
+
+**Are You a Procrastinator?**\
+`Do you find it hard to get started on tasks? Does the urge to postpone and delay make things harder for you?`\
+https://www.nytimes.com/2026/10/07/learning/are-you-a-procrastinator.html
+
+**China’s ‘Self-Reliance’ Drive Is Upending Trade With Europe**\
+`China’s push to manufacture more at home has widened its trade imbalance with Europe, intensifying pressure on European industries and policymakers to take action.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-manufacturing.html
+
+**Why Ken Paxton’s Estranged Wife Is Making the Case for His Senate Campaign**\
+`Angela Paxton is urging Texas voters to support Mr. Paxton’s Senate campaign, even as she is divorcing him and accusing him of adultery. She has political aspirations of her own.`\
+https://www.nytimes.com/2026/10/07/us/politics/angela-paxton-texas-senate-republican.html
+
+**Photos of Food With Black Dots? That’s A.I.**\
+`A.I. food slop generates images for menus and restaurants that can make the food quite unappealing.`\
+https://www.nytimes.com/2026/10/07/nyregion/food-photos-ai-slop.html
+
+**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
+`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
+https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.html
+
+**Modern Love: Alan Cumming Escaped His Father**\
+`The actor grew up in fear of his father. Now, he wants to pass kindness on to the next generation.`\
+https://www.nytimes.com/2026/10/07/podcasts/how-alan-cumming-escaped-his-father-and-became-himself.html
+
+**15-Minute Lesson Plan: A.I.-Assisted Mathematics**\
+`A.I. is making big leaps. What are the implications for the field of mathematics — and for math students?`\
+https://www.nytimes.com/2026/10/07/learning/15-minute-lesson-plan-ai-assisted-mathematics.html
+
+**Which $900,000 House Would You Choose?**\
+`For your consideration: A Tudor Revival in Salt Lake City, a farmhouse in Woodbury, Conn., and a Craftsman in Denver.`\
+https://www.nytimes.com/2026/10/07/realestate/which-900000-house-would-you-choose.html
+
+**Airfares Have Spiked. Is the Death of Spirit Airlines to Blame?**\
+`In the wake of the ultra-low-cost carrier’s closure, and with the cost of fuel and labor rising, domestic fares have become less competitive. But there are ways to parry higher prices.`\
+https://www.nytimes.com/2026/10/07/travel/airfares-flights-cost-spirit-airlines.html
+
+**Mass Trials Put Hundreds in One Dock in El Salvador**\
+`Lawyers warn that the mass trials of people imprisoned during President Nayib Bukele’s gang crackdown are marred by vague evidence and restrictions on a proper defense.`\
+https://www.nytimes.com/2026/10/07/world/americas/el-salvador-mass-trials-bukele.html
+
+**Ukraine Claws Back Land in the Donbas, Thwarting a Russian Push**\
+`Moscow says its capture of the region is inevitable. But Kyiv has so far stymied Russian efforts to encircle Ukrainian “fortress belt” cities.`\
+https://www.nytimes.com/2026/10/07/world/europe/ukraine-battlefield-operation-vivaldi.html
+
+**How a Small Business Got Entangled in U.S. Sanctions on Iranian Oil**\
+`The case of a small Malaysian shipping agency illustrates the challenges Washington faces in its effort to stanch the flow of Iranian oil.`\
+https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanctions.html
+
+**How a Shadow Economy in Asia Is Keeping Iranian Oil Flowing**\
+`Companies continue to service a “dark fleet” of Iranian tankers in waters off Malaysia in spite of Washington’s threat to target them.`\
+https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
+
+**Catch New Faces in These Long-Running Shows (On and Off Broadway)**\
+`Ethan Slater and Betsy Wolfe star in “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
+https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
+
+**How Architects Transformed an Abandoned California Radio Tower**\
+`Two architects turned a Cold War-era relay station into the Sea-Air-Land-Tower (SALT) House.`\
+https://www.nytimes.com/2026/10/07/realestate/a-radio-tower-reborn-in-topanga-canyon.html
+
+**Are You Prepared for MoMA’s New Swamp?**\
+`The Danish artist Jakob Kudsk Steensen is driven by fascination with wetlands and a penchant for video games. His exhibition presents a mystical, esoteric world.`\
+https://www.nytimes.com/2026/10/07/arts/design/are-you-prepared-for-momas-new-swamp.html
+
+**Dispelling the Myth of Cormac McCarthy as Cowboy-Artist**\
+`The first biography of the elusive novelist shows how little the lore ever told us about the man — or his art.`\
+https://www.nytimes.com/2026/10/07/magazine/cormac-mccarthy-biography-myths.html
+
+**Book Review: ‘Will and Attention,’ by Meghan O’Gieblyn**\
+`In her new memoir, Meghan O’Gieblyn plumbs the philosophical implications of twin longings: for spiritual fulfillment and for drink.`\
+https://www.nytimes.com/2026/10/07/books/review/will-and-attention-meghan-ogieblyn.html
+
+**Book Review: ‘Sleeping Beauties,’ by David Byrne**\
+`“Sleeping Beauties,” by the musician David Byrne, explores artistic and scientific innovations that were overlooked before being embraced.`\
+https://www.nytimes.com/2026/10/07/books/review/sleeping-beauties-david-byrne.html
+
+**Bondage Photos Weren’t Part of the Campaign Plan**\
+`But Chris Gallant, a Black Hawk pilot and Democrat who is running to represent Long Island in Congress, is making the most of life post-tabloid reveal.`\
+https://www.nytimes.com/2026/10/07/style/chris-gallant-campaign-photos.html
+
+**Word of the Day: debonair**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/07/learning/word-of-the-day-debonair.html
+
+**Beach in Guam: Supreme Court Considers if Military Can Explode Bombs in This Habitat**\
+`The Supreme Court will hear arguments over whether the U.S. Air Force can keep destroying munitions on a beach in Guam, a practice it began in 1982.`\
+https://www.nytimes.com/2026/10/07/us/politics/supreme-court-air-force-guam.html
+
+**As Race Tightens, Republicans Resume Tepid Support For Max Miller in Ohio**\
+`The embattled congressman, accused of throwing scalding water at his ex-wife and breaking his daughter’s collarbone, rebuffed earlier Republican calls to drop out.`\
+https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-house.html
+
+**A Scottish Hip-Hop Hoax Helped James McAvoy Find His Movie-Making Voice**\
+`In “California Schemin’,” the actor’s directorial debut, two Scottish rappers pretend to be American to make it in the business. It was much more personal than he thought.`\
+https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
+
+**Inheritances Can Shatter Families. Could a Therapist Help?**\
+`As the country faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
+https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
+
+**How Do I Decorate a Big Concrete Wall?**\
+`High ceilings and loft layouts can create particular decorating predicaments. Here’s how one design obsessive would tackle the issue.`\
+https://www.nytimes.com/2026/10/07/realestate/how-do-i-decorate-a-big-concrete-wall.html
+
+**A Reporter Following Culture to Unexpected Places**\
+`For Guy Trebay, writing about lucrative trees and homes with snow rooms is just part of the job.`\
+https://www.nytimes.com/2026/10/07/insider/guy-trebay.html
+
+**Need Help Paying for College? Try Bass Fishing.**\
+`The popularity of competitive bass fishing has inspired a growing number of youth, high school and college fishing programs.`\
+https://www.nytimes.com/2026/10/07/business/bass-fishing-college-recruitment.html
+
+**A War America Could Win**\
+`America has let go of its maritime edge at its own peril.`\
+https://www.nytimes.com/2026/10/07/opinion/military-maritime-america-power.html
+
+**Greg Freeman Is Trying to Level Up Without Selling Out**\
+`The incisive rocker’s impressive new album, “All Set the Bone,” may make his D.I.Y. impulses difficult to maintain.`\
+https://www.nytimes.com/2026/10/07/arts/music/greg-freeman-all-set-the-bone-album.html
+
+**Book Review: ‘Other Worlds Than These,’ by Stephen King and Peter Straub**\
+`“Other Worlds Than These” is the final volume in the Talisman trilogy, which King wrote with Peter Straub.`\
+https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-king-peter-straub.html
+
+**MAHA,**\
+`The revolt against polyester.`\
+https://www.nytimes.com/2026/10/07/style/when-did-synthetic-fabrics-become-the-enemy.html
+
+**‘Sense and Sensibility’ Gets a Grittier Makeover in 2026 Adaptation**\
+`A new adaptation dispenses with period glamour in favor of a lived-in feel and realism. The goal is to bring emotions to the fore.`\
+https://www.nytimes.com/2026/10/07/movies/sense-and-sensibility-movie-2026.html
+
+**Can Artificial Intelligence Learn the Art of Surgery?**\
+`Canada wants to leverage A.I. to improve its health care system. At a Toronto hospital, surgeons are training a machine to distinguish a safe incision from a catastrophic one.`\
+https://www.nytimes.com/2026/10/07/world/canada/surgery-artificial-intelligence-canada.html
+
+**Leon Botstein Remains at Bard College Amid Scrutiny Over Epstein Ties**\
+`Leon Botstein is no longer president of Bard College, but he continues to teach and play a prominent role in the school’s signature music programs.`\
+https://www.nytimes.com/2026/10/07/arts/music/leon-botstein-bard-college-epstein.html
+
 **‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
 `David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
 https://www.nytimes.com/video/opinion/100000011191541/this-is-nuts-an-openai-insider-explains-why-he-quit.html
@@ -34,9 +182,9 @@ https://www.nytimes.com/2026/10/07/nyregion/fare-gates-subway-mta.html
 `“You know what? I’m going to report him to the F.C.C.,” Kimmel said.`\
 https://www.nytimes.com/2026/10/07/arts/television/jimmy-kimmel-trump-iran-california.html
 
-**Porsche’s New Look: Pricier Cars and 25% Fewer Employees**\
+**Porsche, Facing Falling Profits, Plans to Cut 25% of Its Work Force**\
 `The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
-https://www.nytimes.com/2026/10/07/business/porsche-china-volkswagen.html
+https://www.nytimes.com/2026/10/07/business/porsche-china-job-cuts-volkswagen.html
 
 **Putin’s Desperate, Dangerous Game in Europe**\
 `Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
@@ -49,128 +197,4 @@ https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.ht
 **Quote of the Day: One Year in, Adjusting to Freedom.**\
 `Quotation of the Day for Wednesday, October 7, 2026.`\
 https://www.nytimes.com/2026/10/07/pageoneplus/quote-of-the-day-one-year-in-adjusting-to-freedom.html
-
-**The Fight for Britain’s Right: Can Kemi Badenoch Reboot the Conservatives?**\
-`Attendees at the party’s annual conference have been buoyed: both by leader Kemi Badenoch’s rising poll ratings and a mock Bayeux Tapestry. But the challenge from Reform U.K. remains.`\
-https://www.nytimes.com/2026/10/07/world/europe/uk-conservatives-kemi-badenoch-right-farage.html
-
-**On This Day, Oct. 7: In 2023, Hamas-led Militants Launched Surprise Attacks on Israel**\
-`In 2023, Hamas-led militants launched surprise attacks on Israel from Gaza, killing civilians and soldiers, and taking hostages. Israel declared war the next day and began a large-scale, prolonged military campaign in Gaza.`\
-https://www.nytimes.com/2026/10/07/learning/on-this-day-oct-7.html
-
-**University of Arizona Suspends Fraternity Activities, Citing Misconduct Reports**\
-`The university said it was putting its fraternity chapters on “activities suspension” while it investigated allegations that included assault, drug use and hazing.`\
-https://www.nytimes.com/2026/10/06/us/arizona-university-fraternities-suspended.html
-
-**Takeaways From the First Maine Senate Debate Between Susan Collins and Troy Jackson**\
-`Senator Susan Collins, one of the most vulnerable Republicans in the midterms, clashed with the Democratic challenger Troy Jackson over President Trump, ICE and more.`\
-https://www.nytimes.com/2026/10/06/us/politics/maine-senate-debate-takeaways.html
-
-**10 Great Eva Marie Saint Performances to Stream**\
-`From “On the Waterfront” to “North by Northwest,” Saint specialized in complex sympathetic women who did their best to weather domestic and cultural storms.`\
-https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-streaming.html
-
-**NYT Crossword Answers for Oct. 7, 2026**\
-`Ben Zimmer pares down.`\
-https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html
-
-**Investigators Search Site of Warehouse Fire in Los Angeles**\
-`State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
-https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html
-
-**How Alan Cumming Escaped His Father and Became Himself**\
-`The actor grew up in fear of his father. Now, he wants to pass kindness onto the next generation.`\
-https://www.nytimes.com/video/podcasts/100000011197824/how-alan-cumming-escaped-his-father-and-became-himself.html
-
-**FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
-`The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
-https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
-
-**After Death of Bill Harris, a Look Back at the Symbionese Liberation Army**\
-`A small band of urban guerrillas, they hoped to topple the “ruling class” using guns and bombs. Instead, their efforts brought death and ruin.`\
-https://www.nytimes.com/2026/10/06/us/sla-symbionese-liberation-army-patty-hearst.html
-
-**Bill Harris Has Died. He Kidnapped Patty Hearst in 1974.**\
-`He was a disillusioned Vietnam veteran looking for purpose when he joined a revolutionary group known as the Symbionese Liberation Army.`\
-https://www.nytimes.com/2026/10/06/us/bill-harris-dead.html
-
-**OpenAI Releases Findings on 377 Math Problems, Further Roiling Field**\
-`After a previous solution angered mathematicians, the company characterized the new release as being more responsive to concerns about A.I. disrupting research.`\
-https://www.nytimes.com/2026/10/06/science/openai-math-problems.html
-
-**Five Takeaways in New Book From Thom Tillis, Who Turned on Trump**\
-`In “How to Lose Friends and Antagonize Presidents,” Senator Thom Tillis details his regrets about backing President Trump’s agenda.`\
-https://www.nytimes.com/2026/10/06/us/politics/takeaways-book-thom-tillis-trump.html
-
-**In Iceland, Rubio Dodges a Diplomatic Flap Over a Trump Map**\
-`President Trump had posted a map on his Truth Social account in September depicting Iceland as part of U.S. territory.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-map-iceland-rubio.html
-
-**Freddie Jackson, ‘You Are My Lady’ Singer That Topped R&B Charts, Dead at 69**\
-`With hits like “Rock Me Tonight (For Old Times Sake)” and “You Are My Lady,” he made slow jams feel like grand romance.`\
-https://www.nytimes.com/2026/10/06/arts/music/freddie-jackson-dead.html
-
-**Democrats Look Strong in Polls, Thanks to These Voter Groups**\
-`Different blocs are moving left. They could swing key Senate races.`\
-https://www.nytimes.com/2026/10/06/us/politics/democrats-senate-polls-voters.html
-
-**Couple Charged With Conspiring to Abuse Numerous Surrogate Children**\
-`A Southern California couple were arrested and charged with conspiring to abuse 15 children, nearly all of whom were born to surrogate mothers, prosecutors said.`\
-https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
-
-**F.B.I. Charges American in Plot Behind Canada’s Tumbler Ridge School Shooting**\
-`The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
-https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
-
-**Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
-`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
-https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
-
-**Amid Midterm Crunch, Trump Advisers Took Time to Help Russia-Aligned Government**\
-`James Blair and Chris LaCivita, who are leading the president’s congressional campaign operation, traveled to Republika Srpska to provide election advice.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-advisers-republika-srpska.html
-
-**Discontent Grips France**\
-`Also, an ex-C.I.A. officer admits to a $145 million scam. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/10/06/briefing/discontent-grips-france.html
-
-**Trump Lawyers Cite Executive Privilege to Deny Kennedy Center Records**\
-`The documents were sought by the Democratic lawmaker who is suing to block the closure of the performing arts venue.`\
-https://www.nytimes.com/2026/10/06/arts/music/kennedy-center-records-trump-lawyers.html
-
-**How Much Do You Know About Train Travel? Take This Quiz.**\
-`Is there anything as fun as watching the countryside whiz by from a train car? How about a little train trivia? See how you do on these 10 questions.`\
-https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
-
-**Eva Marie Saint, Oscar Winner for ‘On the Waterfront,’ Is Dead at 102**\
-`A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
-https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
-
-**A.I. Is Lying to You. Here’s How to Fight Back.**\
-`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
-
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
-**Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
-`The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
-https://www.nytimes.com/2026/10/06/us/politics/justice-department-civil-rights-division.html
-
-**Christa Pike Regains Consciousness After Failed Execution in Tennessee**\
-`The death row inmate in Tennessee received two doses of a lethal injection drug last week but lived. She was taken from the execution chamber in an ambulance.`\
-https://www.nytimes.com/2026/10/06/us/christa-pike-condition.html
-
-**What We Saw at the French Protests**\
-`Our reporter Ségolène Le Stradic reports from Paris as labor unions rally in solidarity with high school students protesting school conditions.`\
-https://www.nytimes.com/video/world/europe/100000011196285/what-we-saw-at-the-french-protests.html
-
-**Understanding France’s Polycrisis**\
-`An autumn of discontent has gripped the country ahead of its presidential election.`\
-https://www.nytimes.com/2026/10/06/world/france-student-protests-kenya-robots.html
-
-**S&P 500 Hits Record High Amid Rising Interest Rates and Elevated Oil Prices**\
-`The S&P 500 rose 0.6 percent on Tuesday, exceeding its previous peak set in August and taking its gain this year to more than 14 percent.`\
-https://www.nytimes.com/2026/10/06/business/stock-market-record.html
 

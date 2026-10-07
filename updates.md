@@ -1,3 +1,155 @@
+**The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
+`Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
+https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
+
+**Europe’s Trade Tensions With China Are Coming to a Head**\
+`The European Union is weighing tougher trade measures as negotiators prepare to meet Chinese officials in Beijing, with surging exports from China pressuring key industries in Europe.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-issues.html
+
+**Are You a Procrastinator?**\
+`Do you find it hard to get started on tasks? Does the urge to postpone and delay make things harder for you?`\
+https://www.nytimes.com/2026/10/07/learning/are-you-a-procrastinator.html
+
+**China’s ‘Self-Reliance’ Drive Is Upending Trade With Europe**\
+`China’s push to manufacture more at home has widened its trade imbalance with Europe, intensifying pressure on European industries and policymakers to take action.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-manufacturing.html
+
+**Why Ken Paxton’s Estranged Wife Is Making the Case for His Senate Campaign**\
+`Angela Paxton is urging Texas voters to support Mr. Paxton’s Senate campaign, even as she is divorcing him and accusing him of adultery. She has political aspirations of her own.`\
+https://www.nytimes.com/2026/10/07/us/politics/angela-paxton-texas-senate-republican.html
+
+**Photos of Food With Black Dots? That’s A.I.**\
+`A.I. food slop generates images for menus and restaurants that can make the food quite unappealing.`\
+https://www.nytimes.com/2026/10/07/nyregion/food-photos-ai-slop.html
+
+**‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
+`David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
+https://www.nytimes.com/2026/10/07/opinion/ezra-klein-podcast-david-robinson.html
+
+**Modern Love: Alan Cumming Escaped His Father**\
+`The actor grew up in fear of his father. Now, he wants to pass kindness on to the next generation.`\
+https://www.nytimes.com/2026/10/07/podcasts/how-alan-cumming-escaped-his-father-and-became-himself.html
+
+**15-Minute Lesson Plan: A.I.-Assisted Mathematics**\
+`A.I. is making big leaps. What are the implications for the field of mathematics — and for math students?`\
+https://www.nytimes.com/2026/10/07/learning/15-minute-lesson-plan-ai-assisted-mathematics.html
+
+**Which $900,000 House Would You Choose?**\
+`For your consideration: A Tudor Revival in Salt Lake City, a farmhouse in Woodbury, Conn., and a Craftsman in Denver.`\
+https://www.nytimes.com/2026/10/07/realestate/which-900000-house-would-you-choose.html
+
+**Airfares Have Spiked. Is the Death of Spirit Airlines to Blame?**\
+`In the wake of the ultra-low-cost carrier’s closure, and with the cost of fuel and labor rising, domestic fares have become less competitive. But there are ways to parry higher prices.`\
+https://www.nytimes.com/2026/10/07/travel/airfares-flights-cost-spirit-airlines.html
+
+**Mass Trials Put Hundreds in One Dock in El Salvador**\
+`Lawyers warn that the mass trials of people imprisoned during President Nayib Bukele’s gang crackdown are marred by vague evidence and restrictions on a proper defense.`\
+https://www.nytimes.com/2026/10/07/world/americas/el-salvador-mass-trials-bukele.html
+
+**Ukraine Claws Back Land in the Donbas, Thwarting a Russian Push**\
+`Moscow says its capture of the region is inevitable. But Kyiv has so far stymied Russian efforts to encircle Ukrainian “fortress belt” cities.`\
+https://www.nytimes.com/2026/10/07/world/europe/ukraine-battlefield-operation-vivaldi.html
+
+**How a Small Business Got Entangled in U.S. Sanctions on Iranian Oil**\
+`The case of a small Malaysian shipping agency illustrates the challenges Washington faces in its effort to stanch the flow of Iranian oil.`\
+https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanctions.html
+
+**How a Shadow Economy in Asia Is Keeping Iranian Oil Flowing**\
+`Companies continue to service a “dark fleet” of Iranian tankers in waters off Malaysia in spite of Washington’s threat to target them.`\
+https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
+
+**Catch New Faces in These Long-Running Shows (On and Off Broadway)**\
+`Ethan Slater and Betsy Wolfe star in “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
+https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
+
+**How Architects Transformed an Abandoned California Radio Tower**\
+`Two architects turned a Cold War-era relay station into the Sea-Air-Land-Tower (SALT) House.`\
+https://www.nytimes.com/2026/10/07/realestate/a-radio-tower-reborn-in-topanga-canyon.html
+
+**Are You Prepared for MoMA’s New Swamp?**\
+`The Danish artist Jakob Kudsk Steensen is driven by fascination with wetlands and a penchant for video games. His exhibition presents a mystical, esoteric world.`\
+https://www.nytimes.com/2026/10/07/arts/design/are-you-prepared-for-momas-new-swamp.html
+
+**Dispelling the Myth of Cormac McCarthy as Cowboy-Artist**\
+`The first biography of the elusive novelist shows how little the lore ever told us about the man — or his art.`\
+https://www.nytimes.com/2026/10/07/magazine/cormac-mccarthy-biography-myths.html
+
+**Book Review: ‘Will and Attention,’ by Meghan O’Gieblyn**\
+`In her new memoir, Meghan O’Gieblyn plumbs the philosophical implications of twin longings: for spiritual fulfillment and for drink.`\
+https://www.nytimes.com/2026/10/07/books/review/will-and-attention-meghan-ogieblyn.html
+
+**Book Review: ‘Sleeping Beauties,’ by David Byrne**\
+`“Sleeping Beauties,” by the musician David Byrne, explores artistic and scientific innovations that were overlooked before being embraced.`\
+https://www.nytimes.com/2026/10/07/books/review/sleeping-beauties-david-byrne.html
+
+**Bondage Photos Weren’t Part of the Campaign Plan**\
+`But Chris Gallant, a Black Hawk pilot and Democrat who is running to represent Long Island in Congress, is making the most of life post-tabloid reveal.`\
+https://www.nytimes.com/2026/10/07/style/chris-gallant-campaign-photos.html
+
+**Word of the Day: debonair**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/07/learning/word-of-the-day-debonair.html
+
+**Beach in Guam: Supreme Court Considers if Military Can Explode Bombs in This Habitat**\
+`The Supreme Court will hear arguments over whether the U.S. Air Force can keep destroying munitions on a beach in Guam, a practice it began in 1982.`\
+https://www.nytimes.com/2026/10/07/us/politics/supreme-court-air-force-guam.html
+
+**As Race Tightens, Republicans Resume Tepid Support For Max Miller in Ohio**\
+`The embattled congressman, accused of throwing scalding water at his ex-wife and breaking his daughter’s collarbone, rebuffed earlier Republican calls to drop out.`\
+https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-house.html
+
+**A Scottish Hip-Hop Hoax Helped James McAvoy Find His Movie-Making Voice**\
+`In “California Schemin’,” the actor’s directorial debut, two Scottish rappers pretend to be American to make it in the business. It was much more personal than he thought.`\
+https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
+
+**Inheritances Can Shatter Families. Could a Therapist Help?**\
+`As the country faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
+https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
+
+**How Do I Decorate a Big Concrete Wall?**\
+`High ceilings and loft layouts can create particular decorating predicaments. Here’s how one design obsessive would tackle the issue.`\
+https://www.nytimes.com/2026/10/07/realestate/how-do-i-decorate-a-big-concrete-wall.html
+
+**A Reporter Following Culture to Unexpected Places**\
+`For Guy Trebay, writing about lucrative trees and homes with snow rooms is just part of the job.`\
+https://www.nytimes.com/2026/10/07/insider/guy-trebay.html
+
+**Need Help Paying for College? Try Bass Fishing.**\
+`The popularity of competitive bass fishing has inspired a growing number of youth, high school and college fishing programs.`\
+https://www.nytimes.com/2026/10/07/business/bass-fishing-college-recruitment.html
+
+**A War America Could Win**\
+`America has let go of its maritime edge at its own peril.`\
+https://www.nytimes.com/2026/10/07/opinion/military-maritime-america-power.html
+
+**Greg Freeman Is Trying to Level Up Without Selling Out**\
+`The incisive rocker’s impressive new album, “All Set the Bone,” may make his D.I.Y. impulses difficult to maintain.`\
+https://www.nytimes.com/2026/10/07/arts/music/greg-freeman-all-set-the-bone-album.html
+
+**Book Review: ‘Other Worlds Than These,’ by Stephen King and Peter Straub**\
+`“Other Worlds Than These” is the final volume in the Talisman trilogy, which King wrote with Peter Straub.`\
+https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-king-peter-straub.html
+
+**MAHA,**\
+`The revolt against polyester.`\
+https://www.nytimes.com/2026/10/07/style/when-did-synthetic-fabrics-become-the-enemy.html
+
+**‘Sense and Sensibility’ Gets a Grittier Makeover in 2026 Adaptation**\
+`A new adaptation dispenses with period glamour in favor of a lived-in feel and realism. The goal is to bring emotions to the fore.`\
+https://www.nytimes.com/2026/10/07/movies/sense-and-sensibility-movie-2026.html
+
+**Can Artificial Intelligence Learn the Art of Surgery?**\
+`Canada wants to leverage A.I. to improve its health care system. At a Toronto hospital, surgeons are training a machine to distinguish a safe incision from a catastrophic one.`\
+https://www.nytimes.com/2026/10/07/world/canada/surgery-artificial-intelligence-canada.html
+
+**Leon Botstein Remains at Bard College Amid Scrutiny Over Epstein Ties**\
+`Leon Botstein is no longer president of Bard College, but he continues to teach and play a prominent role in the school’s signature music programs.`\
+https://www.nytimes.com/2026/10/07/arts/music/leon-botstein-bard-college-epstein.html
+
+**Porsche, Facing Falling Profits, Plans to Cut 25% of Its Work Force**\
+`The German sports car maker once thrived in China and powered profits for its parent company, Volkswagen. Now it hopes to do more with less.`\
+https://www.nytimes.com/2026/10/07/business/porsche-china-job-cuts-volkswagen.html
+
 **‘This Is Nuts.’ An OpenAI Insider Explains Why He Quit.**\
 `David Robinson, who wrote OpenAI’s safety protocols, resigned last week over safety concerns.`\
 https://www.nytimes.com/video/opinion/100000011191541/this-is-nuts-an-openai-insider-explains-why-he-quit.html
