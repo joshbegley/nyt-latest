@@ -1,3 +1,7 @@
+**Chrysler Building Gets a New Owner With Big Renovation Plans**\
+`A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
+https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
+
 **U.S. Formally Seeks Information From Russia About Possible Plague Death**\
 `The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html

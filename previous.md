@@ -1,3 +1,7 @@
+**Chrysler Building Gets a New Owner With Big Renovation Plans**\
+`A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
+https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
+
 **U.S. Formally Seeks Information From Russia About Possible Plague Death**\
 `The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/arts/music/greg-freeman-all-set-the-bone-albu
 **Book Review: ‘Other Worlds Than These,’ by Stephen King and Peter Straub**\
 `“Other Worlds Than These” is the final volume in the Talisman trilogy, which King wrote with Peter Straub.`\
 https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-king-peter-straub.html
-
-**MAHA,**\
-`The revolt against polyester.`\
-https://www.nytimes.com/2026/10/07/style/when-did-synthetic-fabrics-become-the-enemy.html
 

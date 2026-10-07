@@ -1,3 +1,7 @@
+**Why Markets Are Buoyant — and Under Pressure**\
+`Energy and technology companies’ earnings are expected to keep driving up stock indexes. But what’s driving up their profits are weighing on the economy.`\
+https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.html
+
 **Chrysler Building Gets a New Owner With Big Renovation Plans**\
 `A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
 https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/opinion/military-maritime-america-power.html
 **Greg Freeman Is Trying to Level Up Without Selling Out**\
 `The incisive rocker’s impressive new album, “All Set the Bone,” may make his D.I.Y. impulses difficult to maintain.`\
 https://www.nytimes.com/2026/10/07/arts/music/greg-freeman-all-set-the-bone-album.html
-
-**Book Review: ‘Other Worlds Than These,’ by Stephen King and Peter Straub**\
-`“Other Worlds Than These” is the final volume in the Talisman trilogy, which King wrote with Peter Straub.`\
-https://www.nytimes.com/2026/10/07/books/review/other-worlds-than-these-stephen-king-peter-straub.html
 
