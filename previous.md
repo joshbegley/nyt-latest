@@ -1,8 +1,12 @@
+**Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
+`A candlelight vigil on Thursday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos in Union Square.`\
+https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
+
 **Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
 `Margaret Hamilton, the first female programmer hired to work on the space project at M.I.T., was 90.`\
 https://www.nytimes.com/2026/10/07/obituaries/margaret-hamilton-dead.html
 
-**RFK Jr. Plans Major Vaccine Injury Initiative**\
+**RFK Jr. Plans Vaccine Injury Initiative, Drawing Wary Eye From Experts**\
 `Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spo
 **The Trump Outrages Keep Piling Up**\
 `Readers react to President Trump’s “take out Los Angeles” remarks and his ethics flaws. Also: Climate risk; colleges and A.I.`\
 https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
-
-**More Than 600,000 Gallons of Fuel Bound for Cuba Seized at U.S. Ports**\
-`The biodiesel, worth more than $2.8 million, was procured for a company sanctioned by the Treasury Department, federal officials said.`\
-https://www.nytimes.com/2026/10/07/us/cuba-fuel-shipment-seized-sanctions.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\

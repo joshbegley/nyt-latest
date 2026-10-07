@@ -1,3 +1,11 @@
+**Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
+`A candlelight vigil on Thursday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos in Union Square.`\
+https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
+
+**RFK Jr. Plans Vaccine Injury Initiative, Drawing Wary Eye From Experts**\
+`Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
+https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
+
 **RFK Jr. Plans Major Vaccine Injury Initiative**\
 `Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
 https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
