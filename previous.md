@@ -1,3 +1,7 @@
+**Takeaways From the First Maine Senate Debate Between Susan Collins and Troy Jackson**\
+`Senator Susan Collins, one of the most vulnerable Republicans in the midterms, clashed with the Democratic challenger Troy Jackson over President Trump, ICE and more.`\
+https://www.nytimes.com/2026/10/06/us/politics/maine-senate-debate-takeaways.html
+
 **10 Great Eva Marie Saint Performances to Stream**\
 `From “On the Waterfront” to “North by Northwest,” Saint specialized in complex sympathetic women who did their best to weather domestic and cultural storms.`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-streaming.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/10/06/us/california-child-abuse-surrogate.html
 `The U.S. police say a 30-year-old offered the killer advice and cash for supplies at least six months before the rampage in British Columbia that left eight dead.`\
 https://www.nytimes.com/2026/10/06/world/canada/tumbler-ridge-shooting-plot-washington-arrest.html
 
-**Live Updates: Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
+**Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
 `Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
 https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
 
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/sports/sam-mcdowell-dead.html
 **How the Houthis Triumphed on the Red Sea and Sparked a New War in Yemen**\
 `In a single night, an Iran-allied militia trounced Saudi-backed forces to take control of Yemen’s Red Sea coast. No one was able, or willing, to stop them.`\
 https://www.nytimes.com/interactive/2026/10/06/world/middleeast/yemen-houthis-reconstruct.html
-
-**What Our Critic’s Been Listening to Lately (and More Phone Songs)**\
-`Dial up songs from Greg Freeman, the Womack Sisters and Jim Croce.`\
-https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-jim-croce.html
 

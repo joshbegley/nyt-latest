@@ -1,3 +1,11 @@
+**Takeaways From the First Maine Senate Debate Between Susan Collins and Troy Jackson**\
+`Senator Susan Collins, one of the most vulnerable Republicans in the midterms, clashed with the Democratic challenger Troy Jackson over President Trump, ICE and more.`\
+https://www.nytimes.com/2026/10/06/us/politics/maine-senate-debate-takeaways.html
+
+**Collins and Jackson Clash in First Debate of Crucial Maine Senate Race**\
+`Senator Susan Collins and her Democratic challenger, Troy Jackson, faced off on Supreme Court appointees, health care, Immigration and Customs Enforcement and their approach to governing.`\
+https://www.nytimes.com/live/2026/10/06/us/maine-senate-debate-election
+
 **10 Great Eva Marie Saint Performances to Stream**\
 `From “On the Waterfront” to “North by Northwest,” Saint specialized in complex sympathetic women who did their best to weather domestic and cultural storms.`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-streaming.html
