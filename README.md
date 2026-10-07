@@ -1,3 +1,7 @@
+**Why A.I. Agents Are Going Rogue**\
+`Our journalists Sheera Frenkel and Dylan Freedman break down what A.I. agents are, how they differ from chatbots and why A.I. companies are worried about them now.`\
+https://www.nytimes.com/video/technology/100000011159494/why-ai-agents-are-going-rogue.html
+
 **Meet the Superfans at the Chanel Show**\
 `This week, beneath a flock of glowing paper birds at Paris’s Grand Palais, Matthieu Blazy showed his latest Chanel collection. After the presentation, T Magazine talked with a few Chanel superfans about their most beloved pieces and the ones that got away.`\
 https://www.nytimes.com/video/t-magazine/100000011200907/meet-the-superfans-at-the-chanel-show.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html
 **In Vienna and Beijing, the First Nuclear Clocks Begin to Tick**\
 `By measuring the squishing and unsquishing of thorium-229 nuclei, two teams created a new type of clock that could someday beat the precision of atomic clocks.`\
 https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
-
-**In ‘Allegra’, the Choreography Dives Deep Into Japan’s Ancient Court Dance**\
-`And the spirit of the ballerina Allegra Kent doesn’t hurt. The choreographer Benjamin Akio Kimitch dives into the art of Bugaku to create his fantasy of a Japanese American court dance.`\
-https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent-bugaku.html
 
