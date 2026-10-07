@@ -1,3 +1,7 @@
+**How Alan Cumming Escaped His Father and Became Himself**\
+`The actor grew up in fear of his father. Now, he wants to pass kindness onto the next generation.`\
+https://www.nytimes.com/video/podcasts/100000011197824/how-alan-cumming-escaped-his-father-and-became-himself.html
+
 **FKA twigs Drops Suit Against Shia LaBeouf After He Agrees to Void NDA**\
 `The Grammy-winning singer who accused LaBeouf of abuse used a California law to challenge his use of a nondisclosure agreement in a settlement.`\
 https://www.nytimes.com/2026/10/06/arts/music/fka-twigs-shia-labeouf-voids-nda.html
