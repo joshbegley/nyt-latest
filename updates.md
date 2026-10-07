@@ -1,3 +1,19 @@
+**Why A.I. Agents Are Going Rogue**\
+`Our journalists Sheera Frenkel and Dylan Freedman break down what A.I. agents are, how they differ from chatbots and why A.I. companies are worried about them now.`\
+https://www.nytimes.com/video/technology/100000011159494/why-ai-agents-are-going-rogue.html
+
+**Meet the Superfans at the Chanel Show**\
+`This week, beneath a flock of glowing paper birds at Paris’s Grand Palais, Matthieu Blazy showed his latest Chanel collection. After the presentation, T Magazine talked with a few Chanel superfans about their most beloved pieces and the ones that got away.`\
+https://www.nytimes.com/video/t-magazine/100000011200907/meet-the-superfans-at-the-chanel-show.html
+
+**‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
+`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering national elections.`\
+https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
+
+**Before Midterms, Trump Distances Himself From His Political Advisers’ Work Overseas**\
+`President Trump wrote on social media that the advisers, James Blair and Chris LaCivita, serve as “outside consultants” for his political operation.`\
+https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
+
 **‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
 `María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering nation elections.`\
 https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
