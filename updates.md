@@ -1,3 +1,7 @@
+**Fears of a Plague Outbreak in Russia: What to Know**\
+`Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html
+
 **Education Dept. Is Investigating Sexual Misconduct in N.Y.C. Schools**\
 `The civil rights investigation was the latest salvo by the Trump administration against the largest school system in the country.`\
 https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-nyc-schools.html

@@ -1,3 +1,7 @@
+**Fears of a Plague Outbreak in Russia: What to Know**\
+`Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html
+
 **Education Dept. Is Investigating Sexual Misconduct in N.Y.C. Schools**\
 `The civil rights investigation was the latest salvo by the Trump administration against the largest school system in the country.`\
 https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-nyc-schools.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
 **‘Moonlight’ at 10: How the Movie Made an Impact**\
 `Filmmakers consider the influence of Barry Jenkins’s seminal Oscar-winner and the circumstances that helped create it.`\
 https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
-
-**‘Youth’ Embraces the Messy Truth of Dating After 50**\
-`On the HBO show, and in real life, women are grappling with their changing bodies, relationships and responsibilities.`\
-https://www.nytimes.com/2026/10/07/well/youth-women-dating-midlife.html
 
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
 `(No description)`\
