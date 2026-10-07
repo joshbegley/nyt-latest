@@ -1,3 +1,7 @@
+**Pete Hegseth’s ‘Vast Overcorrection’**\
+`A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
+https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
+
 **Suit Seeks $549 Million for Historically Black College, Citing Disparities**\
 `The case argues that Missouri persistently underfunded Lincoln University, treating it different than the University of Missouri.`\
 https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-university.html

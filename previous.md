@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
 `Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
 https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
-**The Problem With Hegseth’s Pentagon**\
+**Pete Hegseth’s ‘Vast Overcorrection’**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
 https://www.nytimes.com/2026/10/07/opinion/pete-hegseth-pentagon-iran-war.html
 
