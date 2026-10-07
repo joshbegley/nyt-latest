@@ -1,3 +1,7 @@
+**Christa Pike, Awake and Angry, Is at the Center of a Legal Storm**\
+`Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
+https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
+
 **Do We Even Want the A.I. Bet to Pay Off?**\
 `Assuming it’s achievable, should we even want superintelligence? On “The Ezra Klein Show,” Ezra Klein poses that question to David Robinson, who quit his role at OpenAI last week.`\
 https://www.nytimes.com/video/opinion/100000011191545/do-we-even-want-the-ai-bet-to-pay-off.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/07/style/tiny-modern-love-stories-he-wants-me-to
 **Man Posing as ICE Agent at Miami Polling Site Faces Felony Charges**\
 `Danilo Alves Silva wore an Immigration and Customs Enforcement costume from Amazon at a polling location for the Brazilian presidential election.`\
 https://www.nytimes.com/2026/10/07/us/miami-ice-agent-brazil-election.html
-
-**Israel Commemorates Three Years Since Oct. 7**\
-`Across Israel, people stood in silence on Tuesday morning to commemorate the three-year anniversary of the Hamas-led Oct. 7 attacks. The remembrance comes less than three weeks before the country votes in a general election.`\
-https://www.nytimes.com/video/world/middleeast/100000011199373/israel-october-7-hamas-attacks-gaza.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
