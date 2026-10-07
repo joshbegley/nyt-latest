@@ -1,3 +1,15 @@
+**Texas Plans Execution After Botched Lethal Injection in Tennessee**\
+`Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
+https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
+
+**Was the Human Gut Healthier in Ancient Times?**\
+`The microbiome isn’t what it used to be in many parts of the world. The shift of species may be affecting the well-being of people in industrialized countries.`\
+https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
+
+**Russia Says It Found No ‘Emergency’ in Plague Lab**\
+`New information around the death of a lab worker, including a statement that she had been vaccinated against the plague, came as U.S. officials demanded more data.`\
+https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
+
 **The Data Center Boom**\
 `We take a look at it from the sky.`\
 https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html

@@ -1,3 +1,11 @@
+**Texas Plans Execution After Botched Lethal Injection in Tennessee**\
+`Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
+https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
+
+**Was the Human Gut Healthier in Ancient Times?**\
+`The microbiome isn’t what it used to be in many parts of the world. The shift of species may be affecting the well-being of people in industrialized countries.`\
+https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
+
 **The Data Center Boom**\
 `We take a look at it from the sky.`\
 https://www.nytimes.com/2026/10/07/briefing/the-data-center-boom.html
@@ -62,8 +70,8 @@ https://www.nytimes.com/2026/10/07/business/dealbook/stocks-record-energy-ai.htm
 `A large commercial landlord is planning to spruce up the office spaces and add amenities after the building lost its luster in recent years.`\
 https://www.nytimes.com/2026/10/07/business/chrysler-building-tishman-speyer.html
 
-**U.S. Formally Seeks Information From Russia About Possible Plague Death**\
-`The lack of details from the Russian authorities has unnerved U.S. officials and others around the world.`\
+**Russia Says It Found No ‘Emergency’ in Plague Lab**\
+`New information around the death of a lab worker, including a statement that she had been vaccinated against the plague, came as U.S. officials demanded more data.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-us-trump-state-department.html
 
 **France in Crisis**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
 **Are ‘Little Shop,’ ‘Just in Time’ and ‘Maybe Happy Ending’ Still Worth the Ticket?**\
 `Ethan Slater and Betsy Wolfe are the current stars of “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
 https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
-
-**How Architects Transformed an Abandoned California Radio Tower**\
-`Two architects turned a Cold War-era relay station into the Sea-Air-Land-Tower (SALT) House.`\
-https://www.nytimes.com/2026/10/07/realestate/a-radio-tower-reborn-in-topanga-canyon.html
-
-**Are You Prepared for MoMA’s New Swamp?**\
-`The Danish artist Jakob Kudsk Steensen is driven by fascination with wetlands and a penchant for video games. His exhibition presents a mystical, esoteric world.`\
-https://www.nytimes.com/2026/10/07/arts/design/are-you-prepared-for-momas-new-swamp.html
 
