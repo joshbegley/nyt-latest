@@ -1,3 +1,7 @@
+**Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
+`Technical trouble stalled the opening night of the Royal Shakespeare Company’s all-male take on the comedy. But it was worth the wait.`\
+https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.html
+
 **Texas Plans Execution After Botched Lethal Injection in Tennessee**\
 `Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
 https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html

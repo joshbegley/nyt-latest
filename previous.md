@@ -1,3 +1,7 @@
+**Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\
+`Technical trouble stalled the opening night of the Royal Shakespeare Company’s all-male take on the comedy. But it was worth the wait.`\
+https://www.nytimes.com/2026/10/07/theater/as-you-like-it-review-jonathan-groff.html
+
 **Texas Plans Execution After Botched Lethal Injection in Tennessee**\
 `Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
 https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/world/asia/malaysia-shipping-iran-oil-us-sanc
 **How a Shadow Economy in Asia Is Keeping Iranian Oil Flowing**\
 `Companies continue to service a “dark fleet” of Iranian tankers in waters off Malaysia in spite of Washington’s threat to target them.`\
 https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
-
-**Are ‘Little Shop,’ ‘Just in Time’ and ‘Maybe Happy Ending’ Still Worth the Ticket?**\
-`Ethan Slater and Betsy Wolfe are the current stars of “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
-https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
 
