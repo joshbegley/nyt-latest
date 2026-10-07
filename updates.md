@@ -1,3 +1,7 @@
+**Putin’s Dangerous Game in Europe**\
+`Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
+https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
+
 **Malawians Struggle to Survive After Fleeing Anti-Immigrant Violence**\
 `Anti-immigrant violence in South Africa has forced tens of thousands to return to Malawi, severing badly needed cash flows and leaving families hungry.`\
 https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.html

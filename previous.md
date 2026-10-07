@@ -1,3 +1,7 @@
+**Putin’s Dangerous Game in Europe**\
+`Vladimir Putin wants Europe to turn off its support to Ukraine, and he’s becoming more blatant in his warnings.`\
+https://www.nytimes.com/2026/10/07/opinion/putin-russia-ukraine-europe.html
+
 **Malawians Struggle to Survive After Fleeing Anti-Immigrant Violence**\
 `Anti-immigrant violence in South Africa has forced tens of thousands to return to Malawi, severing badly needed cash flows and leaving families hungry.`\
 https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/video/business/economy/100000011196223/animal-pet-food-t
 **How Does Someone Acquire 1,200 DVDs of ‘Wedding Crashers’?**\
 `What better place than the Little Free Libraries of Minneapolis?`\
 https://www.nytimes.com/2026/10/06/arts/wedding-crashers-dvd-little-free-libraries.html
-
-**What, Exactly, Did Trump Say About Iran Taking Out Los Angeles and San Diego?**\
-`President Trump’s comments caused an uproar from members of both parties. A White House official said he was taken out of context.`\
-https://www.nytimes.com/2026/10/06/us/politics/trump-iran-take-out-los-angeles.html
 
