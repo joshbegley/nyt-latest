@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 7, 2026**\
+`Ben Zimmer pares down.`\
+https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html
+
 **Investigators Search Site of Warehouse Fire in Los Angeles**\
 `State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
 https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-ji
 **An Influential Voice in the Climate Debate Has Died at 66**\
 `Joe Romm was a prolific writer who never hesitated to take on climate change deniers and the fossil-fuel industry — or even ostensible allies.`\
 https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
-
-**Trump-Appointed Judge Accuses ICE of Lying and Fabricating Records**\
-`Two men were mistakenly arrested in the Bronx by Immigration and Customs Enforcement agents. Gary R. Brown, a federal judge, condemned the agency’s actions.`\
-https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified-records.html
 
