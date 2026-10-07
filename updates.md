@@ -1,3 +1,7 @@
+**Delta Passenger Steals and Crashes Airport Tug in California, Officials Say**\
+`The episode briefly disrupted operations on Tuesday at John Wayne Airport in Santa Ana, Calif., where the man went onto the tarmac, the authorities said.`\
+https://www.nytimes.com/2026/10/07/us/delta-passenger-steals-tug-crashes-john-wayne-airport.html
+
 **‘The Twilight Zone’ Was a Warning America Ignored**\
 `With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
 https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html

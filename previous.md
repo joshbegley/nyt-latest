@@ -1,3 +1,7 @@
+**Delta Passenger Steals and Crashes Airport Tug in California, Officials Say**\
+`The episode briefly disrupted operations on Tuesday at John Wayne Airport in Santa Ana, Calif., where the man went onto the tarmac, the authorities said.`\
+https://www.nytimes.com/2026/10/07/us/delta-passenger-steals-tug-crashes-john-wayne-airport.html
+
 **Army Sets Date for First Military Execution by Firing Squad Since 1945**\
 `Maj. Nidal Malik Hasan, a former Army psychiatrist, will be shot to death on Dec. 3 at Fort Hood, where he killed 13 and wounded 32 in 2009.`\
 https://www.nytimes.com/2026/10/07/us/politics/execution-fort-hood-shooting.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/07/arts/music/freddie-jackson-essential-songs-yo
 **The Bra Top Is Everywhere This Fashion Season**\
 `Vanessa Friedman, our chief fashion critic, sees the next big trend at the influential Miu Miu show in Paris: the bra top.`\
 https://www.nytimes.com/video/style/100000011173258/the-bra-top-is-everywhere-this-fashion-season.html
-
-**Tiny Love Stories: ‘He Wants Me to Have Sex With Someone Else?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/10/07/style/tiny-modern-love-stories-he-wants-me-to-have-sex-with-someone-else.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
