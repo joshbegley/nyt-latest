@@ -1,3 +1,11 @@
+**‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
+`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering nation elections.`\
+https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
+
+**Before Midterms, Trump Distances Himself From His Political Advisers’ Work Overseas**\
+`(No description)`\
+https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
+
 **Fears of a Plague Outbreak in Russia: What to Know**\
 `Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html

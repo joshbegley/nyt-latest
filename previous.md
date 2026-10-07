@@ -1,3 +1,7 @@
+**‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
+`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering nation elections.`\
+https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
+
 **Fears of a Plague Outbreak in Russia: What to Know**\
 `Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html
@@ -29,6 +33,10 @@ https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
 **Canada Halts Plan to Allow Medically Assisted Death for the Mentally Ill**\
 `People who have mental illness alone will not qualify for assisted death, but patients who have other conditions and expect to have a cognitive decline can make an advanced request.`\
 https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
+
+**Before Midterms, Trump Distances Himself From His Political Advisers’ Work Overseas**\
+`(No description)`\
+https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
 
 **F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
 `A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent
 **Jensen Huang Thinks A.I. Is Going Great**\
 `Our fate may be very well be in the hands of Jensen Huang.`\
 https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
-
-**‘Moonlight’ at 10: How the Movie Made an Impact**\
-`Filmmakers consider the influence of Barry Jenkins’s seminal Oscar-winner and the circumstances that helped create it.`\
-https://www.nytimes.com/2026/10/07/movies/moonlight-anniversary.html
-
-**Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/07/us/midterms-elections-iowa
 

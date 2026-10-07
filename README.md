@@ -1,5 +1,9 @@
+**Meet the Superfans at the Chanel Show**\
+`This week, beneath a flock of glowing paper birds at Paris’s Grand Palais, Matthieu Blazy showed his latest Chanel collection. After the presentation, T Magazine talked with a few Chanel superfans about their most beloved pieces and the ones that got away.`\
+https://www.nytimes.com/video/t-magazine/100000011200907/meet-the-superfans-at-the-chanel-show.html
+
 **‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
-`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering nation elections.`\
+`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering national elections.`\
 https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
 
 **Fears of a Plague Outbreak in Russia: What to Know**\
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
 https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
 
 **Before Midterms, Trump Distances Himself From His Political Advisers’ Work Overseas**\
-`(No description)`\
+`President Trump wrote on social media that the advisers, James Blair and Chris LaCivita, serve as “outside consultants” for his political operation.`\
 https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
 
 **F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/science/first-nuclear-clocks-thorium-229.html
 **In ‘Allegra’, the Choreography Dives Deep Into Japan’s Ancient Court Dance**\
 `And the spirit of the ballerina Allegra Kent doesn’t hurt. The choreographer Benjamin Akio Kimitch dives into the art of Bugaku to create his fantasy of a Japanese American court dance.`\
 https://www.nytimes.com/2026/10/07/arts/dance/benjamin-akio-kimitch-allegra-kent-bugaku.html
-
-**Jensen Huang Thinks A.I. Is Going Great**\
-`Our fate may be very well be in the hands of Jensen Huang.`\
-https://www.nytimes.com/2026/10/07/opinion/jensen-huang-ai-tech-nvidia.html
 
