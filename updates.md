@@ -1,3 +1,7 @@
+**What Life in Gaza Is Like Now**\
+`Nearly a year after Israel and Hamas agreed to end the war in Gaza, Saher Alghorra, a photographer for The New York Times, documents how residents are coping and working to rebuild their lives.`\
+https://www.nytimes.com/video/world/middleeast/100000011168313/what-life-in-gaza-is-like-now.html
+
 **For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
 `Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
 https://www.nytimes.com/2026/10/07/world/middleeast/for-twin-brothers-abducted-in-the-oct-7-attacks-adjusting-to-freedom-is-a-new-challenge.html

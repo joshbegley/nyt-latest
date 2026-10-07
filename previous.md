@@ -1,3 +1,7 @@
+**What Life in Gaza Is Like Now**\
+`Nearly a year after Israel and Hamas agreed to end the war in Gaza, Saher Alghorra, a photographer for The New York Times, documents how residents are coping and working to rebuild their lives.`\
+https://www.nytimes.com/video/world/middleeast/100000011168313/what-life-in-gaza-is-like-now.html
+
 **For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
 `Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
 https://www.nytimes.com/2026/10/07/world/middleeast/for-twin-brothers-abducted-in-the-oct-7-attacks-adjusting-to-freedom-is-a-new-challenge.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**A.I. Is Lying to You. Here’s How to Fight Back.**\
-`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
-https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
-
 **Maps: Tracking Tropical Depression Nine**\
 `See the likely path and wind arrival times for Nine`\
 https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
+
+**A.I. Is Lying to You. Here’s How to Fight Back.**\
+`In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
+https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/10/06/climate/boulder-supreme-court-climate.html
 **Bolsonaro Family Emerges Triumphant in Brazil’s Elections, Mounting a Surprising Resurrection**\
 `The Bolsonaro family emerged triumphant in Brazil’s elections, mounting a surprising political resurrection in Latin America’s largest nation.`\
 https://www.nytimes.com/2026/10/06/world/americas/brazil-election-flavio-jair-bolsonaro.html
-
-**Massachusetts Man Pleads Guilty to Selling Plutonium From Russia**\
-`The man, Jacob Miller, 44, had sold the material to dozens of customers through a business he operated from his home, prosecutors alleged.`\
-https://www.nytimes.com/2026/10/06/us/massachusetts-man-guilty-plutonium-russia.html
 
