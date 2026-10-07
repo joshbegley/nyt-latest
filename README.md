@@ -1,3 +1,7 @@
+**A Public Health-Minded Senator Asks: What Comes After Trump and Kennedy?**\
+`Senator Patty Murray, a former chair of the Senate health committee, is forming a group of experts to examine how to insulate the C.D.C. from political interference.`\
+https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
+
 **Canada Halts Plan to Allow Medically Assisted Death for the Mentally Ill**\
 `People who have mental illness alone will not qualify for assisted death, but patients who have other conditions and expect to have a cognitive decline can make an advanced request.`\
 https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/live/2026/10/07/us/midterms-elections-iowa
 **August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
 `August Lamm wants you to put down your smartphone and reclaim your life.`\
 https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
-
-**I’m Through With My Rude Niece Until She Apologizes. Am I Being Extreme?**\
-`A reader was stunned when his adult niece brusquely ordered him to take his seat at a brunch — so much so that he resolved to write her out of his will.`\
-https://www.nytimes.com/2026/10/07/style/family-grudges-apologies.html
 
