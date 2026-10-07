@@ -1,3 +1,15 @@
+**A Public Health-Minded Senator Asks: What Comes After Trump and Kennedy?**\
+`Senator Patty Murray, a former chair of the Senate health committee, is forming a group of experts to examine how to insulate the C.D.C. from political interference.`\
+https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
+
+**Canada Halts Plan to Allow Medically Assisted Death for the Mentally Ill**\
+`People who have mental illness alone will not qualify for assisted death, but patients who have other conditions and expect to have a cognitive decline can make an advanced request.`\
+https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
+
+**Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/07/us/midterms-elections-iowa
+
 **F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
 `A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
 https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html

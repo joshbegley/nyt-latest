@@ -1,3 +1,7 @@
+**Wellness Culture is Coming for Polyester**\
+`Consumers across political and social groups are revolting against synthetic fabrics. The New York Times Styles reporter Yola Mzizi explores the backlash.`\
+https://www.nytimes.com/video/style/100000011173558/wellness-culture-is-coming-for-polyester.html
+
 **A Public Health-Minded Senator Asks: What Comes After Trump and Kennedy?**\
 `Senator Patty Murray, a former chair of the Senate health committee, is forming a group of experts to examine how to insulate the C.D.C. from political interference.`\
 https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/us/missouri-hbcu-funding-lawsuit-lincoln-univ
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/07/us/midterms-elections-iowa
-
-**August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
-`August Lamm wants you to put down your smartphone and reclaim your life.`\
-https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html
 
