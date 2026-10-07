@@ -174,8 +174,8 @@ https://www.nytimes.com/2026/10/07/us/politics/kennedy-center-trump.html
 `Brian J. Visalli, a veteran investigator of tax fraud, said in a lawsuit that the agency had sent his personal and tax information to federal prosecutors.`\
 https://www.nytimes.com/2026/10/07/business/economy/whistle-blower-irs-lawsuit.html
 
-**‘Atrophy, Servitude and Decline’: Rubio’s Bleak Warning for Europe**\
-`Secretary of State Marco Rubio praised Greece for spending more on defense, while saying it needs to address “mass migration.”`\
+**Rubio Urges Europe to Awaken From ‘Slumber’ and Uphold Western Dominance**\
+`In Greece, Secretary of State Marco Rubio said Western nations must embrace an earlier ethos of exploration and conquest as part of their civilization, to remain ‘at the head of the world.’`\
 https://www.nytimes.com/2026/10/07/us/politics/rubio-greece-defense-immigration.html
 
 **Parties Brace for Key Senate Debate in Iowa, With Trump to Rally in Texas**\
