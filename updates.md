@@ -1,3 +1,11 @@
+**6 Broken Bathrooms Force Flight to Make an Urgent Landing**\
+`An American Airlines flight was diverted to New York on Tuesday because of an “inadequate number of operational lavatories” — two, on a plane that normally has eight.`\
+https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathrooms-landing.html
+
+**Live Updates: Judge Will Order Officials to Save Evidence After Christa Pike’s Failed Execution**\
+`The judge said the state must preserve drugs, syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
+https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
+
 **Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
 `Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
 https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
