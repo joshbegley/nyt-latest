@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Nice rocks, Sly’s wisdom and peace in the kitchen.`\
+https://www.nytimes.com/2026/10/07/briefing/the-good-list-nice-rocks-stallone.html
+
 **Why A.I. Agents Are Going Rogue**\
 `Our journalists Sheera Frenkel and Dylan Freedman break down what A.I. agents are, how they differ from chatbots and why A.I. companies are worried about them now.`\
 https://www.nytimes.com/video/technology/100000011159494/why-ai-agents-are-going-rogue.html
