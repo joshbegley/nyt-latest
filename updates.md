@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 7, 2026**\
+`Ben Zimmer pares down.`\
+https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html
+
 **Investigators Search Site of Warehouse Fire in Los Angeles**\
 `State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
 https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html

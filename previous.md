@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 7, 2026**\
+`Ben Zimmer pares down.`\
+https://www.nytimes.com/2026/10/06/crosswords/daily-puzzle-2026-10-07.html
+
 **Investigators Search Site of Warehouse Fire in Los Angeles**\
 `State and local investigators executed a warrant on Tuesday to search the Boyle Heights building, which burned for days in June. A community group also sued the E.P.A. to get environmental data.`\
 https://www.nytimes.com/2026/10/06/us/boyle-heights-warehouse-fire-investigation.html
@@ -70,13 +74,13 @@ https://www.nytimes.com/quiz/2026/10/06/travel/travel-trains-quiz.html
 `A luminous beauty with dramatic depth, she brought a layered intensity to harrowing roles and seduced Cary Grant in the romantic thriller “North by Northwest.”`\
 https://www.nytimes.com/2026/10/06/movies/eva-marie-saint-dead.html
 
-**Maps: Tracking Tropical Depression Nine**\
-`See the likely path and wind arrival times for Nine`\
-https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
-
 **A.I. Is Lying to You. Here’s How to Fight Back.**\
 `In the age of A.I. disinformation, we all need to use the tools of counterespionage to find the truth.`\
 https://www.nytimes.com/2026/10/06/opinion/ai-propaganda-information-spy.html
+
+**Maps: Tracking Tropical Depression Nine**\
+`See the likely path and wind arrival times for Nine`\
+https://www.nytimes.com/interactive/2026/10/06/weather/tropical-storm-isaias-hurricane-map-path-tracker.html
 
 **Justice Dept. Turns to Partisans and Conspiracists to Fill Depleted Ranks**\
 `The civil rights unit has recruited people whose questionable work histories and dearth of education and experience might have disqualified them in the past, former officials said.`\
@@ -165,8 +169,4 @@ https://www.nytimes.com/2026/10/06/arts/music/amplifier-playlist-greg-freeman-ji
 **An Influential Voice in the Climate Debate Has Died at 66**\
 `Joe Romm was a prolific writer who never hesitated to take on climate change deniers and the fossil-fuel industry — or even ostensible allies.`\
 https://www.nytimes.com/2026/10/06/climate/joe-romm-dead.html
-
-**Trump-Appointed Judge Accuses ICE of Lying and Fabricating Records**\
-`Two men were mistakenly arrested in the Bronx by Immigration and Customs Enforcement agents. Gary R. Brown, a federal judge, condemned the agency’s actions.`\
-https://www.nytimes.com/2026/10/06/nyregion/ice-judge-condemns-arrests-falsified-records.html
 
