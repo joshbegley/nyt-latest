@@ -1,3 +1,19 @@
+**The Start-Up That Wants to Build ‘Microrobots’ With A.I.**\
+`Atomic Machines is training artificial intelligence on materials and designs — and then using it to build tiny physical devices.`\
+https://www.nytimes.com/2026/10/07/science/atomic-machines-ai-micro-robots.html
+
+**Europe’s Trade Tensions With China Are Coming to a Head**\
+`The European Union is weighing tougher trade measures as negotiators prepare to meet Chinese officials in Beijing, with surging exports from China pressuring key industries in Europe.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-issues.html
+
+**Are You a Procrastinator?**\
+`Do you find it hard to get started on tasks? Does the urge to postpone and delay make things harder for you?`\
+https://www.nytimes.com/2026/10/07/learning/are-you-a-procrastinator.html
+
+**China’s ‘Self-Reliance’ Drive Is Upending Trade With Europe**\
+`China’s push to manufacture more at home has widened its trade imbalance with Europe, intensifying pressure on European industries and policymakers to take action.`\
+https://www.nytimes.com/2026/10/07/business/china-europe-trade-manufacturing.html
+
 **Why Ken Paxton’s Estranged Wife Is Making the Case for His Senate Campaign**\
 `Angela Paxton is urging Texas voters to support Mr. Paxton’s Senate campaign, even as she is divorcing him and accusing him of adultery. She has political aspirations of her own.`\
 https://www.nytimes.com/2026/10/07/us/politics/angela-paxton-texas-senate-republican.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/07/world/africa/malawi-returnees-south-africa.ht
 **Quote of the Day: One Year in, Adjusting to Freedom.**\
 `Quotation of the Day for Wednesday, October 7, 2026.`\
 https://www.nytimes.com/2026/10/07/pageoneplus/quote-of-the-day-one-year-in-adjusting-to-freedom.html
-
-**The Fight for Britain’s Right: Can Kemi Badenoch Reboot the Conservatives?**\
-`Attendees at the party’s annual conference have been buoyed: both by leader Kemi Badenoch’s rising poll ratings and a mock Bayeux Tapestry. But the challenge from Reform U.K. remains.`\
-https://www.nytimes.com/2026/10/07/world/europe/uk-conservatives-kemi-badenoch-right-farage.html
-
-**On This Day, Oct. 7: In 2023, Hamas-led Militants Launched Surprise Attacks on Israel**\
-`In 2023, Hamas-led militants launched surprise attacks on Israel from Gaza, killing civilians and soldiers, and taking hostages. Israel declared war the next day and began a large-scale, prolonged military campaign in Gaza.`\
-https://www.nytimes.com/2026/10/07/learning/on-this-day-oct-7.html
-
-**University of Arizona Suspends Fraternity Activities, Citing Misconduct Reports**\
-`The university said it was putting its fraternity chapters on “activities suspension” while it investigated allegations that included assault, drug use and hazing.`\
-https://www.nytimes.com/2026/10/06/us/arizona-university-fraternities-suspended.html
-
-**Takeaways From the First Maine Senate Debate Between Susan Collins and Troy Jackson**\
-`Senator Susan Collins, one of the most vulnerable Republicans in the midterms, clashed with the Democratic challenger Troy Jackson over President Trump, ICE and more.`\
-https://www.nytimes.com/2026/10/06/us/politics/maine-senate-debate-takeaways.html
 
