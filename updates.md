@@ -1,3 +1,7 @@
+**Inheritances Can Shatter Families. Could a Therapist Help?**\
+`As the United States faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
+https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
+
 **August Lamm Was an Influencer. Now She Wants You to Ditch Your Smartphone.**\
 `August Lamm wants you to put down your smartphone and reclaim your life.`\
 https://www.nytimes.com/2026/10/07/style/august-lamm-influencer-smartphone-book.html

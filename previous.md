@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/10/07/us/politics/max-miller-brian-poindexter-ohio-
 https://www.nytimes.com/2026/10/07/movies/james-mcavoy-california-schemin.html
 
 **Inheritances Can Shatter Families. Could a Therapist Help?**\
-`As the country faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
+`As the United States faces the greatest wealth transfer in history, some people are turning to therapists to help them pass on their assets in a way that preserves harmony.`\
 https://www.nytimes.com/2026/10/07/business/inheritance-family-generational-wealth.html
 
 **How Do I Decorate a Big Concrete Wall?**\
