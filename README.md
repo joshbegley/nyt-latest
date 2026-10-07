@@ -1,3 +1,7 @@
+**Texas Plans Execution After Botched Lethal Injection in Tennessee**\
+`Jamaal Howard’s lawyers are seeking information about the lethal injection drug, the same medication used in Tennessee’s failed attempt last week.`\
+https://www.nytimes.com/2026/10/07/us/texas-execution-lethal-injection.html
+
 **Was the Human Gut Healthier in Ancient Times?**\
 `The microbiome isn’t what it used to be in many parts of the world. The shift of species may be affecting the well-being of people in industrialized countries.`\
 https://www.nytimes.com/2026/10/07/science/microbiome-evolution-hadza-tsimane.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/07/world/asia/iran-shadow-fleet-asia.html
 **Are ‘Little Shop,’ ‘Just in Time’ and ‘Maybe Happy Ending’ Still Worth the Ticket?**\
 `Ethan Slater and Betsy Wolfe are the current stars of “Little Shop of Horrors,” and new casts also charm in “Just in Time” and “Maybe Happy Ending.”`\
 https://www.nytimes.com/2026/10/07/theater/little-shop-just-in-time-maybe-happy-ending.html
-
-**How Architects Transformed an Abandoned California Radio Tower**\
-`Two architects turned a Cold War-era relay station into the Sea-Air-Land-Tower (SALT) House.`\
-https://www.nytimes.com/2026/10/07/realestate/a-radio-tower-reborn-in-topanga-canyon.html
 
