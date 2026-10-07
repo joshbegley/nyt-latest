@@ -1,3 +1,7 @@
+**For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
+`Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
+https://www.nytimes.com/2026/10/07/world/middleeast/israel-october-7-attacks-hostages-twins-berman.html
+
 **Could Gina Hinojosa Win the Texas Governor’s Race? JB Pritzker Thinks So.**\
 `Gov. JB Pritzker of Illinois and the Democratic Governors Association are each sending $1 million to back Gina Hinojosa in a bid for Texas governor that appears increasingly competitive.`\
 https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritzker.html

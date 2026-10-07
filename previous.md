@@ -6,13 +6,13 @@ https://www.nytimes.com/2026/10/07/us/gina-hinojosa-texas-governor-race-jb-pritz
 `Rhode Island authorities had a breakthrough in a case from 1985 after they tailed a suspect to a rock concert and collected his DNA from a discarded water bottle.`\
 https://www.nytimes.com/2026/10/07/us/rhode-island-cold-case-arrest.html
 
-**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
-`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
-https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
-
 **The School Policy Scam Turning Voters Blue**\
 `In Texas and Iowa, Democrats are successfully tying universal school vouchers to corruption.`\
 https://www.nytimes.com/2026/10/07/opinion/school-vouchers-midterms.html
+
+**After a Storm, Rotting Food and a Foul Stench Haunt a Honolulu Restaurant**\
+`Rain from Hurricane Lala collapsed the roof of the Happy Days eatery in August, but the cleanup still isn’t done, and nearby businesses and residents are kicking up a stink.`\
+https://www.nytimes.com/2026/10/07/us/honolulu-hawaii-restaurant-smell.html
 
 **The Problem With Hegseth’s Pentagon**\
 `A Special Forces veteran joins the columnist David French to assess Pete Hegseth’s leadership.`\
@@ -184,7 +184,7 @@ https://www.nytimes.com/video/world/middleeast/100000011168313/what-life-in-gaza
 
 **For Twin Brothers Abducted in the Oct. 7 Attacks, Adjusting to Freedom Is a New Challenge**\
 `Gali and Ziv Berman were taken hostage when their kibbutz was attacked on Oct. 7, 2023. They were freed a year ago but are still adjusting to freedom and trying to rebuild their lives.`\
-https://www.nytimes.com/2026/10/07/world/middleeast/for-twin-brothers-abducted-in-the-oct-7-attacks-adjusting-to-freedom-is-a-new-challenge.html
+https://www.nytimes.com/2026/10/07/world/middleeast/israel-october-7-attacks-hostages-twins-berman.html
 
 **Maine Senate Candidates Face Off in First Debate**\
 `Senator Susan Collins, Republican of Maine, and her Democratic challenger, Troy Jackson, faced off on the debate stage for the first time on Tuesday.`\
