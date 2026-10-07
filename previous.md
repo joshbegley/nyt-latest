@@ -1,3 +1,7 @@
+**Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
+`Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
+https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
+
 **The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
 `HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
 https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/07/us/politics/trump-voter-registration-noncitiz
 **Three Vans, a Startled Farmer and an Iranian Plot Against the U.S.**\
 `A Times national security correspondent explains the bizarre set of events swirling around an air base in Britain.`\
 https://www.nytimes.com/2026/10/07/podcasts/the-daily/uk-air-base-threat-iran.html
-
-**A Wall Street Record, and Why India Cut 130 Million Names From Its Voter Roll**\
-`Plus, the cats who taste-test kibble.`\
-https://www.nytimes.com/2026/10/07/podcasts/the-headlines/a-wall-street-record-and-why-india-cut-130-million-names-from-its-voter-roll.html
 

@@ -87,7 +87,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011199772/messis-last-tan
 https://www.nytimes.com/2026/10/07/us/politics/trump-iran-retreat.html
 
 **Live Updates: Judge Will Order Officials to Save Evidence After Christa Pike’s Failed Execution**\
-`The judge said the state must preserve drugs, syringes and other material from the execution chamber as well as videos, witness statements and other documentation. Ms. Pike, a convicted murderer, survived two doses of an execution drug last week.`\
+`The judge said the state must preserve drugs, syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
 https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
 **Jonathan Groff Dazzles in a Beautifully Broken ‘As You Like It’**\

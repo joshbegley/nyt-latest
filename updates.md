@@ -1,3 +1,7 @@
+**Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
+`Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
+https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
+
 **The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
 `HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
 https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
