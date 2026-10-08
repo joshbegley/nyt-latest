@@ -66,7 +66,7 @@ https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-trea
 `America is not prepared for a major disease outbreak.`\
 https://www.nytimes.com/2026/10/08/opinion/plague-siberia-russia-lab.html
 
-**We Don’t Know How to Talk About Cornell**\
+**The Cornell Case Exposes What We Can’t Say**\
 `We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
 https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html
 

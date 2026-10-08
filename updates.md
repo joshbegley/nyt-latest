@@ -1,3 +1,7 @@
+**The Cornell Case Exposes What We Can’t Say**\
+`We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
+https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html
+
 **America in Retreat**\
 `We look at how the war with Iran has constrained U.S. power.`\
 https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
