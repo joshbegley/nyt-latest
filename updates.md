@@ -1,3 +1,11 @@
+**The Wave of Student Protests Roiling France**\
+`Anger about classroom overcrowding, teacher shortages and broken-down facilities has boiled over in recent weeks and threatens to coalesce into broader grievances in a heated political season.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
+
+**Esphyr Slobodkina Found Fame With “Caps for Sale.” A New Exhibition Shows Her Range.**\
+`Plus: sunset-colored sweaters, a minimalist restaurant in Tokyo and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/10/08/t-magazine/esphyr-slobodkina-art-exhibition.html
+
 **This Photo Is an A.I. Fake. Can You Tell?**\
 `We want you to look closely — very closely — at this fake image and spot any errors.`\
 https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html

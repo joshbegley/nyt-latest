@@ -1,3 +1,7 @@
+**At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
+`Why include traditional Georgian dance in a production of “Macbeth”? For the opera, the action director wanted something visceral: “I wanted to actually smell the sweat.”`\
+https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgian-dancers.html
+
 **The Wave of Student Protests Roiling France**\
 `Anger about classroom overcrowding, teacher shortages and broken-down facilities has boiled over in recent weeks and threatens to coalesce into broader grievances in a heated political season.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
@@ -42,13 +46,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
-`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
-https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
-
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/learning/15-minute-lesson-plan-the-power-of-s
 **He Wrote for ‘Seinfeld.’ But He Sees Genius in ‘Nancy.’**\
 `The comic strip is surprisingly revered by some comedy writers and cartoonists, including Tom Gammill, whose credits include “The Simpsons” and “S.N.L.”`\
 https://www.nytimes.com/2026/10/08/arts/television/tom-gammill-nancy-seinfeld-the-simpsons.html
-
-**Embrace or Ban Greek Life? Cornell Case Renews an Old Debate on Campuses**\
-`A sexual assault case at Cornell revived a long-running national conversation about whether fraternities and sororities are beneficial or harmful.`\
-https://www.nytimes.com/2026/10/08/us/greek-life-cornell-fraternities-sororities-ban.html
 
