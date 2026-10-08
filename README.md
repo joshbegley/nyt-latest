@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-exp
 `Attorney General Letitia James should step down from leading the investigation into a former student’s claim that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
 https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
 
-**Live Updates: Mamdani Is Jeered at Oct. 7 Vigil; Protesters Call Him Traitor to Palestinian Cause**\
-`A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos.`\
+**Live Updates: Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
+`Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
 
 **Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
