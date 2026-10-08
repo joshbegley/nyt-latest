@@ -1,3 +1,7 @@
+**India’s Cockroach Party Leader Carries Gen Z’s Demands. They Are Many.**\
+`Abhijeet Dipke started the movement as a joke. But after ousting a minister over a dysfunctional college entrance exam system, India’s youth say they now want to save democracy.`\
+https://www.nytimes.com/2026/10/08/world/asia/india-cockroach-janta-party.html
+
 **How India’s Gen Z Protests Inspired Gen Alpha**\
 `India’s youngest students are staging sit-ins and protesting the run-down conditions of their schools, drawing inspiration from the Gen Z protests that roiled the country this summer.`\
 https://www.nytimes.com/video/world/asia/100000011164923/india-school-protests-gen-alpha.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani
 **Fatal Stabbing of a 7-Year-Old Girl Rattles Chicago: ‘That Was a Baby’**\
 `The attack has raised questions about whether the suspect was overlooked by authorities despite a history of mental health problems and violent offenses.`\
 https://www.nytimes.com/2026/10/07/us/chicago-stabbing-girl.html
-
-**What Experts Want to Know About the Russia Plague Scare**\
-`Missing details about the death of a lab worker, including the cause, are worrying scientists.`\
-https://www.nytimes.com/2026/10/07/science/plague-russia-biosafety.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
