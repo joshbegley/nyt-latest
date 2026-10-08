@@ -1,3 +1,15 @@
+**Examining Footage From the Night of Epstein's Death**\
+`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
+https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html
+
+**Was Jeffrey Epstein Really Suicidal?**\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, many people remain skeptical. In this New York Times Special Report, Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield, and Charles Homans to examine the evidence regarding whether Epstein was suicidal.`\
+https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suicidal.html
+
+**What Really Happened to Jeffrey Epstein? A Times Investigation.**\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfield, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
+https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
+
 **Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
 `The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
 https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html

@@ -38,6 +38,18 @@ https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
 
+**Examining Footage From the Night of Epstein's Death**\
+`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
+https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html
+
+**Was Jeffrey Epstein Really Suicidal?**\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, many people remain skeptical. In this New York Times Special Report, Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield, and Charles Homans to examine the evidence regarding whether Epstein was suicidal.`\
+https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suicidal.html
+
+**What Really Happened to Jeffrey Epstein? A Times Investigation.**\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfield, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
+https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
+
 **France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
 `French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/08/realestate/housing-market-near-nyc.html
 **Keith Haring Created a Mural in a TriBeCa Loft. Now, It’s for Sale.**\
 `The renovated apartment featuring a once hidden early work by the New York artist is on the market for $25 million.`\
 https://www.nytimes.com/2026/10/08/realestate/tribeca-loft-keith-haring-mural-listed-25-million.html
-
-**Connecting the Dots Between Roy Lichtenstein and Today**\
-`The Whitney’s retrospective is full of jokes, but it captures our image overload with surprising tenderness. Our critic calls it “the most momentous exhibition of the season.”`\
-https://www.nytimes.com/2026/10/08/arts/design/roy-lichtenstein-like-new-review-whitney.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are on the Upper East Side, in Tudor City and Downtown Brooklyn.`\
-https://www.nytimes.com/2026/10/08/realestate/housing-market-nyc.html
-
-**This Photo Is an A.I. Fake. Can You Tell?**\
-`We want you to look closely — very closely — at this fake image and spot any errors.`\
-https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
 

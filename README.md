@@ -1,3 +1,27 @@
+**Prosecutors say Maduro used torture to hold on to power in Venezuela.**\
+`A superceding indictment says the former leader of Venezuela and his wife coordinated with high-level Venezuelan officials to inflict severe physical and mental pain to punish members of the political opposition, silence dissent and protect their authority.`\
+https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
+
+**Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
+`Nicolás Maduro and his wife, Cilia Flores, jailed and tortured Americans and others in Venezuela to hang onto power, prosecutors said.`\
+https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html
+
+**Nigella Lawson’s Buttermilk Roast Chicken**\
+`And more beautiful dishes for your fall-dinner consideration.`\
+https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
+
+**As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
+`The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
+https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
+
+**The Census Counts Everyone. Trump Doesn’t Want That.**\
+`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
+
+**In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
+`A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
+https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
+
 **Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
 `The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
 https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
@@ -62,13 +86,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
-`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
-https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
-
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -169,28 +193,4 @@ https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.
 **Experts Agree: Nobody Knows What ‘Bimonthly’ or ‘Biweekly’ Means**\
 `Couldn’t we impose some rules-based order, etching a single meaning of “bimonthly” on a stone pillar? Probably not.`\
 https://www.nytimes.com/2026/10/08/magazine/bimonthly-biweekly-grammar.html
-
-**Who Should Be Los Angeles’s Next Mayor?**\
-`Times Opinion convened a panel of experts to help voters make sense of the race.`\
-https://www.nytimes.com/interactive/2026/10/08/opinion/los-angeles-mayor-election.html
-
-**Man vs. ‘Terminator’-Like Robot in a Cage. California Called It Illegal.**\
-`A tech start-up’s stunt in San Francisco tested the boundaries of combat sport safety and regulations.`\
-https://www.nytimes.com/2026/10/08/technology/human-robot-cage-fights-california-rek.html
-
-**A Forgotten and Found Piece of Video Game History**\
-`It is the first day of New York Comic Con, where an early Mario painting will be displayed after a former advertising manager at Nintendo found it in her garage.`\
-https://www.nytimes.com/2026/10/08/nyregion/a-forgotten-and-found-piece-of-video-game-history.html
-
-**Viral ‘Human Vs. Robot’ Fights Face Ban**\
-`California regulators sent a cease-and-desist letter to the promoters of a San Francisco cage fight fight pitting a human against several robot combatants.`\
-https://www.nytimes.com/video/technology/100000011196847/viral-human-vs-robot-fights-face-ban.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties include a midcentury home in Hastings-on-Hudson, N.Y., and a colonial-style home in, Fairfield, Conn.`\
-https://www.nytimes.com/2026/10/08/realestate/housing-market-near-nyc.html
-
-**Keith Haring Created a Mural in a TriBeCa Loft. Now, It’s for Sale.**\
-`The renovated apartment featuring a once hidden early work by the New York artist is on the market for $25 million.`\
-https://www.nytimes.com/2026/10/08/realestate/tribeca-loft-keith-haring-mural-listed-25-million.html
 
