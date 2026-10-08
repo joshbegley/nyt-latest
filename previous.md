@@ -1,3 +1,15 @@
+**My Least Favorite Vegetable**\
+`I’ll bite: I don’t like butternut squash.`\
+https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
+
+**Security Guard Fatally Shoots Armed Man at Nashville Federal Courthouse**\
+`The man tried unsuccessfully to fire a gun, then wielded a knife before he was shot inside the Fred D. Thompson U.S. Courthouse and Federal Building, the police said.`\
+https://www.nytimes.com/2026/10/08/us/nashville-courthouse-shooting.html
+
+**Indian Opposition Leaders Detained Amid Voter-Roll Protests**\
+`Security forces in New Delhi broke up protests over a voter-roll revision on Wednesday, briefly detaining many lawmakers, including two opposition leaders, for the second straight day.`\
+https://www.nytimes.com/video/world/asia/100000011202009/india-protest-new-delhi-leaders-detained.html
+
 **Getting Philosophical About A.I.**\
 `Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
 https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
@@ -134,13 +146,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
-`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
-https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
-
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/08/crosswords/strands-sidekick-950.html
 **Today’s Wordle Hints for October 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/08/crosswords/wordle-review-1938.html
-
-**Hacker Used Chinese-Developed A.I. Tool to Target South Korean Banks, CrowdStrike Says**\
-`The cybersecurity firm said the attacker was likely a Chinese speaker and financially motivated, but did not attribute the attacks to a named individual or group.`\
-https://www.nytimes.com/2026/10/08/world/australia/south-korea-bank-hack-china-us-ai.html
-
-**He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
-`Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
-https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
-
-**6 Ways Isaias Is Remaking the Story of This Year’s Hurricane Season**\
-`It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
-https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
 

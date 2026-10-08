@@ -1,3 +1,15 @@
+**My Least Favorite Vegetable**\
+`I’ll bite: I don’t like butternut squash.`\
+https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
+
+**Security Guard Fatally Shoots Armed Man at Nashville Federal Courthouse**\
+`The man tried unsuccessfully to fire a gun, then wielded a knife before he was shot inside the Fred D. Thompson U.S. Courthouse and Federal Building, the police said.`\
+https://www.nytimes.com/2026/10/08/us/nashville-courthouse-shooting.html
+
+**Indian Opposition Leaders Detained Amid Voter-Roll Protests**\
+`Security forces in New Delhi broke up protests over a voter-roll revision on Wednesday, briefly detaining many lawmakers, including two opposition leaders, for the second straight day.`\
+https://www.nytimes.com/video/world/asia/100000011202009/india-protest-new-delhi-leaders-detained.html
+
 **Getting Philosophical About A.I.**\
 `Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
 https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
