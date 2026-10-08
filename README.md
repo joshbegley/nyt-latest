@@ -3,10 +3,10 @@
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
 **Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
-`(No description)`\
+`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race pivotal to determining which party controls the Senate.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
-**Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
+**Khalif Tahir Thompson Adds Punchlines to His Portraits**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
 
