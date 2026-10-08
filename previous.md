@@ -1,3 +1,7 @@
+**Protesters Interrupt President Trump At San Antonio Rally**\
+`Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
+https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
+
 **Trump Administration Considers Using Ships to Deport Immigrants**\
 `Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
 https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-po
 **For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
 `They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
 https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
-
-**In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
-`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran have become central to the state’s Senate race.`\
-https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
 

@@ -1,3 +1,7 @@
+**Protesters Interrupt President Trump At San Antonio Rally**\
+`Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
+https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
+
 **Trump Administration Considers Using Ships to Deport Immigrants**\
 `Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
 https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html

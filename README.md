@@ -1,3 +1,11 @@
+**Tom Cruise, Climate Warrior?**\
+`Despite whatever else is going on with the film, “Digger” is one of the most audacious attempts yet to spread awareness about global warming.`\
+https://www.nytimes.com/2026/10/08/climate/tom-cruise-digger.html
+
+**C.D.C. Offers States $100 Million in Measles Support as Cases Climb**\
+`States said the cash infusion will help bolster efforts to increase vaccinations and identify cases.`\
+https://www.nytimes.com/2026/10/08/well/measles-pennsylvania-new-york-cdc.html
+
 **Protesters Interrupt President Trump At San Antonio Rally**\
 `Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
 https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/08/t-magazine/esphyr-slobodkina-art-exhibition.h
 **New to Anne Carson’s Books? Start Here.**\
 `The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
-
-**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Says**\
-`A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
-https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
-
-**For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
-`They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
-https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
 
