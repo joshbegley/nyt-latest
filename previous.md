@@ -1,4 +1,24 @@
-**As Hurricane Isaias Nears, Alabama’s Coast**\
+**What’s Going On in This Picture? | Oct. 19, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
+
+**Books Our Editors Love This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
+
+**Trump’s Speech Is Getting Filthier**\
+`What to make of the president’s uptick in profanity?`\
+https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html
+
+**What’s Going On in This Graph? | Oct. 21, 2026**\
+`Thousands of Americans die each year taking mixtures of drugs that contain fentanyl or other synthetic opioids.`\
+https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-graph-oct-21-2026.html
+
+**Forget Tech. San Francisco Is Home to Great Movies.**\
+`Along with films about algorithms and AI, the year has brought human stories that are welcome reminders of what life in the city is really like.`\
+https://www.nytimes.com/2026/10/08/t-magazine/san-francisco-movies-tech.html
+
+**As Hurricane Isaias Nears, Alabama Remembers Sally’s Impact in 2020**\
 `The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
 
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 **Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll**\
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
-
-**Examining Footage From the Night of Epstein's Death**\
-`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfeld and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
-https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html
-
-**Was Jeffrey Epstein Really Suicidal?**\
-`Seven years after Jeffrey Epstein’s death was ruled a suicide, many people remain skeptical. In this New York Times Special Report, Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfeld, and Charles Homans to examine the evidence regarding whether Epstein was suicidal.`\
-https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suicidal.html
-
-**What Really Happened to Jeffrey Epstein? A Times Investigation.**\
-`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfeld, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
-https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
-
-**France Is Veering Toward a Potential Debt Crisis Amid Protests and Turmoil**\
-`French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
-https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
-
-**South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
-`President Volodymyr Zelensky of Ukraine revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
-https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
 

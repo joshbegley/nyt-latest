@@ -1,3 +1,27 @@
+**What’s Going On in This Picture? | Oct. 19, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
+
+**Books Our Editors Love This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
+
+**Trump’s Speech Is Getting Filthier**\
+`What to make of the president’s uptick in profanity?`\
+https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html
+
+**What’s Going On in This Graph? | Oct. 21, 2026**\
+`Thousands of Americans die each year taking mixtures of drugs that contain fentanyl or other synthetic opioids.`\
+https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-graph-oct-21-2026.html
+
+**Forget Tech. San Francisco Is Home to Great Movies.**\
+`Along with films about algorithms and AI, the year has brought human stories that are welcome reminders of what life in the city is really like.`\
+https://www.nytimes.com/2026/10/08/t-magazine/san-francisco-movies-tech.html
+
+**As Hurricane Isaias Nears, Alabama Remembers Sally’s Impact in 2020**\
+`The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
+
 **As Hurricane Isaias Nears, Alabama’s Coast**\
 `The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
