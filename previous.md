@@ -1,3 +1,23 @@
+**A Failed Execution and the Future of the Death Penalty**\
+`Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
+https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
+
+**A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
+`Plus, the woman who helped make the moon landing possible.`\
+https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
+
+**NYT Connections Answers for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/connections-companion-1216.html
+
+**NYT Strands Hints for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/strands-sidekick-950.html
+
+**Today’s Wordle Hints for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/wordle-review-1938.html
+
 **Hacker Used Chinese-Developed A.I. Tool to Target South Korean Banks, CrowdStrike Says**\
 `The cybersecurity firm said the attacker was likely a Chinese speaker and financially motivated, but did not attribute the attacks to a named individual or group.`\
 https://www.nytimes.com/2026/10/08/world/australia/south-korea-bank-hack-china-us-ai.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/08/well/mind/platonic-engagement-sex-emotion-tou
 **Sweden Has 267,570 Islands. I Walked Across 20 of Them.**\
 `Traveling through the Stockholm Archipelago on foot meant watching everyone else sail by. It also meant unraveling the maze of lives and experiences that shaped it.`\
 https://www.nytimes.com/2026/10/08/magazine/stockholm-archipelago-trail.html
-
-**Fontaines D.C. Feels Its Way Out of the Darkness**\
-`After losing a beloved manager, and ahead of releasing the most anticipated album of its career, the Irish band works its way through despair.`\
-https://www.nytimes.com/2026/10/08/arts/music/fontaines-dc-dopamine-chamber-album.html
-
-**How the Trump Administration Is Eroding Airline Passengers’ Rights**\
-`Under Sean Duffy, the Transportation Department has worked to roll back consumer protections. Passenger advocates say the changes favor airlines.`\
-https://www.nytimes.com/2026/10/08/travel/airlines-flights-passenger-rights-trump.html
-
-**Book Review: ‘Fair Ones,’ by Lydia Millet**\
-`In Lydia Millet’s dialogue-driven novel, a random act of violence leaves two New York women at loose ends (though not for long).`\
-https://www.nytimes.com/2026/10/08/books/review/fair-ones-lydia-millet.html
-
-**How to Look Cool at Paris Fashion Week**\
-`All black head to toe? Or pearls, patterns and color?`\
-https://www.nytimes.com/2026/10/08/style/paris-fashion-week-street-style-runway.html
-
-**How Much Space Does $400,000 Get You?**\
-`The median national home price gets you a vastly different spread, depending where you are.`\
-https://www.nytimes.com/2026/10/08/realestate/how-much-space-does-400000-get-you.html
 

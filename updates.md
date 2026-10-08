@@ -1,3 +1,23 @@
+**A Failed Execution and the Future of the Death Penalty**\
+`Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
+https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
+
+**A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
+`Plus, the woman who helped make the moon landing possible.`\
+https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
+
+**NYT Connections Answers for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/connections-companion-1216.html
+
+**NYT Strands Hints for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/strands-sidekick-950.html
+
+**Today’s Wordle Hints for October 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/08/crosswords/wordle-review-1938.html
+
 **Hacker Used Chinese-Developed A.I. Tool to Target South Korean Banks, CrowdStrike Says**\
 `The cybersecurity firm said the attacker was likely a Chinese speaker and financially motivated, but did not attribute the attacks to a named individual or group.`\
 https://www.nytimes.com/2026/10/08/world/australia/south-korea-bank-hack-china-us-ai.html
