@@ -1,3 +1,7 @@
+**Getting Philosophical About A.I.**\
+`Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
+https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
+
 **‘Fjord’ Review: A Moral Rorschach Test**\
 `Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
 https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
