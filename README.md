@@ -1,3 +1,11 @@
+**Pentagon Draws Up New Iran Strike Plans as Trump Hesitates**\
+`The U.S. military has drafted options for three days of strikes, but in recent months the president has repeatedly vetoed plans to restart the war.`\
+https://www.nytimes.com/2026/10/08/us/politics/trump-iran-war-options.html
+
+**How to Watch the Midterm Senate Race Debates in Georgia, Michigan and Maine**\
+`Each debate will be held in a TV studio without a live audience.`\
+https://www.nytimes.com/2026/10/08/us/midterm-senate-race-debates-how-to-watch.html
+
 **Behind South Korea’s Competitive Education System**\
 `On “The Book Review” podcast, Min Jin Lee, the author of “Pachinko” and “American Hagwon,” explains how losing social safety nets after 1997 reshaped Korean culture into an intense educational race.`\
 https://www.nytimes.com/video/books/review/100000011203524/behind-south-koreas-competitive-education-system.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-tortur
 **Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
 `Nicolás Maduro and his wife, Cilia Flores, inflicted severe physical and mental pain on both Americans and Venezuelans to silence dissent and protect their authority, according to prosecutors.`\
 https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html
-
-**Nigella Lawson’s Buttermilk Roast Chicken**\
-`And more beautiful dishes for your fall-dinner consideration.`\
-https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
-
-**Trump Wants to Decide Who Counts. And Who Doesn’t.**\
-`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
-https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
 
