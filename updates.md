@@ -1,3 +1,7 @@
+**For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
+`They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
+https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
+
 **In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
 `Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran, have become central to the state’s Senate race.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
