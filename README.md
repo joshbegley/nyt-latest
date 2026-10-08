@@ -1,3 +1,7 @@
+**Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
+`The poet and essayist joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
+
 **Russia’s Silence on Possible Plague Outbreak Stokes Fears of a Cover-Up**\
 `As rumors spread about a possible plague outbreak in Siberia, the Kremlin turned to a familiar playbook: offering little information about potential bad news.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-plague-outbreak.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
 **China Expands Its Military Reach by Building a Base in Laos**\
 `The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
-
-**Houthi Attacks on Saudi Airports Prompt Mass Cancellations**\
-`The Saudi authorities said they intercepted two missiles targeting Riyadh, a day after they said Houthi strikes on airports in the kingdom killed three people.`\
-https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
 
