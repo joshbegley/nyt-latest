@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About Facing Their Fears**\
+`Inspired by a writer who confronted his fear of heights, we invited students to share what they’ve discovered from doing things that scare them.`\
+https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-facing-their-fears.html
+
 **Trump Administration Asks Supreme Court to Weigh In, Again, in TV Ad Fight**\
 `The emergency application to the justices marks the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
 https://www.nytimes.com/2026/10/08/us/politics/supreme-court-trump-ad-rates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/crosswords/connections-companion-1216.html
 **A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
 `Plus, the woman who helped make the moon landing possible.`\
 https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
-
-**NYT Strands Hints for October 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
-https://www.nytimes.com/2026/10/08/crosswords/strands-sidekick-950.html
 
