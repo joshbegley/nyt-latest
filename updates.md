@@ -1,3 +1,7 @@
+**Live Updates: Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
+`Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
+https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
+
 **Newsom Considers Ending Death Sentences for 563 California Prisoners**\
 `Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
 https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html
