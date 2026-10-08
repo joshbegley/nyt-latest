@@ -1,3 +1,11 @@
+**Tom Cruise, Climate Warrior?**\
+`Despite whatever else is going on with the film, “Digger” is one of the most audacious attempts yet to spread awareness about global warming.`\
+https://www.nytimes.com/2026/10/08/climate/tom-cruise-digger.html
+
+**C.D.C. Offers States $100 Million in Measles Support as Cases Climb**\
+`States said the cash infusion will help bolster efforts to increase vaccinations and identify cases.`\
+https://www.nytimes.com/2026/10/08/well/measles-pennsylvania-new-york-cdc.html
+
 **Protesters Interrupt President Trump At San Antonio Rally**\
 `Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
 https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html

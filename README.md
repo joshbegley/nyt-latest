@@ -1,3 +1,11 @@
+**Hillary Clinton, Chloe Fineman and Esther Perel Toast Argent, and the Pantsuit**\
+`At an evening to celebrate a decade of the brand Argent, over a hundred women suited up.`\
+https://www.nytimes.com/2026/10/08/style/argent-pantsuit-celebration.html
+
+**5-Year-Old Dies After Digital Whiteboard Falls in School Classroom**\
+`Bellamy Dawkins-Morris died at a hospital after a 120-pound display board fell on him at Riviera Elementary School in Palm Bay, Fla.`\
+https://www.nytimes.com/2026/10/08/us/florida-boy-display-board-death.html
+
 **Tom Cruise, Climate Warrior?**\
 `Despite whatever else is going on with the film, “Digger” is one of the most audacious attempts yet to spread awareness about global warming.`\
 https://www.nytimes.com/2026/10/08/climate/tom-cruise-digger.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgia
 **The Wave of Student Protests Roiling France**\
 `Anger about classroom overcrowding, teacher shortages and broken-down buildings has boiled over in recent weeks, and threatens to coalesce into broader grievances in a heated political season.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
-
-**Esphyr Slobodkina Found Fame With “Caps for Sale.” A New Exhibition Shows Her Range.**\
-`Plus: sunset-colored sweaters, a minimalist restaurant in Tokyo and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/10/08/t-magazine/esphyr-slobodkina-art-exhibition.html
-
-**New to Anne Carson’s Books? Start Here.**\
-`The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
-https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
 
