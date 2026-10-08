@@ -1,3 +1,7 @@
+**Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
+`Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
+https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
+
 **NYT Crossword Answers for Oct. 8, 2026**\
 `Take this puzzle from Rachel Grey and John Kugelman for a spin.`\
 https://www.nytimes.com/2026/10/07/crosswords/daily-puzzle-2026-10-08.html

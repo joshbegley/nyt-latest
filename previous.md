@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-exp
 `Attorney General Letitia James should step down from leading the investigation into a former student’s claim that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
 https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
 
-**Live Updates: Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
+**Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
 `Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
 
