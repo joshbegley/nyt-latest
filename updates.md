@@ -1,3 +1,7 @@
+**U.N. Warns Against Technology Used To Read Citizens’ Minds**\
+`A report by the secretary-general warned that new technologies could be used to access and criminalize people’s innermost thoughts.`\
+https://www.nytimes.com/2026/10/08/world/europe/united-nations-technology-warning.html
+
 **Min Jin Lee Says Choosing Community Is Radical**\
 `Min Jin Lee, the author of “American Hagwon,” joined “The Book Review” podcast to talk about how building bonds and community can be a strategy for survival.`\
 https://www.nytimes.com/video/books/review/100000011203440/min-jin-lee-says-choosing-community-is-radical.html

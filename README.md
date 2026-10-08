@@ -1,4 +1,8 @@
-**U.N. Warns Against Technology Used To Read Citizens’ Minds**\
+**Behind South Korea’s Competitive Education System**\
+`On “The Book Review” podcast, Min Jin Lee, the author of “Pachinko” and “American Hagwon,” explains how losing social safety nets after 1997 reshaped Korean culture into an intense educational race.`\
+https://www.nytimes.com/video/books/review/100000011203524/behind-south-koreas-competitive-education-system.html
+
+**U.N. Warns Against Technology Used to Read Citizens’ Minds**\
 `A report by the secretary-general warned that new technologies could be used to access and criminalize people’s innermost thoughts.`\
 https://www.nytimes.com/2026/10/08/world/europe/united-nations-technology-warning.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chick
 **Trump Wants to Decide Who Counts. And Who Doesn’t.**\
 `Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
 https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
-
-**As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
-`The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
-https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
 

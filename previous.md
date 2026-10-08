@@ -1,3 +1,7 @@
+**U.N. Warns Against Technology Used To Read Citizens’ Minds**\
+`A report by the secretary-general warned that new technologies could be used to access and criminalize people’s innermost thoughts.`\
+https://www.nytimes.com/2026/10/08/world/europe/united-nations-technology-warning.html
+
 **Min Jin Lee Says Choosing Community Is Radical**\
 `Min Jin Lee, the author of “American Hagwon,” joined “The Book Review” podcast to talk about how building bonds and community can be a strategy for survival.`\
 https://www.nytimes.com/video/books/review/100000011203440/min-jin-lee-says-choosing-community-is-radical.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting
 **As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
 `The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
 https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
-
-**In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
-`A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
-https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
 
