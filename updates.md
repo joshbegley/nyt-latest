@@ -1,3 +1,11 @@
+**For Mamdani, Oct. 7 Anniversary Sets Off Anger and Bitterness**\
+`Hours after some Jewish leaders denounced Mayor Zohran Mamdani’s remarks about the attacks on Israel, activists interrupted a vigil to call him a traitor to the Palestinian cause.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel.html
+
+**Protesters Disrupt Oct. 7 Vigil and Boo Mamdani**\
+`Pro-Palestinian protesters crowded a vigil in Union Square, where New York City mayor Zohran Mamdani joined a pro-peace Israeli group to mark the third anniversary of the Hamas-led attack on Oct. 7.`\
+https://www.nytimes.com/video/us/100000011201659/nyc-vigil-protests-israel-mamdani.html
+
 **I Went to Uganda and Saw the Authoritarian Future**\
 `A crackdown in Uganda shows how new technologies, Chinese influence and America’s moral retreat are making the world safer for autocrats.`\
 https://www.nytimes.com/2026/10/08/opinion/surveillance-autocrats-uganda.html

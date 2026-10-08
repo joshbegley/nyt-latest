@@ -1,3 +1,11 @@
+**For Mamdani, Oct. 7 Anniversary Sets Off Anger and Bitterness**\
+`Hours after some Jewish leaders denounced Mayor Zohran Mamdani’s remarks about the attacks on Israel, activists interrupted a vigil to call him a traitor to the Palestinian cause.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel.html
+
+**Protesters Disrupt Oct. 7 Vigil and Boo Mamdani**\
+`Pro-Palestinian protesters crowded a vigil in Union Square, where New York City mayor Zohran Mamdani joined a pro-peace Israeli group to mark the third anniversary of the Hamas-led attack on Oct. 7.`\
+https://www.nytimes.com/video/us/100000011201659/nyc-vigil-protests-israel-mamdani.html
+
 **I Went to Uganda and Saw the Authoritarian Future**\
 `A crackdown in Uganda shows how new technologies, Chinese influence and America’s moral retreat are making the world safer for autocrats.`\
 https://www.nytimes.com/2026/10/08/opinion/surveillance-autocrats-uganda.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know
 **Education Dept. Is Investigating Sexual Misconduct in N.Y.C. Schools**\
 `The civil rights investigation was the latest salvo by the Trump administration against the largest school system in the country.`\
 https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-nyc-schools.html
-
-**Hiker, 16, Is Rescued From ‘Widowmaker’ Ledge After Using Chatbot to Plan Route**\
-`Bryce Vincent Gowryluk used Claude, Anthropic’s A.I. chatbot, to help him chart a course for the top of Crown Mountain, north of Vancouver, British Columbia. Things did not go as planned.`\
-https://www.nytimes.com/2026/10/07/world/canada/canada-bc-hiker-claude-rescue.html
-
-**‘The Twilight Zone’ Was a Warning America Ignored**\
-`With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
-https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
