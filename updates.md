@@ -1,3 +1,7 @@
+**I Went to Uganda and Saw the Authoritarian Future**\
+`A crackdown in Uganda shows how new technologies, Chinese influence and America’s moral retreat are making the world safer for autocrats.`\
+https://www.nytimes.com/2026/10/08/opinion/surveillance-autocrats-uganda.html
+
 **Italy Weighs Controversial Law Giving Bonus Seats to Election Winners**\
 `Supporters of the law say it would bring stability to a country with a long history of short-lived governments, but critics see the measure as a threat to democracy.`\
 https://www.nytimes.com/2026/10/08/world/europe/italy-election-law-bonus.html
