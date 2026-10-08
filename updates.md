@@ -1,3 +1,11 @@
+**Hillary Clinton, Chloe Fineman and Esther Perel Toast Argent, and the Pantsuit**\
+`At an evening to celebrate a decade of the brand Argent, over a hundred women suited up.`\
+https://www.nytimes.com/2026/10/08/style/argent-pantsuit-celebration.html
+
+**5-Year-Old Dies After Digital Whiteboard Falls in School Classroom**\
+`Bellamy Dawkins-Morris died at a hospital after a 120-pound display board fell on him at Riviera Elementary School in Palm Bay, Fla.`\
+https://www.nytimes.com/2026/10/08/us/florida-boy-display-board-death.html
+
 **Tom Cruise, Climate Warrior?**\
 `Despite whatever else is going on with the film, “Digger” is one of the most audacious attempts yet to spread awareness about global warming.`\
 https://www.nytimes.com/2026/10/08/climate/tom-cruise-digger.html
