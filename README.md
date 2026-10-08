@@ -1,3 +1,7 @@
+**Getting Philosophical About A.I.**\
+`Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
+https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
+
 **‘Fjord’ Review: A Moral Rorschach Test**\
 `Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
 https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
 **6 Ways Isaias Is Remaking the Story of This Year’s Hurricane Season**\
 `It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
-
-**Myanmar’s Strongman President Is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
-`After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
-https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
 

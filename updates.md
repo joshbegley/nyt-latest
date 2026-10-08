@@ -1,3 +1,19 @@
+**‘Fjord’ Review: A Moral Rorschach Test**\
+`Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
+https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
+
+**Shifting Eating Habits Push PepsiCo to Weigh Options, Including a Split**\
+`The beverage and snack company is under increasing pressure to grow its business in North America, as consumers cut costs and calories.`\
+https://www.nytimes.com/2026/10/08/business/pepsico-earnings-splitting.html
+
+**Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
+`Vice President JD Vance singled out the tech firm as he and other officials accused several companies and universities of committing visa fraud.`\
+https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
+
+**Trump Wants to Decide Who Counts. And Who Doesn’t.**\
+`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
+
 **How a Theater-Loving Uncle Led Him to His Dream**\
 `In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
 https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html

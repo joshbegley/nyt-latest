@@ -1,3 +1,11 @@
+**‘Fjord’ Review: A Moral Rorschach Test**\
+`Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
+https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
+
+**Shifting Eating Habits Push PepsiCo to Weigh Options, Including a Split**\
+`The beverage and snack company is under increasing pressure to grow its business in North America, as consumers cut costs and calories.`\
+https://www.nytimes.com/2026/10/08/business/pepsico-earnings-splitting.html
+
 **How a Theater-Loving Uncle Led Him to His Dream**\
 `In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
 https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
 `He brought the intensity of the stage to the screen and was praised for his craft and philanthropy. He was also accused of sexual harassment.`\
 https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
 
-**Trump Administration Suspends Microsoft From Green Card Program**\
+**Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
 `Vice President JD Vance singled out the tech firm as he and other officials accused several companies and universities of committing visa fraud.`\
 https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
 
@@ -46,13 +54,13 @@ https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-ame
 `And more beautiful dishes for your fall-dinner consideration.`\
 https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
 
+**Trump Wants to Decide Who Counts. And Who Doesn’t.**\
+`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
+
 **As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
 `The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
 https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
-
-**The Census Counts Everyone. Trump Doesn’t Want That.**\
-`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
-https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
 
 **In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
 **Myanmar’s Strongman President Is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
 `After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
 https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
-
-**John Wilson on How to Make a Documentary**\
-`The director of “The History of Concrete” breaks down how he turns the camera on humanity.`\
-https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documentary.html
-
-**Third-Country Deportations Are Only the Half of It**\
-`The real-world consequences of the Roberts court are coming into view.`\
-https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
 
