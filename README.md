@@ -186,7 +186,7 @@ https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-
 `After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
 https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
 
-**Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
+**Isaias Becomes a Hurricane on Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
 https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
 
