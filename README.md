@@ -1,3 +1,11 @@
+**The National Hurricane Center’s Boss Keeps an Eye on the Storms**\
+`The director, Michael Brennan, oversees 45 federal workers, including hurricane specialists and meteorologists.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-brennan.html
+
+**Trump’s Jos. A. Bank Suit Surprised People. Should It Have?**\
+`In the past, the president has claimed to favor luxe Italian suits. This week, he flashed a label for a budget tailoring chain.`\
+https://www.nytimes.com/2026/10/08/style/trump-suits-jos-a-bank-brioni.html
+
 **What Teenagers Are Saying About Facing Their Fears**\
 `Inspired by a writer who confronted his fear of heights, we invited students to share what they’ve discovered from doing things that scare them.`\
 https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-facing-their-fears.html
@@ -26,8 +34,8 @@ https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
 `Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
 https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
 
-**Shifting Eating Habits Push PepsiCo to Weigh Options, Including a Split**\
-`The beverage and snack company is under increasing pressure to grow its business in North America, as consumers cut costs and calories.`\
+**Shifting Eating Habits Have PepsiCo Investors Seeking Operational Changes**\
+`Even though sales rose in the most recent quarter, the beverage and snack company is under increasing pressure to expand its business in North America, as consumers cut costs and calories.`\
 https://www.nytimes.com/2026/10/08/business/pepsico-earnings-splitting.html
 
 **How a Theater-Loving Uncle Led Him to His Dream**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.h
 **A Failed Execution and the Future of the Death Penalty**\
 `Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
 https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
-
-**NYT Connections Answers for October 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
-https://www.nytimes.com/2026/10/08/crosswords/connections-companion-1216.html
-
-**A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
-`Plus, the woman who helped make the moon landing possible.`\
-https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
 
