@@ -1,3 +1,11 @@
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
 https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html

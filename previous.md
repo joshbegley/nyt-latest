@@ -1,3 +1,11 @@
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
 https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/08/arts/music/tinashe-popstar.html
 **Word of the Day: nebulous**\
 `This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/08/learning/word-of-the-day-nebulous.html
-
-**How Concerned Are You About the Growing Use of Surveillance Technology?**\
-`Flock Safety cameras, used by thousands of law enforcement agencies in the U.S., have drawn intense criticism from civil liberties groups. Do they help reduce crime or threaten our privacy?`\
-https://www.nytimes.com/2026/10/08/learning/how-concerned-are-you-about-the-growing-use-of-surveillance-technology.html
-
-**At a Potato Festival, Our Berlin Reporter Deepened His Ties to a New Land**\
-`The annual Kartoffelfest was a chance to update family traditions, with an American baby born abroad.`\
-https://www.nytimes.com/2026/10/08/world/europe/germany-potato-festival.html
 
