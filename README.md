@@ -1,3 +1,7 @@
+**Fort Hood Shooter’s Execution Will be Public and Streamed Live, Pentagon Says**\
+`If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
+https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
+
 **Karol G on Bringing Latin Culture to the World’s Biggest Stages**\
 `Watch the full conversation with Karol G. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin-culture-to-the-worlds-biggest-stages.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
-**Live Updates: El-Sayed and Rogers Clash in First Debate of Key Michigan Senate Battle**\
-`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race that could be crucial to Senate control.`\
+**Live Updates: El-Sayed and Rogers Clash in Contentious Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded personal attacks as they faced off over health care, tariffs and immigration enforcement in a testy debate.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
 **Khalif Tahir Thompson Adds Punchlines to His Portraits**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/world/europe/mussolini-corpse-photo.html
 **The Blood of the Dawnwalker Is a Gripping Vampire R.P.G.**\
 `The Blood of the Dawnwalker is a gripping R.P.G. exploration of power and violence.`\
 https://www.nytimes.com/2026/10/08/arts/the-blood-dawnwalker-review.html
-
-**2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
-`Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
-https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
 
