@@ -1,3 +1,7 @@
+**Spain’s Protesters See ‘Madness’ of Rising Rent and a ‘Martyr’ in Maricarmen**\
+`Thousands of protesters marched in Madrid on Thursday, a day after the death of María del Carmen Abascal, an 87-year-old whose eviction became a symbol of the country’s housing crisis.`\
+https://www.nytimes.com/2026/10/08/world/europe/spain-protests-maricarmen-housing.html
+
 **21 Birds Are Found at Miami Airport Stuffed in Underwear and Hidden in a Belt**\
 `Two men, who arrived separately from Cuba days apart, each carried clutches of live birds concealed in their clothes, the authorities said.`\
 https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
 **At the Athens Democracy Forum, Debating the Risks Posed by A.I.**\
 `Technology and its threats were central themes at the Athens Democracy Forum.`\
 https://www.nytimes.com/2026/10/08/world/athens-democracy-forum-artificial-intelligence.html
-
-**Highest Mortgage Rates in 3 Years Chills the Housing Market**\
-`The average 30-year fixed-rate mortgage rose to 7.4 percent, putting more pressure on Americans struggling to afford to buy a home.`\
-https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
 
