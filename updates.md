@@ -1,3 +1,11 @@
+**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Says**\
+`A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
+https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
+
+**Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
+`The Saudi authorities said they intercepted two missiles targeting Riyadh, a day after they said Houthi strikes on airports in the kingdom killed three people.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **What Will You Earn?**\
 `We look at the most lucrative college degrees.`\
 https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html

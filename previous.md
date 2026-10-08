@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/08/t-magazine/esphyr-slobodkina-art-exhibition.h
 `The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
 
-**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Finds**\
+**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Says**\
 `A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
 https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
 
@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
 
 **Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
-`Saudi-led forces in Yemen said they intercepted two missiles targeting Riyadh. The kingdom is on edge after the authorities said strikes killed three people on Wednesday.`\
+`The Saudi authorities said they intercepted two missiles targeting Riyadh, a day after they said Houthi strikes on airports in the kingdom killed three people.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
 
 **A Failed Execution and the Future of the Death Penalty**\
