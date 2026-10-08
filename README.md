@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
 
 **South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
-`President Zelensky revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
+`President Volodymyr Zelensky of Ukraine revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
 https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
 
 **Oil Prices Jump on Outburst of Violence in the Middle East**\
