@@ -1,3 +1,7 @@
+**How a Theater-Loving Uncle Led Him to His Dream**\
+`In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
+https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
+
 **Pita Limjaroenrat: The Leader Thailand Could Have Had**\
 `An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
 https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documen
 **Third-Country Deportations Are Only the Half of It**\
 `The real-world consequences of the Roberts court are coming into view.`\
 https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
-
-**Trump’s White House Ban on CNN, Politico and MS Now: What to Know**\
-`A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
-https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
 

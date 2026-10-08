@@ -1,3 +1,7 @@
+**How a Theater-Loving Uncle Led Him to His Dream**\
+`In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
+https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
+
 **Pita Limjaroenrat: The Leader Thailand Could Have Had**\
 `An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
 https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
