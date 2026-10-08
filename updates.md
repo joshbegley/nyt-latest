@@ -1,3 +1,7 @@
+**South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
+`President Volodymyr Zelensky of Ukraine revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
+https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
+
 **France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
 `French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
