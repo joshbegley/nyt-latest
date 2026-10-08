@@ -1,3 +1,7 @@
+**Arizona Congressional Candidate Says She Was Raped While Fixing Sign**\
+`Bernadette Greene-Placentia, a Democrat, said the attack in August occurred while she was repairing a damaged campaign sign.`\
+https://www.nytimes.com/2026/10/07/us/bernadetta-green-placentia-campaign-sign-rape.html
+
 **At Texas Rally, Trump and Paxton Make for an Awkward Pair**\
 `The president offered support for the Republican Senate candidate, after earlier grumbles, but focused much of his speech on a defense of his own record.`\
 https://www.nytimes.com/2026/10/07/us/elections/in-texas-trump-and-paxton-make-for-an-awkward-pair.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
 **F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
 `A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
 https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
-
-**Fed Minutes Show Officials Saw More Work to Do to Quell Inflation**\
-`Policymakers grew increasingly concerned about inflation risks at their most recent meeting in September.`\
-https://www.nytimes.com/2026/10/07/business/fed-minutes-show-officials-saw-more-work-to-do-to-quell-inflation.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\

@@ -1,3 +1,7 @@
+**Arizona Congressional Candidate Says She Was Raped While Fixing Sign**\
+`Bernadette Greene-Placentia, a Democrat, said the attack in August occurred while she was repairing a damaged campaign sign.`\
+https://www.nytimes.com/2026/10/07/us/bernadetta-green-placentia-campaign-sign-rape.html
+
 **At Texas Rally, Trump and Paxton Make for an Awkward Pair**\
 `The president offered support for the Republican Senate candidate, after earlier grumbles, but focused much of his speech on a defense of his own record.`\
 https://www.nytimes.com/2026/10/07/us/elections/in-texas-trump-and-paxton-make-for-an-awkward-pair.html
