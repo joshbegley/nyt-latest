@@ -1,3 +1,147 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties include a midcentury home in Hastings-on-Hudson, N.Y., and a colonial-style home in, Fairfield, Conn.`\
+https://www.nytimes.com/2026/10/08/realestate/housing-market-near-nyc.html
+
+**Keith Haring Created a Mural in a TriBeCa Loft. Now, It’s for Sale.**\
+`The renovated apartment featuring a once hidden early work by the New York artist is on the market for $25 million.`\
+https://www.nytimes.com/2026/10/08/realestate/tribeca-loft-keith-haring-mural-listed-25-million.html
+
+**Connecting the Dots Between Roy Lichtenstein and Today**\
+`The Whitney’s retrospective is full of jokes, but it captures our image overload with surprising tenderness. Our critic calls it “the most momentous exhibition of the season.”`\
+https://www.nytimes.com/2026/10/08/arts/design/roy-lichtenstein-like-new-review-whitney.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Upper East Side, in Tudor City and Downtown Brooklyn.`\
+https://www.nytimes.com/2026/10/08/realestate/housing-market-nyc.html
+
+**This Photo Is an A.I. Fake. Can You Tell?**\
+`We want you to look closely — very closely — at this fake image and spot any errors.`\
+https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
+
+**15-Minute Lesson Plan: The Power of Student Journalism**\
+`Young people at The Cornell Daily Sun have led the reporting on the assault case on their campus. What role do student journalists play in both reflecting and challenging their communities?`\
+https://www.nytimes.com/2026/10/08/learning/15-minute-lesson-plan-the-power-of-student-journalism.html
+
+**He Wrote for ‘Seinfeld.’ But He Sees Genius in ‘Nancy.’**\
+`The comic strip is surprisingly revered by some comedy writers and cartoonists, including Tom Gammill, whose credits include “The Simpsons” and “S.N.L.”`\
+https://www.nytimes.com/2026/10/08/arts/television/tom-gammill-nancy-seinfeld-the-simpsons.html
+
+**Embrace or Ban Greek Life? Cornell Case Renews an Old Debate on Campuses**\
+`A sexual assault case at Cornell revived a long-running national conversation about whether fraternities and sororities are beneficial or harmful.`\
+https://www.nytimes.com/2026/10/08/us/greek-life-cornell-fraternities-sororities-ban.html
+
+**‘Winter of the Crow’ Review: Life in Communist Warsaw**\
+`Lesley Manville plays a professor in 1981 who gets swept up in the declaration of martial law in Poland in this slow-burning film.`\
+https://www.nytimes.com/2026/10/08/movies/winter-of-the-crow-review.html
+
+**‘The Social Reckoning’ Review: Sounding the Alarm**\
+`Aaron Sorkin’s latest movie is about how social-media platforms like Facebook have rewired our brains and the larger world.`\
+https://www.nytimes.com/2026/10/08/movies/the-social-reckoning-review.html
+
+**‘My Undesirable Friends: Part II — Exile’ Review: What Is Truth?**\
+`The second half of Julia Loktev’s epic chronicle of independent journalists in Russia is essential viewing.`\
+https://www.nytimes.com/2026/10/08/movies/my-undesirable-friends-part-ii-exile-review.html
+
+**In ‘Tom at the Farm,’ Mud (Lots of It) Makes the Play**\
+`“Tom at the Farm,” about a man visiting his dead lover’s farm, conjures a slippery rural setting at NYU Skirball.`\
+https://www.nytimes.com/2026/10/08/theater/tom-at-the-farm-nyu-skirball.html
+
+**‘Misty Green’ Review: An Actor and the Pleas That Drive L.A.**\
+`The actor Rosalind Eleazar and the writer-director Chris Rock give us a portrait of struggle in a city of air kisses and transactional fondness.`\
+https://www.nytimes.com/2026/10/08/movies/misty-green-review.html
+
+**‘The Beast’ Review: Samuel L. Jackson in the Driver’s Seat**\
+`Jackson plays a president under siege from a well-armed militia in this action film where his heavily armored car is hiding a few tricks.`\
+https://www.nytimes.com/2026/10/08/movies/the-beast-review-samuel-l-jackson.html
+
+**‘Matchbox: The Movie’ Review: We Like the Cars That Go Boom**\
+`John Cena is in the driver’s seat of this stilted movie adaptation of the Mattel-brand toy cars.`\
+https://www.nytimes.com/2026/10/08/movies/matchbox-the-movie-review.html
+
+**‘He’s Not Making Sense’: How Trump Has Alienated Voters for the G.O.P.**\
+`Signs are emerging that dispirited Republican voters may stay home in November, bringing a Democratic surge without many conversions.`\
+https://www.nytimes.com/2026/10/08/us/elections/trump-voter-enthusiasm-midterms.html
+
+**‘Absolute Nightmare’: Inside the Russian Warehouses Bombarded by Ukraine**\
+`Middle-of-the-night evacuations and fears about death have become the norm for workers at Russian e-commerce companies targeted by Ukraine.`\
+https://www.nytimes.com/2026/10/08/world/europe/russia-wildberries-ozon-warehouse-ukraine-attacks.html
+
+**No Longer ‘Underrated,’ Tinashe Steps Into Her Pop Moment**\
+`The singer is getting the best reviews of her career with her new album “Popstar,” and making music that seems to reflect who she is with even greater clarity.`\
+https://www.nytimes.com/2026/10/08/arts/music/tinashe-popstar.html
+
+**Word of the Day: nebulous**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/08/learning/word-of-the-day-nebulous.html
+
+**How Concerned Are You About the Growing Use of Surveillance Technology?**\
+`Flock Safety cameras, used by thousands of law enforcement agencies in the U.S., have drawn intense criticism from civil liberties groups. Do they help reduce crime or threaten our privacy?`\
+https://www.nytimes.com/2026/10/08/learning/how-concerned-are-you-about-the-growing-use-of-surveillance-technology.html
+
+**At a Potato Festival, Our Berlin Reporter Deepened His Ties to a New Land**\
+`The annual Kartoffelfest was a chance to update family traditions, with an American baby born abroad.`\
+https://www.nytimes.com/2026/10/08/world/europe/germany-potato-festival.html
+
+**The Fresh Charms of Art From the 15th Century**\
+`At the Met, an exhibition of 16 pieces transports viewers to a place and time when the virtues of artworks were refreshingly different from ours today.`\
+https://www.nytimes.com/2026/10/08/arts/design/della-robbia-the-met-exhibit.html
+
+**Book Review: ‘The Names of the New World,’ by Kawai Strong Washburn**\
+`In the Minneapolis of Kawai Strong Washburn’s climate dystopia, three characters form unlikely bonds to take on the nation’s greediest oil behemoths.`\
+https://www.nytimes.com/2026/10/08/books/review/the-names-of-the-new-world-kawai-strong-washburn.html
+
+**Can Your College Affect Your Income?**\
+`A new analysis of federal earnings data measures how much students who received federal financial aid earned four years after graduating. Our graphics reporter Arfa Momin studied the data to see when a graduate’s major and college mattered most to earnings.`\
+https://www.nytimes.com/video/business/100000011168809/can-your-college-affect-your-income.html
+
+**Sweden Has 267,570 Islands. I Walked Across 20 of Them.**\
+`Traveling through the Stockholm Archipelago on foot meant watching everyone else sail by. It also meant unraveling the maze of lives and experiences that shaped it.`\
+https://www.nytimes.com/2026/10/08/magazine/stockholm-archipelago-trail.html
+
+**Should I Marry a Man Who Won’t Touch Me?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a 65-year-old reader who loves her partner but is physically and emotionally unsatisfied.`\
+https://www.nytimes.com/2026/10/08/well/mind/platonic-engagement-sex-emotion-touch-starved.html
+
+**Fontaines D.C. Feels Its Way Out of the Darkness**\
+`After losing a beloved manager, and ahead of releasing the most anticipated album of its career, the Irish band works its way through despair.`\
+https://www.nytimes.com/2026/10/08/arts/music/fontaines-dc-dopamine-chamber-album.html
+
+**How the Trump Administration Is Eroding Airline Passengers’ Rights**\
+`Under Sean Duffy, the Transportation Department has worked to roll back consumer protections. Passenger advocates say the changes favor airlines.`\
+https://www.nytimes.com/2026/10/08/travel/airlines-flights-passenger-rights-trump.html
+
+**Book Review: ‘Fair Ones,’ by Lydia Millet**\
+`In Lydia Millet’s dialogue-driven novel, a random act of violence leaves two New York women at loose ends (though not for long).`\
+https://www.nytimes.com/2026/10/08/books/review/fair-ones-lydia-millet.html
+
+**How to Look Cool at Paris Fashion Week**\
+`All black head to toe? Or pearls, patterns and color?`\
+https://www.nytimes.com/2026/10/08/style/paris-fashion-week-street-style-runway.html
+
+**How Much Space Does $400,000 Get You?**\
+`The median national home price gets you a vastly different spread, depending where you are.`\
+https://www.nytimes.com/2026/10/08/realestate/how-much-space-does-400000-get-you.html
+
+**Dark Retellings of Classic Books Like ‘Jane Eyre,’ ‘Frankenstein’ and More**\
+`The best-selling author Kat Dunn recommends some of her favorite modern retellings, of “Jane Eyre,” “Frankenstein” and more.`\
+https://www.nytimes.com/2026/10/08/books/classic-retelling-gothic-horror-books.html
+
+**How a U.S. Diplomat Suppressed and Altered Reports Critical of Israel**\
+`A top aide to Ambassador Mike Huckabee skewed information to portray the Netanyahu government in a favorable light, according to multiple officials and documents obtained by The Times.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/israel-embassy-milstein-huckabee.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Lise Davidsen’s Verdi, Anthony Davis’s “The Central Park Five” and a new take on Britten’s cello suites among our selections.`\
+https://www.nytimes.com/2026/10/08/arts/music/best-classical-music-albums-october-2026.html
+
+**They Switched Coasts for More Space. Which Hudson Valley Home Did They Pick?**\
+`Even after stretching their budget, a family couldn’t buy their Southern California home from their landlord, leading them to try the opposite coast.`\
+https://www.nytimes.com/quiz/2026/10/08/realestate/homes-for-sale-hudson-valley-ny.html
+
+**TikTok Is Taking Us Back to the Dark Ages**\
+`Welcome to the postliterate era.`\
+https://www.nytimes.com/video/opinion/100000011195425/tiktok-is-taking-us-back-to-the-dark-ages.html
+
 **A Top Fed Official Casts Further Doubt on a Rate Rise This Month**\
 `The Federal Reserve is poised to raise interest rates further as it seeks to tame inflation, but that is unlikely to happen until the end of the year.`\
 https://www.nytimes.com/2026/10/08/business/federal-reserve-christopher-waller-rates.html
@@ -53,144 +197,4 @@ https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel
 **Protesters Disrupt Oct. 7 Vigil and Boo Mamdani**\
 `Pro-Palestinian protesters crowded a vigil in Union Square, where New York City mayor Zohran Mamdani joined a pro-peace Israeli group to mark the third anniversary of the Hamas-led attack on Oct. 7.`\
 https://www.nytimes.com/video/us/100000011201659/nyc-vigil-protests-israel-mamdani.html
-
-**I Went to Uganda and Saw the Authoritarian Future**\
-`A crackdown in Uganda shows how new technologies, Chinese influence and America’s moral retreat are making the world safer for autocrats.`\
-https://www.nytimes.com/2026/10/08/opinion/surveillance-autocrats-uganda.html
-
-**Italy Weighs Controversial Law Giving Bonus Seats to Election Winners**\
-`Supporters of the law say it would bring stability to a country with a long history of short-lived governments, but critics see the measure as a threat to democracy.`\
-https://www.nytimes.com/2026/10/08/world/europe/italy-election-law-bonus.html
-
-**Quote of the Day: Outrage in India as 130 Million People Are Wiped From the Voter Rolls**\
-`Quotation of the Day for Thursday, October 8, 2026.`\
-https://www.nytimes.com/2026/10/08/pageoneplus/quote-of-the-day-outrage-in-india-as-130-million-people-are-wiped-from-the-voter-rolls.html
-
-**For France’s Resurgent Far Left, Student Protests Are an Opening and a Threat**\
-`Far-left leaders are cheering on the students. Government officials accuse them of stirring up the unrest for political gain.`\
-https://www.nytimes.com/2026/10/08/world/europe/france-protests-far-left-melenchon.html
-
-**On This Day, Oct. 8: In 1871, the Great Chicago Fire Began**\
-`In 1871, the Great Chicago Fire began, burning through the city for more than a day and destroying much of its center.`\
-https://www.nytimes.com/2026/10/08/learning/on-this-day-oct-8.html
-
-**5 Takeaways From the First Iowa Senate Debate**\
-`In a top Senate battleground, Representative Ashley Hinson, the Republican nominee, sparred with Josh Turek, her Democratic rival, on policy issues ranging from Medicaid to term limits.`\
-https://www.nytimes.com/2026/10/07/us/politics/iowa-senate-debate-ashley-hinson-josh-turek.html
-
-**Arizona Congressional Candidate Says She Was Raped While Fixing Sign**\
-`Bernadette Greene-Placentia, a Democrat, said the attack in August occurred while she was repairing a damaged campaign sign.`\
-https://www.nytimes.com/2026/10/07/us/bernadetta-green-placentia-campaign-sign-rape.html
-
-**At Texas Rally, Trump and Paxton Make for an Awkward Pair**\
-`The president offered support for the Republican Senate candidate, after earlier grumbles, but focused much of his speech on a defense of his own record.`\
-https://www.nytimes.com/2026/10/07/us/elections/in-texas-trump-and-paxton-make-for-an-awkward-pair.html
-
-**At Nearly $300,000, Some Recent Duke Graduates Out-Earned All Their Peers**\
-`Federal data show Duke math majors earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
-https://www.nytimes.com/2026/10/07/your-money/duke-math-major-salaries.html
-
-**NYT Crossword Answers for Oct. 8, 2026**\
-`Take this puzzle from Rachel Grey and John Kugelman for a spin.`\
-https://www.nytimes.com/2026/10/07/crosswords/daily-puzzle-2026-10-08.html
-
-**A College-by-College Guide to Which Majors Pay Off — or Don’t**\
-`College is one of the biggest investments you’ll ever make. We built a tool to compare earnings of nearly every major at nearly every school in the country.`\
-https://www.nytimes.com/interactive/2026/10/07/your-money/college-degree-earnings-guide.html
-
-**Newsom Mulls Sparing Lives of All 563 Prisoners on Death Row in California**\
-`Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
-https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html
-
-**Judge Throws Out Last Defendant’s Confession in Sept. 11 Case at Guantánamo**\
-`The government is now 0-5 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
-https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html
-
-**Florida Court Orders Expungement of Report Criticizing DeSantis Administration**\
-`The grand jury report, which was never released publicly but was leaked to a Miami news station, wrongfully “impugned” private individuals, an appeals panel found.`\
-https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-expunge.html
-
-**Cornell Student Wants Letitia James, NY Attorney General, Removed as Prosecutor**\
-`Attorney General Letitia James should step down from leading the investigation into a former student’s claim that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
-https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
-
-**Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
-`Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
-https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
-
-**Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
-`Margaret Hamilton, the first female programmer hired to work on the space project at M.I.T., was 90.`\
-https://www.nytimes.com/2026/10/07/obituaries/margaret-hamilton-dead.html
-
-**RFK Jr. Plans Vaccine Injury Initiative, Drawing Wary Eye From Experts**\
-`Vaccine safety experts say more research into the side effects would be welcome yet question whether the health secretary’s effort will be grounded in science.`\
-https://www.nytimes.com/2026/10/07/us/politics/kennedy-vaccine-injuries.html
-
-**Religion Professor Accused of Harassing Colleague With Antisemitic Posts**\
-`The professor at Haverford College in Pennsylvania was charged with cyberstalking in connection with what federal prosecutors say was a series of threatening messages to a co-worker.`\
-https://www.nytimes.com/2026/10/07/us/haverford-professor-arrest-death-threats.html
-
-**Who Is Ken Paxton Turning to for Help in the Texas Senate Race?**\
-`Trump is in Texas tonight to stump for the Senate candidate.`\
-https://www.nytimes.com/2026/10/07/us/politics/ken-paxton-texas-senate-race.html
-
-**Leon Botstein, Former Bard President With Epstein Ties, Resigns From College Positions**\
-`Leon Botstein had already retired from the presidency of the liberal arts college this spring, after emails showed he had maintained a longtime friendship with Jeffrey Epstein.`\
-https://www.nytimes.com/2026/10/07/us/leon-botstein-bard-college-resign-epstein.html
-
-**Delta Passenger Steals and Crashes Airport Tug in California, Officials Say**\
-`The episode briefly disrupted operations on Tuesday at John Wayne Airport in Santa Ana, Calif., where the man went onto the tarmac, the authorities said.`\
-https://www.nytimes.com/2026/10/07/us/delta-passenger-steals-tug-crashes-john-wayne-airport.html
-
-**Army Sets Date for First Military Execution by Firing Squad Since 1945**\
-`Maj. Nidal Malik Hasan, a former Army psychiatrist, will be shot to death on Dec. 3 at Fort Hood, where he killed 13 and wounded 32 in 2009.`\
-https://www.nytimes.com/2026/10/07/us/politics/execution-fort-hood-shooting.html
-
-**Inside the Student Protest Movement in France**\
-`Tens of thousands of student protesters are accusing the French government of neglecting public schools. We went inside the movement to find out why so many young people are risking their safety to demand a better education.`\
-https://www.nytimes.com/video/world/europe/100000011193493/france-students-protests-education.html
-
-**Christa Pike, Confused After Failed Tennessee Execution, Is at Center of Legal Storm**\
-`Her awareness and condition deepen ethical and legal questions after Tennessee’s failed attempt to execute her for murdering a classmate decades ago.`\
-https://www.nytimes.com/2026/10/07/us/christa-pike-tennessee-legal.html
-
-**Do We Even Want the A.I. Bet to Pay Off?**\
-`Assuming it’s achievable, should we even want superintelligence? On “The Ezra Klein Show,” Ezra Klein poses that question to David Robinson, who quit his role at OpenAI last week.`\
-https://www.nytimes.com/video/opinion/100000011191545/do-we-even-want-the-ai-bet-to-pay-off.html
-
-**Ukraine Claws Back Land**\
-`Also, scientists study a 194-year-old tortoise. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/10/07/briefing/ukraine-claws-back-land.html
-
-**Migrant Involved With Delaney Hall Protests Is Freed From Detention**\
-`The center in New Jersey became a flashpoint in the federal government’s effort to deport immigrants. Martin Soto had spent eight months in custody.`\
-https://www.nytimes.com/2026/10/07/nyregion/migrant-protester-delaney-freed.html
-
-**Trump Administration Investigates Wells Fargo for Race-Based Lending**\
-`The federal housing agency says the bank’s efforts to encourage Black homeownership amount to discrimination.`\
-https://www.nytimes.com/2026/10/07/business/trump-hud-wells-fargo.html
-
-**How Alan Cumming’s Trauma Made Him a Better Actor**\
-`The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, about how the fear instilled in him by his father helped him develop certain acting skills.`\
-https://www.nytimes.com/video/podcasts/100000011200147/how-alan-cummings-trauma-made-him-a-better-actor.html
-
-**Corrections: Oct. 7, 2027**\
-`Corrections that appeared in print on Wednesday, Oct. 7, 2026.`\
-https://www.nytimes.com/2026/10/07/pageoneplus/corrections-oct-7-2027.html
-
-**Maps: Tracking Tropical Storm Simon**\
-`See the likely path and wind arrival times for Simon`\
-https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.html
-
-**A Plague Mystery in Siberia**\
-`The death of a Russian lab worker has spawned rumors. Here are the facts.`\
-https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html
-
-**Isaias Becomes a Hurricane on Its Way to the Gulf Coast**\
-`Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
-https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
-
-**Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
-`A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
-https://www.nytimes.com/live/2026/10/07/us/christa-pike-tennessee-execution
 
