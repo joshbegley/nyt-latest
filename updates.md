@@ -1,3 +1,7 @@
+**Live Updates: El-Sayed and Rogers Clash in Heated Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks as they faced off over Israel, the Iran war and health care in a testy debate.`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **Federal Agents Shot Man in New York City, Police Say**\
 `Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
 https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
