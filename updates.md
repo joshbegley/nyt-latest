@@ -1,3 +1,7 @@
+**Isaias Becomes a Hurricane on Its Way to the Gulf Coast**\
+`Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
+https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
+
 **Israel and U.K. Cut Last-Minute Deal to Avoid Full Closure of British Consulate in East Jerusalem**\
 `The diplomatic facility, in East Jerusalem, was under threat of being shut but will remain under a new name, the British foreign secretary said.`\
 https://www.nytimes.com/2026/10/08/world/europe/uk-israel-consulate-east-jerusalem-palestinians.html
