@@ -1,3 +1,11 @@
+**Karol G on Bringing Latin Culture to the World’s Biggest Stages**\
+`Watch the full conversation with Karol G. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin-culture-to-the-worlds-biggest-stages.html
+
+**‘Animals’ Review: The Politician’s Dilemma**\
+`Ben Affleck plays a mayoral candidate who’s having a very bad day in this fizz-free political thriller.`\
+https://www.nytimes.com/2026/10/08/movies/animals-review-the-politicians-dilemma.html
+
 **Army Actions Contributed to Reagan Airport Collision, Internal Report Says**\
 `It is unclear what changes could result from the Army report, which is unlikely to satisfy critics of the military’s response to the D.C. crash.`\
 https://www.nytimes.com/2026/10/08/us/politics/army-report-reagan-airport-collision.html
@@ -10,16 +18,16 @@ https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
-**Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
-`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race pivotal to determining which party controls the Senate.`\
+**Live Updates: El-Sayed and Rogers Clash in First Debate of Key Michigan Senate Battle**\
+`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race that could be crucial to Senate control.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
 **Khalif Tahir Thompson Adds Punchlines to His Portraits**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
 
-**Princeton Celebrates Anne Carson, a Nobel Winner Whom It Denied Tenure**\
-`Carson, who was awarded the Nobel Prize in Literature on Thursday, taught at the university in the 1980s. Social media users mocked a congratulatory message from the school.`\
+**Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**\
+`Carson, who was awarded the Literature prize on Thursday, was denied tenure when teaching at the university in the 1980s, leading social media users to mock a congratulatory message.`\
 https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html
 
 **The ‘Mean Girls’ Presidency**\
@@ -30,8 +38,8 @@ https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.
 `Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
 
-**Federal Agents Shoot Man in New York City, N.Y.P.D Says**\
-`A police spokesman said the person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention.`\
+**ICE Agent Shoots Man in New York City**\
+`The person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention, according to the New York Police Department, which said it was not involved in the shooting.`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
 
 **What Are the Remaining Millennium Prize Problems?**\
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/08/arts/the-blood-dawnwalker-review.html
 **2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
 `Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
 https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
-
-**Judge Extends Pause on Trump’s Ban Against CNN, MS NOW and Politico**\
-`The judge overseeing the case said that the pause would extend until next week, and promised to decide whether to further extend it by Tuesday.`\
-https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-trump.html
-
-**Why Anne Carson, the New Nobel Laureate, Is the Easiest Difficult Poet**\
-`Carson has mind-boggling range and formal audacity, our poetry columnist writes, but however much she toys with obscurity she remains too hilarious to be intimidating.`\
-https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
 

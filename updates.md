@@ -1,3 +1,23 @@
+**Karol G on Bringing Latin Culture to the World’s Biggest Stages**\
+`Watch the full conversation with Karol G. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin-culture-to-the-worlds-biggest-stages.html
+
+**‘Animals’ Review: The Politician’s Dilemma**\
+`Ben Affleck plays a mayoral candidate who’s having a very bad day in this fizz-free political thriller.`\
+https://www.nytimes.com/2026/10/08/movies/animals-review-the-politicians-dilemma.html
+
+**Live Updates: El-Sayed and Rogers Clash in First Debate of Key Michigan Senate Battle**\
+`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race that could be crucial to Senate control.`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
+**Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**\
+`Carson, who was awarded the Literature prize on Thursday, was denied tenure when teaching at the university in the 1980s, leading social media users to mock a congratulatory message.`\
+https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html
+
+**ICE Agent Shoots Man in New York City**\
+`The person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention, according to the New York Police Department, which said it was not involved in the shooting.`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **Army Actions Contributed to Reagan Airport Collision, Internal Report Says**\
 `It is unclear what changes could result from the Army report, which is unlikely to satisfy critics of the military’s response to the D.C. crash.`\
 https://www.nytimes.com/2026/10/08/us/politics/army-report-reagan-airport-collision.html
