@@ -1,5 +1,5 @@
 **Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
-`A candlelight vigil on Thursday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos in Union Square.`\
+`A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos in Union Square.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
 
 **Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
