@@ -1,3 +1,7 @@
+**French Students Take to the Streets as Government Seeks Way Out of Crisis**\
+`Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
+
 **What’s Going On in This Picture? | Oct. 19, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
