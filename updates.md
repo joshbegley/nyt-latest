@@ -1,3 +1,7 @@
+**Army Actions Contributed to Reagan Airport Collision, Internal Report Says**\
+`It is unclear what changes could result from the Army report, which is unlikely to satisfy critics of the military’s response to the D.C. crash.`\
+https://www.nytimes.com/2026/10/08/us/politics/army-report-reagan-airport-collision.html
+
 **What to Make of Trump’s Uptick in Profanity**\
 `The president’s speech is getting filthier.`\
 https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html

@@ -1,3 +1,7 @@
+**Army Actions Contributed to Reagan Airport Collision, Internal Report Says**\
+`It is unclear what changes could result from the Army report, which is unlikely to satisfy critics of the military’s response to the D.C. crash.`\
+https://www.nytimes.com/2026/10/08/us/politics/army-report-reagan-airport-collision.html
+
 **Clinical Trial Indicates A.I. Chatbots Could Aid Urgent Care**\
 `Nearly 100 patients discussed their maladies with a Google bot, called AMIE, before meeting with physicians.`\
 https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
@@ -181,16 +185,4 @@ https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-t
 **Why Anne Carson, the New Nobel Laureate, Is the Easiest Difficult Poet**\
 `Carson has mind-boggling range and formal audacity, our poetry columnist writes, but however much she toys with obscurity she remains too hilarious to be intimidating.`\
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
-
-**Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
-`The Canadian poet and essayist Anne Carson won the Nobel Prize in Literature on Thursday. Ms. Carson joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
-https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
-
-**Russia’s Silence on Possible Plague Outbreak Stokes Fears of a Cover-Up**\
-`As rumors spread about a possible plague outbreak in Siberia, the Kremlin turned to a familiar playbook: offering little information about potential bad news.`\
-https://www.nytimes.com/2026/10/08/world/europe/russia-plague-outbreak.html
-
-**The National Hurricane Center’s Boss Keeps an Eye on the Storms**\
-`The director, Michael Brennan, oversees 45 federal workers, including hurricane specialists and meteorologists.`\
-https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-brennan.html
 
