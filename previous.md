@@ -1,3 +1,7 @@
+**Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
+`The woman who helped put astronauts on the moon was a software engineer when the field was not prestigious or lucrative.`\
+https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-science.html
+
 **What Will You Earn?**\
 `We look at the most lucrative college degrees.`\
 https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardus
 **That Daily Brain Rot Break Is Taking Us Back to the Dark Ages**\
 `Welcome to the postliterate era.`\
 https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
-
-**36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
-`Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
-https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
 

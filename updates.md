@@ -1,3 +1,7 @@
+**Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
+`The woman who helped put astronauts on the moon was a software engineer when the field was not prestigious or lucrative.`\
+https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-science.html
+
 **That Daily Brain Rot Break Is Taking Us Back to the Dark Ages**\
 `Welcome to the postliterate era.`\
 https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
