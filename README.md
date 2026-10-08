@@ -18,13 +18,13 @@ https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.h
 `Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
 https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
 
-**A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
-`Plus, the woman who helped make the moon landing possible.`\
-https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
-
 **NYT Connections Answers for October 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/08/crosswords/connections-companion-1216.html
+
+**A Forced Retreat for Trump and Hegseth, and What to Know About the Russia Plague Scare**\
+`Plus, the woman who helped make the moon landing possible.`\
+https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-russia-plague.html
 
 **NYT Strands Hints for October 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\

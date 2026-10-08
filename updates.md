@@ -1,3 +1,7 @@
+**Anne Carson Is Awarded Nobel Prize in Literature**\
+`The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html
+
 **The Cornell Case Exposes What We Can’t Say**\
 `We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
 https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html

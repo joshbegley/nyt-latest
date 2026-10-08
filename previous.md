@@ -1,3 +1,7 @@
+**Anne Carson Is Awarded Nobel Prize in Literature**\
+`The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html
+
 **America in Retreat**\
 `We look at how the war with Iran has constrained U.S. power.`\
 https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/world/europe/germany-potato-festival.html
 **The Fresh Charms of Art From the 15th Century**\
 `At the Met, an exhibition of 16 pieces transports viewers to a place and time when the virtues of artworks were refreshingly different from ours today.`\
 https://www.nytimes.com/2026/10/08/arts/design/della-robbia-the-met-exhibit.html
-
-**Book Review: ‘The Names of the New World,’ by Kawai Strong Washburn**\
-`In the Minneapolis of Kawai Strong Washburn’s climate dystopia, three characters form unlikely bonds to take on the nation’s greediest oil behemoths.`\
-https://www.nytimes.com/2026/10/08/books/review/the-names-of-the-new-world-kawai-strong-washburn.html
 
