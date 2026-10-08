@@ -1,3 +1,7 @@
+**How a Theater-Loving Uncle Led Him to His Dream**\
+`In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
+https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
+
 **Pita Limjaroenrat: The Leader Thailand Could Have Had**\
 `An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
 https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
@@ -118,13 +122,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
-`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
-https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
-
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
+
+**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
+`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
+https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documen
 **Third-Country Deportations Are Only the Half of It**\
 `The real-world consequences of the Roberts court are coming into view.`\
 https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
-
-**Trump’s White House Ban on CNN, Politico and MS Now: What to Know**\
-`A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
-https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
 
