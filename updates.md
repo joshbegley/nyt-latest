@@ -1,3 +1,23 @@
+**The ‘Mean Girls’ Presidency**\
+`We are living through the Regina George administration, argues the Opinion contributing writer Molly Jong-Fast. Yes, the very one from “Mean Girls.” President Trump’s administration is filled with wannabes who are eager to please him. But while that social system worked in high school, it definitely shouldn’t be working when “Trump’s bad ideas have no checks and balances,” she says.`\
+https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.html
+
+**Explosions Rattle Saudi Capital**\
+`Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
+
+**Federal Agents Shoot Man in New York City, N.Y.P.D Says**\
+`A police spokesman said the person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention.`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
+**What Are the Remaining Millennium Prize Problems?**\
+`OpenAI’s trove of new math results doesn’t fully solve any of these highly prestigious open questions, but it seems to make progress on some.`\
+https://www.nytimes.com/2026/10/08/science/millennium-prize-problems-explainer.html
+
+**‘Breathtaking,’ ‘Devastating’: Mathematics Reels After New OpenAI Release**\
+`Hundreds of new A.I.-generated findings moved the frontiers of higher math in a single day — dispelling any doubt that the field is forever changed.`\
+https://www.nytimes.com/2026/10/08/science/mathematicians-respond-openai-release.html
+
 **The Fish Farming Industry's Dirty Secrets: Forced Labor, Harmful Chemicals, Pollution**\
 `Forced labor, rancid waste, harmful chemicals. What to know about the seafood that could end up on your plate.`\
 https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquaculture-overfishing.html

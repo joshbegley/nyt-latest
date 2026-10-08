@@ -1,3 +1,23 @@
+**The ‘Mean Girls’ Presidency**\
+`We are living through the Regina George administration, argues the Opinion contributing writer Molly Jong-Fast. Yes, the very one from “Mean Girls.” President Trump’s administration is filled with wannabes who are eager to please him. But while that social system worked in high school, it definitely shouldn’t be working when “Trump’s bad ideas have no checks and balances,” she says.`\
+https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.html
+
+**Explosions Rattle Saudi Capital**\
+`Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
+
+**Federal Agents Shoot Man in New York City, N.Y.P.D Says**\
+`A police spokesman said the person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention.`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
+**What Are the Remaining Millennium Prize Problems?**\
+`OpenAI’s trove of new math results doesn’t fully solve any of these highly prestigious open questions, but it seems to make progress on some.`\
+https://www.nytimes.com/2026/10/08/science/millennium-prize-problems-explainer.html
+
+**‘Breathtaking,’ ‘Devastating’: Mathematics Reels After New OpenAI Release**\
+`Hundreds of new A.I.-generated findings moved the frontiers of higher math in a single day — dispelling any doubt that the field is forever changed.`\
+https://www.nytimes.com/2026/10/08/science/mathematicians-respond-openai-release.html
+
 **The Fish Farming Industry's Dirty Secrets: Forced Labor, Harmful Chemicals, Pollution**\
 `Forced labor, rancid waste, harmful chemicals. What to know about the seafood that could end up on your plate.`\
 https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquaculture-overfishing.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/08/us/nashville-courthouse-shooting.html
 **Indian Opposition Leaders Detained Amid Voter-Roll Protests**\
 `Security forces in New Delhi broke up protests over a voter-roll revision on Wednesday, briefly detaining many lawmakers, including two opposition leaders, for the second straight day.`\
 https://www.nytimes.com/video/world/asia/100000011202009/india-protest-new-delhi-leaders-detained.html
-
-**Getting Philosophical About A.I.**\
-`Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
-https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
-
-**‘Fjord’ Review: A Moral Rorschach Test**\
-`Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
-https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
-
-**Shifting Eating Habits Have PepsiCo Investors Seeking Operational Changes**\
-`Even though sales rose in the most recent quarter, the beverage and snack company is under increasing pressure to expand its business in North America, as consumers cut costs and calories.`\
-https://www.nytimes.com/2026/10/08/business/pepsico-earnings-splitting.html
-
-**How a Theater-Loving Uncle Led Him to His Dream**\
-`In “Good Time Charlie,” Ryan J. Haddad pairs his own coming out story with the more fraught experience of his relative a generation earlier.`\
-https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
-
-**Pita Limjaroenrat: The Leader Thailand Could Have Had**\
-`An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
-https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
 
