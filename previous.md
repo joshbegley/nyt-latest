@@ -1,3 +1,59 @@
+**Third-Country Deportations Are Only the Half of It**\
+`The real-world consequences of the Roberts court are coming into view.`\
+https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
+
+**Why a Court Order Didn’t Stop Trump From Keeping Reporters Off Air Force One**\
+`A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
+https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
+
+**Quiz: How Much Do You Know About Breast Cancer?**\
+`Test your knowledge of breast cancer with our quiz.`\
+https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-treatment-mutations.html
+
+**Here’s What Worries Me About the Russian Plague Scare**\
+`America is not prepared for a major disease outbreak.`\
+https://www.nytimes.com/2026/10/08/opinion/plague-siberia-russia-lab.html
+
+**We Don’t Know How to Talk About Cornell**\
+`We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
+https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html
+
+**Long-Deployed Aircraft Carrier U.S.S. Abraham Lincoln Set for Homecoming**\
+`The ship, whose crew endured food shortages, spent much of its nearly 11-month deployment in combat without a day off.`\
+https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.html
+
+**Broadway’s New Heated Rivalry: Two Diners With Singing Waiters**\
+`Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
+https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
+
+**TikTok Is Taking Us Back to the Dark Ages**\
+`Welcome to the postliterate era.`\
+https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
+
+**36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
+`Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
+https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
+
+**Experts Agree: Nobody Knows What ‘Bimonthly’ or ‘Biweekly’ Means**\
+`Couldn’t we impose some rules-based order, etching a single meaning of “bimonthly” on a stone pillar? Probably not.`\
+https://www.nytimes.com/2026/10/08/magazine/bimonthly-biweekly-grammar.html
+
+**Who Should Be Los Angeles’s Next Mayor?**\
+`Times Opinion convened a panel of experts to help voters make sense of the race.`\
+https://www.nytimes.com/interactive/2026/10/08/opinion/los-angeles-mayor-election.html
+
+**Man vs. ‘Terminator’-Like Robot in a Cage. California Called It Illegal.**\
+`A tech start-up’s stunt in San Francisco tested the boundaries of combat sport safety and regulations.`\
+https://www.nytimes.com/2026/10/08/technology/human-robot-cage-fights-california-rek.html
+
+**A Forgotten and Found Piece of Video Game History**\
+`It is the first day of New York Comic Con, where an early Mario painting will be displayed after a former advertising manager at Nintendo found it in her garage.`\
+https://www.nytimes.com/2026/10/08/nyregion/a-forgotten-and-found-piece-of-video-game-history.html
+
+**Viral ‘Human Vs. Robot’ Fights Face Ban**\
+`California regulators sent a cease-and-desist letter to the promoters of a San Francisco cage fight fight pitting a human against several robot combatants.`\
+https://www.nytimes.com/video/technology/100000011196847/viral-human-vs-robot-fights-face-ban.html
+
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties include a midcentury home in Hastings-on-Hudson, N.Y., and a colonial-style home in, Fairfield, Conn.`\
 https://www.nytimes.com/2026/10/08/realestate/housing-market-near-nyc.html
@@ -15,7 +71,7 @@ https://www.nytimes.com/2026/10/08/arts/design/roy-lichtenstein-like-new-review-
 https://www.nytimes.com/2026/10/08/realestate/housing-market-nyc.html
 
 **This Photo Is an A.I. Fake. Can You Tell?**\
-`We want you to look closely — very closely — at this fake image and spot any errors.`\
+`We want you to look closely — very closely — at this fake image and spot any errors.`\
 https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
 
 **15-Minute Lesson Plan: The Power of Student Journalism**\
@@ -141,60 +197,4 @@ https://www.nytimes.com/quiz/2026/10/08/realestate/homes-for-sale-hudson-valley-
 **TikTok Is Taking Us Back to the Dark Ages**\
 `Welcome to the postliterate era.`\
 https://www.nytimes.com/video/opinion/100000011195425/tiktok-is-taking-us-back-to-the-dark-ages.html
-
-**A Top Fed Official Casts Further Doubt on a Rate Rise This Month**\
-`The Federal Reserve is poised to raise interest rates further as it seeks to tame inflation, but that is unlikely to happen until the end of the year.`\
-https://www.nytimes.com/2026/10/08/business/federal-reserve-christopher-waller-rates.html
-
-**Indian Opposition Leaders Detained as Protests Over Voter Rolls Intensify**\
-`Lawmakers in the capital were forcibly removed for a second consecutive day as police cracked down on demonstrations against the removal of voter names.`\
-https://www.nytimes.com/2026/10/08/world/asia/india-voter-protests-opposition-gandhi.html
-
-**Protesters Mourn Death of ‘Maricarmen,’ Whose Eviction Shook Spain**\
-`María del Carmen Abascal, the 87-year-old woman whose eviction from her Madrid home prompted widespread protests in Spain, died on Wednesday.`\
-https://www.nytimes.com/video/world/europe/100000011201700/spain-maricarmen-dead-protests-housing.html
-
-**Israel and U.K. Cut Last-Minute Deal to Avoid Full Closure of British Consulate in East Jerusalem**\
-`The diplomatic facility, in East Jerusalem, was under threat of being shut but will remain under a new name, the British foreign secretary said.`\
-https://www.nytimes.com/2026/10/08/world/europe/uk-israel-consulate-east-jerusalem-palestinians.html
-
-**India’s Cockroach Party Leader Carries Gen Z’s Demands. They Are Many.**\
-`Abhijeet Dipke started the movement as a joke. But after ousting a minister over a dysfunctional college entrance exam system, India’s youth say they now want to save democracy.`\
-https://www.nytimes.com/2026/10/08/world/asia/india-cockroach-janta-party.html
-
-**How India’s Gen Z Protests Inspired Gen Alpha**\
-`India’s youngest students are staging sit-ins and protesting the run-down conditions of their schools, drawing inspiration from the Gen Z protests that roiled the country this summer.`\
-https://www.nytimes.com/video/world/asia/100000011164923/india-school-protests-gen-alpha.html
-
-**Could Mamdani’s Child Care Push Include Expanding Parental Leave?**\
-`As Mayor Zohran Mamdani moves to widen free child care programs in New York City, a survey found that many parents would prefer more time off to care for babies at home.`\
-https://www.nytimes.com/2026/10/08/nyregion/mamdani-child-care-parents-nyc.html
-
-**Broken Teeth and Pepper Spray: Maduro’s Wife Seeks Release From Jail**\
-`Lawyers for Cilia Flores have argued that she should receive medical treatment outside of jail to treat a heart condition. A federal judge will hear the request on Thursday.`\
-https://www.nytimes.com/2026/10/08/nyregion/cilia-flores-nicolas-maduro-bail-hearing.html
-
-**Man Accused in Cornell Sex Assault Was Designated as a Party Monitor**\
-`The fraternity filed paperwork identifying Jonathan Newell as a “trained event monitor” at a party where a woman said she was assaulted. He was accused of taking part.`\
-https://www.nytimes.com/2026/10/08/nyregion/cornell-university-chi-phi-fraternity-parties.html
-
-**Toxic Dust Was Everywhere After 9/11. Little Was Done for Months.**\
-`Newly released records show how residue from the World Trade Center towers coated the inside of homes. Officials allowed residents to return with scant guidance.`\
-https://www.nytimes.com/2026/10/08/nyregion/world-trade-center-dust-contamination.html
-
-**NYT Spelling Bee Answers for October 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/08/crosswords/spelling-bee-forum.html
-
-**Jimmy Kimmel Pans Trump’s Plan for a New Presidential Retreat**\
-`“What is with all these projects? Not one of them is finished,” Kimmel said in response to the possibility of a Camp David-style retreat in Florida.`\
-https://www.nytimes.com/2026/10/08/arts/television/kimmel-trump-presidential-retreat.html
-
-**For Mamdani, Oct. 7 Anniversary Sets Off Anger and Bitterness**\
-`Hours after some Jewish leaders denounced Mayor Zohran Mamdani’s remarks about the attacks on Israel, activists interrupted a vigil to call him a traitor to the Palestinian cause.`\
-https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel.html
-
-**Protesters Disrupt Oct. 7 Vigil and Boo Mamdani**\
-`Pro-Palestinian protesters crowded a vigil in Union Square, where New York City mayor Zohran Mamdani joined a pro-peace Israeli group to mark the third anniversary of the Hamas-led attack on Oct. 7.`\
-https://www.nytimes.com/video/us/100000011201659/nyc-vigil-protests-israel-mamdani.html
 

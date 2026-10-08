@@ -1,3 +1,63 @@
+**Third-Country Deportations Are Only the Half of It**\
+`The real-world consequences of the Roberts court are coming into view.`\
+https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
+
+**Why a Court Order Didn’t Stop Trump From Keeping Reporters Off Air Force One**\
+`A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
+https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
+
+**Quiz: How Much Do You Know About Breast Cancer?**\
+`Test your knowledge of breast cancer with our quiz.`\
+https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-treatment-mutations.html
+
+**Here’s What Worries Me About the Russian Plague Scare**\
+`America is not prepared for a major disease outbreak.`\
+https://www.nytimes.com/2026/10/08/opinion/plague-siberia-russia-lab.html
+
+**We Don’t Know How to Talk About Cornell**\
+`We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
+https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html
+
+**Long-Deployed Aircraft Carrier U.S.S. Abraham Lincoln Set for Homecoming**\
+`The ship, whose crew endured food shortages, spent much of its nearly 11-month deployment in combat without a day off.`\
+https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.html
+
+**Broadway’s New Heated Rivalry: Two Diners With Singing Waiters**\
+`Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
+https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
+
+**TikTok Is Taking Us Back to the Dark Ages**\
+`Welcome to the postliterate era.`\
+https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
+
+**36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
+`Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
+https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
+
+**Experts Agree: Nobody Knows What ‘Bimonthly’ or ‘Biweekly’ Means**\
+`Couldn’t we impose some rules-based order, etching a single meaning of “bimonthly” on a stone pillar? Probably not.`\
+https://www.nytimes.com/2026/10/08/magazine/bimonthly-biweekly-grammar.html
+
+**Who Should Be Los Angeles’s Next Mayor?**\
+`Times Opinion convened a panel of experts to help voters make sense of the race.`\
+https://www.nytimes.com/interactive/2026/10/08/opinion/los-angeles-mayor-election.html
+
+**Man vs. ‘Terminator’-Like Robot in a Cage. California Called It Illegal.**\
+`A tech start-up’s stunt in San Francisco tested the boundaries of combat sport safety and regulations.`\
+https://www.nytimes.com/2026/10/08/technology/human-robot-cage-fights-california-rek.html
+
+**A Forgotten and Found Piece of Video Game History**\
+`It is the first day of New York Comic Con, where an early Mario painting will be displayed after a former advertising manager at Nintendo found it in her garage.`\
+https://www.nytimes.com/2026/10/08/nyregion/a-forgotten-and-found-piece-of-video-game-history.html
+
+**Viral ‘Human Vs. Robot’ Fights Face Ban**\
+`California regulators sent a cease-and-desist letter to the promoters of a San Francisco cage fight fight pitting a human against several robot combatants.`\
+https://www.nytimes.com/video/technology/100000011196847/viral-human-vs-robot-fights-face-ban.html
+
+**This Photo Is an A.I. Fake. Can You Tell?**\
+`We want you to look closely — very closely — at this fake image and spot any errors.`\
+https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
+
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties include a midcentury home in Hastings-on-Hudson, N.Y., and a colonial-style home in, Fairfield, Conn.`\
 https://www.nytimes.com/2026/10/08/realestate/housing-market-near-nyc.html
