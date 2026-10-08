@@ -1,3 +1,7 @@
+**Hacker Used Chinese-Developed A.I. Tool to Target South Korean Banks, CrowdStrike Says**\
+`The cybersecurity firm said the attacker was likely a Chinese speaker and financially motivated, but did not attribute the attacks to a named individual or group.`\
+https://www.nytimes.com/2026/10/08/world/australia/south-korea-bank-hack-china-us-ai.html
+
 **He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
 `Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
 https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/style/paris-fashion-week-street-style-runway.
 **How Much Space Does $400,000 Get You?**\
 `The median national home price gets you a vastly different spread, depending where you are.`\
 https://www.nytimes.com/2026/10/08/realestate/how-much-space-does-400000-get-you.html
-
-**Dark Retellings of Classic Books Like ‘Jane Eyre,’ ‘Frankenstein’ and More**\
-`The best-selling author Kat Dunn recommends some of her favorite modern retellings, of “Jane Eyre,” “Frankenstein” and more.`\
-https://www.nytimes.com/2026/10/08/books/classic-retelling-gothic-horror-books.html
 
