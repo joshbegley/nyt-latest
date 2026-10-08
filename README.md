@@ -86,13 +86,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
-`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
-https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
-
 **Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
 `In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
 https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.htm
 `Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
 https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
 
-**TikTok Is Taking Us Back to the Dark Ages**\
-`Welcome to the postliterate era.`\
-https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
-
 **36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
 `Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
 https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
+
+**TikTok Is Taking Us Back to the Dark Ages**\
+`Welcome to the postliterate era.`\
+https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
 
 **Experts Agree: Nobody Knows What ‘Bimonthly’ or ‘Biweekly’ Means**\
 `Couldn’t we impose some rules-based order, etching a single meaning of “bimonthly” on a stone pillar? Probably not.`\
