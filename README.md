@@ -1,3 +1,7 @@
+**French Students Take to the Streets as Government Seeks Way Out of Crisis**\
+`Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
+
 **What’s Going On in This Picture? | Oct. 19, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
 **Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
 `Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
 https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
-
-**Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll**\
-`At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
-https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
 
