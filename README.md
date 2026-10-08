@@ -1,3 +1,7 @@
+**Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
+`Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
+https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
+
 **Escalating Assaults on Ukrainian Cities Are Producing an Enormous Toll**\
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/misty-green-review.html
 **‘The Beast’ Review: Samuel L. Jackson in the Driver’s Seat**\
 `Jackson plays a president under siege from a well-armed militia in this action film where his heavily armored car is hiding a few tricks.`\
 https://www.nytimes.com/2026/10/08/movies/the-beast-review-samuel-l-jackson.html
-
-**‘Matchbox: The Movie’ Review: We Like the Cars That Go Boom**\
-`John Cena is in the driver’s seat of this stilted movie adaptation of the Mattel-brand toy cars.`\
-https://www.nytimes.com/2026/10/08/movies/matchbox-the-movie-review.html
 
