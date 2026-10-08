@@ -1,3 +1,7 @@
+**Oil Prices Jump on Outburst of Violence in the Middle East**\
+`Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
+https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
+
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/world/europe/russia-wildberries-ozon-warehous
 **No Longer ‘Underrated,’ Tinashe Steps Into Her Pop Moment**\
 `The singer is getting the best reviews of her career with her new album “Popstar,” and making music that seems to reflect who she is with even greater clarity.`\
 https://www.nytimes.com/2026/10/08/arts/music/tinashe-popstar.html
-
-**Word of the Day: nebulous**\
-`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/08/learning/word-of-the-day-nebulous.html
 

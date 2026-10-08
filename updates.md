@@ -1,3 +1,7 @@
+**Oil Prices Jump on Outburst of Violence in the Middle East**\
+`Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
+https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
+
 **Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
 `To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
 https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
