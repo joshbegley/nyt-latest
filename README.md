@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Oct. 19, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
+
 **Books Our Editors Love This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-graph-oct-21-
 `Along with films about algorithms and AI, the year has brought human stories that are welcome reminders of what life in the city is really like.`\
 https://www.nytimes.com/2026/10/08/t-magazine/san-francisco-movies-tech.html
 
-**As Hurricane Isaias Nears, Alabama’s Coast**\
+**As Hurricane Isaias Nears, Alabama Remembers Sally’s Impact in 2020**\
 `The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 **Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll**\
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
-
-**Examining Footage From the Night of Epstein's Death**\
-`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfeld and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
-https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html
 
