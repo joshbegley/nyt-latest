@@ -1,3 +1,27 @@
+**Prosecutors say Maduro used torture to hold on to power in Venezuela.**\
+`A superceding indictment says the former leader of Venezuela and his wife coordinated with high-level Venezuelan officials to inflict severe physical and mental pain to punish members of the political opposition, silence dissent and protect their authority.`\
+https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
+
+**Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
+`Nicolás Maduro and his wife, Cilia Flores, jailed and tortured Americans and others in Venezuela to hang onto power, prosecutors said.`\
+https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html
+
+**Nigella Lawson’s Buttermilk Roast Chicken**\
+`And more beautiful dishes for your fall-dinner consideration.`\
+https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
+
+**As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
+`The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
+https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
+
+**The Census Counts Everyone. Trump Doesn’t Want That.**\
+`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
+
+**In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
+`A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
+https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
+
 **Examining Footage From the Night of Epstein's Death**\
 `Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
 https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html

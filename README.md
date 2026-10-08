@@ -1,3 +1,7 @@
+**What Will You Earn?**\
+`We look at the most lucrative college degrees.`\
+https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html
+
 **Prosecutors say Maduro used torture to hold on to power in Venezuela.**\
 `A superceding indictment says the former leader of Venezuela and his wife coordinated with high-level Venezuelan officials to inflict severe physical and mental pain to punish members of the political opposition, silence dissent and protect their authority.`\
 https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.htm
 `Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
 https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
 
-**36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
-`Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
-https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
-
 **TikTok Is Taking Us Back to the Dark Ages**\
 `Welcome to the postliterate era.`\
 https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
 
-**Experts Agree: Nobody Knows What ‘Bimonthly’ or ‘Biweekly’ Means**\
-`Couldn’t we impose some rules-based order, etching a single meaning of “bimonthly” on a stone pillar? Probably not.`\
-https://www.nytimes.com/2026/10/08/magazine/bimonthly-biweekly-grammar.html
+**36 Hours in the Finger Lakes, N.Y.: Things to Do and See**\
+`Enjoy peak foliage season in this upstate New York region, which offers waterfall hikes, farm-to-table restaurants and a famous wine trail.`\
+https://www.nytimes.com/interactive/2026/10/08/travel/things-to-do-finger-lakes.html
 
