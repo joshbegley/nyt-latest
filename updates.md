@@ -1,3 +1,7 @@
+**Jimmy Kimmel Pans Trump’s Plan for a New Presidential Retreat**\
+`“What is with all these projects? Not one of them is finished,” Kimmel said in response to the possibility of a Camp David-style retreat in Florida.`\
+https://www.nytimes.com/2026/10/08/arts/television/kimmel-trump-presidential-retreat.html
+
 **For Mamdani, Oct. 7 Anniversary Sets Off Anger and Bitterness**\
 `Hours after some Jewish leaders denounced Mayor Zohran Mamdani’s remarks about the attacks on Israel, activists interrupted a vigil to call him a traitor to the Palestinian cause.`\
 https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel.html
