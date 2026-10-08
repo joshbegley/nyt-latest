@@ -1,3 +1,7 @@
+**What Will You Earn?**\
+`We look at the most lucrative college degrees.`\
+https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html
+
 **Prosecutors say Maduro used torture to hold on to power in Venezuela.**\
 `A superceding indictment says the former leader of Venezuela and his wife coordinated with high-level Venezuelan officials to inflict severe physical and mental pain to punish members of the political opposition, silence dissent and protect their authority.`\
 https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
