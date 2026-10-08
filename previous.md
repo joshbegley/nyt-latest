@@ -1,3 +1,7 @@
+**The Fish Farming Industry's Dirty Secrets: Forced Labor, Harmful Chemicals, Pollution**\
+`Forced labor, rancid waste, harmful chemicals. What to know about the seafood that could end up on your plate.`\
+https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquaculture-overfishing.html
+
 **Curtis Flowers Has Died at 56. His Case Became a Symbol of Racial Bias.**\
 `A white district attorney tried Mr. Flowers six times for the same murder, always ensuring that few or no Black people were on the juries.`\
 https://www.nytimes.com/2026/10/08/obituaries/curtis-flowers-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/theater/ryan-j-haddad-good-time-charlie.html
 **Pita Limjaroenrat: The Leader Thailand Could Have Had**\
 `An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
 https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
-
-**The Seashells Case Against Comey at a Crossroads**\
-`A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
-https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
 

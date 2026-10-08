@@ -1,3 +1,7 @@
+**The Fish Farming Industry's Dirty Secrets: Forced Labor, Harmful Chemicals, Pollution**\
+`Forced labor, rancid waste, harmful chemicals. What to know about the seafood that could end up on your plate.`\
+https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquaculture-overfishing.html
+
 **Curtis Flowers Has Died at 56. His Case Became a Symbol of Racial Bias.**\
 `A white district attorney tried Mr. Flowers six times for the same murder, always ensuring that few or no Black people were on the juries.`\
 https://www.nytimes.com/2026/10/08/obituaries/curtis-flowers-dead.html
