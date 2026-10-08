@@ -1,3 +1,7 @@
+**Trump Administration Considers Using Ships to Deport Immigrants**\
+`Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
+https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
+
 **French Students Take to the Streets as Government Seeks Way Out of Crisis**\
 `Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
 https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
 
 **Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
-`Vice President JD Vance singled out the tech firm as he and other officials accused several companies and universities of committing visa fraud.`\
+`Vice President JD Vance singled out the tech firm as he and other officials accused an array of companies and universities of committing visa fraud.`\
 https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
 
 **Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-s
 **In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
 `Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran have become central to the state’s Senate race.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
-
-**Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
-`Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
-https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 
