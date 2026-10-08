@@ -1,3 +1,7 @@
+**Newsom Considers Ending Death Sentences for 563 California Prisoners**\
+`Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
+https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html
+
 **Judge Throws Out Last Defendant’s Confession in Sept. 11 Case at Guantánamo**\
 `The government is now 0-5 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
 https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html
 https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-expunge.html
 
 **Cornell Student Wants Letitia James, NY Attorney General, Removed as Prosecutor**\
-`Attorney General Letitia James should step down from leading the investigation into a former student’s allegation that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
+`Attorney General Letitia James should step down from leading the investigation into a former student’s claim that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
 https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
 
 **Live Updates: Mamdani Is Jeered at Oct. 7 Vigil; Protesters Call Him Traitor to Palestinian Cause**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathro
 **Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
 `Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
 https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
-
-**The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
-`HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
-https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
