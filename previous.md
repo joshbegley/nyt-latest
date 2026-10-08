@@ -1,3 +1,7 @@
+**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Finds**\
+`A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
+https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
+
 **For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
 `They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
 https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/the-social-reckoning-review.html
 **‘My Undesirable Friends: Part II — Exile’ Review: What Is Truth?**\
 `The second half of Julia Loktev’s epic chronicle of independent journalists in Russia is essential viewing.`\
 https://www.nytimes.com/2026/10/08/movies/my-undesirable-friends-part-ii-exile-review.html
-
-**In ‘Tom at the Farm,’ Mud (Lots of It) Makes the Play**\
-`“Tom at the Farm,” about a man visiting his dead lover’s farm, conjures a slippery rural setting at NYU Skirball.`\
-https://www.nytimes.com/2026/10/08/theater/tom-at-the-farm-nyu-skirball.html
 

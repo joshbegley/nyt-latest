@@ -1,3 +1,7 @@
+**Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Finds**\
+`A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
+https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
+
 **For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
 `They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
 https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
