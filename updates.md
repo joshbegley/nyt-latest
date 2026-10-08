@@ -1,3 +1,7 @@
+**Escalating Assaults on Ukrainian Cities Are Producing an Enormous Toll**\
+`At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
+https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
+
 **Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
 `Saudi-led forces in Yemen said they intercepted two missiles targeting Riyadh. The kingdom is on edge after the authorities said strikes killed three people on Wednesday.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
