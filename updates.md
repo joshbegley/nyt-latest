@@ -1,3 +1,7 @@
+**5 Takeaways From the First Iowa Senate Debate**\
+`In a top Senate battleground, Representative Ashley Hinson, the Republican nominee, sparred with Josh Turek, her Democratic rival, on policy issues ranging from Medicaid to term limits.`\
+https://www.nytimes.com/2026/10/07/us/politics/iowa-senate-debate-ashley-hinson-josh-turek.html
+
 **Arizona Congressional Candidate Says She Was Raped While Fixing Sign**\
 `Bernadette Greene-Placentia, a Democrat, said the attack in August occurred while she was repairing a damaged campaign sign.`\
 https://www.nytimes.com/2026/10/07/us/bernadetta-green-placentia-campaign-sign-rape.html
