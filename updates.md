@@ -1,3 +1,7 @@
+**U.S.S. Abraham Lincoln Returns to San Diego After Near-Record Deployment**\
+`The aircraft carrier U.S.S. Abraham Lincoln returned to its home port of San Diego on Thursday after a 322-day deployment in support of the Iran war.`\
+https://www.nytimes.com/video/us/100000011203050/uss-abraham-lincoln-san-diego.html
+
 **French Student Protests Continue as Government Seeks Way Out of Crisis**\
 `Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html

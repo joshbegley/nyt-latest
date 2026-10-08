@@ -1,3 +1,7 @@
+**Cecily Gemmell, Winston Churchill’s Last Surviving Secretary, Has Died**\
+`Starting with the British leader at age 18, she traveled the world with him. “I was terrified of him,” she later recalled.`\
+https://www.nytimes.com/2026/10/08/world/europe/cecily-gemmell-dead.html
+
 **U.S.S. Abraham Lincoln Returns to San Diego After Near-Record Deployment**\
 `The aircraft carrier U.S.S. Abraham Lincoln returned to its home port of San Diego on Thursday after a 322-day deployment in support of the Iran war.`\
 https://www.nytimes.com/video/us/100000011203050/uss-abraham-lincoln-san-diego.html
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-t
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
 
 **Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
-`The poet and essayist joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+`The Canadian poet and essayist Anne Carson won the Nobel Prize in Literature on Thursday. Carson joins a list that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
 
 **Russia’s Silence on Possible Plague Outbreak Stokes Fears of a Cover-Up**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
 **In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
 https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
-
-**A.I. Fueled More Resilient Global Growth, W.T.O. Says**\
-`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on goods related to artificial intelligence.`\
-https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
 
