@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
 `It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
 
-**Myanmar’s Strongman President is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
+**Myanmar’s Strongman President Is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
 `After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
 https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
 

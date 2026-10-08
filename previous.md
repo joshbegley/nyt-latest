@@ -1,3 +1,19 @@
+**He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
+`Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
+https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
+
+**6 Ways Isaias Is Remaking the Story of This Year’s Hurricane Season**\
+`It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
+
+**Myanmar’s Strongman President is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
+`After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
+https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
+
+**John Wilson on How to Make a Documentary**\
+`The director of “The History of Concrete” breaks down how he turns the camera on humanity.`\
+https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documentary.html
+
 **Third-Country Deportations Are Only the Half of It**\
 `The real-world consequences of the Roberts court are coming into view.`\
 https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
@@ -150,13 +166,13 @@ https://www.nytimes.com/2026/10/08/books/review/the-names-of-the-new-world-kawai
 `A new analysis of federal earnings data measures how much students who received federal financial aid earned four years after graduating. Our graphics reporter Arfa Momin studied the data to see when a graduate’s major and college mattered most to earnings.`\
 https://www.nytimes.com/video/business/100000011168809/can-your-college-affect-your-income.html
 
-**Sweden Has 267,570 Islands. I Walked Across 20 of Them.**\
-`Traveling through the Stockholm Archipelago on foot meant watching everyone else sail by. It also meant unraveling the maze of lives and experiences that shaped it.`\
-https://www.nytimes.com/2026/10/08/magazine/stockholm-archipelago-trail.html
-
 **Should I Marry a Man Who Won’t Touch Me?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a 65-year-old reader who loves her partner but is physically and emotionally unsatisfied.`\
 https://www.nytimes.com/2026/10/08/well/mind/platonic-engagement-sex-emotion-touch-starved.html
+
+**Sweden Has 267,570 Islands. I Walked Across 20 of Them.**\
+`Traveling through the Stockholm Archipelago on foot meant watching everyone else sail by. It also meant unraveling the maze of lives and experiences that shaped it.`\
+https://www.nytimes.com/2026/10/08/magazine/stockholm-archipelago-trail.html
 
 **Fontaines D.C. Feels Its Way Out of the Darkness**\
 `After losing a beloved manager, and ahead of releasing the most anticipated album of its career, the Irish band works its way through despair.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/08/realestate/how-much-space-does-400000-get-you
 **Dark Retellings of Classic Books Like ‘Jane Eyre,’ ‘Frankenstein’ and More**\
 `The best-selling author Kat Dunn recommends some of her favorite modern retellings, of “Jane Eyre,” “Frankenstein” and more.`\
 https://www.nytimes.com/2026/10/08/books/classic-retelling-gothic-horror-books.html
-
-**How a U.S. Diplomat Suppressed and Altered Reports Critical of Israel**\
-`A top aide to Ambassador Mike Huckabee skewed information to portray the Netanyahu government in a favorable light, according to multiple officials and documents obtained by The Times.`\
-https://www.nytimes.com/2026/10/08/world/middleeast/israel-embassy-milstein-huckabee.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Lise Davidsen’s Verdi, Anthony Davis’s “The Central Park Five” and a new take on Britten’s cello suites among our selections.`\
-https://www.nytimes.com/2026/10/08/arts/music/best-classical-music-albums-october-2026.html
-
-**They Switched Coasts for More Space. Which Hudson Valley Home Did They Pick?**\
-`Even after stretching their budget, a family couldn’t buy their Southern California home from their landlord, leading them to try the opposite coast.`\
-https://www.nytimes.com/quiz/2026/10/08/realestate/homes-for-sale-hudson-valley-ny.html
-
-**TikTok Is Taking Us Back to the Dark Ages**\
-`Welcome to the postliterate era.`\
-https://www.nytimes.com/video/opinion/100000011195425/tiktok-is-taking-us-back-to-the-dark-ages.html
 

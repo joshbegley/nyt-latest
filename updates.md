@@ -1,3 +1,19 @@
+**He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
+`Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
+https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
+
+**6 Ways Isaias Is Remaking the Story of This Year’s Hurricane Season**\
+`It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
+
+**Myanmar’s Strongman President is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
+`After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
+https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
+
+**John Wilson on How to Make a Documentary**\
+`The director of “The History of Concrete” breaks down how he turns the camera on humanity.`\
+https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documentary.html
+
 **Third-Country Deportations Are Only the Half of It**\
 `The real-world consequences of the Roberts court are coming into view.`\
 https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
