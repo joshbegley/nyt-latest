@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
-**Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Debate**\
+**Live Updates: El-Sayed and Rogers Clash in First Debate of Key Michigan Senate Battle**\
 `Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race that could be crucial to Senate control.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
@@ -26,8 +26,8 @@ https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
 
-**Princeton Celebrates Anne Carson, a Nobel Winner Whom It Denied Tenure**\
-`Carson, who was awarded the Nobel Prize in Literature on Thursday, taught at the university in the 1980s. Social media users mocked a congratulatory message from the school.`\
+**Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**\
+`Carson, who was awarded the Literature prize on Thursday, was denied tenure when teaching at the university in the 1980s, leading social media users to mock a congratulatory message.`\
 https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html
 
 **The ‘Mean Girls’ Presidency**\
