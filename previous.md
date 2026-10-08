@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html
 https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
 
 **Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
-`Nicolás Maduro and his wife, Cilia Flores, jailed and tortured Americans and others in Venezuela to hang onto power, prosecutors said.`\
+`Nicolás Maduro and his wife, Cilia Flores, inflicted severe physical and mental pain on both Americans and Venezuelans to silence dissent and protect their authority, according to prosecutors.`\
 https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html
 
 **Nigella Lawson’s Buttermilk Roast Chicken**\

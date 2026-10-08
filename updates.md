@@ -1,3 +1,7 @@
+**Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
+`Nicolás Maduro and his wife, Cilia Flores, inflicted severe physical and mental pain on both Americans and Venezuelans to silence dissent and protect their authority, according to prosecutors.`\
+https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html
+
 **Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
 `The poet and essayist joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
