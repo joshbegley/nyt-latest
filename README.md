@@ -1,3 +1,27 @@
+**How India’s Gen Z Protests Inspired Gen Alpha**\
+`India’s youngest students are staging sit-ins and protesting the run-down conditions of their schools, drawing inspiration from the Gen Z protests that roiled the country this summer.`\
+https://www.nytimes.com/video/world/asia/100000011164923/india-school-protests-gen-alpha.html
+
+**Could Mamdani’s Child Care Push Include Expanding Parental Leave?**\
+`As Mayor Zohran Mamdani moves to widen free child care programs in New York City, a survey found that many parents would prefer more time off to care for babies at home.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-child-care-parents-nyc.html
+
+**Broken Teeth and Pepper Spray: Maduro’s Wife Seeks Release From Jail**\
+`Lawyers for Cilia Flores have argued that she should receive medical treatment outside of jail to treat a heart condition. A federal judge will hear the request on Thursday.`\
+https://www.nytimes.com/2026/10/08/nyregion/cilia-flores-nicolas-maduro-bail-hearing.html
+
+**Man Accused in Cornell Sex Assault Was Designated as a Party Monitor**\
+`The fraternity filed paperwork identifying Jonathan Newell as a “trained event monitor” at a party where a woman said she was assaulted. He was accused of taking part.`\
+https://www.nytimes.com/2026/10/08/nyregion/cornell-university-chi-phi-fraternity-parties.html
+
+**Toxic Dust Was Everywhere After 9/11. Little Was Done for Months.**\
+`Newly released records show how residue from the World Trade Center towers coated the inside of homes. Officials allowed residents to return with scant guidance.`\
+https://www.nytimes.com/2026/10/08/nyregion/world-trade-center-dust-contamination.html
+
+**NYT Spelling Bee Answers for October 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/08/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Pans Trump’s Plan for a New Presidential Retreat**\
 `“What is with all these projects? Not one of them is finished,” Kimmel said in response to the possibility of a Camp David-style retreat in Florida.`\
 https://www.nytimes.com/2026/10/08/arts/television/kimmel-trump-presidential-retreat.html
@@ -161,30 +185,6 @@ https://www.nytimes.com/2026/10/07/us/chicago-stabbing-girl.html
 **What Experts Want to Know About the Russia Plague Scare**\
 `Missing details about the death of a lab worker, including the cause, are worrying scientists.`\
 https://www.nytimes.com/2026/10/07/science/plague-russia-biosafety.html
-
-**At Least 20 People Killed Across Ukraine From Russian Airstrikes**\
-`At least 20 people were killed across Ukraine from Russian airstrikes on Wednesday, according to Ukrainian officials. Moscow has escalated its air war on Ukrainian cities as a ground advance stalls in the eastern Donbas region.`\
-https://www.nytimes.com/video/world/europe/100000011199852/ukraine-russia-strikes-dead.html
-
-**The Good List: 6 Things to Add Joy to Your Day**\
-`Nice rocks, Sly’s wisdom and peace in the kitchen.`\
-https://www.nytimes.com/2026/10/07/briefing/the-good-list-nice-rocks-stallone.html
-
-**Why A.I. Agents Are Going Rogue**\
-`Our journalists Sheera Frenkel and Dylan Freedman break down what A.I. agents are, how they differ from chatbots and why A.I. companies are worried about them now.`\
-https://www.nytimes.com/video/technology/100000011159494/why-ai-agents-are-going-rogue.html
-
-**Meet the Superfans at the Chanel Show**\
-`This week, beneath a flock of glowing paper birds at Paris’s Grand Palais, Matthieu Blazy showed his latest Chanel collection. After the presentation, T Magazine talked with a few Chanel superfans about their most beloved pieces and the ones that got away.`\
-https://www.nytimes.com/video/t-magazine/100000011200907/meet-the-superfans-at-the-chanel-show.html
-
-**‘Maricarmen,’ Whose Eviction Enraged Spaniards, Dies at 87**\
-`María del Carmen Abascal, aged and ailing, became a symbol of the country’s housing crisis when she was evicted two weeks ago, prompting mass protests and triggering national elections.`\
-https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sanchez.html
-
-**Fears of a Plague Outbreak in Russia: What to Know**\
-`Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
-https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
