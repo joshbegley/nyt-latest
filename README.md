@@ -1,3 +1,7 @@
+**For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
+`They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
+https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
+
 **In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
 `Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran, have become central to the state’s Senate race.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/my-undesirable-friends-part-ii-exile-r
 **In ‘Tom at the Farm,’ Mud (Lots of It) Makes the Play**\
 `“Tom at the Farm,” about a man visiting his dead lover’s farm, conjures a slippery rural setting at NYU Skirball.`\
 https://www.nytimes.com/2026/10/08/theater/tom-at-the-farm-nyu-skirball.html
-
-**‘Misty Green’ Review: An Actor and the Pleas That Drive L.A.**\
-`The actor Rosalind Eleazar and the writer-director Chris Rock give us a portrait of struggle in a city of air kisses and transactional fondness.`\
-https://www.nytimes.com/2026/10/08/movies/misty-green-review.html
 
