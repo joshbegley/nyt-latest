@@ -1,4 +1,4 @@
-**Anne Carson Is Awarded Nobel Prize in Literature**\
+**Canadian Poet Anne Carson Is Awarded Nobel Prize in Literature**\
 `The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html
 
