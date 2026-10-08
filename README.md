@@ -1,3 +1,7 @@
+**Israel and U.K. Cut Last-Minute Deal to Avoid Full Closure of British Consulate in East Jerusalem**\
+`The diplomatic facility, in East Jerusalem, was under threat of being shut but will remain under a new name, the British foreign secretary said.`\
+https://www.nytimes.com/2026/10/08/world/europe/uk-israel-consulate-east-jerusalem-palestinians.html
+
 **India’s Cockroach Party Leader Carries Gen Z’s Demands. They Are Many.**\
 `Abhijeet Dipke started the movement as a joke. But after ousting a minister over a dysfunctional college entrance exam system, India’s youth say they now want to save democracy.`\
 https://www.nytimes.com/2026/10/08/world/asia/india-cockroach-janta-party.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-
 **Mamdani Draws Anger With Oct. 7 Statement Denouncing Israel’s Gaza Attacks**\
 `After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
 https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
-
-**Fatal Stabbing of a 7-Year-Old Girl Rattles Chicago: ‘That Was a Baby’**\
-`The attack has raised questions about whether the suspect was overlooked by authorities despite a history of mental health problems and violent offenses.`\
-https://www.nytimes.com/2026/10/07/us/chicago-stabbing-girl.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
