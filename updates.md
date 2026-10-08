@@ -1,3 +1,15 @@
+**A Top Fed Official Casts Further Doubt on a Rate Rise This Month**\
+`The Federal Reserve is poised to raise interest rates further as it seeks to tame inflation, but that is unlikely to happen until the end of the year.`\
+https://www.nytimes.com/2026/10/08/business/federal-reserve-christopher-waller-rates.html
+
+**Indian Opposition Leaders Detained as Protests Over Voter Rolls Intensify**\
+`Lawmakers in the capital were forcibly removed for a second consecutive day as police cracked down on demonstrations against the removal of voter names.`\
+https://www.nytimes.com/2026/10/08/world/asia/india-voter-protests-opposition-gandhi.html
+
+**Protesters Mourn Death of ‘Maricarmen,’ Whose Eviction Shook Spain**\
+`María del Carmen Abascal, the 87-year-old woman whose eviction from her Madrid home prompted widespread protests in Spain, died on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011201700/spain-maricarmen-dead-protests-housing.html
+
 **Isaias Becomes a Hurricane on Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
 https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
