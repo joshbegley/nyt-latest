@@ -1,3 +1,11 @@
+**The Wave of Student Protests Roiling France**\
+`Anger about classroom overcrowding, teacher shortages and broken-down facilities has boiled over in recent weeks and threatens to coalesce into broader grievances in a heated political season.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
+
+**Esphyr Slobodkina Found Fame With “Caps for Sale.” A New Exhibition Shows Her Range.**\
+`Plus: sunset-colored sweaters, a minimalist restaurant in Tokyo and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/10/08/t-magazine/esphyr-slobodkina-art-exhibition.html
+
 **New to Anne Carson’s Books? Start Here.**\
 `The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/08/arts/television/tom-gammill-nancy-seinfeld-th
 **Embrace or Ban Greek Life? Cornell Case Renews an Old Debate on Campuses**\
 `A sexual assault case at Cornell revived a long-running national conversation about whether fraternities and sororities are beneficial or harmful.`\
 https://www.nytimes.com/2026/10/08/us/greek-life-cornell-fraternities-sororities-ban.html
-
-**‘Winter of the Crow’ Review: Life in Communist Warsaw**\
-`Lesley Manville plays a professor in 1981 who gets swept up in the declaration of martial law in Poland in this slow-burning film.`\
-https://www.nytimes.com/2026/10/08/movies/winter-of-the-crow-review.html
-
-**‘The Social Reckoning’ Review: Sounding the Alarm**\
-`Aaron Sorkin’s latest movie is about how social-media platforms like Facebook have rewired our brains and the larger world.`\
-https://www.nytimes.com/2026/10/08/movies/the-social-reckoning-review.html
 
