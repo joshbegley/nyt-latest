@@ -1,3 +1,11 @@
+**Live Updates: Mamdani Is Jeered at Oct. 7 Vigil; Protesters Call Him Traitor to Palestinian Cause**\
+`A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos.`\
+https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
+
+**At Least 20 People Killed Across Ukraine From Russian Airstrikes**\
+`At least 20 people were killed across Ukraine from Russian airstrikes on Wednesday, according to Ukrainian officials. Moscow has escalated its air war on Ukrainian cities as a ground advance stalls in the eastern Donbas region.`\
+https://www.nytimes.com/video/world/europe/100000011199852/ukraine-russia-strikes-dead.html
+
 **Tropical Storm Isaias Is Forecast to Hit the Gulf Coast This Week**\
 `The Atlantic hurricane season has been quiet, but Isaias could become its first hurricane.`\
 https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
