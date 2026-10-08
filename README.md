@@ -1,3 +1,7 @@
+**Min Jin Lee Says Choosing Community Is Radical**\
+`Min Jin Lee, the author of “American Hagwon,” joined “The Book Review” podcast to talk about how building bonds and community can be a strategy for survival.`\
+https://www.nytimes.com/video/books/review/100000011203440/min-jin-lee-says-choosing-community-is-radical.html
+
 **Cecily Gemmell, Winston Churchill’s Last Surviving Secretary, Has Died**\
 `Starting with the British leader at age 18, she traveled the world with him. “I was terrified of him,” she later recalled.`\
 https://www.nytimes.com/2026/10/08/world/europe/cecily-gemmell-dead.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-t
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
 
 **Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
-`The Canadian poet and essayist Anne Carson won the Nobel Prize in Literature on Thursday. Carson joins a list that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+`The Canadian poet and essayist Anne Carson won the Nobel Prize in Literature on Thursday. Carson joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
 
 **Russia’s Silence on Possible Plague Outbreak Stokes Fears of a Cover-Up**\
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/10/08/style/trump-suits-jos-a-bank-brioni.html
 `Inspired by a writer who confronted his fear of heights, we invited students to share what they’ve discovered from doing things that scare them.`\
 https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-facing-their-fears.html
 
-**Trump Administration Asks Supreme Court to Weigh In, Again, in TV Ad Fight**\
-`The emergency application to the justices marks the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
+**Supreme Court, for Now, Sides With Trump Administration in TV Ad Fight**\
+`The court paused a lower-court ruling while it considered the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
 https://www.nytimes.com/2026/10/08/us/politics/supreme-court-trump-ad-rates.html
 
 **My Least Favorite Vegetable**\
