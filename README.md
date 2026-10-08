@@ -1,3 +1,7 @@
+**Protesters Interrupt President Trump At San Antonio Rally**\
+`Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
+https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
+
 **Trump Administration Considers Using Ships to Deport Immigrants**\
 `Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
 https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-ame
 `And more beautiful dishes for your fall-dinner consideration.`\
 https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
 
-**As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
-`The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
-https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
-
 **Trump Wants to Decide Who Counts. And Who Doesn’t.**\
 `Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
 https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
+
+**As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
+`The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
+https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
 
 **In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-po
 **For Two Sisters, a “Biological Age Test” Measured More Than Their DNA**\
 `They thought it might explain why their health had diverged. Instead, it stirred up feelings that weren’t so easily quantified.`\
 https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
-
-**In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
-`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran have become central to the state’s Senate race.`\
-https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
 
