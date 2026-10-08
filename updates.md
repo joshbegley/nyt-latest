@@ -1,3 +1,7 @@
+**Pita Limjaroenrat: The Leader Thailand Could Have Had**\
+`An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
+https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
+
 **The Seashells Case Against Comey at a Crossroads**\
 `A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
 https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
