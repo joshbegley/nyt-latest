@@ -1,3 +1,15 @@
+**Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
+`On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
+https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
+
+**Princeton Celebrates Anne Carson, a Nobel Winner Whom It Denied Tenure**\
+`Carson, who was awarded the Nobel Prize in Literature on Thursday, taught at the university in the 1980s. Social media users mocked a congratulatory message from the school.`\
+https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html
+
+**Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
+`The Canadian poet and essayist Anne Carson won the Nobel Prize in Literature on Thursday. Ms. Carson joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
+https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
+
 **The ‘Mean Girls’ Presidency**\
 `We are living through the Regina George administration, argues the Opinion contributing writer Molly Jong-Fast. Yes, the very one from “Mean Girls.” President Trump’s administration is filled with wannabes who are eager to please him. But while that social system worked in high school, it definitely shouldn’t be working when “Trump’s bad ideas have no checks and balances,” she says.`\
 https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.html

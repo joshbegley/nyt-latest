@@ -1,3 +1,7 @@
+**Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-faci
 **Supreme Court, for Now, Sides With Trump Administration in TV Ad Fight**\
 `The court paused a lower-court ruling while it considered the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
 https://www.nytimes.com/2026/10/08/us/politics/supreme-court-trump-ad-rates.html
-
-**My Least Favorite Vegetable**\
-`I’ll bite: I don’t like butternut squash.`\
-https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
 
