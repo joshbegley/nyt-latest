@@ -1,3 +1,7 @@
+**I Went to Uganda and Saw the Authoritarian Future**\
+`A crackdown in Uganda shows how new technologies, Chinese influence and America’s moral retreat are making the world safer for autocrats.`\
+https://www.nytimes.com/2026/10/08/opinion/surveillance-autocrats-uganda.html
+
 **Italy Weighs Controversial Law Giving Bonus Seats to Election Winners**\
 `Supporters of the law say it would bring stability to a country with a long history of short-lived governments, but critics see the measure as a threat to democracy.`\
 https://www.nytimes.com/2026/10/08/world/europe/italy-election-law-bonus.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/world/canada/canada-bc-hiker-claude-rescue.ht
 **‘The Twilight Zone’ Was a Warning America Ignored**\
 `With “The Twilight Zone,” Rod Serling created a durable blueprint for understanding our surreal reality.`\
 https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
-
-**The Local: Our guide to election guides**\
-`Plus, “Wedding Crashers” DVDs have taken over Little Free Libraries in Minneapolis.`\
-https://www.nytimes.com/2026/10/07/briefing/twin-cities-election-guide.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
