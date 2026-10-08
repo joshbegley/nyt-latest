@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Weigh In, Again, in TV Ad Fight**\
+`The emergency application to the justices marks the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
+https://www.nytimes.com/2026/10/08/us/politics/supreme-court-trump-ad-rates.html
+
 **My Least Favorite Vegetable**\
 `I’ll bite: I don’t like butternut squash.`\
 https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-scie
 `We look at the most lucrative college degrees.`\
 https://www.nytimes.com/2026/10/08/briefing/what-will-you-earn.html
 
-**Prosecutors say Maduro used torture to hold on to power in Venezuela.**\
+**Maduro Used Torture to Hold Power in Venezuela, Prosecutors Say**\
 `A superceding indictment says the former leader of Venezuela and his wife coordinated with high-level Venezuelan officials to inflict severe physical and mental pain to punish members of the political opposition, silence dissent and protect their authority.`\
 https://www.nytimes.com/interactive/2026/10/08/nyregion/maduro-indictment-torture-document.html
 
@@ -123,11 +127,11 @@ https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
 
 **Examining Footage From the Night of Epstein's Death**\
-`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
+`Jeffrey Epstein’s 2019 death was ruled a suicide, but seven years later, skepticism remains widespread. In this New York Times special report, the host Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfeld and Charles Homans to examine jail surveillance footage from the night of Mr. Epstein’s death.`\
 https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-night-of-epsteins-death.html
 
 **Was Jeffrey Epstein Really Suicidal?**\
-`Seven years after Jeffrey Epstein’s death was ruled a suicide, many people remain skeptical. In this New York Times Special Report, Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfield, and Charles Homans to examine the evidence regarding whether Epstein was suicidal.`\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, many people remain skeptical. In this New York Times Special Report, Natalie Kitroeff sits down with the reporters Jan Ransom, Steve Eder, Michael Rothfeld, and Charles Homans to examine the evidence regarding whether Epstein was suicidal.`\
 https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suicidal.html
 
 **What Really Happened to Jeffrey Epstein? A Times Investigation.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/podcasts/the-headlines/retreat-trump-hegseth-
 **NYT Strands Hints for October 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/08/crosswords/strands-sidekick-950.html
-
-**Today’s Wordle Hints for October 9, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 9, 2026.`\
-https://www.nytimes.com/2026/10/08/crosswords/wordle-review-1938.html
 

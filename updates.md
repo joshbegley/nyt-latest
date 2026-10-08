@@ -1,3 +1,15 @@
+**Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll**\
+`At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
+https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
+
+**What Really Happened to Jeffrey Epstein? A Times Investigation.**\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfeld, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
+https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
+
+**Houthi Attacks on Saudi Airports Prompt Mass Cancellations**\
+`The Saudi authorities said they intercepted two missiles targeting Riyadh, a day after they said Houthi strikes on airports in the kingdom killed three people.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **My Least Favorite Vegetable**\
 `I’ll bite: I don’t like butternut squash.`\
 https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
