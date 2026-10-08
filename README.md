@@ -1,3 +1,7 @@
+**‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
+`Hurricane Isaias could make landfall as soon as Friday afternoon. Residents are making careful choices about whether to leave their homes or stock up and stay.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
+
 **Russia Increases Attacks on Ukraine Using an Updated Arsenal**\
 `Russia’s increasing pace of assaults on Ukrainian cities in recent months has been intensified by an expansion and advancements in Russia’s weapons.`\
 https://www.nytimes.com/video/world/europe/100000011202387/russia-ukraine-attacks-weapons.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
 **Nana Patekar, Indian Actor Who Embodied the Everyman, Dies at 75**\
 `He brought the intensity of the stage to the screen and was praised for his craft and philanthropy. He was also accused of sexual harassment.`\
 https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
-
-**Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
-`Vice President JD Vance singled out the tech firm as he and other officials accused an array of companies and universities of abusing the visa system.`\
-https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
 
