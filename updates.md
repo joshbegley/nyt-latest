@@ -1,3 +1,11 @@
+**At Texas Rally, Trump and Paxton Make for an Awkward Pair**\
+`The president offered support for the Republican Senate candidate, after earlier grumbles, but focused much of his speech on a defense of his own record.`\
+https://www.nytimes.com/2026/10/07/us/elections/in-texas-trump-and-paxton-make-for-an-awkward-pair.html
+
+**Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
+`Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
+https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
+
 **At Nearly $300,000, Some Recent Duke Graduates Out-Earned All Their Peers**\
 `Federal data show Duke math majors earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
 https://www.nytimes.com/2026/10/07/your-money/duke-math-major-salaries.html
