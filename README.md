@@ -1,3 +1,7 @@
+**China Expands Its Military Reach by Building a Base in Laos**\
+`The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
+https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
+
 **Blasts Rattle Riyadh as Saudi Arabia Hit By Deadliest Houthi Attacks So Far**\
 `The cause of the explosions on Thursday morning remains unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/books/review/the-names-of-the-new-world-kawai
 **Can Your College Affect Your Income?**\
 `A new analysis of federal earnings data measures how much students who received federal financial aid earned four years after graduating. Our graphics reporter Arfa Momin studied the data to see when a graduate’s major and college mattered most to earnings.`\
 https://www.nytimes.com/video/business/100000011168809/can-your-college-affect-your-income.html
-
-**Should I Marry a Man Who Won’t Touch Me?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a 65-year-old reader who loves her partner but is physically and emotionally unsatisfied.`\
-https://www.nytimes.com/2026/10/08/well/mind/platonic-engagement-sex-emotion-touch-starved.html
 
