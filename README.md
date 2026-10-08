@@ -1,3 +1,7 @@
+**Protesters Mourn Death of ‘Maricarmen,’ Whose Eviction Shook Spain**\
+`María del Carmen Abascal, the 87-year-old woman whose eviction from her Madrid home prompted widespread protests in Spain, died on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011201700/spain-maricarmen-dead-protests-housing.html
+
 **Israel and U.K. Cut Last-Minute Deal to Avoid Full Closure of British Consulate in East Jerusalem**\
 `The diplomatic facility, in East Jerusalem, was under threat of being shut but will remain under a new name, the British foreign secretary said.`\
 https://www.nytimes.com/2026/10/08/world/europe/uk-israel-consulate-east-jerusalem-palestinians.html
@@ -175,16 +179,12 @@ https://www.nytimes.com/interactive/2026/10/07/weather/simon-map-path-tracker.ht
 https://www.nytimes.com/2026/10/07/world/plague-siberia-russia-sports-betting.html
 
 **3 Killed and Dozens Injured in Attacks on Saudi Airports, as Houthis Claim Strikes**\
-`The Saudi government said the dead included two women and a Sudanese man, and that its capital’s airport was hit. A Houthi spokesman said the militia had attacked the airports.`\
+`Residents of Saudi Arabia’s capital reported hearing booms on Thursday, a day after the Saudi government said two women and a Sudanese man died in strikes on two airports.`\
 https://www.nytimes.com/2026/10/07/world/middleeast/saudi-arabia-airports-houthis.html
 
 **Wealth Is Clouding the A.I. Safety Debate**\
 `There’s a conflict of interest at the core of the current discourse around A.I. On “The Ezra Klein Show,” David Robinson, a former OpenAI safety employee, discusses how wealth and other factors are influencing the conversation about A.I. safety.`\
 https://www.nytimes.com/video/opinion/100000011191544/wealth-is-clouding-the-ai-safety-debate.html
-
-**Mamdani Draws Anger With Oct. 7 Statement Denouncing Israel’s Gaza Attacks**\
-`After calling the anniversary of the attacks on Israel “profoundly painful,” Mayor Zohran Mamdani denounced Israel’s military action in Gaza, prompting criticism from some Jewish leaders.`\
-https://www.nytimes.com/2026/10/07/nyregion/oct-7-anniversary-israel-nyc-mamdani.html
 
 **Isaias Becomes a Hurricane on Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
