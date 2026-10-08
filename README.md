@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
 `The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
 
-**Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
+**Houthi Attacks on Saudi Airports Prompt Mass Cancellations**\
 `The Saudi authorities said they intercepted two missiles targeting Riyadh, a day after they said Houthi strikes on airports in the kingdom killed three people.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
 
