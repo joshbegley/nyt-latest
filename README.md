@@ -18,13 +18,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
-`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
-https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
-
 **Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
 `In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
 https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
