@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 8, 2026**\
+`Take this puzzle from Rachel Grey and John Kugelman for a spin.`\
+https://www.nytimes.com/2026/10/07/crosswords/daily-puzzle-2026-10-08.html
+
+**A College-by-College Guide to Which Majors Pay Off — or Don’t**\
+`College is one of the biggest investments you’ll ever make. We built a tool to compare earnings of nearly every major at nearly every school in the country.`\
+https://www.nytimes.com/interactive/2026/10/07/your-money/college-degree-earnings-guide.html
+
 **Newsom Mulls Sparing Lives of All 563 Prisoners on Death Row in California**\
 `Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
 https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html

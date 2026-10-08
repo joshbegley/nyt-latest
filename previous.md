@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 8, 2026**\
+`Take this puzzle from Rachel Grey and John Kugelman for a spin.`\
+https://www.nytimes.com/2026/10/07/crosswords/daily-puzzle-2026-10-08.html
+
+**A College-by-College Guide to Which Majors Pay Off — or Don’t**\
+`College is one of the biggest investments you’ll ever make. We built a tool to compare earnings of nearly every major at nearly every school in the country.`\
+https://www.nytimes.com/interactive/2026/10/07/your-money/college-degree-earnings-guide.html
+
 **Newsom Mulls Sparing Lives of All 563 Prisoners on Death Row in California**\
 `Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
 https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.
 **Unlicensed Wellness-Spa Director in Bronx Faces Murder Charge for Fatal Injection**\
 `A 27-year-old woman who received a shot of a longevity supplement at Luis Rojas Cabrera’s office in the Bronx died of an embolism.`\
 https://www.nytimes.com/2026/10/07/nyregion/bronx-wellness-spa-murder-charge-nyc.html
-
-**6 Broken Bathrooms Force Flight to Make an Urgent Landing**\
-`An American Airlines flight was diverted to New York on Tuesday because of an “inadequate number of operational lavatories” — two, on a plane that normally has eight.`\
-https://www.nytimes.com/2026/10/07/travel/american-airlines-flight-broken-bathrooms-landing.html
-
-**Jonathan the Giant Tortoise Is 194 Years Old. He Just Had His Genome Sequenced.**\
-`Scientists have sequenced his genome for the first time, hoping the world’s oldest land animal can offer clues into the genetics of longevity.`\
-https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
