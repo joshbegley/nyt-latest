@@ -1,3 +1,27 @@
+**How India’s Gen Z Protests Inspired Gen Alpha**\
+`India’s youngest students are staging sit-ins and protesting the run-down conditions of their schools, drawing inspiration from the Gen Z protests that roiled the country this summer.`\
+https://www.nytimes.com/video/world/asia/100000011164923/india-school-protests-gen-alpha.html
+
+**Could Mamdani’s Child Care Push Include Expanding Parental Leave?**\
+`As Mayor Zohran Mamdani moves to widen free child care programs in New York City, a survey found that many parents would prefer more time off to care for babies at home.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-child-care-parents-nyc.html
+
+**Broken Teeth and Pepper Spray: Maduro’s Wife Seeks Release From Jail**\
+`Lawyers for Cilia Flores have argued that she should receive medical treatment outside of jail to treat a heart condition. A federal judge will hear the request on Thursday.`\
+https://www.nytimes.com/2026/10/08/nyregion/cilia-flores-nicolas-maduro-bail-hearing.html
+
+**Man Accused in Cornell Sex Assault Was Designated as a Party Monitor**\
+`The fraternity filed paperwork identifying Jonathan Newell as a “trained event monitor” at a party where a woman said she was assaulted. He was accused of taking part.`\
+https://www.nytimes.com/2026/10/08/nyregion/cornell-university-chi-phi-fraternity-parties.html
+
+**Toxic Dust Was Everywhere After 9/11. Little Was Done for Months.**\
+`Newly released records show how residue from the World Trade Center towers coated the inside of homes. Officials allowed residents to return with scant guidance.`\
+https://www.nytimes.com/2026/10/08/nyregion/world-trade-center-dust-contamination.html
+
+**NYT Spelling Bee Answers for October 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/08/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Pans Trump’s Plan for a New Presidential Retreat**\
 `“What is with all these projects? Not one of them is finished,” Kimmel said in response to the possibility of a Camp David-style retreat in Florida.`\
 https://www.nytimes.com/2026/10/08/arts/television/kimmel-trump-presidential-retreat.html
