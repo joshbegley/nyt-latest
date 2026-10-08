@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
-**Live Updates: El-Sayed and Rogers Clash in Contentious Michigan Senate Debate**\
-`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded personal attacks as they faced off over health care, tariffs and immigration enforcement in a testy debate.`\
+**Live Updates: El-Sayed and Rogers Clash in Heated Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks as they faced off over Israel, the Iran war and health care in a testy debate.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
 **Khalif Tahir Thompson Adds Punchlines to His Portraits**\
