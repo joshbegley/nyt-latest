@@ -1,4 +1,4 @@
-**Newsom Considers Ending Death Sentences for 563 California Prisoners**\
+**Newsom Mulls Sparing Lives of All 563 Prisoners on Death Row in California**\
 `Gov. Gavin Newsom ramped up talks after a botched execution in Tennessee.`\
 https://www.nytimes.com/2026/10/07/us/newsom-death-row-prisoners-california.html
 
