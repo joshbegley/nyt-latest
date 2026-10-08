@@ -1,3 +1,15 @@
+**The National Hurricane Center’s Boss Keeps an Eye on the Storms**\
+`The director, Michael Brennan, oversees 45 federal workers, including hurricane specialists and meteorologists.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-brennan.html
+
+**Trump’s Jos. A. Bank Suit Surprised People. Should It Have?**\
+`In the past, the president has claimed to favor luxe Italian suits. This week, he flashed a label for a budget tailoring chain.`\
+https://www.nytimes.com/2026/10/08/style/trump-suits-jos-a-bank-brioni.html
+
+**Shifting Eating Habits Have PepsiCo Investors Seeking Operational Changes**\
+`Even though sales rose in the most recent quarter, the beverage and snack company is under increasing pressure to expand its business in North America, as consumers cut costs and calories.`\
+https://www.nytimes.com/2026/10/08/business/pepsico-earnings-splitting.html
+
 **What Teenagers Are Saying About Facing Their Fears**\
 `Inspired by a writer who confronted his fear of heights, we invited students to share what they’ve discovered from doing things that scare them.`\
 https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-facing-their-fears.html
