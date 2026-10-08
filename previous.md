@@ -1,3 +1,7 @@
+**New to Anne Carson’s Books? Start Here.**\
+`The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
+https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
+
 **Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Finds**\
 `A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
 https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/winter-of-the-crow-review.html
 **‘The Social Reckoning’ Review: Sounding the Alarm**\
 `Aaron Sorkin’s latest movie is about how social-media platforms like Facebook have rewired our brains and the larger world.`\
 https://www.nytimes.com/2026/10/08/movies/the-social-reckoning-review.html
-
-**‘My Undesirable Friends: Part II — Exile’ Review: What Is Truth?**\
-`The second half of Julia Loktev’s epic chronicle of independent journalists in Russia is essential viewing.`\
-https://www.nytimes.com/2026/10/08/movies/my-undesirable-friends-part-ii-exile-review.html
 

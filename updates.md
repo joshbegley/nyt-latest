@@ -1,3 +1,7 @@
+**New to Anne Carson’s Books? Start Here.**\
+`The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
+https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
+
 **Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Finds**\
 `A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
 https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html

@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/10/08/arts/design/roy-lichtenstein-like-new-review-
 https://www.nytimes.com/2026/10/08/realestate/housing-market-nyc.html
 
 **This Photo Is an A.I. Fake. Can You Tell?**\
-`We want you to look closely — very closely — at this fake image and spot any errors.`\
+`We want you to look closely — very closely — at this fake image and spot any errors.`\
 https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
 
 **15-Minute Lesson Plan: The Power of Student Journalism**\
