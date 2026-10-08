@@ -1,3 +1,7 @@
+**‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
+`Hurricane Isaias could make landfall as soon as Friday afternoon. Residents are making careful choices about whether to leave their homes or stock up and stay.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
+
 **Russia Increases Attacks on Ukraine Using an Updated Arsenal**\
 `Russia’s increasing pace of assaults on Ukrainian cities in recent months has been intensified by an expansion and advancements in Russia’s weapons.`\
 https://www.nytimes.com/video/world/europe/100000011202387/russia-ukraine-attacks-weapons.html
