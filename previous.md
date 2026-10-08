@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
 
 **Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
-`The cause of the explosions on Thursday was unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
+`Saudi-led forces in Yemen said they intercepted two missiles targeting Riyadh. The kingdom is on edge after the authorities said strikes killed three people on Wednesday.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
 
 **A Failed Execution and the Future of the Death Penalty**\

@@ -1,3 +1,7 @@
+**Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
+`Saudi-led forces in Yemen said they intercepted two missiles targeting Riyadh. The kingdom is on edge after the authorities said strikes killed three people on Wednesday.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
 `President Volodymyr Zelensky of Ukraine revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
 https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
