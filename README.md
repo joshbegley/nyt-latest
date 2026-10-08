@@ -1,3 +1,11 @@
+**He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
+`Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
+https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
+
+**6 Ways Isaias Is Remaking the Story of This Year’s Hurricane Season**\
+`It’s been several years since this part of the Gulf Coast was hit by a hurricane.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-history.html
+
 **Myanmar’s Strongman President is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
 `After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
 https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/08/realestate/how-much-space-does-400000-get-you
 **Dark Retellings of Classic Books Like ‘Jane Eyre,’ ‘Frankenstein’ and More**\
 `The best-selling author Kat Dunn recommends some of her favorite modern retellings, of “Jane Eyre,” “Frankenstein” and more.`\
 https://www.nytimes.com/2026/10/08/books/classic-retelling-gothic-horror-books.html
-
-**How a U.S. Diplomat Suppressed and Altered Reports Critical of Israel**\
-`A top aide to Ambassador Mike Huckabee skewed information to portray the Netanyahu government in a favorable light, according to multiple officials and documents obtained by The Times.`\
-https://www.nytimes.com/2026/10/08/world/middleeast/israel-embassy-milstein-huckabee.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Lise Davidsen’s Verdi, Anthony Davis’s “The Central Park Five” and a new take on Britten’s cello suites among our selections.`\
-https://www.nytimes.com/2026/10/08/arts/music/best-classical-music-albums-october-2026.html
 
