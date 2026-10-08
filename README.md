@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
 `Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
 https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
 
-**Escalating Assaults on Ukrainian Cities Are Producing an Enormous Toll**\
+**Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll**\
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
 
@@ -131,7 +131,7 @@ https://www.nytimes.com/video/us/100000011201216/examining-footage-from-the-nigh
 https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suicidal.html
 
 **What Really Happened to Jeffrey Epstein? A Times Investigation.**\
-`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfield, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
+`Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfeld, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
 https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
 
 **France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
