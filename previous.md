@@ -1,6 +1,6 @@
-**Cornell Student Wants Attorney General Removed as Prosecutor**\
+**Cornell Student Wants Letitia James, NY Attorney General, Removed as Prosecutor**\
 `Attorney General Letitia James should step down from leading the investigation into a former student’s allegation that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
-https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letita-james.html
+https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
 
 **Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
 `A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos.`\

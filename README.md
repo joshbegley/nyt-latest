@@ -1,3 +1,11 @@
+**Judge Throws Out Last Defendant’s Confession in Sept. 11 Case at Guantánamo**\
+`The government is now 5-0 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
+https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html
+
+**Florida Court Orders Expungement of Report Criticizing DeSantis Administration**\
+`The grand jury report, which was never released publicly but was leaked to a Miami news station, wrongfully “impugned” private individuals, an appeals panel found.`\
+https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-expunge.html
+
 **Cornell Student Wants Letitia James, NY Attorney General, Removed as Prosecutor**\
 `Attorney General Letitia James should step down from leading the investigation into a former student’s allegation that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
 https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/10/07/science/jonathan-giant-tortoise-genome-aging.
 **The Superhero Story Line That ‘Lanterns’ Handled Better Than the Rest**\
 `HBO’s new series tackles the trope of a Black hero taking up a white predecessor’s mantle, giving John Stewart’s path to the Green Lantern ring a depth and autonomy that others missed.`\
 https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jordan.html
-
-**Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
-`Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire while arguing over a parking spot at a park in Baltimore over the weekend.`\
-https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
