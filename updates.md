@@ -1,3 +1,7 @@
+**America in Retreat**\
+`We look at how the war with Iran has constrained U.S. power.`\
+https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
+
 **China Expands Its Military Reach by Building a Base in Laos**\
 `The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
