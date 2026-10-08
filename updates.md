@@ -1,3 +1,23 @@
+**The Man City Scandal Is About More Than Football**\
+`A conversation about the biggest financial scandal in football history.`\
+https://www.nytimes.com/2026/10/08/world/man-city-football-riyadh-houthis.html
+
+**Mamdani Stands By His Handling of Oct. 7 Anniversary After Emotional Day**\
+`The mayor expressed no regrets after he was criticized by Jewish leaders over a statement marking the anniversary of the Oct. 7 attacks and later booed by pro-Palestinian activists at a vigil.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-statement-events-israel-palestine.html
+
+**Mamdani Responds to Backlash After Attending Oct. 7 Vigil**\
+`Mayor Zohran Mamdani of New York City responded to the backlash he received after attending a vigil that marked the third anniversary of the Oct. 7 attacks. The mayor also addressed criticism of his social media post about the attacks that focused more on the people of Gaza.`\
+https://www.nytimes.com/video/nyregion/100000011202818/mamdani-backlash-oct-7-vigil-israel.html
+
+**Trump Says U.S. Will Not Strike Iran Again Before Midterms as Military Draws Up New Plans**\
+`The U.S. military has drafted options for three days of strikes, but in recent months the president has repeatedly vetoed plans to restart the war.`\
+https://www.nytimes.com/2026/10/08/us/politics/trump-iran-war-options.html
+
+**Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
+`Vice President JD Vance singled out the tech firm as he and other officials accused an array of companies and universities of abusing the visa system.`\
+https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
+
 **Pentagon Draws Up New Iran Strike Plans as Trump Hesitates**\
 `The U.S. military has drafted options for three days of strikes, but in recent months the president has repeatedly vetoed plans to restart the war.`\
 https://www.nytimes.com/2026/10/08/us/politics/trump-iran-war-options.html
