@@ -1,3 +1,23 @@
+**The Seashells Case Against Comey at a Crossroads**\
+`A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
+https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
+
+**At the Athens Democracy Forum, Debating the Risks Posed by A.I.**\
+`Technology and its threats were central themes at the Athens Democracy Forum.`\
+https://www.nytimes.com/2026/10/08/world/athens-democracy-forum-artificial-intelligence.html
+
+**Highest Mortgage Rates in 3 Years Chills the Housing Market**\
+`The average 30-year fixed-rate mortgage rose to 7.4 percent, putting more pressure on Americans struggling to afford to buy a home.`\
+https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
+
+**Nana Patekar, Indian Actor Who Embodied the Everyman, Dies at 75**\
+`He brought the intensity of the stage to the screen and was praised for his craft and philanthropy. He was also accused of sexual harassment.`\
+https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
+
+**Trump Administration Suspends Microsoft From Green Card Program**\
+`Vice President JD Vance singled out the tech firm as he and other officials accused several companies and universities of committing visa fraud.`\
+https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
+
 **Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
 `The woman who helped put astronauts on the moon was a software engineer when the field was not prestigious or lucrative.`\
 https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-science.html
@@ -30,8 +50,8 @@ https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
 https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
 
-**Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
-`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
+**A.I. Fueled More Resilient Global Growth, W.T.O. Says**\
+`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on goods related to artificial intelligence.`\
 https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
 
 **At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.
 **Quiz: How Much Do You Know About Breast Cancer?**\
 `Test your knowledge of breast cancer with our quiz.`\
 https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-treatment-mutations.html
-
-**Here’s What Worries Me About the Russian Plague Scare**\
-`America is not prepared for a major disease outbreak.`\
-https://www.nytimes.com/2026/10/08/opinion/plague-siberia-russia-lab.html
-
-**The Cornell Case Exposes What We Can’t Say**\
-`We are unable to recognize and critique bad behavior outside of a narrow definition of criminal sex.`\
-https://www.nytimes.com/2026/10/08/opinion/cornell-sex-consent-rape-criminal.html
-
-**Long-Deployed Aircraft Carrier U.S.S. Abraham Lincoln Set for Homecoming**\
-`The ship, whose crew endured food shortages, spent much of its nearly 11-month deployment in combat without a day off.`\
-https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.html
-
-**Broadway’s New Heated Rivalry: Two Diners With Singing Waiters**\
-`Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
-https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
-
-**That Daily Brain Rot Break Is Taking Us Back to the Dark Ages**\
-`Welcome to the postliterate era.`\
-https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
 

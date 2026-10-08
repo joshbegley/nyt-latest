@@ -1,3 +1,27 @@
+**The Seashells Case Against Comey at a Crossroads**\
+`A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
+https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
+
+**At the Athens Democracy Forum, Debating the Risks Posed by A.I.**\
+`Technology and its threats were central themes at the Athens Democracy Forum.`\
+https://www.nytimes.com/2026/10/08/world/athens-democracy-forum-artificial-intelligence.html
+
+**Highest Mortgage Rates in 3 Years Chills the Housing Market**\
+`The average 30-year fixed-rate mortgage rose to 7.4 percent, putting more pressure on Americans struggling to afford to buy a home.`\
+https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
+
+**Nana Patekar, Indian Actor Who Embodied the Everyman, Dies at 75**\
+`He brought the intensity of the stage to the screen and was praised for his craft and philanthropy. He was also accused of sexual harassment.`\
+https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
+
+**Trump Administration Suspends Microsoft From Green Card Program**\
+`Vice President JD Vance singled out the tech firm as he and other officials accused several companies and universities of committing visa fraud.`\
+https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
+
+**A.I. Fueled More Resilient Global Growth, W.T.O. Says**\
+`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on goods related to artificial intelligence.`\
+https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
+
 **Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
 `The woman who helped put astronauts on the moon was a software engineer when the field was not prestigious or lucrative.`\
 https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-science.html

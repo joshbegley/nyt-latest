@@ -1,3 +1,7 @@
+**Pita Limjaroenrat: The Leader Thailand Could Have Had**\
+`An interview with Pita Limjaroenrat, the former leader of the Move Forward party.`\
+https://www.nytimes.com/2026/10/08/world/asia/pita-limjaroenrat-thailand.html
+
 **The Seashells Case Against Comey at a Crossroads**\
 `A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
 https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-color
 **Trump’s White House Ban on CNN, Politico and MS Now: What to Know**\
 `A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
 https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
-
-**Quiz: How Much Do You Know About Breast Cancer?**\
-`Test your knowledge of breast cancer with our quiz.`\
-https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-treatment-mutations.html
 
