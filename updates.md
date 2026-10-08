@@ -1,3 +1,7 @@
+**French Student Protests Continue as Government Seeks Way Out of Crisis**\
+`Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
+
 **Down With the Small Plate**\
 `(No description)`\
 https://www.nytimes.com/2026/10/08/dining/big-plates.html

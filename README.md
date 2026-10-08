@@ -1,3 +1,7 @@
+**U.S.S. Abraham Lincoln Returns to San Diego After Near-Record Deployment**\
+`The aircraft carrier U.S.S. Abraham Lincoln returned to its home port of San Diego on Thursday after a 322-day deployment in support of the Iran war.`\
+https://www.nytimes.com/video/us/100000011203050/uss-abraham-lincoln-san-diego.html
+
 **Down With the Small Plate**\
 `(No description)`\
 https://www.nytimes.com/2026/10/08/dining/big-plates.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-mid
 **A.I. Fueled More Resilient Global Growth, W.T.O. Says**\
 `The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on goods related to artificial intelligence.`\
 https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
-
-**At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
-`Why include traditional Georgian dance in a production of “Macbeth”? For the opera, the action director wanted something visceral: “I wanted to actually smell the sweat.”`\
-https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgian-dancers.html
 
