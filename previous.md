@@ -1,3 +1,7 @@
+**Down With the Small Plate**\
+`(No description)`\
+https://www.nytimes.com/2026/10/08/dining/big-plates.html
+
 **Hillary Clinton, Chloe Fineman and Esther Perel Toast Argent, and the Pantsuit**\
 `At an evening to celebrate a decade of the brand Argent, over a hundred women suited up.`\
 https://www.nytimes.com/2026/10/08/style/argent-pantsuit-celebration.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.h
 **At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
 `Why include traditional Georgian dance in a production of “Macbeth”? For the opera, the action director wanted something visceral: “I wanted to actually smell the sweat.”`\
 https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgian-dancers.html
-
-**The Wave of Student Protests Roiling France**\
-`Anger about classroom overcrowding, teacher shortages and broken-down buildings has boiled over in recent weeks, and threatens to coalesce into broader grievances in a heated political season.`\
-https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
 

@@ -1,3 +1,7 @@
+**Down With the Small Plate**\
+`(No description)`\
+https://www.nytimes.com/2026/10/08/dining/big-plates.html
+
 **Hillary Clinton, Chloe Fineman and Esther Perel Toast Argent, and the Pantsuit**\
 `At an evening to celebrate a decade of the brand Argent, over a hundred women suited up.`\
 https://www.nytimes.com/2026/10/08/style/argent-pantsuit-celebration.html

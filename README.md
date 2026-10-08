@@ -26,7 +26,7 @@ https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-prot
 `Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
 https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
 
-**French Students Take to the Streets as Government Seeks Way Out of Crisis**\
+**French Student Protests Continue as Government Seeks Way Out of Crisis**\
 `Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
 
