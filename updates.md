@@ -1,3 +1,11 @@
+**Fort Hood Shooter’s Execution Will be Public and Streamed Live, Pentagon Says**\
+`If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
+https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
+
+**Live Updates: El-Sayed and Rogers Clash in Contentious Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded personal attacks as they faced off over health care, tariffs and immigration enforcement in a testy debate.`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **Karol G on Bringing Latin Culture to the World’s Biggest Stages**\
 `Watch the full conversation with Karol G. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin-culture-to-the-worlds-biggest-stages.html
