@@ -1,3 +1,7 @@
+**Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
+`The cause of the explosions on Thursday was unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **Oil Prices Jump on Outburst of Violence in the Middle East**\
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
