@@ -1,3 +1,19 @@
+**As Hurricane Isaias Nears, Alabama’s Coast**\
+`The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
+
+**Margaret Papandreou, American-Born First Lady of Greece, Dies at 102**\
+`The wife of Prime Minister Andreas Papandreou, she led reforms in the 1980s that helped legalize abortion and end other legal and social restrictions on women.`\
+https://www.nytimes.com/2026/10/08/world/europe/margaret-papandreou-dead.html
+
+**A Photo of Mussolini’s Corpse Led Page 1. How It Got There Is a Tale.**\
+`It took a perilous trip through an Alpine blizzard to show the world the dictator was dead.`\
+https://www.nytimes.com/2026/10/08/world/europe/mussolini-corpse-photo.html
+
+**The Blood of the Dawnwalker Is a Gripping Vampire R.P.G.**\
+`The Blood of the Dawnwalker is a gripping R.P.G. exploration of power and violence.`\
+https://www.nytimes.com/2026/10/08/arts/the-blood-dawnwalker-review.html
+
 **2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
 `Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
 https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
 **South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
 `President Volodymyr Zelensky of Ukraine revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
 https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
-
-**Oil Prices Jump on Outburst of Violence in the Middle East**\
-`Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
-https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
-
-**Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
-`In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
-https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
-
-**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
-`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
-https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
-
-**The Little-Noticed Exception in Trump Accounts**\
-`Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
-https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html
 

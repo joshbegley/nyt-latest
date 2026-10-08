@@ -1,3 +1,19 @@
+**As Hurricane Isaias Nears, Alabama’s Coast**\
+`The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
+
+**Margaret Papandreou, American-Born First Lady of Greece, Dies at 102**\
+`The wife of Prime Minister Andreas Papandreou, she led reforms in the 1980s that helped legalize abortion and end other legal and social restrictions on women.`\
+https://www.nytimes.com/2026/10/08/world/europe/margaret-papandreou-dead.html
+
+**A Photo of Mussolini’s Corpse Led Page 1. How It Got There Is a Tale.**\
+`It took a perilous trip through an Alpine blizzard to show the world the dictator was dead.`\
+https://www.nytimes.com/2026/10/08/world/europe/mussolini-corpse-photo.html
+
+**The Blood of the Dawnwalker Is a Gripping Vampire R.P.G.**\
+`The Blood of the Dawnwalker is a gripping R.P.G. exploration of power and violence.`\
+https://www.nytimes.com/2026/10/08/arts/the-blood-dawnwalker-review.html
+
 **2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
 `Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
 https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
