@@ -1,3 +1,19 @@
+**2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
+`Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
+https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
+
+**Judge Extends Pause on Trump’s Ban Against CNN, MS NOW and Politico**\
+`The judge overseeing the case said that the pause would extend until next week, and promised to decide whether to further extend it by Tuesday.`\
+https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-trump.html
+
+**Why Anne Carson, the New Nobel Laureate, Is the Easiest Difficult Poet**\
+`Carson has mind-boggling range and formal audacity, our poetry columnist writes, but however much she toys with obscurity she remains too hilarious to be intimidating.`\
+https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
+
+**France Is Veering Toward a Potential Debt Crisis Amid Protests and Turmoil**\
+`French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
+https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
+
 **Maduro Charged With Ordering Torture of Americans in Venezuelan Prison**\
 `Nicolás Maduro and his wife, Cilia Flores, inflicted severe physical and mental pain on both Americans and Venezuelans to silence dissent and protect their authority, according to prosecutors.`\
 https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-americans.html

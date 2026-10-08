@@ -1,3 +1,15 @@
+**2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US**\
+`Counterterrorism police said the men were found inside the perimeter of R.A.F. Molesworth, a base used by the United States, raising concerns about security.`\
+https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html
+
+**Judge Extends Pause on Trump’s Ban Against CNN, MS NOW and Politico**\
+`The judge overseeing the case said that the pause would extend until next week, and promised to decide whether to further extend it by Tuesday.`\
+https://www.nytimes.com/2026/10/08/business/media/cnn-msnow-politico-media-ban-trump.html
+
+**Why Anne Carson, the New Nobel Laureate, Is the Easiest Difficult Poet**\
+`Carson has mind-boggling range and formal audacity, our poetry columnist writes, but however much she toys with obscurity she remains too hilarious to be intimidating.`\
+https://www.nytimes.com/2026/10/08/books/review/anne-carson-appraisal.html
+
 **Nobel Prize in Literature Awarded to Canadian Poet Anne Carson**\
 `The poet and essayist joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/video/world/100000011202377/nobel-prize-literature-poet-anne-carson.html
@@ -158,7 +170,7 @@ https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suic
 `Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfeld, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
 https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
 
-**France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
+**France Is Veering Toward a Potential Debt Crisis Amid Protests and Turmoil**\
 `French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
 https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html
-
-**Canadian Poet Anne Carson Is Awarded Nobel Prize in Literature**\
-`The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
-https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html
-
-**America in Retreat**\
-`We look at how the war with Iran has constrained U.S. power.`\
-https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
-
-**China Expands Its Military Reach by Building a Base in Laos**\
-`The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
-https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
 
