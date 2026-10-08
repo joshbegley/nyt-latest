@@ -1,3 +1,11 @@
+**2026 Midterms: How the Battle for the Senate Could Play Out**\
+`Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
+https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
+
+**Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html

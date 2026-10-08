@@ -1,3 +1,11 @@
+**2026 Midterms: How the Battle for the Senate Could Play Out**\
+`Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
+https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
+
+**Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-bre
 **Trump’s Jos. A. Bank Suit Surprised People. Should It Have?**\
 `In the past, the president has claimed to favor luxe Italian suits. This week, he flashed a label for a budget tailoring chain.`\
 https://www.nytimes.com/2026/10/08/style/trump-suits-jos-a-bank-brioni.html
-
-**What Teenagers Are Saying About Facing Their Fears**\
-`Inspired by a writer who confronted his fear of heights, we invited students to share what they’ve discovered from doing things that scare them.`\
-https://www.nytimes.com/2026/10/08/learning/what-teenagers-are-saying-about-facing-their-fears.html
-
-**Supreme Court, for Now, Sides With Trump Administration in TV Ad Fight**\
-`The court paused a lower-court ruling while it considered the latest move in a monthslong fight over who is entitled to low rates for political ads.`\
-https://www.nytimes.com/2026/10/08/us/politics/supreme-court-trump-ad-rates.html
-
-**My Least Favorite Vegetable**\
-`I’ll bite: I don’t like butternut squash.`\
-https://www.nytimes.com/2026/10/08/dining/my-least-favorite-vegetable.html
 
