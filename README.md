@@ -1,3 +1,7 @@
+**21 Birds Are Found at Miami Airport Stuffed in Underwear and Hidden in a Belt**\
+`Two men, who arrived separately from Cuba days apart, each carried clutches of live birds concealed in their clothes, the authorities said.`\
+https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
+
 **‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
 `Hurricane Isaias could make landfall as soon as Friday afternoon. Residents are making careful choices about whether to leave their homes or stock up and stay.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/world/athens-democracy-forum-artificial-intel
 **Highest Mortgage Rates in 3 Years Chills the Housing Market**\
 `The average 30-year fixed-rate mortgage rose to 7.4 percent, putting more pressure on Americans struggling to afford to buy a home.`\
 https://www.nytimes.com/2026/10/08/business/mortgage-rates-housing-prices.html
-
-**Nana Patekar, Indian Actor Who Embodied the Everyman, Dies at 75**\
-`He brought the intensity of the stage to the screen and was praised for his craft and philanthropy. He was also accused of sexual harassment.`\
-https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
 
