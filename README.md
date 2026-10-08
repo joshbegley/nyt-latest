@@ -1,3 +1,7 @@
+**The Seashells Case Against Comey at a Crossroads**\
+`A judge will soon rule on whether the former F.B.I. director must face trial for an Instagram post.`\
+https://www.nytimes.com/2026/10/08/us/politics/the-docket-comey-free-speech.html
+
 **At the Athens Democracy Forum, Debating the Risks Posed by A.I.**\
 `Technology and its threats were central themes at the Athens Democracy Forum.`\
 https://www.nytimes.com/2026/10/08/world/athens-democracy-forum-artificial-intelligence.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\
 https://www.nytimes.com/2026/10/08/world/europe/trump-russia-oil-deal-lukoil-middle-east-investors.html
 
-**Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
-`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
+**A.I. Fueled More Resilient Global Growth, W.T.O. Says**\
+`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on goods related to artificial intelligence.`\
 https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
 
 **At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.
 **Quiz: How Much Do You Know About Breast Cancer?**\
 `Test your knowledge of breast cancer with our quiz.`\
 https://www.nytimes.com/interactive/2026/10/08/well/breast-cancer-quiz-risk-treatment-mutations.html
-
-**Here’s What Worries Me About the Russian Plague Scare**\
-`America is not prepared for a major disease outbreak.`\
-https://www.nytimes.com/2026/10/08/opinion/plague-siberia-russia-lab.html
 
