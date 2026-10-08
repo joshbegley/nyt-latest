@@ -1,3 +1,11 @@
+**China Expands Its Military Reach by Building a Base in Laos**\
+`The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
+https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
+
+**Blasts Rattle Riyadh as Saudi Arabia Hit By Deadliest Houthi Attacks So Far**\
+`The cause of the explosions on Thursday morning remains unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **A Failed Execution and the Future of the Death Penalty**\
 `Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
 https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
