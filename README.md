@@ -1,3 +1,7 @@
+**America in Retreat**\
+`We look at how the war with Iran has constrained U.S. power.`\
+https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
+
 **China Expands Its Military Reach by Building a Base in Laos**\
 `The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/arts/design/della-robbia-the-met-exhibit.html
 **Book Review: ‘The Names of the New World,’ by Kawai Strong Washburn**\
 `In the Minneapolis of Kawai Strong Washburn’s climate dystopia, three characters form unlikely bonds to take on the nation’s greediest oil behemoths.`\
 https://www.nytimes.com/2026/10/08/books/review/the-names-of-the-new-world-kawai-strong-washburn.html
-
-**Can Your College Affect Your Income?**\
-`A new analysis of federal earnings data measures how much students who received federal financial aid earned four years after graduating. Our graphics reporter Arfa Momin studied the data to see when a graduate’s major and college mattered most to earnings.`\
-https://www.nytimes.com/video/business/100000011168809/can-your-college-affect-your-income.html
 
