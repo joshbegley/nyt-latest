@@ -1,3 +1,7 @@
+**Tropical Storm Isaias Is Forecast to Hit the Gulf Coast This Week**\
+`The Atlantic hurricane season has been quiet, but Isaias could become its first hurricane.`\
+https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
+
 **Judge Throws Out Last Defendant’s Confession in Sept. 11 Case at Guantánamo**\
 `The government is now 0-5 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
 https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html

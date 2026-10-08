@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/10/07/us/hope-florida-casey-desantis-grand-jury-exp
 `Attorney General Letitia James should step down from leading the investigation into a former student’s allegation that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
 https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letitia-james.html
 
-**Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
+**Live Updates: Mamdani Is Jeered at Oct. 7 Vigil; Protesters Call Him Traitor to Palestinian Cause**\
 `A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
 
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/07/us/chicago-stabbing-girl.html
 https://www.nytimes.com/2026/10/07/science/plague-russia-biosafety.html
 
 **At Least 20 People Killed Across Ukraine From Russian Airstrikes**\
-`At least 20 people were killed across Ukraine from Russian airstrikes on Wednesday, according to Ukrainian officials. Moscow has escalated its air war on Ukraianian cities as a ground advance stalls in the eastern Donbas region.`\
+`At least 20 people were killed across Ukraine from Russian airstrikes on Wednesday, according to Ukrainian officials. Moscow has escalated its air war on Ukrainian cities as a ground advance stalls in the eastern Donbas region.`\
 https://www.nytimes.com/video/world/europe/100000011199852/ukraine-russia-strikes-dead.html
 
 **The Good List: 6 Things to Add Joy to Your Day**\

@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
 `Policymakers grew increasingly concerned about inflation risks at their most recent meeting in September.`\
 https://www.nytimes.com/2026/10/07/business/fed-minutes-show-officials-saw-more-work-to-do-to-quell-inflation.html
 
-**Tropical Storm Isaias Will Bring Heavy Rain to the Gulf Coast, Forecasters Warn**\
+**Tropical Storm Isaias Is Forecast to Hit the Gulf Coast This Week**\
 `The Atlantic hurricane season has been quiet, but Isaias could become its first hurricane.`\
 https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
 
