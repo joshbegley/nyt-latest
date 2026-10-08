@@ -1,12 +1,16 @@
+**Clinical Trial Indicates A.I. Chatbots Could Aid Urgent Care**\
+`Nearly 100 patients discussed their maladies with a Google bot, called AMIE, before meeting with physicians.`\
+https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
+
 **2026 Midterms: How the Battle for the Senate Could Play Out**\
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
 **Live Updates: Michigan Senate Battle Heats Up as El-Sayed and Rogers Prepare to Debate**\
-`(No description)`\
+`Dr. Abdul El-Sayed, a Democrat, is facing his Republican opponent, former Representative Mike Rogers, in a race pivotal to determining which party controls the Senate.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 
-**Khalif Tahir Thompson Adds a Punchline to Each Portrait**\
+**Khalif Tahir Thompson Adds Punchlines to His Portraits**\
 `On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
 https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/08/world/europe/russia-plague-outbreak.html
 **The National Hurricane Center’s Boss Keeps an Eye on the Storms**\
 `The director, Michael Brennan, oversees 45 federal workers, including hurricane specialists and meteorologists.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-brennan.html
-
-**Trump’s Jos. A. Bank Suit Surprised People. Should It Have?**\
-`In the past, the president has claimed to favor luxe Italian suits. This week, he flashed a label for a budget tailoring chain.`\
-https://www.nytimes.com/2026/10/08/style/trump-suits-jos-a-bank-brioni.html
 
