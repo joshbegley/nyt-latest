@@ -1,3 +1,7 @@
+**Israel and U.K. Cut Last-Minute Deal to Avoid Full Closure of British Consulate in East Jerusalem**\
+`The diplomatic facility, in East Jerusalem, was under threat of being shut but will remain under a new name, the British foreign secretary said.`\
+https://www.nytimes.com/2026/10/08/world/europe/uk-israel-consulate-east-jerusalem-palestinians.html
+
 **India’s Cockroach Party Leader Carries Gen Z’s Demands. They Are Many.**\
 `Abhijeet Dipke started the movement as a joke. But after ousting a minister over a dysfunctional college entrance exam system, India’s youth say they now want to save democracy.`\
 https://www.nytimes.com/2026/10/08/world/asia/india-cockroach-janta-party.html
