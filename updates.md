@@ -1,3 +1,7 @@
+**Russia’s Silence on Possible Plague Outbreak Stokes Fears of a Cover-Up**\
+`As rumors spread about a possible plague outbreak in Siberia, the Kremlin turned to a familiar playbook: offering little information about potential bad news.`\
+https://www.nytimes.com/2026/10/08/world/europe/russia-plague-outbreak.html
+
 **The National Hurricane Center’s Boss Keeps an Eye on the Storms**\
 `The director, Michael Brennan, oversees 45 federal workers, including hurricane specialists and meteorologists.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-center-forecast-michael-brennan.html
