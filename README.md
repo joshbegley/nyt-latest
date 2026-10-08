@@ -1,3 +1,7 @@
+**Jimmy Kimmel Pans Trump’s Plan for a New Presidential Retreat**\
+`“What is with all these projects? Not one of them is finished,” Kimmel said in response to the possibility of a Camp David-style retreat in Florida.`\
+https://www.nytimes.com/2026/10/08/arts/television/kimmel-trump-presidential-retreat.html
+
 **For Mamdani, Oct. 7 Anniversary Sets Off Anger and Bitterness**\
 `Hours after some Jewish leaders denounced Mayor Zohran Mamdani’s remarks about the attacks on Israel, activists interrupted a vigil to call him a traitor to the Palestinian cause.`\
 https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-anniversary-nyc-israel.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/world/europe/maricarmen-dies-spain-housing-sa
 **Fears of a Plague Outbreak in Russia: What to Know**\
 `Russian authorities aren’t saying much about the death of a woman who worked in a lab studying plague. But experts say any risk of contagion would be limited.`\
 https://www.nytimes.com/2026/10/07/world/europe/russia-plague-fears-what-to-know.html
-
-**Education Dept. Is Investigating Sexual Misconduct in N.Y.C. Schools**\
-`The civil rights investigation was the latest salvo by the Trump administration against the largest school system in the country.`\
-https://www.nytimes.com/2026/10/07/nyregion/education-department-sexual-assault-nyc-schools.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\
