@@ -1,3 +1,7 @@
+**Myanmar’s Strongman President Is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
+`After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
+https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
+
 **He Won’t Tell You What to Think. Some Viewers Can’t Forgive Him for That.**\
 `Cristian Mungiu, a two-time Palme d’Or winner, insists that his job is to test your empathy, not validate your opinions.`\
 https://www.nytimes.com/2026/10/08/movies/christian-mungiu-fjord.html
