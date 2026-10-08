@@ -1,9 +1,13 @@
+**Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
+`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
+https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
+
 **At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
 `Why include traditional Georgian dance in a production of “Macbeth”? For the opera, the action director wanted something visceral: “I wanted to actually smell the sweat.”`\
 https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgian-dancers.html
 
 **The Wave of Student Protests Roiling France**\
-`Anger about classroom overcrowding, teacher shortages and broken-down facilities has boiled over in recent weeks and threatens to coalesce into broader grievances in a heated political season.`\
+`Anger about classroom overcrowding, teacher shortages and broken-down buildings has boiled over in recent weeks, and threatens to coalesce into broader grievances in a heated political season.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
 
 **Esphyr Slobodkina Found Fame With “Caps for Sale.” A New Exhibition Shows Her Range.**\
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-po
 https://www.nytimes.com/2026/10/08/science/truage-biological-age-test-genetics-sisters.html
 
 **In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
-`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran, have become central to the state’s Senate race.`\
+`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran have become central to the state’s Senate race.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
 
 **Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
@@ -46,13 +50,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
-`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
-https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
-
 **Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
 `In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
 https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/10/08/realestate/housing-market-nyc.html
 **This Photo Is an A.I. Fake. Can You Tell?**\
 `We want you to look closely — very closely — at this fake image and spot any errors.`\
 https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
-
-**15-Minute Lesson Plan: The Power of Student Journalism**\
-`Young people at The Cornell Daily Sun have led the reporting on the assault case on their campus. What role do student journalists play in both reflecting and challenging their communities?`\
-https://www.nytimes.com/2026/10/08/learning/15-minute-lesson-plan-the-power-of-student-journalism.html
-
-**He Wrote for ‘Seinfeld.’ But He Sees Genius in ‘Nancy.’**\
-`The comic strip is surprisingly revered by some comedy writers and cartoonists, including Tom Gammill, whose credits include “The Simpsons” and “S.N.L.”`\
-https://www.nytimes.com/2026/10/08/arts/television/tom-gammill-nancy-seinfeld-the-simpsons.html
 
