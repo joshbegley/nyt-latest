@@ -1,3 +1,7 @@
+**Russia Increases Attacks on Ukraine Using an Updated Arsenal**\
+`Russia’s increasing pace of assaults on Ukrainian cities in recent months has been intensified by an expansion and advancements in Russia’s weapons.`\
+https://www.nytimes.com/video/world/europe/100000011202387/russia-ukraine-attacks-weapons.html
+
 **The Man City Scandal Is About More Than Football**\
 `A conversation about the biggest financial scandal in football history.`\
 https://www.nytimes.com/2026/10/08/world/man-city-football-riyadh-houthis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/world/asia/nana-patekar-dead.html
 **Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
 `Vice President JD Vance singled out the tech firm as he and other officials accused an array of companies and universities of abusing the visa system.`\
 https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
-
-**Before Computer Science Became a Boys’ Club, Margaret Hamilton Wrote the Code**\
-`The woman who helped put astronauts on the moon was a software engineer when the field was not prestigious or lucrative.`\
-https://www.nytimes.com/2026/10/08/science/space/margaret-hamilton-computer-science.html
 
