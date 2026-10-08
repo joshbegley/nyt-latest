@@ -1,3 +1,11 @@
+**The ‘Mean Girls’ Presidency**\
+`We are living through the Regina George administration, argues the Opinion contributing writer Molly Jong-Fast. Yes, the very one from “Mean Girls.” President Trump’s administration is filled with wannabes who are eager to please him. But while that social system worked in high school, it definitely shouldn’t be working when “Trump’s bad ideas have no checks and balances,” she says.`\
+https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.html
+
+**Explosions Rattle Saudi Capital**\
+`Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
+
 **Federal Agents Shoot Man in New York City, N.Y.P.D Says**\
 `A police spokesman said the person who was shot had been taken to a nearby hospital and was conscious and receiving medical attention.`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/08/us/nashville-courthouse-shooting.html
 **Indian Opposition Leaders Detained Amid Voter-Roll Protests**\
 `Security forces in New Delhi broke up protests over a voter-roll revision on Wednesday, briefly detaining many lawmakers, including two opposition leaders, for the second straight day.`\
 https://www.nytimes.com/video/world/asia/100000011202009/india-protest-new-delhi-leaders-detained.html
-
-**Getting Philosophical About A.I.**\
-`Readers respond to an Opinion guest essay by Simon Critchley about why philosophy matters in the age of A.I. Also: Watching Alexandria Ocasio-Cortez.`\
-https://www.nytimes.com/2026/10/08/opinion/philosophy-ai.html
-
-**‘Fjord’ Review: A Moral Rorschach Test**\
-`Cristian Mungiu’s latest psychological thriller stars Sebastian Stan as the Romanian patriarch of a devout family in Norway, with Renate Reinsve as his wife.`\
-https://www.nytimes.com/2026/10/08/movies/fjord-review-cristian-mungiu-sebastian-stan.html
 
