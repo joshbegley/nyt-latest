@@ -1,3 +1,7 @@
+**At Nearly $300,000, Some Recent Duke Graduates Out-Earned All Their Peers**\
+`Federal data show Duke alumni earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
+https://www.nytimes.com/2026/10/07/your-money/duke-math-major-salaries.html
+
 **NYT Crossword Answers for Oct. 8, 2026**\
 `Take this puzzle from Rachel Grey and John Kugelman for a spin.`\
 https://www.nytimes.com/2026/10/07/crosswords/daily-puzzle-2026-10-08.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/live/2026/10/07/weather/tropical-storm-isaias-hurricane
 **A.I. Music Fraudster Who Drew Millions in Royalties Is Sentenced to 18 Months**\
 `Prosecutors say Michael Smith flooded music-streaming platforms with bots that repeatedly streamed his A.I.-generated music, earning him as much as $8 million.`\
 https://www.nytimes.com/2026/10/07/arts/music/ai-music-fraud-royalties-sentence.html
-
-**Unlicensed Wellness-Spa Director in Bronx Faces Murder Charge for Fatal Injection**\
-`A 27-year-old woman who received a shot of a longevity supplement at Luis Rojas Cabrera’s office in the Bronx died of an embolism.`\
-https://www.nytimes.com/2026/10/07/nyregion/bronx-wellness-spa-murder-charge-nyc.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\

@@ -1,3 +1,7 @@
+**At Nearly $300,000, Some Recent Duke Graduates Out-Earned All Their Peers**\
+`Federal data show Duke alumni earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
+https://www.nytimes.com/2026/10/07/your-money/duke-math-major-salaries.html
+
 **Oct. 7 Peace Vigil Erupts in Chaos as Protesters Shout at Mamdani**\
 `Mayor Zohran Mamdani arrived to boos from pro-Palestinian marchers who disrupted the event in Manhattan, which was organized by a pro-peace Israeli group.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani

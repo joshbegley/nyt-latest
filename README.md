@@ -1,5 +1,5 @@
 **At Nearly $300,000, Some Recent Duke Graduates Out-Earned All Their Peers**\
-`Federal data show Duke alumni earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
+`Federal data show Duke math majors earning a bigger median income four years after graduation than any other majors from any school. It’s a small cohort.`\
 https://www.nytimes.com/2026/10/07/your-money/duke-math-major-salaries.html
 
 **NYT Crossword Answers for Oct. 8, 2026**\
