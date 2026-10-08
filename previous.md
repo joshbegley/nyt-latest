@@ -1,5 +1,5 @@
 **Judge Throws Out Last Defendant’s Confession in Sept. 11 Case at Guantánamo**\
-`The government is now 5-0 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
+`The government is now 0-5 in its efforts to admit the so-called clean team confessions to the capital cases at Guantánamo Bay.`\
 https://www.nytimes.com/2026/10/07/us/politics/sept-11-case-confession.html
 
 **Florida Court Orders Expungement of Report Criticizing DeSantis Administration**\
