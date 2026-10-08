@@ -1,5 +1,9 @@
+**Cornell Student Wants Attorney General Removed as Prosecutor**\
+`Attorney General Letitia James should step down from leading the investigation into a former student’s allegation that she was sexually assaulted in 2024, a lawyer for one of the men said.`\
+https://www.nytimes.com/2026/10/07/nyregion/cornell-university-case-letita-james.html
+
 **Live Updates: Demonstrators Disrupt Oct. 7 Vigil at Union Square**\
-`A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos in Union Square.`\
+`A candlelight vigil on Wednesday evening organized by Israelis for Peace New York to mourn the victims of the Oct. 7 attack as well as those killed in Gaza descended into chaos.`\
 https://www.nytimes.com/live/2026/10/07/nyregion/nyc-vigil-protests-israel-mamdani
 
 **Margaret Hamilton, Whose Software Guided the Apollo Missions, Has Died**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/07/arts/television/lanterns-john-stewart-hal-jor
 **Man Is Arrested After Fatal Shooting of Girl in Parking Spot Dispute**\
 `Khloe Ishway, 12, was killed when she was caught in the crossfire as two men exchanged gunfire while arguing over a parking spot at a park in Baltimore over the weekend.`\
 https://www.nytimes.com/2026/10/07/us/baltimore-shooting-girl-killed-parking-spot.html
-
-**The Trump Outrages Keep Piling Up**\
-`Readers react to President Trump’s “take out Los Angeles” remarks and his ethics flaws. Also: Climate risk; colleges and A.I.`\
-https://www.nytimes.com/2026/10/07/opinion/trump-los-angeles-ethics.html
 
 **Christa Pike’s Lawyers Say She Is Angry and Confused After Failed Execution**\
 `A Tennessee judge said the state must preserve syringes and other material from the execution chamber a week after Ms. Pike survived two doses of a drug meant to kill her.`\
