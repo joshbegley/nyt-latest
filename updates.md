@@ -1,3 +1,7 @@
+**That Daily Brain Rot Break Is Taking Us Back to the Dark Ages**\
+`Welcome to the postliterate era.`\
+https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
+
 **Warrants to Search Former Prince Andrew’s Properties Were Unlawful, Court Says**\
 `A judge in London said that a “significant error” had been made in the granting of search warrants in an investigation into Andrew Mountbatten-Windsor.`\
 https://www.nytimes.com/2026/10/08/world/europe/prince-andrew-search-warrants-police-uk.html

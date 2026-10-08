@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/10/08/us/politics/uss-abraham-lincoln-san-diego.htm
 `Ellen’s Stardust Diner, where the staff has been belting show tunes for decades, faces fresh competition from a 24-hour newcomer just a block away,`\
 https://www.nytimes.com/2026/10/08/dining/broadway-diners-singing-ellens-stardust.html
 
-**TikTok Is Taking Us Back to the Dark Ages**\
+**That Daily Brain Rot Break Is Taking Us Back to the Dark Ages**\
 `Welcome to the postliterate era.`\
 https://www.nytimes.com/2026/10/08/opinion/interesting-times-podcast-mary-harrington-james-marriott.html
 
