@@ -1,3 +1,7 @@
+**What to Make of Trump’s Uptick in Profanity**\
+`The president’s speech is getting filthier.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html
+
 **Clinical Trial Indicates A.I. Chatbots Could Aid Urgent Care**\
 `Nearly 100 patients discussed their maladies with a Google bot, called AMIE, before meeting with physicians.`\
 https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html

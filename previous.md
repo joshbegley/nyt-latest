@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-1
 `Suggested reading from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
 
-**Trump’s Speech Is Getting Filthier**\
-`What to make of the president’s uptick in profanity?`\
+**What to Make of Trump’s Uptick in Profanity**\
+`The president’s speech is getting filthier.`\
 https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html
 
 **What’s Going On in This Graph? | Oct. 21, 2026**\
