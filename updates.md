@@ -1,3 +1,19 @@
+**Global Trade Proved More Resilient Than Expected This Year, W.T.O. Says**\
+`The World Trade Organization said that the drag on global trade from the war in the Middle East was more than offset by spending on A.I.-related goods.`\
+https://www.nytimes.com/2026/10/08/business/economy/wto-global-trade-resilient.html
+
+**At the Met Opera, Gravity-Defying Feats From an Unlikely Source: Georgian Dancers**\
+`Why include traditional Georgian dance in a production of “Macbeth”? For the opera, the action director wanted something visceral: “I wanted to actually smell the sweat.”`\
+https://www.nytimes.com/2026/10/08/arts/dance/metropolitan-opera-macbeth-georgian-dancers.html
+
+**The Wave of Student Protests Roiling France**\
+`Anger about classroom overcrowding, teacher shortages and broken-down buildings has boiled over in recent weeks, and threatens to coalesce into broader grievances in a heated political season.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
+
+**In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
+`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran have become central to the state’s Senate race.`\
+https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
+
 **The Wave of Student Protests Roiling France**\
 `Anger about classroom overcrowding, teacher shortages and broken-down facilities has boiled over in recent weeks and threatens to coalesce into broader grievances in a heated political season.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests.html
