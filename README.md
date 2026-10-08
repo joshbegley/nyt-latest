@@ -170,7 +170,7 @@ https://www.nytimes.com/video/us/100000011201199/was-jeffrey-epstein-really-suic
 `Seven years after Jeffrey Epstein’s death was ruled a suicide, the theory that Epstein didn’t kill himself is held by many. In this special report, Natalie Kitroeff sits down with the New York Times investigative reporters Jan Ransom, Steve Eder, Michael Rothfeld, and a New York Times Magazine reporter, Charles Homans, to investigate the central questions around Mr. Epstein’s death.`\
 https://www.nytimes.com/video/us/100000011200882/what-really-happened-to-jeffrey-epstein-a-times-investigation.html
 
-**France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
+**France Is Veering Toward a Potential Debt Crisis Amid Protests and Turmoil**\
 `French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
 
