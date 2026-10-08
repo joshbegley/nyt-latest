@@ -1,3 +1,7 @@
+**Hacker Used Chinese-Developed A.I. Tool to Target South Korean Banks, CrowdStrike Says**\
+`The cybersecurity firm said the attacker was likely a Chinese speaker and financially motivated, but did not attribute the attacks to a named individual or group.`\
+https://www.nytimes.com/2026/10/08/world/australia/south-korea-bank-hack-china-us-ai.html
+
 **Myanmar’s Strongman President Is on a Global Quest for Legitimacy. Next Stop, Malaysia.**\
 `After trading his military uniform for civilian clothes, Myanmar’s strongman president, U Min Aung Hlaing, is in Malaysia, his ninth stop on a search for international legitimacy.`\
 https://www.nytimes.com/2026/10/08/world/asia/myanmar-president-malaysia.html
