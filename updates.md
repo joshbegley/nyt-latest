@@ -1,3 +1,7 @@
+**21 Birds Are Found at Miami Airport Stuffed in Underwear and Hidden in a Belt**\
+`Two men, who arrived separately from Cuba days apart, each carried clutches of live birds concealed in their clothes, the authorities said.`\
+https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
+
 **‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
 `Hurricane Isaias could make landfall as soon as Friday afternoon. Residents are making careful choices about whether to leave their homes or stock up and stay.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
