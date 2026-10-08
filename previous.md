@@ -1,3 +1,19 @@
+**Italy Weighs Controversial Law Giving Bonus Seats to Election Winners**\
+`Supporters of the law say it would bring stability to a country with a long history of short-lived governments, but critics see the measure as a threat to democracy.`\
+https://www.nytimes.com/2026/10/08/world/europe/italy-election-law-bonus.html
+
+**Quote of the Day: Outrage in India as 130 Million People Are Wiped From the Voter Rolls**\
+`Quotation of the Day for Thursday, October 8, 2026.`\
+https://www.nytimes.com/2026/10/08/pageoneplus/quote-of-the-day-outrage-in-india-as-130-million-people-are-wiped-from-the-voter-rolls.html
+
+**For France’s Resurgent Far Left, Student Protests Are an Opening and a Threat**\
+`Far-left leaders are cheering on the students. Government officials accuse them of stirring up the unrest for political gain.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-protests-far-left-melenchon.html
+
+**On This Day, Oct. 8: In 1871, the Great Chicago Fire Began**\
+`In 1871, the Great Chicago Fire began, burning through the city for more than a day and destroying much of its center.`\
+https://www.nytimes.com/2026/10/08/learning/on-this-day-oct-8.html
+
 **5 Takeaways From the First Iowa Senate Debate**\
 `In a top Senate battleground, Representative Ashley Hinson, the Republican nominee, sparred with Josh Turek, her Democratic rival, on policy issues ranging from Medicaid to term limits.`\
 https://www.nytimes.com/2026/10/07/us/politics/iowa-senate-debate-ashley-hinson-josh-turek.html
@@ -169,26 +185,6 @@ https://www.nytimes.com/2026/10/07/opinion/twilight-zone-tv-america.html
 **The Local: Our guide to election guides**\
 `Plus, “Wedding Crashers” DVDs have taken over Little Free Libraries in Minneapolis.`\
 https://www.nytimes.com/2026/10/07/briefing/twin-cities-election-guide.html
-
-**Wellness Culture is Coming for Polyester**\
-`Consumers across political and social groups are revolting against synthetic fabrics. The New York Times Styles reporter Yola Mzizi explores the backlash.`\
-https://www.nytimes.com/video/style/100000011173558/wellness-culture-is-coming-for-polyester.html
-
-**A Public Health-Minded Senator Asks: What Comes After Trump and Kennedy?**\
-`Senator Patty Murray, a former chair of the Senate health committee, is forming a group of experts to examine how to insulate the C.D.C. from political interference.`\
-https://www.nytimes.com/2026/10/07/us/politics/patty-murray-public-health.html
-
-**Canada Halts Plan to Allow Medically Assisted Death for the Mentally Ill**\
-`People who have mental illness alone will not qualify for assisted death, but patients who have other conditions and expect to have a cognitive decline can make an advanced request.`\
-https://www.nytimes.com/2026/10/07/world/canada/canada-medically-assisted-death-mental-illness.html
-
-**Before Midterms, Trump Distances Himself From His Political Advisers’ Work Overseas**\
-`President Trump wrote on social media that the advisers, James Blair and Chris LaCivita, serve as “outside consultants” for his political operation.`\
-https://www.nytimes.com/2026/10/07/us/trump-russia-blair-lacivita.html
-
-**F.B.I. Arrests Teen Accused of Plotting Mass Shooting at Mall of America**\
-`A yearslong investigation led federal agents to arrest an 18-year-old in Minnesota this week after he purchased a rifle from an undercover officer.`\
-https://www.nytimes.com/2026/10/07/us/mall-of-america-arrest-shooting-plot.html
 
 **Isaias Becomes a Hurricane On Its Way to the Gulf Coast**\
 `Isaias is the first storm in the Atlantic this year to reach hurricane status. El Niño has kept the season relatively quiet.`\

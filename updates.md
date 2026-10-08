@@ -1,3 +1,19 @@
+**Italy Weighs Controversial Law Giving Bonus Seats to Election Winners**\
+`Supporters of the law say it would bring stability to a country with a long history of short-lived governments, but critics see the measure as a threat to democracy.`\
+https://www.nytimes.com/2026/10/08/world/europe/italy-election-law-bonus.html
+
+**Quote of the Day: Outrage in India as 130 Million People Are Wiped From the Voter Rolls**\
+`Quotation of the Day for Thursday, October 8, 2026.`\
+https://www.nytimes.com/2026/10/08/pageoneplus/quote-of-the-day-outrage-in-india-as-130-million-people-are-wiped-from-the-voter-rolls.html
+
+**For France’s Resurgent Far Left, Student Protests Are an Opening and a Threat**\
+`Far-left leaders are cheering on the students. Government officials accuse them of stirring up the unrest for political gain.`\
+https://www.nytimes.com/2026/10/08/world/europe/france-protests-far-left-melenchon.html
+
+**On This Day, Oct. 8: In 1871, the Great Chicago Fire Began**\
+`In 1871, the Great Chicago Fire began, burning through the city for more than a day and destroying much of its center.`\
+https://www.nytimes.com/2026/10/08/learning/on-this-day-oct-8.html
+
 **5 Takeaways From the First Iowa Senate Debate**\
 `In a top Senate battleground, Representative Ashley Hinson, the Republican nominee, sparred with Josh Turek, her Democratic rival, on policy issues ranging from Medicaid to term limits.`\
 https://www.nytimes.com/2026/10/07/us/politics/iowa-senate-debate-ashley-hinson-josh-turek.html
