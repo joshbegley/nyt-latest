@@ -1,3 +1,7 @@
+**In Maine Senate Race, Spiking Heating Oil Costs Put Susan Collins on Defensive**\
+`Half of homes in Maine rely on heating oil. Rising costs driven up by President Trump’s war with Iran, have become central to the state’s Senate race.`\
+https://www.nytimes.com/2026/10/08/us/maine-senate-collins-jackson-oil.html
+
 **Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
 `Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
 https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
