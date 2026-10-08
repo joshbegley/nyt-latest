@@ -1,3 +1,7 @@
+**This Photo Is an A.I. Fake. Can You Tell?**\
+`We want you to look closely — very closely — at this fake image and spot any errors.`\
+https://www.nytimes.com/interactive/2026/10/08/technology/ai-generated-image-look-close.html
+
 **New to Anne Carson’s Books? Start Here.**\
 `The Canadian poet won this year’s Nobel Prize in Literature. If you’ve never read any of her work, here’s where to start.`\
 https://www.nytimes.com/2026/10/08/books/review/anne-carson-best-books.html
