@@ -1,3 +1,7 @@
+**Escalating Assaults on Ukrainian Cities Are Producing an Enormous Toll**\
+`At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
+https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
+
 **France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
 `French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
 https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
@@ -10,13 +14,13 @@ https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.htm
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
 
-**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
-`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
-https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
-
 **Michelle Obama, Praising Past White House Remodels, Takes Veiled Aim at Trump**\
 `In a new essay, the former first lady writes that the presidency does not come with a “deed to a few acres of prime real estate to remake in our own image.”`\
 https://www.nytimes.com/2026/10/08/arts/michelle-obama-trump-jackie-kennedy-presidential-essays.html
+
+**Amex Supersizes Newark Airport Centurion Lounge Before It Even Opens**\
+`To meet skyrocketing demand, lounge operators like American Express are racing to build bigger, and the Centurion in Newark’s Terminal A will be a giant.`\
+https://www.nytimes.com/2026/10/08/travel/amex-centurion-lounge-newark.html
 
 **The Little-Noticed Exception in Trump Accounts**\
 `Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/the-beast-review-samuel-l-jackson.html
 **‘Matchbox: The Movie’ Review: We Like the Cars That Go Boom**\
 `John Cena is in the driver’s seat of this stilted movie adaptation of the Mattel-brand toy cars.`\
 https://www.nytimes.com/2026/10/08/movies/matchbox-the-movie-review.html
-
-**‘Absolute Nightmare’: Inside the Russian Warehouses Bombarded by Ukraine**\
-`Middle-of-the-night evacuations and fears about death have become the norm for workers at Russian e-commerce companies targeted by Ukraine.`\
-https://www.nytimes.com/2026/10/08/world/europe/russia-wildberries-ozon-warehouse-ukraine-attacks.html
 
