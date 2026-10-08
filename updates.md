@@ -1,3 +1,11 @@
+**France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
+`French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
+https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
+
+**South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
+`President Zelensky revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
+https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
+
 **Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
 `The cause of the explosions on Thursday was unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html

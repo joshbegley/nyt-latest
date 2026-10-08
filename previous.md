@@ -1,3 +1,11 @@
+**France Is Veering Toward a Potential Debt Crisis, a Warning to the World**\
+`French bond investors are demanding sharply higher interest rates, a cautionary development for other high-debt countries.`\
+https://www.nytimes.com/2026/10/08/business/france-bond-yields.html
+
+**South Korea Recalls Envoy From Ukraine in Dispute Over North Korean POWs**\
+`President Zelensky revealed last month that two POWs defected to South Korea. South Korea accused him of breaking a confidentiality agreement.`\
+https://www.nytimes.com/2026/10/08/world/asia/ukraine-south-korea-ambassador.html
+
 **Oil Prices Jump on Outburst of Violence in the Middle East**\
 `Attacks on ships around the Strait of Hormuz have continued as a war between Saudi Arabia and the Houthi militia intensified.`\
 https://www.nytimes.com/2026/10/08/business/iran-war-oil-prices.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/08/movies/matchbox-the-movie-review.html
 **‘Absolute Nightmare’: Inside the Russian Warehouses Bombarded by Ukraine**\
 `Middle-of-the-night evacuations and fears about death have become the norm for workers at Russian e-commerce companies targeted by Ukraine.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-wildberries-ozon-warehouse-ukraine-attacks.html
-
-**‘He’s Not Making Sense’: How Trump Has Alienated Voters for the G.O.P.**\
-`Signs are emerging that dispirited Republican voters may stay home in November, bringing a Democratic surge without many conversions.`\
-https://www.nytimes.com/2026/10/08/us/elections/trump-voter-enthusiasm-midterms.html
-
-**No Longer ‘Underrated,’ Tinashe Steps Into Her Pop Moment**\
-`The singer is getting the best reviews of her career with her new album “Popstar,” and making music that seems to reflect who she is with even greater clarity.`\
-https://www.nytimes.com/2026/10/08/arts/music/tinashe-popstar.html
 
