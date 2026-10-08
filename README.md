@@ -150,13 +150,13 @@ https://www.nytimes.com/2026/10/08/nyregion/nicolas-maduro-venezuela-torture-ame
 `And more beautiful dishes for your fall-dinner consideration.`\
 https://www.nytimes.com/2026/10/08/dining/nigella-lawsons-buttermilk-roast-chicken.html
 
-**Trump Wants to Decide Who Counts. And Who Doesn’t.**\
-`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
-https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
-
 **As Flood Risk Increases in Himalayas, Nepal Builds More in Vulnerable Areas**\
 `The total footprint of buildings along flood-prone riverbanks in the Himalayas grew by half in recent years, a study found.`\
 https://www.nytimes.com/2026/10/08/climate/nepal-floods-building-exposure.html
+
+**Trump Wants to Decide Who Counts. And Who Doesn’t.**\
+`Rewriting the rules for counting the population is yet another way to marginalize minorities.`\
+https://www.nytimes.com/2026/10/08/opinion/trump-census-immigrants-redistricting.html
 
 **In Trump’s Russian Oil Deal, Middle East Funds Are the Biggest Owners**\
 `A majority of ownership in a proposed multibillion-dollar deal would go to a group of Middle Eastern investors, including some with business ties to U.S. negotiators.`\

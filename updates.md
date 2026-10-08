@@ -1,3 +1,11 @@
+**Trump Administration Considers Using Ships to Deport Immigrants**\
+`Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
+https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
+
+**Trump Administration Suspends Microsoft From Green Card Program, Alleging Visa Fraud**\
+`Vice President JD Vance singled out the tech firm as he and other officials accused an array of companies and universities of committing visa fraud.`\
+https://www.nytimes.com/2026/10/08/us/politics/microsoft-visas-green-cards.html
+
 **French Students Take to the Streets as Government Seeks Way Out of Crisis**\
 `Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
