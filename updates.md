@@ -1,3 +1,11 @@
+**Federal Agents Shot Man in New York City, Police Say**\
+`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
+https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
+
+**How Trump Has Alienated Republican Voters**\
+`Plus, a big debate night in Senate battlegrounds.`\
+https://www.nytimes.com/2026/10/08/us/politics/trump-republican-voters.html
+
 **Fort Hood Shooter’s Execution Will be Public and Streamed Live, Pentagon Says**\
 `If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
 https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html

@@ -1,3 +1,11 @@
+**Federal Agents Shot Man in New York City, Police Say**\
+`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
+https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
+
+**How Trump Has Alienated Republican Voters**\
+`Plus, a big debate night in Senate battlegrounds.`\
+https://www.nytimes.com/2026/10/08/us/politics/trump-republican-voters.html
+
 **Fort Hood Shooter’s Execution Will be Public and Streamed Live, Pentagon Says**\
 `If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
 https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.htm
 **Margaret Papandreou, American-Born First Lady of Greece, Dies at 102**\
 `The wife of Prime Minister Andreas Papandreou, she led reforms in the 1980s that helped legalize abortion and end other legal and social restrictions on women.`\
 https://www.nytimes.com/2026/10/08/world/europe/margaret-papandreou-dead.html
-
-**A Photo of Mussolini’s Corpse Led Page 1. How It Got There Is a Tale.**\
-`It took a perilous trip through an Alpine blizzard to show the world the dictator was dead.`\
-https://www.nytimes.com/2026/10/08/world/europe/mussolini-corpse-photo.html
-
-**The Blood of the Dawnwalker Is a Gripping Vampire R.P.G.**\
-`The Blood of the Dawnwalker is a gripping R.P.G. exploration of power and violence.`\
-https://www.nytimes.com/2026/10/08/arts/the-blood-dawnwalker-review.html
 
