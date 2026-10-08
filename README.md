@@ -1,3 +1,7 @@
+**Blasts Rattle Riyadh as Saudi Arabia Hit By Deadliest Houthi Attacks So Far**\
+`The cause of the explosions on Thursday morning remains unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
+https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
+
 **A Failed Execution and the Future of the Death Penalty**\
 `Tennessee paused executions after Christa Pike survived two doses of a lethal injection.`\
 https://www.nytimes.com/2026/10/08/podcasts/the-daily/pike-execution-death-penalty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/business/100000011168809/can-your-college-affect-y
 **Should I Marry a Man Who Won’t Touch Me?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a 65-year-old reader who loves her partner but is physically and emotionally unsatisfied.`\
 https://www.nytimes.com/2026/10/08/well/mind/platonic-engagement-sex-emotion-touch-starved.html
-
-**Sweden Has 267,570 Islands. I Walked Across 20 of Them.**\
-`Traveling through the Stockholm Archipelago on foot meant watching everyone else sail by. It also meant unraveling the maze of lives and experiences that shaped it.`\
-https://www.nytimes.com/2026/10/08/magazine/stockholm-archipelago-trail.html
 
