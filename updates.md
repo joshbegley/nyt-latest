@@ -1,3 +1,11 @@
+**The Little-Noticed Exception in Trump Accounts**\
+`Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
+https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html
+
+**Trump’s White House Ban on CNN, Politico and MS Now: What to Know**\
+`A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
+https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
+
 **Canadian Poet Anne Carson Is Awarded Nobel Prize in Literature**\
 `The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html

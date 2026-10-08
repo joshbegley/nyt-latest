@@ -1,3 +1,7 @@
+**The Little-Noticed Exception in Trump Accounts**\
+`Wealthy donors and companies can donate individual stocks to the new investment accounts for millions of children. That has raised legal questions.`\
+https://www.nytimes.com/2026/10/08/business/dealbook/trump-accounts-stocks.html
+
 **Canadian Poet Anne Carson Is Awarded Nobel Prize in Literature**\
 `The writer joins a list of laureates that includes Toni Morrison, Samuel Beckett and Bob Dylan.`\
 https://www.nytimes.com/2026/10/08/books/nobel-prize-literature.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/10/08/podcasts/john-wilson-on-how-to-make-a-documen
 `The real-world consequences of the Roberts court are coming into view.`\
 https://www.nytimes.com/2026/10/08/opinion/alito-supreme-court-deportation-colorado.html
 
-**Why a Court Order Didn’t Stop Trump From Keeping Reporters Off Air Force One**\
+**Trump’s White House Ban on CNN, Politico and MS Now: What to Know**\
 `A judge temporarily blocked the president from barring journalists from White House grounds, but they are being excluded in other ways.`\
 https://www.nytimes.com/2026/10/08/business/media/trump-cnn-ms-now-politico-ban.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/08/learning/how-concerned-are-you-about-the-grow
 **At a Potato Festival, Our Berlin Reporter Deepened His Ties to a New Land**\
 `The annual Kartoffelfest was a chance to update family traditions, with an American baby born abroad.`\
 https://www.nytimes.com/2026/10/08/world/europe/germany-potato-festival.html
-
-**The Fresh Charms of Art From the 15th Century**\
-`At the Met, an exhibition of 16 pieces transports viewers to a place and time when the virtues of artworks were refreshingly different from ours today.`\
-https://www.nytimes.com/2026/10/08/arts/design/della-robbia-the-met-exhibit.html
 
