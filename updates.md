@@ -1,3 +1,7 @@
+**Charles K. Williams II, Pioneering Archaeologist in Corinth, Has Died**\
+`Charles K. Williams II spent most of his career excavating sites in Corinth, including one where he found thousands of fragments of Roman frescoes.`\
+https://www.nytimes.com/2026/10/08/obituaries/charles-williams-ii-dead.html
+
 **Escalating Assaults on Ukrainian Cities Are Producing an Enormous Toll**\
 `At least 30 people were killed in a Russian strike on a commuter bus in the country’s east, officials said, a day after an attack on an apartment building far behind the combat zone killed 22.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html
