@@ -1,3 +1,7 @@
+**India’s Cockroach Party Leader Carries Gen Z’s Demands. They Are Many.**\
+`Abhijeet Dipke started the movement as a joke. But after ousting a minister over a dysfunctional college entrance exam system, India’s youth say they now want to save democracy.`\
+https://www.nytimes.com/2026/10/08/world/asia/india-cockroach-janta-party.html
+
 **How India’s Gen Z Protests Inspired Gen Alpha**\
 `India’s youngest students are staging sit-ins and protesting the run-down conditions of their schools, drawing inspiration from the Gen Z protests that roiled the country this summer.`\
 https://www.nytimes.com/video/world/asia/100000011164923/india-school-protests-gen-alpha.html
