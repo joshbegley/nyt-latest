@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/10/08/briefing/america-in-retreat.html
 `The new runway in Ban Keun is currently used by only small jets. Neighboring nations are watching warily to see if Beijing expands it for larger aircraft.`\
 https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html
 
-**Blasts Rattle Riyadh as Saudi Arabia Hit By Deadliest Houthi Attacks So Far**\
-`The cause of the explosions on Thursday morning remains unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
+**Blasts Rattle Riyadh as Saudi Arabia Hit by Deadliest Houthi Attacks So Far**\
+`The cause of the explosions on Thursday was unclear. Saudi Arabia is on edge a day after the authorities said Houthi strikes on two airports had killed three people.`\
 https://www.nytimes.com/2026/10/08/world/middleeast/saudi-yemen-houthis-attack.html
 
 **A Failed Execution and the Future of the Death Penalty**\
@@ -186,13 +186,13 @@ https://www.nytimes.com/2026/10/08/movies/the-beast-review-samuel-l-jackson.html
 `John Cena is in the driver’s seat of this stilted movie adaptation of the Mattel-brand toy cars.`\
 https://www.nytimes.com/2026/10/08/movies/matchbox-the-movie-review.html
 
-**‘He’s Not Making Sense’: How Trump Has Alienated Voters for the G.O.P.**\
-`Signs are emerging that dispirited Republican voters may stay home in November, bringing a Democratic surge without many conversions.`\
-https://www.nytimes.com/2026/10/08/us/elections/trump-voter-enthusiasm-midterms.html
-
 **‘Absolute Nightmare’: Inside the Russian Warehouses Bombarded by Ukraine**\
 `Middle-of-the-night evacuations and fears about death have become the norm for workers at Russian e-commerce companies targeted by Ukraine.`\
 https://www.nytimes.com/2026/10/08/world/europe/russia-wildberries-ozon-warehouse-ukraine-attacks.html
+
+**‘He’s Not Making Sense’: How Trump Has Alienated Voters for the G.O.P.**\
+`Signs are emerging that dispirited Republican voters may stay home in November, bringing a Democratic surge without many conversions.`\
+https://www.nytimes.com/2026/10/08/us/elections/trump-voter-enthusiasm-midterms.html
 
 **No Longer ‘Underrated,’ Tinashe Steps Into Her Pop Moment**\
 `The singer is getting the best reviews of her career with her new album “Popstar,” and making music that seems to reflect who she is with even greater clarity.`\
