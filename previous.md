@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/10/08/world/europe/spain-protests-maricarmen-housin
 https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
 
 **‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
-`Hurricane Isaias could make landfall as soon as Friday afternoon. Residents are making careful choices about whether to leave their homes or stock up and stay.`\
+`Residents are making careful choices about whether to leave their homes or stock up and stay.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
 
 **Russia Increases Attacks on Ukraine Using an Updated Arsenal**\

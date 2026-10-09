@@ -1,3 +1,7 @@
+**‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
+`Residents are making careful choices about whether to leave their homes or stock up and stay.`\
+https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
+
 **Is It Fashionable to Be Narcissistic Now? Questions and Takeaways From Fashion Month.**\
 `T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
 https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
