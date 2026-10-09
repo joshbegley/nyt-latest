@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
-`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies at a news conference, and highlighted the victim’s criminal record.`\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. At a news conference, Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies, lashed out at Mayor Zohran Mamdani and highlighted the victim’s criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\

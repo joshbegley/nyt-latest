@@ -1,3 +1,15 @@
+**Corrections: Oct. 9, 2026**\
+`The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
+https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
+
+**Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies at a news conference, and highlighted the victim’s criminal record.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
+**Intelligence Isn’t Power**\
+`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
+https://www.nytimes.com/2026/10/09/opinion/ezra-klein-podcast-arvind-narayanan.html
+
 **Live Updates: Criticism Mounts After ICE Shooting in New York City**\
 `A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
