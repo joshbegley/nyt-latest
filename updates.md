@@ -1,3 +1,11 @@
+**5 Key Moments From Hostile Michigan Senate Debate Between El-Sayed and Rogers**\
+`Slashing personal attacks dominated the first televised face-off between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and former Representative Mike Rogers, his Republican rival.`\
+https://www.nytimes.com/2026/10/08/us/politics/michigan-senate-debate-moments-el-sayed-rogers.html
+
+**ICE Agent Shoots and Wounds Man in New York City**\
+`Federal officials said that they were attempting to detain an undocumented Dominican immigrant. Their statement did not indicate what might have prompted the shooting.`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **5 Key Moments From a Testy Maine Senate Debate**\
 `The second debate between Senator Susan Collins, a vulnerable Republican, and Troy Jackson, her Democratic challenger, quickly grew heated.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-debate-key-moments.html
