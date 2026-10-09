@@ -1,3 +1,35 @@
+**Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
+`Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
+https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
+
+**A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
+`A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
+https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
+
+**Their Ice Cream Date Lasted Over Four Hours**\
+`From quiet glances in UConn classrooms to Capitol Hill internships, Megan Handau and Lucas Bladen built a bond rooted in steady support and shared ambition.`\
+https://www.nytimes.com/2026/10/09/style/megan-handau-lucas-bladen-wedding.html
+
+**She Turned to Witchcraft to Save the Wedding. It Sort of Worked.**\
+`Synclaire Warren, a feminist creator admired by Gloria Steinem, married Shane Clancy during the nor’easter last month.`\
+https://www.nytimes.com/2026/10/09/style/synclaire-warren-shane-clancy-wedding.html
+
+**When Breaking Up Means Going from One Bed to Bunk Beds**\
+`Our apartment was tiny. We decided to keep living together. Were we too old for a bunk bed?`\
+https://www.nytimes.com/2026/10/09/style/modern-love-when-breaking-up-means-going-from-one-bed-to-bunk-beds.html
+
+**She Lost Her Boyfriend, Her Job and a TV Gig. Then She Found Love.**\
+`Feeling down on her luck, Bayleigh Pelham booked a last-minute trip to Sayulita, Mexico — which is exactly where she met Stephanie Cassano.`\
+https://www.nytimes.com/2026/10/09/style/stephanie-cassano-bayleigh-pelham-wedding.html
+
+**A Decade After Meeting, They Were a ‘Happy Family’ of Four**\
+`Sarah Willis and Peter Timmins met in 2016, but didn’t start dating until she saw his dating profile a year later.`\
+https://www.nytimes.com/2026/10/09/style/sarah-willis-peter-timmins-wedding.html
+
+**On This Day, Oct. 9: In 1967, Che Guevara Was Executed**\
+`In 1967, Che Guevara, a communist revolutionary and prominent leader of the Cuban Revolution, was executed by Bolivian soldiers after being captured while leading a failed guerrilla campaign in Bolivia.`\
+https://www.nytimes.com/2026/10/09/learning/on-this-day-oct-9.html
+
 **5 Key Moments From Hostile Michigan Senate Debate Between El-Sayed and Rogers**\
 `Slashing personal attacks dominated the first televised face-off between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and former Representative Mike Rogers, his Republican rival.`\
 https://www.nytimes.com/2026/10/08/us/politics/michigan-senate-debate-moments-el-sayed-rogers.html
@@ -153,36 +185,4 @@ https://www.nytimes.com/2026/10/08/world/europe/united-nations-technology-warnin
 **Min Jin Lee Says Choosing Community Is Radical**\
 `Min Jin Lee, the author of “American Hagwon,” joined “The Book Review” podcast to talk about how building bonds and community can be a strategy for survival.`\
 https://www.nytimes.com/video/books/review/100000011203440/min-jin-lee-says-choosing-community-is-radical.html
-
-**Cecily Gemmell, Winston Churchill’s Last Surviving Secretary, Has Died**\
-`Starting with the British leader at age 18, she traveled the world with him. “I was terrified of him,” she later recalled.`\
-https://www.nytimes.com/2026/10/08/world/europe/cecily-gemmell-dead.html
-
-**U.S.S. Abraham Lincoln Returns to San Diego After Near-Record Deployment**\
-`The aircraft carrier U.S.S. Abraham Lincoln returned to its home port of San Diego on Thursday after a 322-day deployment in support of the Iran war.`\
-https://www.nytimes.com/video/us/100000011203050/uss-abraham-lincoln-san-diego.html
-
-**Down With the Small Plate**\
-`(No description)`\
-https://www.nytimes.com/2026/10/08/dining/big-plates.html
-
-**Hillary Clinton, Chloe Fineman and Esther Perel Toast Argent, and the Pantsuit**\
-`At an evening to celebrate a decade of the brand Argent, over a hundred women suited up.`\
-https://www.nytimes.com/2026/10/08/style/argent-pantsuit-celebration.html
-
-**5-Year-Old Dies After Digital Whiteboard Falls in School Classroom**\
-`Bellamy Dawkins-Morris died at a hospital after a 120-pound display board fell on him at Riviera Elementary School in Palm Bay, Fla.`\
-https://www.nytimes.com/2026/10/08/us/florida-boy-display-board-death.html
-
-**Tom Cruise, Climate Warrior?**\
-`Despite whatever else is going on with the film, “Digger” is one of the most audacious attempts yet to spread awareness about global warming.`\
-https://www.nytimes.com/2026/10/08/climate/tom-cruise-digger.html
-
-**C.D.C. Offers States $100 Million in Measles Support as Cases Climb**\
-`States said the cash infusion will help bolster efforts to increase vaccinations and identify cases.`\
-https://www.nytimes.com/2026/10/08/well/measles-pennsylvania-new-york-cdc.html
-
-**Protesters Interrupt President Trump At San Antonio Rally**\
-`Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
-https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
 

@@ -1,3 +1,35 @@
+**Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
+`Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
+https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
+
+**A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
+`A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
+https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
+
+**Their Ice Cream Date Lasted Over Four Hours**\
+`From quiet glances in UConn classrooms to Capitol Hill internships, Megan Handau and Lucas Bladen built a bond rooted in steady support and shared ambition.`\
+https://www.nytimes.com/2026/10/09/style/megan-handau-lucas-bladen-wedding.html
+
+**She Turned to Witchcraft to Save the Wedding. It Sort of Worked.**\
+`Synclaire Warren, a feminist creator admired by Gloria Steinem, married Shane Clancy during the nor’easter last month.`\
+https://www.nytimes.com/2026/10/09/style/synclaire-warren-shane-clancy-wedding.html
+
+**When Breaking Up Means Going from One Bed to Bunk Beds**\
+`Our apartment was tiny. We decided to keep living together. Were we too old for a bunk bed?`\
+https://www.nytimes.com/2026/10/09/style/modern-love-when-breaking-up-means-going-from-one-bed-to-bunk-beds.html
+
+**She Lost Her Boyfriend, Her Job and a TV Gig. Then She Found Love.**\
+`Feeling down on her luck, Bayleigh Pelham booked a last-minute trip to Sayulita, Mexico — which is exactly where she met Stephanie Cassano.`\
+https://www.nytimes.com/2026/10/09/style/stephanie-cassano-bayleigh-pelham-wedding.html
+
+**A Decade After Meeting, They Were a ‘Happy Family’ of Four**\
+`Sarah Willis and Peter Timmins met in 2016, but didn’t start dating until she saw his dating profile a year later.`\
+https://www.nytimes.com/2026/10/09/style/sarah-willis-peter-timmins-wedding.html
+
+**On This Day, Oct. 9: In 1967, Che Guevara Was Executed**\
+`In 1967, Che Guevara, a communist revolutionary and prominent leader of the Cuban Revolution, was executed by Bolivian soldiers after being captured while leading a failed guerrilla campaign in Bolivia.`\
+https://www.nytimes.com/2026/10/09/learning/on-this-day-oct-9.html
+
 **Midterms Updates: Senate Race in Michigan Turns Heated and Personal**\
 `The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
