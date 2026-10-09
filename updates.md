@@ -1,3 +1,11 @@
+**The Fallout From OpenAI’s Revenue Surprise**\
+`News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
+https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
+
+**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
+`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **Nobel Prize Winners Don’t Get a Heads-Up**\
 `Navi Pillay wasn’t the first Nobel laureate that the prize committees have struggled to reach. Many weren’t even awake when the news broke.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
