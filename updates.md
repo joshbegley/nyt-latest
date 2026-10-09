@@ -1,3 +1,7 @@
+**On Texas TikTok, It’s All About Talarico**\
+`There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
+https://www.nytimes.com/interactive/2026/10/09/business/tiktok-texas-senate-talarico-paxton-midterms.html
+
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates

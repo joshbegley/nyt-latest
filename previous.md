@@ -1,3 +1,7 @@
+**On Texas TikTok, It’s All About Talarico**\
+`There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
+https://www.nytimes.com/interactive/2026/10/09/business/tiktok-texas-senate-talarico-paxton-midterms.html
+
 **The Fallout From OpenAI’s Revenue Surprise**\
 `News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
 https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/learning/15-minute-lesson-plan-look-of-the-we
 **Jonathan Blow Made 500 Hours of Puzzles to Explode Your Mind**\
 `Jonathan Blow has wondered since childhood about how the universe runs. In his new game, Order of the Sinking Star, players can join in his obsession.`\
 https://www.nytimes.com/2026/10/09/arts/jonathan-blow-order-of-the-sinking-star.html
-
-**Inside Ken Paxton’s Private Testimony About His Money**\
-`A leaked deposition from a fraud inquiry in 2014 provides insight into the Senate candidate’s growing wealth and his tactics for defending himself.`\
-https://www.nytimes.com/2026/10/09/us/ken-paxton-deposition-investments.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
