@@ -2,7 +2,7 @@
 `T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
 https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
 
-**Federal Agents Shot Man in New York City, Police Say**\
+**Federal Agents Shot Man in New York City**\
 `Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
 https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
 
