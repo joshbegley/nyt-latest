@@ -1,3 +1,7 @@
+**At Frieze London, the People Who Make It All Work**\
+`Behind the scenes, it takes a small army of players to pull off the art fair. Here is a look at four of them.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-workers.html
+
 **Beyond the London Fairs: Even More Art**\
 `The museums and galleries have much to offer those coming to Frieze London.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/09/style/fall-shopping-guide.html
 **Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
 `He was the author of more than a dozen books. “He knew every writer in New York,” Robert A. Caro said.`\
 https://www.nytimes.com/2026/10/09/obituaries/sidney-offit-dead.html
-
-**Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
-`Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

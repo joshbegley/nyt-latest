@@ -1,3 +1,27 @@
+**Beyond the London Fairs: Even More Art**\
+`The museums and galleries have much to offer those coming to Frieze London.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html
+
+**Fort Hood Shooter’s Execution Could Face Challenge in Federal Courts**\
+`Legal experts say the former Army officer convicted in a 2009 mass shooting could face a narrow, rushed path to appeal a public execution by firing squad.`\
+https://www.nytimes.com/2026/10/09/us/politics/fort-hood-execution-legal-challenges.html
+
+**Gabriel Orozco Shows New Art In London**\
+`A conversation with Gabriel Orozco, who will be showing a sprawling body of work, both old and new, in London.`\
+https://www.nytimes.com/2026/10/09/arts/design/gabriel-orozco-show-london.html
+
+**Sotheby’s Soars as Galleries Struggle in Britain’s Art World**\
+`As auction houses like Sotheby’s move millions of dollars of art, some high-profile galleries struggle.`\
+https://www.nytimes.com/2026/10/09/arts/design/london-art-scene-frieze.html
+
+**Katie Zacharia Picked as Trump’s New White House Press Secretary**\
+`Ms. Zacharia is a conservative commentator who is also an adviser to the company that runs President Trump’s social media site, Truth Social. She succeeds Karoline Leavitt.`\
+https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
+
+**James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, said that he had been home in bed with “a nasty case of the flu.”`\
+https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
+
 **In the Shadows of the Art World, an Invisible Industry Operates**\
 `Right now, hundreds of artworks worth millions are making their way across the world. These people make the travel arrangements.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-art-shipping.html
