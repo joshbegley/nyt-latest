@@ -1,5 +1,5 @@
 **Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
-`Isaias is forecast to make landfall on late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
+`Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
 **Weather Balloons Help Build a Picture of Hurricane Isaias**\
