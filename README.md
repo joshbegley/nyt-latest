@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
 
 **ICE Shooting in New York: What We Know**\
-`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing the city.”`\
+`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
 
 **F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
 `Hard Fork Full Episode #216`\
 https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-ai-morals.html
 
-**Houthi Attacks on Riyadh Airport Leave 3 Dead, Saudi Arabia Says**\
+**Days of Deadly Houthi Attacks Show Saudi Arabia’s Vulnerabilities**\
 `The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
 
