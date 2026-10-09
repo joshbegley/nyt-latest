@@ -1,3 +1,7 @@
+**ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
+`The man was in a car with a 5-year-old boy in the back seat when he was shot, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **ICE Agent in New York Shoots Man in Car**\
 `An ICE agent shot a man, who federal officials said was an undocumented Dominican immigrant, on Thursday in the Marble Hill neighborhood of New York City.`\
 https://www.nytimes.com/video/nyregion/100000011204302/nyc-ice-shooting.html
