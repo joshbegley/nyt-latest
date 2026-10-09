@@ -1,3 +1,11 @@
+**Labour Holds Off Green Party in Election for Starmer’s Former London Seat**\
+`Sagal Abdi-Wali won a special election in central London that was seen as an early test for Prime Minister Andy Burnham, Keir Starmer’s successor.`\
+https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk-result.html
+
+**Here Is How to Bring Israel Out of Isolation**\
+`Many Israelis are hopeful that a new government would ease the growing distance between their country and the rest of the world.`\
+https://www.nytimes.com/2026/10/09/opinion/israel-elections-palestinians.html
+
 **ICE Agent Shoots and Wounds Man in New York City**\
 `Federal officials said that they were attempting to detain an undocumented immigrant. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html

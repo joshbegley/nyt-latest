@@ -1,3 +1,11 @@
+**Labour Holds Off Green Party in Election for Starmer’s Former London Seat**\
+`Sagal Abdi-Wali won a special election in central London that was seen as an early test for Prime Minister Andy Burnham, Keir Starmer’s successor.`\
+https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk-result.html
+
+**Here Is How to Bring Israel Out of Isolation**\
+`Many Israelis are hopeful that a new government would ease the growing distance between their country and the rest of the world.`\
+https://www.nytimes.com/2026/10/09/opinion/israel-elections-palestinians.html
+
 **Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
 `Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
 https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/08/us/midterm-senate-race-debates-how-to-watch.h
 **Behind South Korea’s Competitive Education System**\
 `On “The Book Review” podcast, Min Jin Lee, the author of “Pachinko” and “American Hagwon,” explains how losing social safety nets after 1997 reshaped Korean culture into an intense educational race.`\
 https://www.nytimes.com/video/books/review/100000011203524/behind-south-koreas-competitive-education-system.html
-
-**U.N. Warns Against Technology Used to Read Citizens’ Minds**\
-`A report by the secretary-general warned that new technologies could be used to access and criminalize people’s innermost thoughts.`\
-https://www.nytimes.com/2026/10/08/world/europe/united-nations-technology-warning.html
-
-**Min Jin Lee Says Choosing Community Is Radical**\
-`Min Jin Lee, the author of “American Hagwon,” joined “The Book Review” podcast to talk about how building bonds and community can be a strategy for survival.`\
-https://www.nytimes.com/video/books/review/100000011203440/min-jin-lee-says-choosing-community-is-radical.html
 
