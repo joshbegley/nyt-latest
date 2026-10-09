@@ -1,3 +1,7 @@
+**The Kennedy Center Appoints an Artistic Director Amid Turmoil**\
+`Though the center has said it plans only limited programming during a two-year renovation, it has named a new leader to oversee its concerts and shows.`\
+https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
+
 **Marina Abramović on Her Personal Greats**\
 `The artist Marina Abramović discusses everything from her favorite TV show to her biggest regret in life.`\
 https://www.nytimes.com/video/t-magazine/100000011205035/marina-abramovic-on-her-personal-greats.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thi
 `As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
 https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
 
-**The Fashions: The urge to shop**\
-`Let’s come back to reality* (*look at some things we really want, available this season).`\
+**The Urge to Shop**\
+`Let’s come back to reality (and look at some things we really want, available this season).`\
 https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
 
 **Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
 
 **DeSantis Takes Issue With Hurricane Isaias’s Name**\
-`The Florida governor and another state official took issue with Isaias, though the name was also used six years ago.`\
+`The Florida governor and another state official took issue with the common Spanish name, Isaias.`\
 https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
 
 **Trump Sends Obamacare ‘Refund’ Checks Ahead of Midterm Elections**\
@@ -170,13 +174,9 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 `The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
-**Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
-`(No description)`\
+**Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
+`The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
-
-**On Texas TikTok, It’s All About Talarico**\
-`There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
-https://www.nytimes.com/interactive/2026/10/09/us/politics/tiktok-texas-senate-talarico-paxton-midterms.html
 
 **Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

@@ -1,3 +1,19 @@
+**The Kennedy Center Appoints an Artistic Director Amid Turmoil**\
+`Though the center has said it plans only limited programming during a two-year renovation, it has named a new leader to oversee its concerts and shows.`\
+https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
+
+**The Urge to Shop**\
+`Let’s come back to reality (and look at some things we really want, available this season).`\
+https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
+
+**DeSantis Takes Issue With Hurricane Isaias’s Name**\
+`The Florida governor and another state official took issue with the common Spanish name, Isaias.`\
+https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
+
+**Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
+`The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Marina Abramović on Her Personal Greats**\
 `The artist Marina Abramović discusses everything from her favorite TV show to her biggest regret in life.`\
 https://www.nytimes.com/video/t-magazine/100000011205035/marina-abramovic-on-her-personal-greats.html
