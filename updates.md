@@ -1,3 +1,7 @@
+**Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
+`Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
+
 **Kansas Senate Race Is a Surprising New Midterm Fight**\
 `Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html

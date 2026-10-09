@@ -1,3 +1,7 @@
+**Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
+`Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
+
 **Kansas Senate Race Is a Surprising New Midterm Fight**\
 `Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.
 **Why France Is in Crisis**\
 `An autumn of discontent has gripped the country before its presidential election.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html
-
-**Is Mahomes Still the Best?**\
-`The crew debates the NFL’s top quarterback and more.`\
-https://www.nytimes.com/2026/10/09/podcasts/mahomes-nfl-trading.html
 
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
