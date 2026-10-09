@@ -1,3 +1,7 @@
+**Trump Casts Himself as Columbus’s Protector in Pitch to Italian Americans**\
+`President Trump sought to inject the Genoese explorer into the current political conversation.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.html
+
 **Senate Fact Finders Decry Costs of Immigrant Detention at Guantánamo**\
 `The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
 https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/09/us/ocasio-cortez-el-sayed-michigan-senate.htm
 **Top Democratic Group Pumps Millions Into Kansas Senate Race**\
 `The $5 million investment from the main super PAC for Senate Democrats is a sign that party leaders see a path to winning in another red state as the political environment worsens for Republicans.`\
 https://www.nytimes.com/2026/10/09/us/politics/adam-hamilton-roger-marshall-kansas-senate.html
-
-**Flashback: Your Weekly History Quiz, Oct. 10, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
