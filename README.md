@@ -1,3 +1,7 @@
+**Beyond the London Fairs: Even More Art**\
+`The museums and galleries have much to offer those coming to Frieze London.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html
+
 **Fort Hood Shooter’s Execution Could Face Challenge in Federal Courts**\
 `Legal experts say the former Army officer convicted in a 2009 mass shooting could face a narrow, rushed path to appeal a public execution by firing squad.`\
 https://www.nytimes.com/2026/10/09/us/politics/fort-hood-execution-legal-challenges.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
 
 **Katie Zacharia Picked as Trump’s New White House Press Secretary**\
-`Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
+`Ms. Zacharia is a conservative commentator who is also an adviser to the company that runs President Trump’s social media site, Truth Social. She succeeds Karoline Leavitt.`\
 https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
 
 **The Andrew Edmunds Collection Is for Sale at Frieze Masters**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/09/obituaries/sidney-offit-dead.html
 **Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
 `Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
-
-**Kansas Senate Race Is a Surprising New Midterm Fight**\
-`Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
-https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
