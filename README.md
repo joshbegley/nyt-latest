@@ -186,13 +186,13 @@ https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
 `The delay, outlined in a letter to France, comes as Fatah, the governing party, is suffering from deep internal rifts.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/palestinian-authority-elections-west-bank-postponed.html
 
-**Karol G on Cultural Appropriation in Latin Music**\
-`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
-https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
-
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
+`The hurricane is forecast to make landfall Friday evening. Officials have issued mandatory evacuation orders along parts of the northwest Florida coast, and visitors in parts of coastal Alabama have also been asked to leave.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
 **Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
