@@ -1,3 +1,7 @@
+**Kansas Senate Race Is a Surprising New Midterm Fight**\
+`Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
+https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
+
 **DeSantis Takes Issue With Hurricane Isaias’s Name**\
 `The Florida governor and another state official took issue with Isaias, though the name was also used six years ago.`\
 https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html

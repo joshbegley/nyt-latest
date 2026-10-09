@@ -1,3 +1,7 @@
+**Kansas Senate Race Is a Surprising New Midterm Fight**\
+`Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
+https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
+
 **DeSantis Takes Issue With Hurricane Isaias’s Name**\
 `The Florida governor and another state official took issue with Isaias, though the name was also used six years ago.`\
 https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-pro
 **Is Mahomes Still the Best?**\
 `The crew debates the NFL’s top quarterback and more.`\
 https://www.nytimes.com/2026/10/09/podcasts/mahomes-nfl-trading.html
-
-**The 2026 Nobel Peace Prize Winner, and the Pentagon’s Plan to Livestream an Execution**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/10/09/podcasts/the-headlines/nobel-peace-prize-livestream-execution.html
 
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
