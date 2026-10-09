@@ -1,3 +1,7 @@
+**Hurricane Isaias: What Travelers Need to Know**\
+`The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
+https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
+
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc

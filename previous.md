@@ -1,3 +1,7 @@
+**Hurricane Isaias: What Travelers Need to Know**\
+`The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
+https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
+
 **Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
 `Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
 https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
 **Trump Administration Hits International Criminal Court With Severe Sanctions**\
 `U.S. officials announced the new, sweeping punishments just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
-
-**Can You Make Enchiladas With Flour Tortillas?**\
-`A ruling on a home-cooking dispute.`\
-https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
