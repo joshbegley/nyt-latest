@@ -1,3 +1,7 @@
+**Live Updates: Nobel Peace Prize Winner to Be Announced**\
+`The recipient of the prize, one of the world’s most prestigious honors, is set to be announced on Friday morning in Oslo. The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
 `The man was in a car with a 5-year-old in the back seat when he was shot and wounded, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
