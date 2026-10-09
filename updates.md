@@ -1,3 +1,19 @@
+**How A.I. Could Make Work Worse**\
+`As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
+https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
+
+**Anthropic Says Its A.I. Agents Attempted to Access a Range of Government Sites**\
+`The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
+https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
+
+**7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region.`\
+https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
+
+**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
+`Darkness fell across mostly deserted beach towns as power outages multiplied, and the strongest part of the Category 3 storm began to move onshore.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Anthropic Say Its A.I. Agents Attempted to Access a Range of Government Sites**\
 `The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
 https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
