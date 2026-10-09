@@ -1,9 +1,21 @@
+**F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
+`The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
+https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
+
+**China and Europe Agree to Deal to Limit Chinese Exports of Hybrid Cars**\
+`The European Union said that the deal could roughly halve Chinese shipments over four years. But it also could lead to an even stronger Chinese auto industry.`\
+https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
+
+**Trump Announces White House Inquiry into Fed Governor Cook**\
+`President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
+https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
+
 **How Correspondent Banking Can Enable Sanctions Evasion**\
 `The correspondent system for banking has enabled globalism — and has been exploited by companies trying to skirt U.S. sanctions.`\
 https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctions-evasion.html
 
 **Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
-`Fourteen authors in the New Directions stable have been awarded the Nobel Prize in Literature, including this year and last. How does this small independent press pack such a punch?`\
+`Fourteen authors in the New Directions stable have received the Nobel Prize in Literature, including this year and last. How does this small press pack such a punch?`\
 https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
 
 **Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
@@ -161,18 +173,6 @@ https://www.nytimes.com/2026/10/09/magazine/cornell-sexual-assault-feminism.html
 **In Alex Gibney’s ‘Musk’, the Answer to the Trillionaire’s Power Is Unsatisfying.**\
 `Alex Gibney’s nearly four-hour documentary is deeply researched. But because the mogul has long been in the spotlight, little is new.`\
 https://www.nytimes.com/2026/10/09/movies/musk-documentary-alex-gibney.html
-
-**The Winning Stock Funds This Time Weren’t Tech. They Were Energy.**\
-`Stock and bond fund returns for the quarter were bad nearly everywhere you looked, our columnist says. Energy stocks, lifted by the war with Iran, were an exception.`\
-https://www.nytimes.com/2026/10/09/business/stock-bonds-tech-energy.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/10/09/movies/new-movies-this-week-critics.html
-
-**In a Dead Hero’s Ashes, El Salvador’s Ruler Finds a New Spark**\
-`Sword in hand, Nayib Bukele is revamping Latin America’s rich tradition of political exhumations. A new crypt projects his power across Central America.`\
-https://www.nytimes.com/2026/10/09/world/americas/nayib-bukele-francisco-morazan-el-salvador.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

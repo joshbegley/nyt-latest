@@ -1,3 +1,19 @@
+**F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
+`The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
+https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
+
+**China and Europe Agree to Deal to Limit Chinese Exports of Hybrid Cars**\
+`The European Union said that the deal could roughly halve Chinese shipments over four years. But it also could lead to an even stronger Chinese auto industry.`\
+https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
+
+**Trump Announces White House Inquiry into Fed Governor Cook**\
+`President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
+https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
+
+**Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
+`Fourteen authors in the New Directions stable have received the Nobel Prize in Literature, including this year and last. How does this small press pack such a punch?`\
+https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
+
 **How Correspondent Banking Can Enable Sanctions Evasion**\
 `The correspondent system for banking has enabled globalism — and has been exploited by companies trying to skirt U.S. sanctions.`\
 https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctions-evasion.html
