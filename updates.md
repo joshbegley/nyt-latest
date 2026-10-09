@@ -1,3 +1,11 @@
+**How TikTok Warps Our Politics**\
+`What are the political consequences of the era of video? TikTok is overwhelming our world with emotional appeals that print media can’t capture, according to the Times of London columnist James Marriott, and it’s making us more mystical, tribal and autocratic.`\
+https://www.nytimes.com/video/opinion/100000011195428/how-tiktok-warps-our-politics.html
+
+**Reading Is Hard. Watching Is Not.**\
+`Reading has been on the decline since the advent of television, and now it’s only getting worse. On “Interesting Times,” the Times of London columnist James Marriott explains why we’d rather watch videos than read books.`\
+https://www.nytimes.com/video/opinion/100000011195427/reading-is-hard-watching-is-not.html
+
 **Some Palestinians Express Discomfort With Protest Targeting Mamdani**\
 `Palestinian advocates acknowledged the range of viewpoints within their movement but were dismayed by the vitriol directed at Mayor Zohran Mamdani, a longtime ally of their cause.`\
 https://www.nytimes.com/2026/10/08/nyregion/mamdani-nyc-october-7-vigil-protesters.html
