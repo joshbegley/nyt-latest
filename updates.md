@@ -1,3 +1,7 @@
+**In the Shadows of the Art World, an Invisible Industry Operates**\
+`Right now, hundreds of artworks worth millions are making their way across the world. These people make the travel arrangements.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-art-shipping.html
+
 **Trump Casts Himself as Columbus’s Protector in Pitch to Italian Americans**\
 `President Trump sought to inject the Genoese explorer into the current political conversation.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.html

@@ -1,3 +1,15 @@
+**Fort Hood Shooter’s Execution Could Face Challenge in Federal Courts**\
+`Legal experts say the former Army officer convicted in a 2009 mass shooting could face a narrow, rushed path to appeal a public execution by firing squad.`\
+https://www.nytimes.com/2026/10/09/us/politics/fort-hood-execution-legal-challenges.html
+
+**Gabriel Orozco Shows New Art In London**\
+`A conversation with Gabriel Orozco, who will be showing a sprawling body of work, both old and new, in London.`\
+https://www.nytimes.com/2026/10/09/arts/design/gabriel-orozco-show-london.html
+
+**Sotheby’s Soars as Galleries Struggle in Britain’s Art World**\
+`As auction houses like Sotheby’s move millions of dollars of art, some high-profile galleries struggle.`\
+https://www.nytimes.com/2026/10/09/arts/design/london-art-scene-frieze.html
+
 **In the Shadows of the Art World, an Invisible Industry Operates**\
 `Right now, hundreds of artworks worth millions are making their way across the world. These people make the travel arrangements.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-art-shipping.html
@@ -138,8 +150,8 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.ht
 `Readers are aghast at the planned execution. Also: North Korea’s crimes; Venezuela’s gold; the search for a leader; feeding the birds; making e-bikes safer.`\
 https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
 
-**James Talarico’s Time Off the Campaign Trail Rattles Texas Senate Race**\
-`Mr. Talarico, the Democratic nominee for Senate in Texas, has not held a campaign event in more than a week. His campaign says that he is recovering from the flu.`\
+**James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, said that he had been home in bed with “a nasty case of the flu.”`\
 https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
 
 **He Left Behind Millions. Who Would Get It — His Family, or the D.S.A.?**\
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un
 **Kansas Senate Race Is a Surprising New Midterm Fight**\
 `Republicans are suddenly racing to defend a seat in Kansas, where Democrats are trying to win a Senate race for the first time in nearly a century.`\
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-adam-hamilton-roger-marshall.html
-
-**DeSantis Takes Issue With Hurricane Isaias’s Name**\
-`The Florida governor and another state official took issue with the common Spanish name, Isaias.`\
-https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
-
-**Trump Sends Obamacare ‘Refund’ Checks Ahead of Midterm Elections**\
-`The $500 checks are accompanied by a letter signed by the president that criticizes the Biden administration for overcharging Americans for health insurance.`\
-https://www.nytimes.com/2026/10/09/business/trump-obamacare-refund-checks.html
-
-**Ocasio-Cortez to Campaign for El-Sayed on Bus Tour in Michigan**\
-`Representative Alexandria Ocasio-Cortez of New York endorsed Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, ahead of the primary. She also appeared with him at a fund-raiser in New York this week.`\
-https://www.nytimes.com/2026/10/09/us/ocasio-cortez-el-sayed-michigan-senate.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
