@@ -1,3 +1,11 @@
+**Paintings Stolen From Renoir Museum Are Recovered, Authorities Say**\
+`Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
+https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
+
+**South African Human Rights Lawyer Is Awarded Nobel Peace Prize**\
+`The 2026 Nobel Peace Prize was awarded to Navi Pillay, a former United Nations’ top human rights official who led a commission that determined Israel had committed genocide against Palestinians, a finding the Israeli government rejected.`\
+https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pillay-human-rights.html
+
 **India Cancels Trains, Floods Capital with Police to Block Protests**\
 `A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/09/opinion/foreign-policy-diplomacy-choke-point.
 **Why This Election Could Be More Complicated for Democrats Than Polls Suggest**\
 `The last two midterms where Democrats surged against an unpopular Republican president were in 2006 and 2018. They had notably different outcomes.`\
 https://www.nytimes.com/2026/10/09/us/midterm-election-democratic-wave.html
-
-**Only Karol G Knows How Wild Her Life Has Been**\
-`The Colombian star talks cultural appropriation, ICE, and channeling love and letdown into stadium-filling hits.`\
-https://www.nytimes.com/2026/10/09/arts/music/karol-g-popcast-interview.html
-
-**At a Revamped Museum, Goya’s Nightmares Seem Scarily Relevant**\
-`The artist’s portrayals of uncertainty and social upheaval are likely to resonate with visitors to an expanded museum in Zaragoza, Spain, that opens Friday.`\
-https://www.nytimes.com/2026/10/09/arts/goya-museum-zaragoza-spain.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
