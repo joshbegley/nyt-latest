@@ -1,3 +1,11 @@
+**Federal Agents Shot Man in New York City**\
+`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
+https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
+
+**Fort Hood Shooter’s Execution Will Be Public and Streamed Live, Pentagon Says**\
+`If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
+https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
+
 **‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
 `Residents are making careful choices about whether to leave their homes or stock up and stay.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
