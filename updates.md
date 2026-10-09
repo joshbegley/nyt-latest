@@ -1,3 +1,7 @@
+**So you’re getting a Nobel Prize? Don’t expect a heads-up.**\
+`The calls for`\
+https://www.nytimes.com/2026/10/09/world/europe/so-you-won-a-nobel-prize-dont-expect-a-heads-up.html
+
 **Fish Food**\
 `We take a look at where the fish on your plate come from.`\
 https://www.nytimes.com/2026/10/09/briefing/fish-food.html

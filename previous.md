@@ -2,6 +2,10 @@
 `We take a look at where the fish on your plate come from.`\
 https://www.nytimes.com/2026/10/09/briefing/fish-food.html
 
+**So you’re getting a Nobel Prize? Don’t expect a heads-up.**\
+`The calls for`\
+https://www.nytimes.com/2026/10/09/world/europe/so-you-won-a-nobel-prize-dont-expect-a-heads-up.html
+
 **Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
 `A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/09/realestate/touching-up-a-damaged-wood-floor.h
 **What to Know About the Facebook Whistle-Blowing Case Depicted in ‘The Social Reckoning’**\
 `Aaron Sorkin’s sort-of sequel to the 2010 “Social Network” dramatizes a whistle-blowing case at Facebook. Here’s what to know.`\
 https://www.nytimes.com/2026/10/09/arts/the-social-reckoning-movie-meta-facebook-mark-zuckerberg.html
-
-**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
-`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
-https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
