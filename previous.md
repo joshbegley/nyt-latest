@@ -1,3 +1,11 @@
+**Alan Cumming's Husband Thinks He's a Butterfly**\
+`The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, what his husband said after he crowdsurfed.`\
+https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thinks-hes-a-butterfly.html
+
+**Fine Wines, Brazen Thieves: 30,000 Bottles Stolen in Tuscan Heist**\
+`As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
+https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
+
 **The Fashions: The urge to shop**\
 `Let’s come back to reality* (*look as some things we really want, available this season).`\
 https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
 https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
 
 **Trump Administration Hits International Criminal Court With Severe Sanctions**\
-`U.S. officials announced new punishments aimed at the court, just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
+`U.S. officials announced the new, sweeping punishments just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
 
 **Can You Make Enchiladas With Flour Tortillas?**\
@@ -165,14 +173,6 @@ https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-
 **Days of Deadly Houthi Attacks Show Saudi Arabia’s Vulnerabilities**\
 `The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
-
-**Fish Food**\
-`We take a look at where the fish on your plate come from.`\
-https://www.nytimes.com/2026/10/09/briefing/fish-food.html
-
-**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
-`Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
-https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

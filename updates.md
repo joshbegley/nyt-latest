@@ -1,3 +1,15 @@
+**Alan Cumming's Husband Thinks He's a Butterfly**\
+`The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, what his husband said after he crowdsurfed.`\
+https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thinks-hes-a-butterfly.html
+
+**Fine Wines, Brazen Thieves: 30,000 Bottles Stolen in Tuscan Heist**\
+`As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
+https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
+
+**Trump Administration Hits International Criminal Court With Severe Sanctions**\
+`U.S. officials announced the new, sweeping punishments just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
+
 **The Fashions: The urge to shop**\
 `Let’s come back to reality* (*look as some things we really want, available this season).`\
 https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
