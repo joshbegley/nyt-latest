@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
 `Kaye Brown, a retired teacher, didn’t pick up a paintbrush until 2012. Her works depict the body-painting designs Tiwi people wear in mourning.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
 
-**Katie Zacharia Picked as the New White House Press Secretary**\
+**Katie Zacharia Picked as Trump’s New White House Press Secretary**\
 `Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
 https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
 

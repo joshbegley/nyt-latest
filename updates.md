@@ -1,3 +1,15 @@
+**2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
+`A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
+https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
+
+**Map: Earthquake Shakes Panama**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker-panama.html
+
+**Why Early Voting Data Can Be Misleading**\
+`A majority of Americans cast their ballots before Election Day, but early-voting data is limited in how much it can tell us about important races.`\
+https://www.nytimes.com/2026/10/09/us/elections/early-voting-data-issues.html
+
 **Zohran Mamdani’s Moral Obscenity**\
 `A mayor for one million Jewish New Yorkers fails his duty.`\
 https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
