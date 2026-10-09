@@ -1,3 +1,15 @@
+**Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
+`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after years of descending into extremism.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
+
+**9 Injured After J.F.K.-Bound Flight Hits Severe Turbulence**\
+`Avianca Flight 42 was en route to New York from Medellín, Colombia, when it “encountered unexpected turbulence” and was diverted to Miami.`\
+https://www.nytimes.com/2026/10/09/travel/avianca-flight-severe-turbulence.html
+
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
+`The hurricane is forecast to make landfall Friday evening. Officials have issued mandatory evacuation orders along parts of the northwest Florida coast, and visitors in parts of coastal Alabama have also been asked to leave.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
 `Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
 https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html

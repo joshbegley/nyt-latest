@@ -1,3 +1,11 @@
+**Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
+`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after years of descending into extremism.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
+
+**9 Injured After J.F.K.-Bound Flight Hits Severe Turbulence**\
+`Avianca Flight 42 was en route to New York from Medellín, Colombia, when it “encountered unexpected turbulence” and was diverted to Miami.`\
+https://www.nytimes.com/2026/10/09/travel/avianca-flight-severe-turbulence.html
+
 **Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
 `Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
 https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html
@@ -178,21 +186,13 @@ https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
 `The delay, outlined in a letter to France, comes as Fatah, the governing party, is suffering from deep internal rifts.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/palestinian-authority-elections-west-bank-postponed.html
 
-**Karol G on Cultural Appropriation in Latin Music**\
-`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
-https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
-
-**Private Medicare Plans Are Raising Costs And Forcing Millions To Find New Insurance**\
-`As enrollment for Medicare Advantage begins this month, older Americans are confronting fewer options because insurers are discontinuing coverage in many areas.`\
-https://www.nytimes.com/2026/10/09/business/medicare-private-health-care-costs.html
-
-**Ending a Notable Career, Durbin Laments the Decline of Legislating**\
-`Senator Richard J. Durbin of Illinois, the No. 2 Democrat, learned how to take his fights to the floor and prevail — except in one crucial case.`\
-https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
-
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
+`The hurricane is forecast to make landfall Friday evening. Officials have issued mandatory evacuation orders along parts of the northwest Florida coast, and visitors in parts of coastal Alabama have also been asked to leave.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
 **Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
