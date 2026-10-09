@@ -1,3 +1,7 @@
+**Zohran Mamdani’s Moral Obscenity**\
+`A mayor for one million Jewish New Yorkers fails his duty.`\
+https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
+
 **Frieze London: Bringing Attention to Art From the Middle East**\
 `A Saudi gallery will be making its Frieze London debut, showcasing two artists from the region.`\
 https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pil
 **India Cancels Trains, Floods Capital with Police to Block Protests**\
 `A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
-
-**Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
-`The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
-https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
