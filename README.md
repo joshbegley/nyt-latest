@@ -1,3 +1,7 @@
+**Live Updates: Nobel Peace Prize Winner to Be Announced**\
+`The recipient of the prize, one of the world’s most prestigious honors, is set to be announced on Friday morning in Oslo. The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
 `“Man, if the Justice Department still existed, you’d be in so much trouble,” Michael Kosta said on “The Daily Show.”`\
 https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/world/europe/100000011202387/russia-ukraine-attack
 **The Man City Scandal Is About More Than Football**\
 `A conversation about the biggest financial scandal in football history.`\
 https://www.nytimes.com/2026/10/08/world/man-city-football-riyadh-houthis.html
-
-**Mamdani Stands By His Handling of Oct. 7 Anniversary After Emotional Day**\
-`The mayor expressed no regrets after he was criticized by Jewish leaders over a statement marking the anniversary of the Oct. 7 attacks and later booed by pro-Palestinian activists at a vigil.`\
-https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-statement-events-israel-palestine.html
 
