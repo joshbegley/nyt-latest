@@ -1,3 +1,11 @@
+**The Fashions: The urge to shop**\
+`Let’s come back to reality* (*look as some things we really want, available this season).`\
+https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
+
+**Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
+`He was the author of more than a dozen books. “He knew every writer in New York,” Robert A. Caro said.`\
+https://www.nytimes.com/2026/10/09/obituaries/sidney-offit-dead.html
+
 **Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
 `Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html

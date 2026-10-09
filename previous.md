@@ -1,3 +1,11 @@
+**The Fashions: The urge to shop**\
+`Let’s come back to reality* (*look as some things we really want, available this season).`\
+https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
+
+**Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
+`He was the author of more than a dozen books. “He knew every writer in New York,” Robert A. Caro said.`\
+https://www.nytimes.com/2026/10/09/obituaries/sidney-offit-dead.html
+
 **Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
 `Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
@@ -161,14 +169,6 @@ https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-ar
 **Fish Food**\
 `We take a look at where the fish on your plate come from.`\
 https://www.nytimes.com/2026/10/09/briefing/fish-food.html
-
-**Nobel Prize Winners Don’t Get a Heads-Up**\
-`Navi Pillay wasn’t the first Nobel laureate that the prize committees have struggled to reach. Many weren’t even awake when the news broke.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
-
-**Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
-`A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
 
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
