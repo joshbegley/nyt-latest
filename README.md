@@ -1,3 +1,15 @@
+**2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
+`A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
+https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
+
+**Map: Earthquake Shakes Panama**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker-panama.html
+
+**Why Early Voting Data Can Be Misleading**\
+`A majority of Americans cast their ballots before Election Day, but early-voting data is limited in how much it can tell us about important races.`\
+https://www.nytimes.com/2026/10/09/us/elections/early-voting-data-issues.html
+
 **Zohran Mamdani’s Moral Obscenity**\
 `A mayor for one million Jewish New Yorkers fails his duty.`\
 https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensificatio
 **Who Is Ahead in Colorado's 4th Congressional District?**\
 `Track the latest polls in Colorado's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/colorado-us-house-4-polls-2026.html
-
-**Paintings Stolen From Renoir Museum Are Recovered, Authorities Say**\
-`Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
-https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
-
-**Navi Pillay, South African Human Rights Lawyer, Is Awarded Nobel Prize**\
-`The 2026 Nobel Peace Prize was awarded to Navi Pillay, a former United Nations’ top human rights official who led a commission that determined Israel had committed genocide against Palestinians, a finding the Israeli government rejected.`\
-https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pillay-human-rights.html
-
-**India Cancels Trains, Floods Capital with Police to Block Protests**\
-`A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
-https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
