@@ -1,3 +1,15 @@
+**Can You Make Enchiladas With Flour Tortillas?**\
+`A ruling on a home-cooking dispute.`\
+https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
+
+**Karol G on Cultural Appropriation in Latin Music**\
+`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
+https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
+
+**Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
+`Markwayne Mullin, the homeland security secretary, attacked sanctuary city policies a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **A.I. Detective**\
 `We look at an A.I.-generated photo.`\
 https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
