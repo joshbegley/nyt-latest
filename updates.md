@@ -1,3 +1,23 @@
+**DeSantis Takes Issue With Hurricane Isaias’s Name**\
+`The Florida governor and another state official took issue with Isaias, though the name was also used six years ago.`\
+https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
+
+**Trump Sends Obamacare ‘Refund’ Checks Ahead of Midterm Elections**\
+`The $500 checks are accompanied by a letter signed by the president that criticizes the Biden administration for overcharging Americans for health insurance.`\
+https://www.nytimes.com/2026/10/09/business/trump-obamacare-refund-checks.html
+
+**Ocasio-Cortez to Campaign for El-Sayed on Bus Tour in Michigan**\
+`Representative Alexandria Ocasio-Cortez of New York endorsed Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, ahead of the primary. She also appeared with him at a fund-raiser in New York this week.`\
+https://www.nytimes.com/2026/10/09/us/ocasio-cortez-el-sayed-michigan-senate.html
+
+**Top Democratic Group Pumps Millions Into Kansas Senate Race**\
+`The $5 million investment from the main super PAC for Senate Democrats is a sign that party leaders see a path to winning in another red state as the political environment worsens for Republicans.`\
+https://www.nytimes.com/2026/10/09/us/politics/adam-hamilton-roger-marshall-kansas-senate.html
+
+**Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
+`He and the Bears won the Super Bowl in 1986, and after coaching he became one of the sport’s most visible and enduring talking heads. He was 86.`\
+https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
+
 **Flashback: Your Weekly History Quiz, Oct. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html

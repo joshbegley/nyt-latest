@@ -1,9 +1,25 @@
+**DeSantis Takes Issue With Hurricane Isaias’s Name**\
+`The Florida governor and another state official took issue with Isaias, though the name was also used six years ago.`\
+https://www.nytimes.com/2026/10/09/weather/desantis-florida-hurricane-isaias-name.html
+
+**Trump Sends Obamacare ‘Refund’ Checks Ahead of Midterm Elections**\
+`The $500 checks are accompanied by a letter signed by the president that criticizes the Biden administration for overcharging Americans for health insurance.`\
+https://www.nytimes.com/2026/10/09/business/trump-obamacare-refund-checks.html
+
+**Ocasio-Cortez to Campaign for El-Sayed on Bus Tour in Michigan**\
+`Representative Alexandria Ocasio-Cortez of New York endorsed Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, ahead of the primary. She also appeared with him at a fund-raiser in New York this week.`\
+https://www.nytimes.com/2026/10/09/us/ocasio-cortez-el-sayed-michigan-senate.html
+
+**Top Democratic Group Pumps Millions Into Kansas Senate Race**\
+`The $5 million investment from the main super PAC for Senate Democrats is a sign that party leaders see a path to winning in another red state as the political environment worsens for Republicans.`\
+https://www.nytimes.com/2026/10/09/us/politics/adam-hamilton-roger-marshall-kansas-senate.html
+
 **Flashback: Your Weekly History Quiz, Oct. 10, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
 
 **Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
-`After coaching, he became one of the sport’s most visible and enduring talking heads. He died at 86.`\
+`He and the Bears won the Super Bowl in 1986, and after coaching he became one of the sport’s most visible and enduring talking heads. He was 86.`\
 https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
 
 **Trump Administration Hits International Criminal Court With Severe Sanctions**\
@@ -157,18 +173,6 @@ https://www.nytimes.com/2026/10/09/podcasts/mahomes-nfl-trading.html
 **The 2026 Nobel Peace Prize Winner, and the Pentagon’s Plan to Livestream an Execution**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-headlines/nobel-peace-prize-livestream-execution.html
-
-**NYT Connections Answers for October 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
-https://www.nytimes.com/2026/10/09/crosswords/connections-companion-1217.html
-
-**NYT Strands Hints for October 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
-https://www.nytimes.com/2026/10/09/crosswords/strands-sidekick-951.html
-
-**Today’s Wordle Hints for October 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
-https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
 
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
