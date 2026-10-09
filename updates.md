@@ -1,3 +1,19 @@
+**Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
+`The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
+https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
+
+**Airlines Are Upgrading Wi-Fi. Not All Are Using Elon Musk’s Service.**\
+`Mr. Musk, whose company SpaceX owns Starlink, has attacked the top executive of Delta Air Lines for not selecting the internet provider.`\
+https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
+
+**Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. At a news conference, Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies, lashed out at Mayor Zohran Mamdani and highlighted the victim’s criminal record.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
+**On Texas TikTok, It’s All About Talarico**\
+`There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
+https://www.nytimes.com/interactive/2026/10/09/us/politics/tiktok-texas-senate-talarico-paxton-midterms.html
+
 **Corrections: Oct. 9, 2026**\
 `The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html

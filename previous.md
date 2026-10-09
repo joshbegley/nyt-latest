@@ -1,14 +1,22 @@
+**Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
+`The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
+https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
+
+**Airlines Are Upgrading Wi-Fi. Not All Are Using Elon Musk’s Service.**\
+`Mr. Musk, whose company SpaceX owns Starlink, has attacked the top executive of Delta Air Lines for not selecting the internet provider.`\
+https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
+
 **Corrections: Oct. 9, 2026**\
 `The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
-`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies at a news conference, and highlighted the victim’s criminal record.`\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. At a news conference, Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies, lashed out at Mayor Zohran Mamdani and highlighted the victim’s criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
 `There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
-https://www.nytimes.com/interactive/2026/10/09/business/tiktok-texas-senate-talarico-paxton-midterms.html
+https://www.nytimes.com/interactive/2026/10/09/us/politics/tiktok-texas-senate-talarico-paxton-midterms.html
 
 **The Fallout From OpenAI’s Revenue Surprise**\
 `News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/09/arts/goya-museum-zaragoza-spain.html
 **Aaron Sorkin on ‘The Social Reckoning’**\
 `The writer and director explains how he evolved the character of Mark Zuckerberg in the sort-of sequel to “The Social Network.”`\
 https://www.nytimes.com/2026/10/09/movies/the-social-reckoning-clip.html
-
-**Marina Abramović Can’t Be Ignored**\
-`On the cusp of 80, the most influential performance artist of our time considers her legacy — and the next 20 years, too.`\
-https://www.nytimes.com/2026/10/09/t-magazine/marina-abramovic.html
-
-**All the Ways Trump Has Attacked Elections In His Second Term**\
-`President Trump has attacked the integrity of U.S. elections on more than 70 percent of the days since he returned to office, repeatedly making false claims. Here’s how he does it.`\
-https://www.nytimes.com/interactive/2026/10/09/us/politics/trump-elections-results-doubt-midterms.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
