@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.ht
 https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
 
 **7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
-`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 
 **Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
