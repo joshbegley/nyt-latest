@@ -1,3 +1,15 @@
+**Nobel Peace Prize Choice Amounts to Implicit Rebuke of Trump**\
+`The Trump administration has repeatedly attacked the international legal order and the International Criminal Court in The Hague, where the Peace Prize winner, Navi Pillay, served as a judge.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
+
+**ICE Shooting in New York: What We Know**\
+`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing the city.”`\
+https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
+
+**Trump Announces White House Inquiry Into Fed Governor Cook**\
+`President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
+https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
+
 **F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
 `The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
 https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html

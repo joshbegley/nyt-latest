@@ -1,3 +1,11 @@
+**Nobel Peace Prize Choice Amounts to Implicit Rebuke of Trump**\
+`The Trump administration has repeatedly attacked the international legal order and the International Criminal Court in The Hague, where the Peace Prize winner, Navi Pillay, served as a judge.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
+
+**ICE Shooting in New York: What We Know**\
+`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing the city.”`\
+https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
+
 **F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
 `The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
 https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
 `The European Union said that the deal could roughly halve Chinese shipments over four years. But it also could lead to an even stronger Chinese auto industry.`\
 https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
 
-**Trump Announces White House Inquiry into Fed Governor Cook**\
+**Trump Announces White House Inquiry Into Fed Governor Cook**\
 `President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
 https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
 
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html
 **Cancer Vaccines Are the N.I.H’s Next ‘Big Bet’**\
 `New details have emerged about an initiative that starts in December to fast-track the vaccines, similar to the successful push for the Covid-19 vaccine.`\
 https://www.nytimes.com/2026/10/09/science/cancer-vaccines-nih-big-bet.html
-
-**Every Generation’s Campus Rape Story Is New**\
-`Politics, technology and sexual norms change. But the power dynamics — and the outrage — are familiar.`\
-https://www.nytimes.com/2026/10/09/magazine/cornell-sexual-assault-feminism.html
-
-**In Alex Gibney’s ‘Musk’, the Answer to the Trillionaire’s Power Is Unsatisfying.**\
-`Alex Gibney’s nearly four-hour documentary is deeply researched. But because the mogul has long been in the spotlight, little is new.`\
-https://www.nytimes.com/2026/10/09/movies/musk-documentary-alex-gibney.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
