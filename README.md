@@ -1,4 +1,8 @@
-**‘You’ve Hired Half the Third Reich’: 6 Key Moments From the Georgia Senate Debate**\
+**NYT Crossword Answers for Oct. 9, 2026**\
+`Nam Jin Yoon opens our solving weekend.`\
+https://www.nytimes.com/2026/10/08/crosswords/daily-puzzle-2026-10-09.html
+
+**Key Moments From the Georgia Senate Debate Beween Ossoff and Collins**\
 `Senator Jon Ossoff, a Democrat, called his Republican opponent, Representative Mike Collins, a bigot. Mr. Collins called the incumbent a radical “trust-fund kid.”`\
 https://www.nytimes.com/2026/10/08/us/georgia-debate-ossoff-collins.html
 
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.ht
 **What’s Going On in This Picture? | Oct. 19, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
-
-**Books Our Editors Love This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
 
