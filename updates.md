@@ -1,3 +1,15 @@
+**Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
+`The storm underwent a process that meteorologists call “rapid intensification.”`\
+https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensification.html
+
+**Who Is Ahead in Colorado's 4th Congressional District?**\
+`Track the latest polls in Colorado's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-4-polls-2026.html
+
+**How Giant Trolls Are Helping Transform an Adirondack Mill Town**\
+`Thomas Dambo, the acclaimed Danish sculptor, unveiled his first permanent troll in New York State. Will it offer a lasting economic boon in the town of Tupper Lake?`\
+https://www.nytimes.com/2026/10/09/travel/thomas-dambo-trolls-tupper-lake-wild-center.html
+
 **Paintings Stolen From Renoir Museum Are Recovered, Authorities Say**\
 `Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
 https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
