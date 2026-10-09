@@ -1,3 +1,7 @@
+**ICE Agent Shoot and Wound Man in New York City**\
+`Federal officials said that they were attempting to take into custody an undocumented Dominican immigrant. Their statement did not indicate what might have prompted the shooting.`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **Live Updates: Debate in Michigan Senate Race Turns Heated and Personal**\
 `The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
