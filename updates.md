@@ -1,3 +1,7 @@
+**James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had at home with “a nasty case of the flu.”`\
+https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
+
 **Blogger on Trial: Is a Lewd Image of Shrek Free Speech or Harassment?**\
 `An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
 https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html

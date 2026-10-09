@@ -2,7 +2,7 @@
 `An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
 https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
 
-**Hurricane Isaias Comes at Inopportune Time for College Football Fans**\
+**Hurricane Isaias Comes at Inconvenient Time for College Football Fans**\
 `The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
 https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
 
