@@ -1,3 +1,7 @@
+**Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
+`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **Live Updates: Navi Pillay, Former U.N. Human Rights Commissioner, Wins Nobel Peace Prize**\
 `Ms. Pillay, a South African lawyer, led an investigation that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
