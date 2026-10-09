@@ -1,3 +1,7 @@
+**Senate Debates in Michigan and Georgia Turn Heated and Personal**\
+`In Michigan and Georgia, candidates in races that could determine control of the Senate exchanged bitter, personal attacks during Thursday’s debates.`\
+https://www.nytimes.com/video/us/politics/100000011204310/michigan-georgia-senate-debate.html
+
 **Live Updates: Nobel Peace Prize Winner to Be Announced**\
 `The recipient of the prize, one of the world’s most prestigious honors, is set to be announced on Friday morning in Oslo. The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
@@ -26,13 +30,13 @@ https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk
 `Many Israelis are hopeful that a new government would ease the growing distance between their country and the rest of the world.`\
 https://www.nytimes.com/2026/10/09/opinion/israel-elections-palestinians.html
 
-**Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
-`Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
-https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
-
 **A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
 `A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
 https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
+
+**Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
+`Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
+https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
 
 **Their Ice Cream Date Lasted Over Four Hours**\
 `From quiet glances in UConn classrooms to Capitol Hill internships, Megan Handau and Lucas Bladen built a bond rooted in steady support and shared ambition.`\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
 **‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
 `Residents are making careful choices about whether to leave their homes or stock up and stay.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
-
-**Russia Increases Attacks on Ukraine Using an Updated Arsenal**\
-`Russia’s increasing pace of assaults on Ukrainian cities in recent months has been intensified by an expansion and advancements in Russia’s weapons.`\
-https://www.nytimes.com/video/world/europe/100000011202387/russia-ukraine-attacks-weapons.html
 

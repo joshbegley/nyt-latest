@@ -1,3 +1,7 @@
+**Senate Debates in Michigan and Georgia Turn Heated and Personal**\
+`In Michigan and Georgia, candidates in races that could determine control of the Senate exchanged bitter, personal attacks during Thursday’s debates.`\
+https://www.nytimes.com/video/us/politics/100000011204310/michigan-georgia-senate-debate.html
+
 **Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
 `“Man, if the Justice Department still existed, you’d be in so much trouble,” he said on “The Daily Show.”`\
 https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
