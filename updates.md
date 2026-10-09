@@ -1,3 +1,11 @@
+**For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
+`The idea seemed to surprise even some inside the Trump administration.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-firing-squad-spectacle.html
+
+**James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had been at home with “a nasty case of the flu.”`\
+https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
+
 **Hurricane Isaias Nears Landfall**\
 `Plus, the Nobel Peace Prize is awarded. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/09/briefing/isaias-nobel-ice.html

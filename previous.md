@@ -1,3 +1,7 @@
+**For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
+`The idea seemed to surprise even some inside the Trump administration.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-firing-squad-spectacle.html
+
 **Hurricane Isaias Nears Landfall**\
 `Plus, the Nobel Peace Prize is awarded. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/09/briefing/isaias-nobel-ice.html
@@ -175,16 +179,12 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.ht
 https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
 
 **James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
-`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had at home with “a nasty case of the flu.”`\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had been at home with “a nasty case of the flu.”`\
 https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
 
 **He Left Behind Millions. Who Would Get It — His Family, or the D.S.A.?**\
 `When a New York University professor died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
 https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
-
-**Alan Cumming's Husband Thinks He's a Butterfly**\
-`The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, what his husband said after he crowdsurfed.`\
-https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thinks-hes-a-butterfly.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
