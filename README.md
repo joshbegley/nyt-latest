@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
 https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
 
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
-`The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
+`The Police Department released body-camera footage from officers who had arrived at the scene after a federal agent shot and injured Oscar Belgal inside his car. On Friday, Homeland Security Secretary Markwayne Mullin said that ICE agents had been trying to arrest Mr. Belgal, who Mr. Mullin said was an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
 
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.ht
 `Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
 https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
 
-**Panama Shaken by Large Earthquake and Its Aftershocks**\
+**7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
 `The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 
