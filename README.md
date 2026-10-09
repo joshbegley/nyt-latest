@@ -170,10 +170,6 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-k
 `A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
 
-**Why France Is in Crisis**\
-`An autumn of discontent has gripped the country before its presidential election.`\
-https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html
-
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
