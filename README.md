@@ -1,3 +1,11 @@
+**Large Earthquake in Panama Sets Off Tsunami Alert**\
+`The quake was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
+https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
+
+**Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
+`The vice president also cast doubt on whether the public execution of Maj. Nidal Malik Hasan, the 2009 Fort Hood gunman, would go forward as Pentagon officials have planned.`\
+https://www.nytimes.com/2026/10/09/us/politics/vance-livestream-execution.html
+
 **Some G.O.P. Lawmakers Pan Hegseth’s Plan to Stream Execution of Fort Hood Shooter**\
 `Some G.O.P. members of Congress said that broadcasting the execution of the Fort Hood shooter was inappropriate, though others gleefully applauded it.`\
 https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-execution.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-internat
 **ICE Shooting in New York: What We Know**\
 `A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
-
-**F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
-`The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
-https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
-
-**China and Europe Step Back From Trade War With Limits on Chinese Car Exports**\
-`The European Union said the deal could roughly halve shipments of hybrid vehicles from China in the next four years. But it also could lead to an even stronger Chinese auto industry.`\
-https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
