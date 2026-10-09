@@ -174,10 +174,6 @@ https://www.nytimes.com/2026/10/09/world/americas/nayib-bukele-francisco-morazan
 `Despite police barricades and detentions, activists like Neha Bora say they are determined to keep up the pressure on Prime Minister Narendra Modi.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-student-protests-cockroach-neha-bora.html
 
-**New Delhi’s Crackdown on Protesters**\
-`The government in New Delhi is suppressing protests over the culling of 130 million names from India’s voter roll. Mujib Mashal, an India correspondent for The New York Times, reported from the heart of the demonstrations.`\
-https://www.nytimes.com/video/world/asia/100000011193986/india-protest-delhi-crackdown.html
-
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
