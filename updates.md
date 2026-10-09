@@ -1,3 +1,7 @@
+**Some Palestinians Express Discomfort With Protest Targeting Mamdani**\
+`Palestinian advocates acknowledged the range of viewpoints within their movement but were dismayed by the vitriol directed at Mayor Zohran Mamdani, a longtime ally of their cause.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-nyc-october-7-vigil-protesters.html
+
 **Federal Agents Shot Man in New York City**\
 `Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
 https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
