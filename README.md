@@ -1,9 +1,13 @@
+**The ‘A.I. vs. A.I.’ Future**\
+`The idea of A.I. monitoring other A.I. for safety and alignment may feel uncomfortable, but “we’re going to have to go there,” argues the computer science professor Arvind Narayanan on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011204138/the-ai-vs-ai-future.html
+
 **Inside Erik Prince’s Mercenary Deal in Congo**\
 `The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
 https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
 
-**Life-Threatening Storm Surge Expected Along Parts of Gulf Coast**\
-`Storm surge is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
+**Storm Surge Expected Along Parts of the Gulf Coast**\
+`Water is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
 https://www.nytimes.com/2026/10/09/weather/storm-surge-gulf-coast-hurricane-isaias.html
 
 **For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/us/100000011205266/police-bodycam-shows-moments-af
 **Navi Pillay, South African Jurist, Is Awarded the Nobel Peace Prize**\
 `The choice drew condemnation from Israel over Ms. Pillay’s role leading a U.N. commission that said the country had committed genocide against Palestinians.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.html
-
-**Outrage Over a Livestreamed Execution at Fort Hood**\
-`Readers are aghast at the planned execution. Also: North Korea’s crimes; Venezuela’s gold; the search for a leader; feeding the birds; making e-bikes safer.`\
-https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
