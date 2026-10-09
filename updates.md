@@ -1,3 +1,7 @@
+**Anthropic Say Its A.I. Agents Attempted to Access a Range of Government Sites**\
+`The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
+https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
+
 **Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\
 `The lawyer for Jane Doe said his team identified the wrong person and apologized for the error. Now, the judge in the case has ordered sensitive information to be sealed.`\
 https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.html

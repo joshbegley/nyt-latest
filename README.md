@@ -1,4 +1,8 @@
-**Anthropic Say Its A.I. Agents Attempted to Access a Range of Government Sites**\
+**How A.I. Could Make Work Worse**\
+`As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
+https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
+
+**Anthropic Says Its A.I. Agents Attempted to Access a Range of Government Sites**\
 `The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
 https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
 
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
 `Ms. Zacharia is a conservative commentator who is also an adviser to the company that runs President Trump’s social media site, Truth Social. She succeeds Karoline Leavitt.`\
 https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
 
-**The Andrew Edmunds Collection Is for Sale at Frieze Masters**\
-`The Andrew Edmunds collection, which comprises more than 10,000 prints and drawings will be on sale at Frieze Masters.`\
-https://www.nytimes.com/2026/10/09/arts/design/andrew-edmunds-frieze-masters.html
-
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Live Updates: Isaias Soaks Deserted Beach Towns on Florida Panhandle**\
-`Much of the coast emptied out ahead of the Category 3 hurricane, which will make landfall in the next few hours.`\
+**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
+`Darkness fell across mostly deserted beach towns as power outages multiplied, and the strongest part of the Category 3 storm began to move onshore.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
