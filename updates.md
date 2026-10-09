@@ -1,3 +1,7 @@
+**Live Updates: Debate in Michigan Senate Race Turns Heated and Personal**\
+`The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **How TikTok Warps Our Politics**\
 `What are the political consequences of the era of video? TikTok is overwhelming our world with emotional appeals that print media can’t capture, according to the Times of London columnist James Marriott, and it’s making us more mystical, tribal and autocratic.`\
 https://www.nytimes.com/video/opinion/100000011195428/how-tiktok-warps-our-politics.html
