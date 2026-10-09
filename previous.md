@@ -3,7 +3,7 @@
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
 **Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
-`“Man, if the Justice Department still existed, you’d be in so much trouble,” Michael Kosta said on “The Daily Show.”`\
+`“Man, if the Justice Department still existed, you’d be in so much trouble,” he said on “The Daily Show.”`\
 https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
 
 **Will Trump’s Visit to Syracuse Be a Boon or a Bust for Blakeman?**\

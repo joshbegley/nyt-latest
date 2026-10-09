@@ -1,3 +1,7 @@
+**Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
+`“Man, if the Justice Department still existed, you’d be in so much trouble,” he said on “The Daily Show.”`\
+https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
+
 **Live Updates: Nobel Peace Prize Winner to Be Announced**\
 `The recipient of the prize, one of the world’s most prestigious honors, is set to be announced on Friday morning in Oslo. The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
