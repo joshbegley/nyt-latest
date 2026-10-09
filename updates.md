@@ -1,3 +1,15 @@
+**What if A.I. Is Just a ‘Normal Technology’?**\
+`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
+https://www.nytimes.com/video/opinion/100000011203468/what-if-ai-is-just-a-normal-technology.html
+
+**Zuckerberg Loses Control in “The Social Reckoning”**\
+`The director and writer Aaron Sorkin explains how he evolved the character of Mark Zuckerberg in the film “The Social Reckoning.”`\
+https://www.nytimes.com/video/movies/100000011194622/social-reckoning-clip.html
+
+**As Putin Wages Shadow War, Europe Looks for a Way to Hit Back**\
+`Moscow has used tactics of fear and ambiguity to try to divide NATO and limit support for Ukraine. But how should Europe retaliate? And how hard?`\
+https://www.nytimes.com/2026/10/09/world/europe/putin-russia-ukraine-war-europe-nato.html
+
 **Senate Debates in Michigan and Georgia Turn Heated and Personal**\
 `In Michigan and Georgia, candidates in races that could determine control of the Senate exchanged bitter, personal attacks during Thursday’s debates.`\
 https://www.nytimes.com/video/us/politics/100000011204310/michigan-georgia-senate-debate.html

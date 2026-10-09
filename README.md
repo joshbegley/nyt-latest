@@ -1,3 +1,67 @@
+**Touching Up a Damaged Wood Floor**\
+`Cosmetic restoration of your floorboards takes only a few simple tools and materials.`\
+https://www.nytimes.com/2026/10/09/realestate/touching-up-a-damaged-wood-floor.html
+
+**What to Know About the Facebook Whistle-Blowing Case Depicted in ‘The Social Reckoning’**\
+`Aaron Sorkin’s sort-of sequel to the 2010 “Social Network” dramatizes a whistle-blowing case at Facebook. Here’s what to know.`\
+https://www.nytimes.com/2026/10/09/arts/the-social-reckoning-movie-meta-facebook-mark-zuckerberg.html
+
+**What to Know About the New Elon Musk Documentary**\
+`A supersized portrait of the world’s richest man reveals new details and resurfaces troubling incidents from a headline-making life.`\
+https://www.nytimes.com/2026/10/09/movies/what-to-know-about-the-new-elon-musk-documentary.html
+
+**Why Weight Lifting Is Good for Your Heart**\
+`Strength training isn’t just for muscle and bone health — it’s also surprisingly good cardio.`\
+https://www.nytimes.com/2026/10/09/well/move/strength-training-heart-health.html
+
+**Great Horror Novels for Young Readers**\
+`The two-time Newbery medalist Erin Entrada Kelly recommends 10 books whose mingling of fear and suspense has tantalized her.`\
+https://www.nytimes.com/2026/10/09/books/review/erin-entrada-kelly-horror-novels-kids.html
+
+**Clara Wu Tsai, the Billionaire Who Wants Brooklyn to Win**\
+`Clara Wu Tsai, a co-owner of the Liberty and Nets, split from her husband of 30 years. Now she is turning her attention to leaving her mark on the borough.`\
+https://www.nytimes.com/2026/10/09/style/clara-wu-tsai-liberty-wnba.html
+
+**How Reading “East of Eden” Affected Writers and Artists**\
+`With a Netflix adaptation now streaming, Rachel Kushner, Héctor Tobar, Zoe Kazan and others share why Steinbeck’s operatic family saga has stayed with them.`\
+https://www.nytimes.com/2026/10/09/books/review/reading-east-of-eden.html
+
+**How Trump’s Revenge Campaign Descended Into Turmoil**\
+`The president’s allies have sought to prove a “grand conspiracy” through a sprawling Justice Department inquiry. It has buckled under staffing shake-ups, internal disputes and trouble finding evidence.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-grand-conspiracy.html
+
+**‘Lincoln in the Bardo’: A Preview of the Met Opera Adaptation**\
+`In an ethereal costume and surrounded by puppets, Anthony Roth Costanzo sang an aria from the operatic adaptation of George Saunders’s 2017 novel.`\
+https://www.nytimes.com/2026/10/09/t-magazine/lincoln-bardo-george-saunders-met-opera.html
+
+**Live From the 10th Floor | ‘Lincoln in the Bardo’**\
+`The countertenor Anthony Roth Costanzo singing an excerpt of an aria from the Met Opera’s adaption of George Saunders’s novel “Lincoln in the Bardo” (2017).`\
+https://www.nytimes.com/video/t-magazine/100000011202398/live-from-the-10th-floor-lincoln-in-the-bardo.html
+
+**Book Review: ‘The Rhyl Poster,’ by Tom McCarthy**\
+`Tom McCarthy’s new novel brings double agents, drugs and document drops into his signature critiques of contemporary systems.`\
+https://www.nytimes.com/2026/10/09/books/review/tom-mccarthy-rhyl-poster.html
+
+**His Unmarked Grave Lay Forgotten for 200 Years. They Had to Fix That.**\
+`The identity of a Scottish sailor killed in Connecticut after a skirmish during the War of 1812 long remained a mystery until two local history buffs got involved.`\
+https://www.nytimes.com/2026/10/09/arts/mystic-conn-unmarked-grave-mystery.html
+
+**Book Review: ‘The Red Dress,’ by Frank Huyler**\
+`Frank Huyler’s new novel is a devastating commentary on the place of an ordinary man in the world of the ultrarich.`\
+https://www.nytimes.com/2026/10/09/books/review/the-red-dress-frank-huyler.html
+
+**The Controversial Class That M.I.T. Is Paying a Professor Not to Teach**\
+`Michel DeGraff, a vocal pro-Palestinian activist, can’t be easily fired because he has tenure. But he has been kicked out of his department.`\
+https://www.nytimes.com/2026/10/09/us/mit-professor-michel-degraff-palestine-course.html
+
+**Screens Are Not the Problem**\
+`If we make screens the villain, then we let the people who control children’s health care — Congress, insurers and health systems — off the hook for their failures.`\
+https://www.nytimes.com/2026/10/09/opinion/children-screens-parents-health.html
+
+**The New York Times News Quiz, October 9, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/09/briefing/weekly-news-quiz.html
+
 **What if A.I. Is Just a ‘Normal Technology’?**\
 `The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
 https://www.nytimes.com/video/opinion/100000011203468/what-if-ai-is-just-a-normal-technology.html
@@ -42,13 +106,13 @@ https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk
 `Many Israelis are hopeful that a new government would ease the growing distance between their country and the rest of the world.`\
 https://www.nytimes.com/2026/10/09/opinion/israel-elections-palestinians.html
 
-**A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
-`A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
-https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
-
 **Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
 `Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
 https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
+
+**A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
+`A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
+https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
 
 **Their Ice Cream Date Lasted Over Four Hours**\
 `From quiet glances in UConn classrooms to Capitol Hill internships, Megan Handau and Lucas Bladen built a bond rooted in steady support and shared ambition.`\
@@ -129,56 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin
 **‘Animals’ Review: The Politician’s Dilemma**\
 `Ben Affleck plays a mayoral candidate who’s having a very bad day in this fizz-free political thriller.`\
 https://www.nytimes.com/2026/10/08/movies/animals-review-the-politicians-dilemma.html
-
-**Army Actions Contributed to Reagan Airport Collision, Internal Report Says**\
-`It is unclear what changes could result from the Army report, which is unlikely to satisfy critics of the military’s response to the D.C. crash.`\
-https://www.nytimes.com/2026/10/08/us/politics/army-report-reagan-airport-collision.html
-
-**Clinical Trial Indicates A.I. Chatbots Could Aid Urgent Care**\
-`Nearly 100 patients discussed their maladies with a Google bot, called AMIE, before meeting with physicians.`\
-https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
-
-**2026 Midterms: How the Battle for the Senate Could Play Out**\
-`Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
-https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
-
-**Midterms Updates: Senate Race in Michigan Turns Heated and Personal**\
-`The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
-https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
-
-**Khalif Tahir Thompson Adds Punchlines to His Portraits**\
-`On the occasion of a new exhibition in London, Khalif Tahir Thompson discusses blending the playful with the melancholic.`\
-https://www.nytimes.com/2026/10/08/t-magazine/khalif-tahir-thompson-victoria-miro.html
-
-**Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**\
-`Carson, who was awarded the Literature prize on Thursday, was denied tenure when teaching at the university in the 1980s, leading social media users to mock a congratulatory message.`\
-https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html
-
-**The ‘Mean Girls’ Presidency**\
-`We are living through the Regina George administration, argues the Opinion contributing writer Molly Jong-Fast. Yes, the very one from “Mean Girls.” President Trump’s administration is filled with wannabes who are eager to please him. But while that social system worked in high school, it definitely shouldn’t be working when “Trump’s bad ideas have no checks and balances,” she says.`\
-https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.html
-
-**Explosions Rattle Saudi Capital**\
-`Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
-
-**ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
-`The man was in a car with a 5-year-old in the back seat when he was shot and wounded, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
-https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
-
-**What Are the Remaining Millennium Prize Problems?**\
-`OpenAI’s trove of new math results doesn’t fully solve any of these highly prestigious open questions, but it seems to make progress on some.`\
-https://www.nytimes.com/2026/10/08/science/millennium-prize-problems-explainer.html
-
-**‘Breathtaking,’ ‘Devastating’: Mathematics Reels After New OpenAI Release**\
-`Hundreds of new A.I.-generated findings moved the frontiers of higher math in a single day — dispelling any doubt that the field is forever changed.`\
-https://www.nytimes.com/2026/10/08/science/mathematicians-respond-openai-release.html
-
-**The Fish Farming Industry's Dirty Secrets: Forced Labor, Harmful Chemicals, Pollution**\
-`Forced labor, rancid waste, harmful chemicals. What to know about the seafood that could end up on your plate.`\
-https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquaculture-overfishing.html
-
-**Curtis Flowers Has Died at 56. His Case Became a Symbol of Racial Bias.**\
-`A white district attorney tried Mr. Flowers six times for the same murder, always ensuring that few or no Black people were on the juries.`\
-https://www.nytimes.com/2026/10/08/obituaries/curtis-flowers-dead.html
 

@@ -1,3 +1,15 @@
+**What if A.I. Is Just a ‘Normal Technology’?**\
+`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
+https://www.nytimes.com/video/opinion/100000011203468/what-if-ai-is-just-a-normal-technology.html
+
+**Zuckerberg Loses Control in “The Social Reckoning”**\
+`The director and writer Aaron Sorkin explains how he evolved the character of Mark Zuckerberg in the film “The Social Reckoning.”`\
+https://www.nytimes.com/video/movies/100000011194622/social-reckoning-clip.html
+
+**As Putin Wages Shadow War, Europe Looks for a Way to Hit Back**\
+`Moscow has used tactics of fear and ambiguity to try to divide NATO and limit support for Ukraine. But how should Europe retaliate? And how hard?`\
+https://www.nytimes.com/2026/10/09/world/europe/putin-russia-ukraine-war-europe-nato.html
+
 **Senate Debates in Michigan and Georgia Turn Heated and Personal**\
 `In Michigan and Georgia, candidates in races that could determine control of the Senate exchanged bitter, personal attacks during Thursday’s debates.`\
 https://www.nytimes.com/video/us/politics/100000011204310/michigan-georgia-senate-debate.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/interactive/2026/10/08/magazine/farm-raised-fish-aquacul
 **Curtis Flowers Has Died at 56. His Case Became a Symbol of Racial Bias.**\
 `A white district attorney tried Mr. Flowers six times for the same murder, always ensuring that few or no Black people were on the juries.`\
 https://www.nytimes.com/2026/10/08/obituaries/curtis-flowers-dead.html
-
-**Spain’s Protesters See ‘Madness’ of Rising Rent and a ‘Martyr’ in Maricarmen**\
-`Thousands of protesters marched in Madrid on Thursday, a day after the death of María del Carmen Abascal, an 87-year-old whose eviction became a symbol of the country’s housing crisis.`\
-https://www.nytimes.com/2026/10/08/world/europe/spain-protests-maricarmen-housing.html
-
-**21 Birds Are Found at Miami Airport Stuffed in Underwear and Hidden in a Belt**\
-`Two men, who arrived separately from Cuba days apart, each carried clutches of live birds concealed in their clothes, the authorities said.`\
-https://www.nytimes.com/2026/10/08/us/birds-smuggled-cuba-miami.html
-
-**‘Battening Down the Hatches’ as Hurricane Isaias Approaches Gulf Coast**\
-`Residents are making careful choices about whether to leave their homes or stock up and stay.`\
-https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-preparations.html
 
