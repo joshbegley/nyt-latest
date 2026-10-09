@@ -66,7 +66,7 @@ https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.
 `Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
 
-**ICE Agent Shoot and Wound Man in New York City**\
+**ICE Agent Shoots and Wounds Man in New York City**\
 `Federal officials said that they were attempting to take into custody an undocumented Dominican immigrant. Their statement did not indicate what might have prompted the shooting.`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
 
