@@ -1,3 +1,7 @@
+**Marina Abramović on Her Personal Greats**\
+`The artist Marina Abramović discusses everything from her favorite TV show to her biggest regret in life.`\
+https://www.nytimes.com/video/t-magazine/100000011205035/marina-abramovic-on-her-personal-greats.html
+
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
 `The New York Police Department released body-worn camera footage of two police officers who arrived at the scene shortly after a federal agent shot and injured the man, Oscar Belgal, a 28-year-old from the Dominican Republic.`\
 https://www.nytimes.com/video/us/100000011205266/police-bodycam-shows-moments-after-man-shot-by-federal-agent.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 **On Texas TikTok, It’s All About Talarico**\
 `There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
 https://www.nytimes.com/interactive/2026/10/09/us/politics/tiktok-texas-senate-talarico-paxton-midterms.html
-
-**The Fallout From OpenAI’s Revenue Surprise**\
-`News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
-https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
 
 **Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
