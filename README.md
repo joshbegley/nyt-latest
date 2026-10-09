@@ -1,3 +1,7 @@
+**Can You Make Enchiladas With Flour Tortillas?**\
+`A ruling on a home-cooking dispute.`\
+https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
+
 **A.I. Detective**\
 `We look at an A.I.-generated photo.`\
 https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
 https://www.nytimes.com/2026/10/09/world/middleeast/palestinian-authority-elections-west-bank-postponed.html
 
 **Karol G on Cultural Appropriation in Latin Music**\
-`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music — including her mariachi song, “Ese Hombre Es Malo,” which was nominated for Best Regional Mexican Song at the 2026 Latin Grammy Awards. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
+`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
 https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
 
 **Private Medicare Plans Are Raising Costs And Forcing Millions To Find New Insurance**\
@@ -90,8 +94,8 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 `The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
-**Live Updates: Mullin Criticizes Sanctuary City Policies After ICE Shooting in New York**\
-`(No description)`\
+**Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
+`Markwayne Mullin, the homeland security secretary, attacked sanctuary city policies a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/09/world/europe/epstein-files-thorbjorn-jagland-
 **A New ‘Avatar’ Arrives**\
 `“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
 https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html
-
-**Intelligence Isn’t Power**\
-`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
-https://www.nytimes.com/2026/10/09/opinion/ezra-klein-podcast-arvind-narayanan.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

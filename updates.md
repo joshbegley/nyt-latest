@@ -1,3 +1,23 @@
+**A.I. Detective**\
+`We look at an A.I.-generated photo.`\
+https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
+
+**‘My Wife Is Actually Crying Right Now Because This Cake Is So Good’**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/09/dining/my-wife-is-actually-crying-right-now-because-this-cake-is-so-good.html
+
+**Ashley St. Clair Was Offered Millions for Her Silence on Elon Musk. She Spoke Out Instead.**\
+`In the documentary “Musk,” Ashley St. Clair, a former right-wing influencer and mother of one of Musk’s children, speaks about her relationship with him.`\
+https://www.nytimes.com/2026/10/09/movies/ashley-st-clair-interview-elon-musk.html
+
+**‘Backrooms’ and Other Horror Movies to Stream Now**\
+`Halloween brings with it one of the year’s biggest horror hits, plus ancient demons and a queered slasher throwback.`\
+https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
+
+**Palestinian Authority Says Elections Are to Be Postponed**\
+`The delay, outlined in a letter to France, comes as Fatah, the governing party, is suffering from deep internal rifts.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/palestinian-authority-elections-west-bank-postponed.html
+
 **Karol G on Cultural Appropriation in Latin Music**\
 `The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music — including her mariachi song, “Ese Hombre Es Malo,” which was nominated for Best Regional Mexican Song at the 2026 Latin Grammy Awards. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
 https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
