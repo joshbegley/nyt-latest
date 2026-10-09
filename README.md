@@ -1,3 +1,11 @@
+**Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
+`The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
+https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
+
+**Want to Avoid Another Jan. 6? Defeat These Republicans.**\
+`The 2028 election is on the ballot right now.`\
+https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.html
+
 **2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
 `A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
 https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctio
 **Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
 `Fourteen authors in the New Directions stable have received the Nobel Prize in Literature, including this year and last. How does this small press pack such a punch?`\
 https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
-
-**Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
-`The storm underwent a process that meteorologists call “rapid intensification.”`\
-https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensification.html
-
-**Who Is Ahead in Colorado's 4th Congressional District?**\
-`Track the latest polls in Colorado's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/colorado-us-house-4-polls-2026.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
