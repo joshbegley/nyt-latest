@@ -1,3 +1,7 @@
+**Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
+`Fourteen authors in the New Directions stable have been awarded the Nobel Prize in Literature, including this year and last. How does this small independent press pack such a punch?`\
+https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
+
 **Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
 `The storm underwent a process that meteorologists call “rapid intensification.”`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensification.html

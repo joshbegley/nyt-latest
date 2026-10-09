@@ -1,3 +1,7 @@
+**Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
+`Fourteen authors in the New Directions stable have been awarded the Nobel Prize in Literature, including this year and last. How does this small independent press pack such a punch?`\
+https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
+
 **Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
 `The storm underwent a process that meteorologists call “rapid intensification.”`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensification.html
@@ -169,18 +173,6 @@ https://www.nytimes.com/2026/10/09/world/americas/nayib-bukele-francisco-morazan
 **India’s Young Put Their Bodies on the Line to Be Heard**\
 `Despite police barricades and detentions, activists like Neha Bora say they are determined to keep up the pressure on Prime Minister Narendra Modi.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-student-protests-cockroach-neha-bora.html
-
-**New Delhi’s Crackdown on Protesters**\
-`The government in New Delhi is suppressing protests over the culling of 130 million names from India’s voter roll. Mujib Mashal, an India correspondent for The New York Times, reported from the heart of the demonstrations.`\
-https://www.nytimes.com/video/world/asia/100000011193986/india-protest-delhi-crackdown.html
-
-**Cars Return to a Queens Park, Rankling Some**\
-`Car-free parks advocates say the city reopened Freedom Drive, in Forest Park, to vehicles earlier than planned and without notice.`\
-https://www.nytimes.com/2026/10/09/nyregion/cars-return-to-a-queens-park-rankling-some.html
-
-**How Giant Trolls Are Helping Transform an Adirondack Mill Town**\
-`Thomas Dambo, the acclaimed Danish sculptor, unveiled his first permanent troll in New York State. Will it offer a lasting economic boon in the town of Tupper Lake?`\
-https://www.nytimes.com/2026/10/09/travel/thomas-dambo-trolls-tupper-lake-wild-center.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
