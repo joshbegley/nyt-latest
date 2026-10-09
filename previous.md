@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 10, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
+
 **Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
 `After coaching, he became one of the sport’s most visible and enduring talking heads. He died at 86.`\
 https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
-
-**Weather Balloons Help Build a Picture of Hurricane Isaias**\
-`Data from balloons sent up by the National Weather Service is a big part of how meteorologists can see rain and storms coming well in advance.`\
-https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

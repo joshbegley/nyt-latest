@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 10, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
+
 **China and Europe Step Back From Trade War With Limits on Chinese Car Exports**\
 `The European Union said the deal could roughly halve shipments of hybrid vehicles from China in the next four years. But it also could lead to an even stronger Chinese auto industry.`\
 https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
