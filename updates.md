@@ -1,3 +1,19 @@
+**Zohran Mamdani’s Moral Obscenity**\
+`A mayor for one million Jewish New Yorkers fails his duty.`\
+https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
+
+**Frieze London: Bringing Attention to Art From the Middle East**\
+`A Saudi gallery will be making its Frieze London debut, showcasing two artists from the region.`\
+https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
+
+**Frieze London: A 72-year-old Artist Makes Her Debut**\
+`Kaye Brown, a retired teacher, didn’t pick up a paintbrush until 2012. Her works depict the body-painting designs Tiwi people wear in mourning.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
+
+**Navi Pillay, South African Human Rights Lawyer, Is Awarded Nobel Prize**\
+`The 2026 Nobel Peace Prize was awarded to Navi Pillay, a former United Nations’ top human rights official who led a commission that determined Israel had committed genocide against Palestinians, a finding the Israeli government rejected.`\
+https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pillay-human-rights.html
+
 **Katie Zacharia Picked as the New White House Press Secretary**\
 `Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
 https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html

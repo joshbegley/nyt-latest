@@ -1,3 +1,15 @@
+**Zohran Mamdani’s Moral Obscenity**\
+`A mayor for one million Jewish New Yorkers fails his duty.`\
+https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
+
+**Frieze London: Bringing Attention to Art From the Middle East**\
+`A Saudi gallery will be making its Frieze London debut, showcasing two artists from the region.`\
+https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
+
+**Frieze London: A 72-year-old Artist Makes Her Debut**\
+`Kaye Brown, a retired teacher, didn’t pick up a paintbrush until 2012. Her works depict the body-painting designs Tiwi people wear in mourning.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
+
 **Katie Zacharia Picked as the New White House Press Secretary**\
 `Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
 https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
@@ -162,21 +174,13 @@ https://www.nytimes.com/interactive/polls/colorado-us-house-4-polls-2026.html
 `Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
 https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
 
-**South African Human Rights Lawyer Is Awarded Nobel Peace Prize**\
+**Navi Pillay, South African Human Rights Lawyer, Is Awarded Nobel Prize**\
 `The 2026 Nobel Peace Prize was awarded to Navi Pillay, a former United Nations’ top human rights official who led a commission that determined Israel had committed genocide against Palestinians, a finding the Israeli government rejected.`\
 https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pillay-human-rights.html
 
 **India Cancels Trains, Floods Capital with Police to Block Protests**\
 `A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
-
-**Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
-`The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
-https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
-
-**Airlines Are Upgrading Wi-Fi. Not All Are Using Elon Musk’s Service.**\
-`Mr. Musk, whose company SpaceX owns Starlink, has attacked the top executive of Delta Air Lines for not selecting the internet provider.`\
-https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
