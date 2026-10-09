@@ -1,3 +1,7 @@
+**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
+`The New York Police Department released body-worn camera footage of two police officers who arrived at the scene shortly after a federal agent shot and injured the man, Oscar Belgal, a 28-year-old from the Dominican Republic.`\
+https://www.nytimes.com/video/us/100000011205266/police-bodycam-shows-moments-after-man-shot-by-federal-agent.html
+
 **Navi Pillay, South African Jurist, Is Awarded the Nobel Peace Prize**\
 `The choice drew condemnation from Israel over Ms. Pillay’s role leading a U.N. commission that said the country had committed genocide against Palestinians.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
 `The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, what his husband said after he crowdsurfed.`\
 https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thinks-hes-a-butterfly.html
 
-**Fine Wines, Brazen Thieves: 30,000 Bottles Stolen in Tuscan Heist**\
+**30,000 Bottles of Italian Red Wine Stolen in Brazen Tuscan Heist**\
 `As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
 https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
 
@@ -163,7 +167,7 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
-`The homeland security secretary said immigration agents were trying to arrest an undocumented immigrant with a criminal record when the man was shot in his car. He took aim at New York’s policies, saying they make citizens “less safe.”`\
+`(No description)`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
