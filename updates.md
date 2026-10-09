@@ -1,3 +1,23 @@
+**How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
+`For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
+https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
+
+**Big Controversy Upends a Contest About Microscopic Videos**\
+`Nikon announced that it had disqualified the winner of its Small World in Motion competition over how A.I. was used in his submission.`\
+https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
+
+**Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
+`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But Russia has an ongoing ban on exporting diesel.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
+
+**Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
+`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after  years of developing extreme Islamist views.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
+
+**Hurricane Isaias Live Updates: Roads Flood as Major Storm Pelts Gulf Coast**\
+`The hurricane, which reached Category 3 strength, is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
 `The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html

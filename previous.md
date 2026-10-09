@@ -1,9 +1,21 @@
+**How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
+`For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
+https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
+
+**Big Controversy Upends a Contest About Microscopic Videos**\
+`Nikon announced that it had disqualified the winner of its Small World in Motion competition over how A.I. was used in his submission.`\
+https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
+
+**Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
+`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But Russia has an ongoing ban on exporting diesel.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
+
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
 `The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
 
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
-`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after years of descending into extremism.`\
+`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after  years of developing extreme Islamist views.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
 
 **9 Injured After J.F.K.-Bound Flight Hits Severe Turbulence**\
@@ -174,24 +186,12 @@ https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.h
 `We look at an A.I.-generated photo.`\
 https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
 
-**‘My Wife Is Actually Crying Right Now Because This Cake Is So Good’**\
-`And more popular recipes from the week.`\
-https://www.nytimes.com/2026/10/09/dining/my-wife-is-actually-crying-right-now-because-this-cake-is-so-good.html
-
-**Ashley St. Clair Was Offered Millions for Her Silence on Elon Musk. She Spoke Out Instead.**\
-`In the documentary “Musk,” Ashley St. Clair, a former right-wing influencer and mother of one of Musk’s children, speaks about her relationship with him.`\
-https://www.nytimes.com/2026/10/09/movies/ashley-st-clair-interview-elon-musk.html
-
-**‘Backrooms’ and Other Horror Movies to Stream Now**\
-`Halloween brings with it one of the year’s biggest horror hits, plus ancient demons and a queered slasher throwback.`\
-https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
-
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
-**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
-`The hurricane is forecast to make landfall Friday evening. Officials have issued mandatory evacuation orders along parts of the northwest Florida coast, and visitors in parts of coastal Alabama have also been asked to leave.`\
+**Hurricane Isaias Live Updates: Roads Flood as Major Storm Pelts Gulf Coast**\
+`The hurricane, which reached Category 3 strength, is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
 **Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
