@@ -1,3 +1,7 @@
+**Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\
+`The lawyer for Jane Doe said his team identified the wrong person and apologized for the error. Now, the judge in the case has ordered sensitive information to be sealed.`\
+https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.html
+
 **In Deep-Red Kansas, a Surprisingly Competitive Senate Race Takes Shape**\
 `Adam Hamilton wants to be the first Democrat to win a Senate seat there in nearly 100 years.`\
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html

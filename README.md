@@ -1,3 +1,7 @@
+**Anthropic Say Its A.I. Agents Attempted to Access a Range of Government Sites**\
+`The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
+https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
+
 **Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\
 `The lawyer for Jane Doe said his team identified the wrong person and apologized for the error. Now, the judge in the case has ordered sensitive information to be sealed.`\
 https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-
 **The Andrew Edmunds Collection Is for Sale at Frieze Masters**\
 `The Andrew Edmunds collection, which comprises more than 10,000 prints and drawings will be on sale at Frieze Masters.`\
 https://www.nytimes.com/2026/10/09/arts/design/andrew-edmunds-frieze-masters.html
-
-**The Kennedy Center Appoints an Artistic Director Amid Turmoil**\
-`Though the center has said it plans only limited programming during a two-year renovation, it has named a new leader to oversee its concerts and shows.`\
-https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

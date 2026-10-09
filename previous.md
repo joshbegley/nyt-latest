@@ -1,3 +1,7 @@
+**Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\
+`The lawyer for Jane Doe said his team identified the wrong person and apologized for the error. Now, the judge in the case has ordered sensitive information to be sealed.`\
+https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.html
+
 **In Deep-Red Kansas, a Surprisingly Competitive Senate Race Takes Shape**\
 `Adam Hamilton wants to be the first Democrat to win a Senate seat there in nearly 100 years.`\
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/arts/design/andrew-edmunds-frieze-masters.htm
 **The Kennedy Center Appoints an Artistic Director Amid Turmoil**\
 `Though the center has said it plans only limited programming during a two-year renovation, it has named a new leader to oversee its concerts and shows.`\
 https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
-
-**Marina Abramović on Her Personal Greats**\
-`The artist Marina Abramović discusses everything from her favorite TV show to her biggest regret in life.`\
-https://www.nytimes.com/video/t-magazine/100000011205035/marina-abramovic-on-her-personal-greats.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
