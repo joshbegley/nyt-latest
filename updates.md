@@ -1,3 +1,11 @@
+**India Cancels Trains, Floods Capital with Police to Block Protests**\
+`A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
+https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
+
+**Live Updates: Mullin Criticizes Sanctuary City Policies After ICE Shooting in New York**\
+`Markwayne Mullin, the homeland security secretary, spoke a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record and lashed out at Mayor Zohran Mamdani.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
 `The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
 https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
