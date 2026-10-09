@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 9, 2026**\
+`Nam Jin Yoon opens our solving weekend.`\
+https://www.nytimes.com/2026/10/08/crosswords/daily-puzzle-2026-10-09.html
+
+**Key Moments From the Georgia Senate Debate Beween Ossoff and Collins**\
+`Senator Jon Ossoff, a Democrat, called his Republican opponent, Representative Mike Collins, a bigot. Mr. Collins called the incumbent a radical “trust-fund kid.”`\
+https://www.nytimes.com/2026/10/08/us/georgia-debate-ossoff-collins.html
+
 **ICE Agent Shoots and Wounds Man in New York City**\
 `Federal officials said that they were attempting to take into custody an undocumented Dominican immigrant. Their statement did not indicate what might have prompted the shooting.`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
