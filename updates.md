@@ -1,3 +1,7 @@
+**5 Key Moments From a Testy Maine Senate Debate**\
+`The second debate between Senator Susan Collins, a vulnerable Republican, and Troy Jackson, her Democratic challenger, quickly grew heated.`\
+https://www.nytimes.com/2026/10/08/us/maine-senate-debate-key-moments.html
+
 **Arlington County Sues to Block Trump’s Triumphal Arch**\
 `The county is home to Arlington National Cemetery, the military gravesite that is central to the legal battle over the planned arch.`\
 https://www.nytimes.com/2026/10/08/us/politics/arlington-county-lawsuit-trump-arch.html

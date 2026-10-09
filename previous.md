@@ -1,3 +1,7 @@
+**5 Key Moments From a Testy Maine Senate Debate**\
+`The second debate between Senator Susan Collins, a vulnerable Republican, and Troy Jackson, her Democratic challenger, quickly grew heated.`\
+https://www.nytimes.com/2026/10/08/us/maine-senate-debate-key-moments.html
+
 **Arlington County Sues to Block Trump’s Triumphal Arch**\
 `The county is home to Arlington National Cemetery, the military gravesite that is central to the legal battle over the planned arch.`\
 https://www.nytimes.com/2026/10/08/us/politics/arlington-county-lawsuit-trump-arch.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-prot
 **Trump Administration Considers Using Ships to Deport Immigrants**\
 `Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
 https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
-
-**French Student Protests Continue as Government Seeks Way Out of Crisis**\
-`Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
-https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
 

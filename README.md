@@ -1,3 +1,7 @@
+**5 Key Moments From Hostile Michigan Senate Debate Between El-Sayed and Rogers**\
+`Slashing personal attacks dominated the first televised face-off between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and former Representative Mike Rogers, his Republican rival.`\
+https://www.nytimes.com/2026/10/08/us/politics/michigan-senate-debate-moments-el-sayed-rogers.html
+
 **5 Key Moments From a Testy Maine Senate Debate**\
 `The second debate between Senator Susan Collins, a vulnerable Republican, and Troy Jackson, her Democratic challenger, quickly grew heated.`\
 https://www.nytimes.com/2026/10/08/us/maine-senate-debate-key-moments.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/well/measles-pennsylvania-new-york-cdc.html
 **Protesters Interrupt President Trump At San Antonio Rally**\
 `Protesters interrupted President Trump nearly a dozen times at a rally in San Antonio. He was there to support the Republican Senate candidate, Ken Paxton, ahead of the midterm elections in November.`\
 https://www.nytimes.com/video/us/politics/100000011202585/trump-texas-rally-protests.html
-
-**Trump Administration Considers Using Ships to Deport Immigrants**\
-`Journeys to destinations including El Salvador and Venezuela could take days and cost millions. Officials cautioned that discussions are still preliminary.`\
-https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
 
