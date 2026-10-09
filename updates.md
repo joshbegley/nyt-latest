@@ -1,7 +1,3 @@
-**Is It Fashionable to Be Narcissistic Now? Questions and Takeaways From Fashion Month.**\
-`T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
-https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
-
 **Federal Agents Shot Man in New York City, Police Say**\
 `Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
 https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
@@ -185,4 +181,8 @@ https://www.nytimes.com/2026/10/08/t-magazine/san-francisco-movies-tech.html
 **As Hurricane Isaias Nears, Alabama Remembers Sally’s Impact in 2020**\
 `The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
 https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
+
+**Margaret Papandreou, American-Born First Lady of Greece, Dies at 102**\
+`The wife of Prime Minister Andreas Papandreou, she led reforms in the 1980s that helped legalize abortion and end other legal and social restrictions on women.`\
+https://www.nytimes.com/2026/10/08/world/europe/margaret-papandreou-dead.html
 
