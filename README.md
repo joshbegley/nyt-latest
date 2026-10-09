@@ -1,3 +1,7 @@
+**Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
+`Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
+https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
+
 **How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
 `For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
 https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-cour
 **Can You Make Enchiladas With Flour Tortillas?**\
 `A ruling on a home-cooking dispute.`\
 https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
-
-**A.I. Detective**\
-`We look at an A.I.-generated photo.`\
-https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
