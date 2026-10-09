@@ -1,3 +1,11 @@
+**Arlington County Sues to Block Trump’s Triumphal Arch**\
+`The county is home to Arlington National Cemetery, the military gravesite that is central to the legal battle over the planned arch.`\
+https://www.nytimes.com/2026/10/08/us/politics/arlington-county-lawsuit-trump-arch.html
+
+**Federal Agent Shoots Man in New York City**\
+`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. The police said federal agents shot the man.`\
+https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
+
 **NYT Crossword Answers for Oct. 9, 2026**\
 `Nam Jin Yoon opens our solving weekend.`\
 https://www.nytimes.com/2026/10/08/crosswords/daily-puzzle-2026-10-09.html
