@@ -1,3 +1,7 @@
+**Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
+`Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
+https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
+
 **How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
 `For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
 https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
 https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
 
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
-`The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
+`The Police Department released body-camera footage from officers who had arrived at the scene after a federal agent shot and injured Oscar Belgal inside his car. On Friday, Homeland Security Secretary Markwayne Mullin said that ICE agents had been trying to arrest Mr. Belgal, who Mr. Mullin said was an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
 
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.ht
 `Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
 https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
 
-**Panama Shaken by Large Earthquake and Its Aftershocks**\
+**7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
 `The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-cour
 **Can You Make Enchiladas With Flour Tortillas?**\
 `A ruling on a home-cooking dispute.`\
 https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
-
-**A.I. Detective**\
-`We look at an A.I.-generated photo.`\
-https://www.nytimes.com/2026/10/09/briefing/ai-detective.html
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\

@@ -1,3 +1,15 @@
+**Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
+`Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
+https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
+
+**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
+`The Police Department released body-camera footage from officers who had arrived at the scene after a federal agent shot and injured Oscar Belgal inside his car. On Friday, Homeland Security Secretary Markwayne Mullin said that ICE agents had been trying to arrest Mr. Belgal, who Mr. Mullin said was an undocumented immigrant with a criminal record.`\
+https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
+
+**7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
+https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
+
 **How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
 `For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
 https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
