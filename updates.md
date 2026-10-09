@@ -1,3 +1,15 @@
+**In Deep-Red Kansas, a Surprisingly Competitive Senate Race Takes Shape**\
+`Adam Hamilton wants to be the first Democrat to win a Senate seat there in nearly 100 years.`\
+https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html
+
+**Hochul Opts New York Into Trump-Backed School Voucher Plan**\
+`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide taxpayer dollars to parents for both private and public school expenses.`\
+https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
+
+**What Travelers Need to Know as Hurricane Isaias Nears the Gulf Coast**\
+`The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
+https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
+
 **The ‘A.I. vs. A.I.’ Future**\
 `The idea of A.I. monitoring other A.I. for safety and alignment may feel uncomfortable, but “we’re going to have to go there,” argues the computer science professor Arvind Narayanan on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011204138/the-ai-vs-ai-future.html
