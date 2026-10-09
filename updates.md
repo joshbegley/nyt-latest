@@ -1,3 +1,15 @@
+**Nobel Prize Winners Don’t Get a Heads-Up**\
+`Navi Pillay wasn’t the first Nobel laureate that the prize committees have struggled to reach. Many weren’t even awake when the news broke.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
+
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
+`Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
+**France’s Long, Fervent History of Protest**\
+`Student demonstrations in recent weeks re-lit a centuries-old torch of civil resistance. How do they compare to previous movements in France?`\
+https://www.nytimes.com/2026/10/09/world/europe/france-protest-history.html
+
 **‘The Headlines’ News Quiz: Oct. 9, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
