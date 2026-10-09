@@ -1,3 +1,11 @@
+**Katie Zacharia Picked as the New White House Press Secretary**\
+`Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
+https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
+
+**The Andrew Edmunds Collection Is for Sale at Frieze Masters**\
+`The Andrew Edmunds collection, which comprises more than 10,000 prints and drawings will be on sale at Frieze Masters.`\
+https://www.nytimes.com/2026/10/09/arts/design/andrew-edmunds-frieze-masters.html
+
 **The Kennedy Center Appoints an Artistic Director Amid Turmoil**\
 `Though the center has said it plans only limited programming during a two-year renovation, it has named a new leader to oversee its concerts and shows.`\
 https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
@@ -169,10 +177,6 @@ https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-exec
 **Airlines Are Upgrading Wi-Fi. Not All Are Using Elon Musk’s Service.**\
 `Mr. Musk, whose company SpaceX owns Starlink, has attacked the top executive of Delta Air Lines for not selecting the internet provider.`\
 https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
-
-**Corrections: Oct. 9, 2026**\
-`The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
-https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
