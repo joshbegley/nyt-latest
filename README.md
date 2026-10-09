@@ -1,9 +1,13 @@
+**Outrage Over a Livestreamed Execution at Fort Hood**\
+`Readers are aghast at the planned execution. Also: North Korea’s crimes; Venezuela’s gold; the search for a leader; feeding the birds; making e-bikes safer.`\
+https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
+
 **James Talarico’s Time Off the Campaign Trail Rattles Texas Senate Race**\
 `Mr. Talarico, the Democratic nominee for Senate in Texas, has not held a campaign event in more than a week. His campaign says that he is recovering from the flu.`\
 https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
 
-**An N.Y.U. Professor Left Behind Millions. Who Should Get It — His Family, or the D.S.A.?**\
-`When David Greenberg died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
+**He Left Behind Millions. Who Would Get It — His Family, or the D.S.A.?**\
+`When a New York University professor died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
 https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
 
 **Alan Cumming's Husband Thinks He's a Butterfly**\
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
 **‘The Headlines’ News Quiz: Oct. 9, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
-
-**Anthropic’s Quest to Give A.I. Morals**\
-`“For Anthropic, it was part research and part evangelism.”`\
-https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

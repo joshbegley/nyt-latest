@@ -1,3 +1,7 @@
+**James Talarico’s Time Off the Campaign Trail Rattles Texas Senate Race**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, has not held a campaign event in more than a week. His campaign says that he is recovering from the flu.`\
+https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
+
 **An N.Y.U. Professor Left Behind Millions. Who Should Get It — His Family, or the D.S.A.?**\
 `When David Greenberg died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
 https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html

@@ -1,3 +1,7 @@
+**James Talarico’s Time Off the Campaign Trail Rattles Texas Senate Race**\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, has not held a campaign event in more than a week. His campaign says that he is recovering from the flu.`\
+https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
+
 **An N.Y.U. Professor Left Behind Millions. Who Should Get It — His Family, or the D.S.A.?**\
 `When David Greenberg died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
 https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-qui
 **Anthropic’s Quest to Give A.I. Morals**\
 `“For Anthropic, it was part research and part evangelism.”`\
 https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
-
-**Anthropic’s Quest to Give A.I. Morals**\
-`Hard Fork Full Episode #216`\
-https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-ai-morals.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
