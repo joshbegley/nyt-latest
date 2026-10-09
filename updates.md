@@ -1,3 +1,7 @@
+**Hurricane Isaias Nears Landfall**\
+`Plus, the Nobel Peace Prize is awarded. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/09/briefing/isaias-nobel-ice.html
+
 **A New Bachata Star on the Horizon**\
 `Dalvin La Melodia has emerged as a strong new voice in bachata, following his feature on the 2025 collaboration album by Romeo Santos and Prince Royce. Our critic Jon Caramanica breaks down how the singer’s single “Amnesia” brings power, muscularity and texture back to modern bachata.`\
 https://www.nytimes.com/video/podcasts/100000011203982/a-new-bachata-star-on-the-horizon.html
