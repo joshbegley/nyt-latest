@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.ht
 https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
 
 **James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
-`Mr. Talarico, the Democratic nominee for Senate in Texas, said that he had been home in bed with “a nasty case of the flu.”`\
+`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had at home with “a nasty case of the flu.”`\
 https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
 
 **He Left Behind Millions. Who Would Get It — His Family, or the D.S.A.?**\

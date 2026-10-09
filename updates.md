@@ -1,3 +1,19 @@
+**Blogger on Trial: Is a Lewd Image of Shrek Free Speech or Harassment?**\
+`An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
+https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
+
+**Hurricane Isaias Comes at Inopportune Time for College Football Fans**\
+`The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
+https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
+
+**At Frieze London, the People Who Make It All Work**\
+`Behind the scenes, it takes a small army of players to pull off the art fair. Here is a look at four of them.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-workers.html
+
+**Live Updates: Roads Flood as Hurricane Isaias Pelts Gulf Coast**\
+`The Category 3 hurricane is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Beyond the London Fairs: Even More Art**\
 `The museums and galleries have much to offer those coming to Frieze London.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html

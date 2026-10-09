@@ -1,3 +1,15 @@
+**Blogger on Trial: Is a Lewd Image of Shrek Free Speech or Harassment?**\
+`An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
+https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
+
+**Hurricane Isaias Comes at Inopportune Time for College Football Fans**\
+`The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
+https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
+
+**At Frieze London, the People Who Make It All Work**\
+`Behind the scenes, it takes a small army of players to pull off the art fair. Here is a look at four of them.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-workers.html
+
 **Beyond the London Fairs: Even More Art**\
 `The museums and galleries have much to offer those coming to Frieze London.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html
@@ -174,23 +186,11 @@ https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antino
 `Let’s come back to reality (and look at some things we really want, available this season).`\
 https://www.nytimes.com/2026/10/09/style/fall-shopping-guide.html
 
-**Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
-`He was the author of more than a dozen books. “He knew every writer in New York,” Robert A. Caro said.`\
-https://www.nytimes.com/2026/10/09/obituaries/sidney-offit-dead.html
-
-**Israel Denounces the Decision to Award the Nobel Peace Prize to Navi Pillay**\
-`Ms. Pillay, a human rights lawyer, was drawn into the international spotlight last year as chair of a commission that found that Israel had committed genocide in Gaza.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay-un-genocide-report-israel.html
-
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
-`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
-https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
-
-**Hurricane Isaias Live Updates: Roads Flood as Major Storm Pelts Gulf Coast**\
-`The hurricane, which reached Category 3 strength, is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
+**Live Updates: Roads Flood as Hurricane Isaias Pelts Gulf Coast**\
+`The Category 3 hurricane is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
