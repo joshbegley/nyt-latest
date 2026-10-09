@@ -1,3 +1,7 @@
+**Navi Pillay, South African Jurist, Is Awarded the Nobel Peace Prize**\
+`The choice drew condemnation from Israel over Ms. Pillay’s role leading a U.N. commission that said the country had committed genocide against Palestinians.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.html
+
 **Outrage Over a Livestreamed Execution at Fort Hood**\
 `Readers are aghast at the planned execution. Also: North Korea’s crimes; Venezuela’s gold; the search for a leader; feeding the birds; making e-bikes safer.`\
 https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thi
 https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
 
 **The Fashions: The urge to shop**\
-`Let’s come back to reality* (*look as some things we really want, available this season).`\
+`Let’s come back to reality* (*look at some things we really want, available this season).`\
 https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
 
 **Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
@@ -170,11 +174,7 @@ https://www.nytimes.com/interactive/2026/10/09/us/politics/tiktok-texas-senate-t
 `News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
 https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
 
-**‘The Headlines’ News Quiz: Oct. 9, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
-
-**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
+**Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
