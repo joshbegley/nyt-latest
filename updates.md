@@ -1,3 +1,11 @@
+**Senate Fact Finders Decry Costs of Immigrant Detention at Guantánamo**\
+`The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
+https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
+
+**James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/09/us/midterms-elections
+
 **Hurricane Isaias: What Travelers Need to Know**\
 `The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
 https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
