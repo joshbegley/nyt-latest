@@ -1,3 +1,11 @@
+**The Local: News outlet aims to fill a ‘huge gap’**\
+`Also, Shadi brings his kids to a national soccer match. Questions ensue.`\
+https://www.nytimes.com/2026/10/09/briefing/mukhtar-ibrahim.html
+
+**Review: A Dancing Oscar Wilde, in Love but Drained of Wit**\
+`Christopher Wheeldon’s “Oscar,” performed by the Australian Ballet, is constructed with skill but is disappointingly timid.`\
+https://www.nytimes.com/2026/10/09/arts/dance/review-oscar-ballet-christopher-wheeldon-australian-ballet.html
+
 **Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
 `The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
 https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
 **How Correspondent Banking Can Enable Sanctions Evasion**\
 `The correspondent system for banking has enabled globalism — and has been exploited by companies trying to skirt U.S. sanctions.`\
 https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctions-evasion.html
-
-**Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
-`Fourteen authors in the New Directions stable have received the Nobel Prize in Literature, including this year and last. How does this small press pack such a punch?`\
-https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\

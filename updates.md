@@ -1,3 +1,11 @@
+**The Local: News outlet aims to fill a ‘huge gap’**\
+`Also, Shadi brings his kids to a national soccer match. Questions ensue.`\
+https://www.nytimes.com/2026/10/09/briefing/mukhtar-ibrahim.html
+
+**Review: A Dancing Oscar Wilde, in Love but Drained of Wit**\
+`Christopher Wheeldon’s “Oscar,” performed by the Australian Ballet, is constructed with skill but is disappointingly timid.`\
+https://www.nytimes.com/2026/10/09/arts/dance/review-oscar-ballet-christopher-wheeldon-australian-ballet.html
+
 **Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
 `The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
 https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
