@@ -1,3 +1,7 @@
+**An N.Y.U. Professor Left Behind Millions. Who Should Get It — His Family, or the D.S.A.?**\
+`When David Greenberg died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
+https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
+
 **Alan Cumming's Husband Thinks He's a Butterfly**\
 `The actor Alan Cumming tells Anna Martin, host of the “Modern Love” podcast, what his husband said after he crowdsurfed.`\
 https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thinks-hes-a-butterfly.html
