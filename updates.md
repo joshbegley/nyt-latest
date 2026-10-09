@@ -1,3 +1,11 @@
+**Inside Erik Prince’s $750 Million Mercenary Deal in Congo**\
+`The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
+https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
+
+**Life-Threatening Storm Surge Expected Along Parts of Gulf Coast**\
+`Storm surge is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
+https://www.nytimes.com/2026/10/09/weather/storm-surge-gulf-coast-hurricane-isaias.html
+
 **For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
 `The idea seemed to surprise even some inside the Trump administration.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-firing-squad-spectacle.html

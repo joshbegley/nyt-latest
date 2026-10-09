@@ -1,3 +1,11 @@
+**Inside Erik Prince’s $750 Million Mercenary Deal in Congo**\
+`The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
+https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
+
+**Life-Threatening Storm Surge Expected Along Parts of Gulf Coast**\
+`Storm surge is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
+https://www.nytimes.com/2026/10/09/weather/storm-surge-gulf-coast-hurricane-isaias.html
+
 **For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
 `The idea seemed to surprise even some inside the Trump administration.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-firing-squad-spectacle.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.ht
 **Outrage Over a Livestreamed Execution at Fort Hood**\
 `Readers are aghast at the planned execution. Also: North Korea’s crimes; Venezuela’s gold; the search for a leader; feeding the birds; making e-bikes safer.`\
 https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
-
-**James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
-`Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had been at home with “a nasty case of the flu.”`\
-https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
-
-**He Left Behind Millions. Who Would Get It — His Family, or the D.S.A.?**\
-`When a New York University professor died in 2024, it set off a legal dispute over a quietly accumulated fortune.`\
-https://www.nytimes.com/2026/10/09/nyregion/nyu-professor-dsa-inheritance.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
