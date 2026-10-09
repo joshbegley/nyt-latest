@@ -1,3 +1,7 @@
+**Live Updates: Isaias Soaks Deserted Beach Towns on Florida Panhandle**\
+`Much of the coast emptied out ahead of the Category 3 hurricane, which will make landfall in the next few hours.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Inside Erik Prince’s $750 Million Mercenary Deal in Congo**\
 `The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
 https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html

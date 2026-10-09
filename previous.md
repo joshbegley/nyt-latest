@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/10/09/opinion/fort-hood-execution.html
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Live Updates: Roads Flood as Hurricane Isaias Pelts Gulf Coast**\
-`The Category 3 hurricane is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
+**Live Updates: Isaias Soaks Deserted Beach Towns on Florida Panhandle**\
+`Much of the coast emptied out ahead of the Category 3 hurricane, which will make landfall in the next few hours.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
