@@ -38,6 +38,10 @@ https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.htm
 `Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
 https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
 
+**How the Epstein Files forced the Nobel Peace Prize to reckon with impartiality.**\
+`The`\
+https://www.nytimes.com/2026/10/09/world/europe/epstein-files-thorbjorn-jagland-committee.html
+
 **A New ‘Avatar’ Arrives**\
 `“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
 https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/10/09/arts/the-social-reckoning-movie-meta-facebook
 `A supersized portrait of the world’s richest man reveals new details and resurfaces troubling incidents from a headline-making life.`\
 https://www.nytimes.com/2026/10/09/movies/what-to-know-about-the-new-elon-musk-documentary.html
 
-**Why Weight Lifting Is Good for Your Heart**\
-`Strength training isn’t just for muscle and bone health — it’s also surprisingly good cardio.`\
-https://www.nytimes.com/2026/10/09/well/move/strength-training-heart-health.html
-
-**Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
+**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 

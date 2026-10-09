@@ -1,3 +1,11 @@
+**How the Epstein Files forced the Nobel Peace Prize to reckon with impartiality.**\
+`The`\
+https://www.nytimes.com/2026/10/09/world/europe/epstein-files-thorbjorn-jagland-committee.html
+
+**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
+`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
 `A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
