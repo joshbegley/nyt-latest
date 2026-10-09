@@ -1,3 +1,7 @@
+**India Cancels Trains, Floods Capital with Police to Block Protests**\
+`A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
+https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html
+
 **Execution of Fort Hood Shooter Will Be Livestreamed, Pentagon Says**\
 `The Pentagon said the execution of the Army officer convicted in the 2009 Fort Hood shooting would be public and livestreamed.`\
 https://www.nytimes.com/video/us/politics/100000011204524/fort-hood-shooter-execution-public-live.html
@@ -10,8 +14,8 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 `The following Editors’ Note and corrections appeared in print on Friday, Oct. 9, 2026.`\
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
-**Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
-`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. At a news conference, Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies, lashed out at Mayor Zohran Mamdani and highlighted the victim’s criminal record.`\
+**Live Updates: Mullin Criticizes Sanctuary City Policies After ICE Shooting in New York**\
+`Markwayne Mullin, the homeland security secretary, spoke a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record and lashed out at Mayor Zohran Mamdani.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/09/arts/music/karol-g-popcast-interview.html
 **At a Revamped Museum, Goya’s Nightmares Seem Scarily Relevant**\
 `The artist’s portrayals of uncertainty and social upheaval are likely to resonate with visitors to an expanded museum in Zaragoza, Spain, that opens Friday.`\
 https://www.nytimes.com/2026/10/09/arts/goya-museum-zaragoza-spain.html
-
-**Aaron Sorkin on ‘The Social Reckoning’**\
-`The writer and director explains how he evolved the character of Mark Zuckerberg in the sort-of sequel to “The Social Network.”`\
-https://www.nytimes.com/2026/10/09/movies/the-social-reckoning-clip.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
