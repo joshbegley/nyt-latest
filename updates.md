@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Oct. 9, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
+
 **Anthropic’s Quest to Give A.I. Morals**\
 `“For Anthropic, it was part research and part evangelism.”`\
 https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
