@@ -1,3 +1,15 @@
+**Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
+`Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
+https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html
+
+**‘Other Mommy’ Review: Parent, Trap**\
+`Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
+https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
+
+**Fall Fashion Guide: The Perennial Urge to Shop**\
+`Let’s come back to reality (and look at some things we really want, available this season).`\
+https://www.nytimes.com/2026/10/09/style/fall-shopping-guide.html
+
 **Large Earthquake in Panama Sets Off Tsunami Alert**\
 `The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
