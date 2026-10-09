@@ -1,3 +1,27 @@
+**Why France Is in Crisis**\
+`An autumn of discontent has gripped the country before its presidential election.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html
+
+**Is Mahomes Still the Best?**\
+`The crew debates the NFL’s top quarterback and more.`\
+https://www.nytimes.com/2026/10/09/podcasts/mahomes-nfl-trading.html
+
+**The 2026 Nobel Peace Prize Winner, and the Pentagon’s Plan to Livestream an Execution**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-headlines/nobel-peace-prize-livestream-execution.html
+
+**NYT Connections Answers for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/connections-companion-1217.html
+
+**NYT Strands Hints for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/strands-sidekick-951.html
+
+**Today’s Wordle Hints for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
+
 **Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/10/09/well/move/strength-training-heart-health.html
 **Great Horror Novels for Young Readers**\
 `The two-time Newbery medalist Erin Entrada Kelly recommends 10 books whose mingling of fear and suspense has tantalized her.`\
 https://www.nytimes.com/2026/10/09/books/review/erin-entrada-kelly-horror-novels-kids.html
-
-**Clara Wu Tsai, the Billionaire Who Wants Brooklyn to Win**\
-`Clara Wu Tsai, a co-owner of the Liberty and Nets, split from her husband of 30 years. Now she is turning her attention to leaving her mark on the borough.`\
-https://www.nytimes.com/2026/10/09/style/clara-wu-tsai-liberty-wnba.html
-
-**How Reading “East of Eden” Affected Writers and Artists**\
-`With a Netflix adaptation now streaming, Rachel Kushner, Héctor Tobar, Zoe Kazan and others share why Steinbeck’s operatic family saga has stayed with them.`\
-https://www.nytimes.com/2026/10/09/books/review/reading-east-of-eden.html
-
-**How Trump’s Revenge Campaign Descended Into Turmoil**\
-`The president’s allies have sought to prove a “grand conspiracy” through a sprawling Justice Department inquiry. It has buckled under staffing shake-ups, internal disputes and trouble finding evidence.`\
-https://www.nytimes.com/2026/10/09/us/politics/trump-grand-conspiracy.html
-
-**‘Lincoln in the Bardo’: A Preview of the Met Opera Adaptation**\
-`In an ethereal costume and surrounded by puppets, Anthony Roth Costanzo sang an aria from the operatic adaptation of George Saunders’s 2017 novel.`\
-https://www.nytimes.com/2026/10/09/t-magazine/lincoln-bardo-george-saunders-met-opera.html
-
-**Live From the 10th Floor | ‘Lincoln in the Bardo’**\
-`The countertenor Anthony Roth Costanzo singing an excerpt of an aria from the Met Opera’s adaption of George Saunders’s novel “Lincoln in the Bardo” (2017).`\
-https://www.nytimes.com/video/t-magazine/100000011202398/live-from-the-10th-floor-lincoln-in-the-bardo.html
-
-**Book Review: ‘The Rhyl Poster,’ by Tom McCarthy**\
-`Tom McCarthy’s new novel brings double agents, drugs and document drops into his signature critiques of contemporary systems.`\
-https://www.nytimes.com/2026/10/09/books/review/tom-mccarthy-rhyl-poster.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
