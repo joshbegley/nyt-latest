@@ -1,3 +1,7 @@
+**Hurricane Isaias Comes at Inconvenient Time for College Football Fans**\
+`The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
+https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
+
 **James Talarico Returns to Senate Campaign Trail in Texas After 10-Day Absence**\
 `Mr. Talarico, the Democratic nominee for Senate in Texas, showed up at a music festival, saying he had at home with “a nasty case of the flu.”`\
 https://www.nytimes.com/2026/10/09/us/james-talarico-absence-texas-senate.html
