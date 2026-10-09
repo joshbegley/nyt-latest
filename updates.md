@@ -1,3 +1,7 @@
+**ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
+`The man was in a car with a 5-year-old in the back seat when he was shot and wounded, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
 `“Man, if the Justice Department still existed, you’d be in so much trouble,” Michael Kosta said on “The Daily Show.”`\
 https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
