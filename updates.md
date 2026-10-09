@@ -1,3 +1,15 @@
+**Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
+`“Man, if the Justice Department still existed, you’d be in so much trouble,” Michael Kosta said on “The Daily Show.”`\
+https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
+
+**Will Trump’s Visit to Syracuse Be a Boon or a Bust for Blakeman?**\
+`The president is scheduled to appear on Friday at a rally with the Republican nominee for governor, but it’s not clear whether his presence will mobilize upstate Republicans.`\
+https://www.nytimes.com/2026/10/09/nyregion/trump-blakeman-syracuse-rally.html
+
+**NYT Spelling Bee Answers for October 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/09/crosswords/spelling-bee-forum.html
+
 **ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
 `The man was in a car with a 5-year-old boy in the back seat when he was shot, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html

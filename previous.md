@@ -1,3 +1,15 @@
+**Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
+`“Man, if the Justice Department still existed, you’d be in so much trouble,” Michael Kosta said on “The Daily Show.”`\
+https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
+
+**Will Trump’s Visit to Syracuse Be a Boon or a Bust for Blakeman?**\
+`The president is scheduled to appear on Friday at a rally with the Republican nominee for governor, but it’s not clear whether his presence will mobilize upstate Republicans.`\
+https://www.nytimes.com/2026/10/09/nyregion/trump-blakeman-syracuse-rally.html
+
+**NYT Spelling Bee Answers for October 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/09/crosswords/spelling-bee-forum.html
+
 **ICE Agent in New York Shoots Man in Car**\
 `An ICE agent shot a man, who federal officials said was an undocumented Dominican immigrant, on Thursday in the Marble Hill neighborhood of New York City.`\
 https://www.nytimes.com/video/nyregion/100000011204302/nyc-ice-shooting.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/2026/10/08/world/man-city-football-riyadh-houthis.html
 **Mamdani Stands By His Handling of Oct. 7 Anniversary After Emotional Day**\
 `The mayor expressed no regrets after he was criticized by Jewish leaders over a statement marking the anniversary of the Oct. 7 attacks and later booed by pro-Palestinian activists at a vigil.`\
 https://www.nytimes.com/2026/10/08/nyregion/mamdani-oct-7-statement-events-israel-palestine.html
-
-**Mamdani Responds to Backlash After Attending Oct. 7 Vigil**\
-`Mayor Zohran Mamdani of New York City responded to the backlash he received after attending a vigil that marked the third anniversary of the Oct. 7 attacks. The mayor also addressed criticism of his social media post about the attacks that focused more on the people of Gaza.`\
-https://www.nytimes.com/video/nyregion/100000011202818/mamdani-backlash-oct-7-vigil-israel.html
-
-**Trump Says U.S. Will Not Strike Iran Again Before Midterms as Military Draws Up New Plans**\
-`The U.S. military has drafted options for three days of strikes, but in recent months the president has repeatedly vetoed plans to restart the war.`\
-https://www.nytimes.com/2026/10/08/us/politics/trump-iran-war-options.html
-
-**How to Watch the Midterm Senate Race Debates in Georgia, Michigan and Maine**\
-`Each debate will be held in a TV studio without a live audience.`\
-https://www.nytimes.com/2026/10/08/us/midterm-senate-race-debates-how-to-watch.html
 
