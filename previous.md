@@ -1,3 +1,7 @@
+**ICE Agent in New York Shoots Man in Car**\
+`An ICE agent shot a man, who federal officials said was an undocumented Dominican immigrant, on Thursday in the Marble Hill neighborhood of New York City.`\
+https://www.nytimes.com/video/nyregion/100000011204302/ice-agent-in-new-york-shoots-man-in-car.html
+
 **Labour Holds Off Green Party in Election for Starmer’s Former London Seat**\
 `Sagal Abdi-Wali won a special election in central London that was seen as an early test for Prime Minister Andy Burnham, Keir Starmer’s successor.`\
 https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk-result.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/us/politics/trump-iran-war-options.html
 **How to Watch the Midterm Senate Race Debates in Georgia, Michigan and Maine**\
 `Each debate will be held in a TV studio without a live audience.`\
 https://www.nytimes.com/2026/10/08/us/midterm-senate-race-debates-how-to-watch.html
-
-**Behind South Korea’s Competitive Education System**\
-`On “The Book Review” podcast, Min Jin Lee, the author of “Pachinko” and “American Hagwon,” explains how losing social safety nets after 1997 reshaped Korean culture into an intense educational race.`\
-https://www.nytimes.com/video/books/review/100000011203524/behind-south-koreas-competitive-education-system.html
 

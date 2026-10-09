@@ -1,3 +1,7 @@
+**ICE Agent in New York Shoots Man in Car**\
+`An ICE agent shot a man, who federal officials said was an undocumented Dominican immigrant, on Thursday in the Marble Hill neighborhood of New York City.`\
+https://www.nytimes.com/video/nyregion/100000011204302/ice-agent-in-new-york-shoots-man-in-car.html
+
 **Labour Holds Off Green Party in Election for Starmer’s Former London Seat**\
 `Sagal Abdi-Wali won a special election in central London that was seen as an early test for Prime Minister Andy Burnham, Keir Starmer’s successor.`\
 https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk-result.html
