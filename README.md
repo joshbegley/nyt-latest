@@ -1,3 +1,7 @@
+**‘You’ve Hired Half the Third Reich’: 6 Key Moments From the Georgia Senate Debate**\
+`Senator Jon Ossoff, a Democrat, called his Republican opponent, Representative Mike Collins, a bigot. Mr. Collins called the incumbent a radical “trust-fund kid.”`\
+https://www.nytimes.com/2026/10/08/us/georgia-debate-ossoff-collins.html
+
 **How TikTok Warps Our Politics**\
 `What are the political consequences of the era of video? TikTok is overwhelming our world with emotional appeals that print media can’t capture, according to the Times of London columnist James Marriott, and it’s making us more mystical, tribal and autocratic.`\
 https://www.nytimes.com/video/opinion/100000011195428/how-tiktok-warps-our-politics.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-1
 **Books Our Editors Love This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/08/books/review/new-recommended-books.html
-
-**What to Make of Trump’s Uptick in Profanity**\
-`The president’s speech is getting filthier.`\
-https://www.nytimes.com/2026/10/08/opinion/trump-profanity.html
 
