@@ -1,3 +1,7 @@
+**Live Updates: Criticism Mounts After ICE Shooting in New York City**\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **On Texas TikTok, It’s All About Talarico**\
 `There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
 https://www.nytimes.com/interactive/2026/10/09/business/tiktok-texas-senate-talarico-paxton-midterms.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/t-magazine/100000011196734/my-greats-marina-abramo
 **15-Minute Lesson Plan: Look of the Week**\
 `Who would you photograph and interview if your school had a “Look of the Week” feature?`\
 https://www.nytimes.com/2026/10/09/learning/15-minute-lesson-plan-look-of-the-week.html
-
-**Jonathan Blow Made 500 Hours of Puzzles to Explode Your Mind**\
-`Jonathan Blow has wondered since childhood about how the universe runs. In his new game, Order of the Sinking Star, players can join in his obsession.`\
-https://www.nytimes.com/2026/10/09/arts/jonathan-blow-order-of-the-sinking-star.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
