@@ -1,3 +1,11 @@
+**‘The Biggest Scandal There’s Ever Been’**\
+`Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
+https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
+
+**Live Updates: Navi Pillay Wins Nobel Peace Prize**\
+`The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **A New ‘Avatar’ Arrives**\
 `“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
 https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html

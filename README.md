@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/10/09/arts/mystic-conn-unmarked-grave-mystery.html
 `Frank Huyler’s new novel is a devastating commentary on the place of an ordinary man in the world of the ultrarich.`\
 https://www.nytimes.com/2026/10/09/books/review/the-red-dress-frank-huyler.html
 
-**Live Updates: Navi Pillay Wins Nobel Peace Prize**\
-`The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
+**Live Updates: Navi Pillay, Former U.N. Human Rights Commissioner, Wins Nobel Peace Prize**\
+`Ms. Pillay, a South African lawyer, led an investigation that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
