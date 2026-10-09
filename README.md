@@ -1,3 +1,11 @@
+**In Deep-Red Kansas, a Surprisingly Competitive Senate Race Takes Shape**\
+`Adam Hamilton wants to be the first Democrat to win a Senate seat there in nearly 100 years.`\
+https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html
+
+**Hochul Opts New York Into Trump-Backed School Voucher Plan**\
+`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide taxpayer dollars to parents for both private and public school expenses.`\
+https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
+
 **The ‘A.I. vs. A.I.’ Future**\
 `The idea of A.I. monitoring other A.I. for safety and alignment may feel uncomfortable, but “we’re going to have to go there,” argues the computer science professor Arvind Narayanan on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011204138/the-ai-vs-ai-future.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.
 `The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
 https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
 
-**Hurricane Isaias: What Travelers Need to Know**\
+**What Travelers Need to Know as Hurricane Isaias Nears the Gulf Coast**\
 `The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
 https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/09/arts/kennedy-center-trump-rick-canny.html
 **Marina Abramović on Her Personal Greats**\
 `The artist Marina Abramović discusses everything from her favorite TV show to her biggest regret in life.`\
 https://www.nytimes.com/video/t-magazine/100000011205035/marina-abramovic-on-her-personal-greats.html
-
-**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
-`The New York Police Department released body-worn camera footage of two police officers who arrived at the scene shortly after a federal agent shot and injured the man, Oscar Belgal, a 28-year-old from the Dominican Republic.`\
-https://www.nytimes.com/video/us/100000011205266/police-bodycam-shows-moments-after-man-shot-by-federal-agent.html
-
-**Navi Pillay, South African Jurist, Is Awarded the Nobel Peace Prize**\
-`The choice drew condemnation from Israel over Ms. Pillay’s role leading a U.N. commission that said the country had committed genocide against Palestinians.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-navi-pillay.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

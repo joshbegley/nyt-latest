@@ -1,3 +1,11 @@
+**The ‘A.I. vs. A.I.’ Future**\
+`The idea of A.I. monitoring other A.I. for safety and alignment may feel uncomfortable, but “we’re going to have to go there,” argues the computer science professor Arvind Narayanan on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011204138/the-ai-vs-ai-future.html
+
+**Storm Surge Expected Along Parts of the Gulf Coast**\
+`Water is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
+https://www.nytimes.com/2026/10/09/weather/storm-surge-gulf-coast-hurricane-isaias.html
+
 **Inside Erik Prince’s Mercenary Deal in Congo**\
 `The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
 https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
