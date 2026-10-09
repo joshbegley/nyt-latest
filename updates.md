@@ -1,3 +1,27 @@
+**Why France Is in Crisis**\
+`An autumn of discontent has gripped the country before its presidential election.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html
+
+**Is Mahomes Still the Best?**\
+`The crew debates the NFL’s top quarterback and more.`\
+https://www.nytimes.com/2026/10/09/podcasts/mahomes-nfl-trading.html
+
+**The 2026 Nobel Peace Prize Winner, and the Pentagon’s Plan to Livestream an Execution**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-headlines/nobel-peace-prize-livestream-execution.html
+
+**NYT Connections Answers for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/connections-companion-1217.html
+
+**NYT Strands Hints for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/strands-sidekick-951.html
+
+**Today’s Wordle Hints for October 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
+
 **Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
