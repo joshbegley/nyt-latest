@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/10/08/technology/ai-chatbots-urgent-care.html
 `Explore possible outcomes in battleground states to see how each party could win a majority in the Senate.`\
 https://www.nytimes.com/interactive/2026/10/08/us/elections/senate-races-midterms-battleground-states.html
 
-**Live Updates: Debate in Michigan Senate Race Turns Heated and Personal**\
+**Midterms Updates: Senate Race in Michigan Turns Heated and Personal**\
 `The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
 https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
 

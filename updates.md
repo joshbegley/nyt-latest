@@ -1,3 +1,7 @@
+**Midterms Updates: Senate Race in Michigan Turns Heated and Personal**\
+`The encounter between Dr. Abdul El-Sayed, the Democrat, and his Republican opponent, former Representative Mike Rogers, was defined more by bitter attacks than substantive policy discussions.`\
+https://www.nytimes.com/live/2026/10/08/us/michigan-senate-debate-election
+
 **5 Key Moments From Hostile Michigan Senate Debate Between El-Sayed and Rogers**\
 `Slashing personal attacks dominated the first televised face-off between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and former Representative Mike Rogers, his Republican rival.`\
 https://www.nytimes.com/2026/10/08/us/politics/michigan-senate-debate-moments-el-sayed-rogers.html
