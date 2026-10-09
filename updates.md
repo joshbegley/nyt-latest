@@ -1,3 +1,7 @@
+**‘You’ve Lied to Me Enough.’ In Texas, MAGA Voters Are Breaking Ranks.**\
+`The Texas Democrat who says the culture wars are over.`\
+https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html
+
 **The Fallout From OpenAI’s Revenue Surprise**\
 `News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
 https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html

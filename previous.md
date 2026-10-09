@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/10/09/well/find-joy.html
 `After almost a decade away, the author of “Pachinko” is back with her latest tale about the Korean diaspora, “American Hagwon.”`\
 https://www.nytimes.com/2026/10/09/podcasts/american-hagwon.html
 
-**No One Was Paying Attention to Gina Hinojosa a Month Ago. Now Republicans Are Worried.**\
+**‘You’ve Lied to Me Enough.’ In Texas, MAGA Voters Are Breaking Ranks.**\
 `The Texas Democrat who says the culture wars are over.`\
 https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html
 
