@@ -1,3 +1,7 @@
+**Weather Balloons Help Build a Picture of Hurricane Isaias**\
+`Data from balloons sent up by the National Weather Service is a big part of how meteorologists can see rain and storms coming well in advance.`\
+https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.html
+
 **Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
 https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026

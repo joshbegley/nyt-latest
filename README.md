@@ -1,3 +1,7 @@
+**Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
+`Isaias is forecast to make landfall on late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Weather Balloons Help Build a Picture of Hurricane Isaias**\
 `Data from balloons sent up by the National Weather Service is a big part of how meteorologists can see rain and storms coming well in advance.`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/t-magazine/100000011202398/live-from-the-10th-floo
 **Book Review: ‘The Rhyl Poster,’ by Tom McCarthy**\
 `Tom McCarthy’s new novel brings double agents, drugs and document drops into his signature critiques of contemporary systems.`\
 https://www.nytimes.com/2026/10/09/books/review/tom-mccarthy-rhyl-poster.html
-
-**His Unmarked Grave Lay Forgotten for 200 Years. They Had to Fix That.**\
-`The identity of a Scottish sailor killed in Connecticut after a skirmish during the War of 1812 long remained a mystery until two local history buffs got involved.`\
-https://www.nytimes.com/2026/10/09/arts/mystic-conn-unmarked-grave-mystery.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

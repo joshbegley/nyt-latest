@@ -1,3 +1,7 @@
+**Weather Balloons Help Build a Picture of Hurricane Isaias**\
+`Data from balloons sent up by the National Weather Service is a big part of how meteorologists can see rain and storms coming well in advance.`\
+https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.html
+
 **‘The Biggest Scandal There’s Ever Been’**\
 `Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
 https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/09/books/review/tom-mccarthy-rhyl-poster.html
 **His Unmarked Grave Lay Forgotten for 200 Years. They Had to Fix That.**\
 `The identity of a Scottish sailor killed in Connecticut after a skirmish during the War of 1812 long remained a mystery until two local history buffs got involved.`\
 https://www.nytimes.com/2026/10/09/arts/mystic-conn-unmarked-grave-mystery.html
-
-**Book Review: ‘The Red Dress,’ by Frank Huyler**\
-`Frank Huyler’s new novel is a devastating commentary on the place of an ordinary man in the world of the ultrarich.`\
-https://www.nytimes.com/2026/10/09/books/review/the-red-dress-frank-huyler.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
