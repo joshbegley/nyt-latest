@@ -1,3 +1,15 @@
+**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
+`The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
+https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
+
+**Panama Shaken by Large Earthquake and Its Aftershocks**\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
+https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
+
+**Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
+`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
 `The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after years of descending into extremism.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html

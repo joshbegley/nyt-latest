@@ -1,3 +1,7 @@
+**Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
+`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But Russia has an ongoing ban on exporting diesel.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
+
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\
 `The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/dining/my-wife-is-actually-crying-right-now-b
 **Ashley St. Clair Was Offered Millions for Her Silence on Elon Musk. She Spoke Out Instead.**\
 `In the documentary “Musk,” Ashley St. Clair, a former right-wing influencer and mother of one of Musk’s children, speaks about her relationship with him.`\
 https://www.nytimes.com/2026/10/09/movies/ashley-st-clair-interview-elon-musk.html
-
-**‘Backrooms’ and Other Horror Movies to Stream Now**\
-`Halloween brings with it one of the year’s biggest horror hits, plus ancient demons and a queered slasher throwback.`\
-https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
