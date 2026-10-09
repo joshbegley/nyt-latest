@@ -1,3 +1,7 @@
+**ICE Agent Shoots and Wounds Man in New York City**\
+`Federal officials said that they were attempting to detain an undocumented immigrant. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
+https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
+
 **Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
 `Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
 https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
