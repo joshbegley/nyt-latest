@@ -1,3 +1,7 @@
+**The Fallout From OpenAI’s Revenue Surprise**\
+`News that the artificial intelligence giant’s sales weren’t growing as fast as investors had expected added to concerns about the A.I. boom.`\
+https://www.nytimes.com/2026/10/09/business/dealbook/openai-revenue-safety.html
+
 **‘The Headlines’ News Quiz: Oct. 9, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/2026/10/09/arts/jonathan-blow-order-of-the-sinking-star.
 `A leaked deposition from a fraud inquiry in 2014 provides insight into the Senate candidate’s growing wealth and his tactics for defending himself.`\
 https://www.nytimes.com/2026/10/09/us/ken-paxton-deposition-investments.html
 
-**Eli McCann Talks About ‘Stitched,’ His Best-Selling Novel About Quilting**\
-`Eli McCann had a surprise hit with his debut novel, “Stitched.” He talks about how he came to write the book and what its success has meant.`\
-https://www.nytimes.com/2026/10/09/books/review/eli-mccann-stitched.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include spooky watches for Halloween.`\
-https://www.nytimes.com/2026/10/09/movies/kids-movies-streaming-now.html
+**Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
+`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
