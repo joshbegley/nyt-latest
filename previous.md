@@ -1,3 +1,7 @@
+**A New Bachata Star on the Horizon**\
+`Dalvin La Melodia has emerged as a strong new voice in bachata, following his feature on the 2025 collaboration album by Romeo Santos and Prince Royce. Our critic Jon Caramanica breaks down how the singer’s single “Amnesia” brings power, muscularity and texture back to modern bachata.`\
+https://www.nytimes.com/video/podcasts/100000011203982/a-new-bachata-star-on-the-horizon.html
+
 **Blogger on Trial: Is a Lewd Image of Shrek Free Speech or Harassment?**\
 `An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
 https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thi
 **30,000 Bottles of Italian Red Wine Stolen in Brazen Tuscan Heist**\
 `As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
 https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
-
-**Fall Fashion Guide: The Perennial Urge to Shop**\
-`Let’s come back to reality (and look at some things we really want, available this season).`\
-https://www.nytimes.com/2026/10/09/style/fall-shopping-guide.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

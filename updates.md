@@ -1,3 +1,7 @@
+**A New Bachata Star on the Horizon**\
+`Dalvin La Melodia has emerged as a strong new voice in bachata, following his feature on the 2025 collaboration album by Romeo Santos and Prince Royce. Our critic Jon Caramanica breaks down how the singer’s single “Amnesia” brings power, muscularity and texture back to modern bachata.`\
+https://www.nytimes.com/video/podcasts/100000011203982/a-new-bachata-star-on-the-horizon.html
+
 **Hurricane Isaias Comes at Inconvenient Time for College Football Fans**\
 `The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
 https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
