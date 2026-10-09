@@ -1,4 +1,4 @@
-**Inside Erik Prince’s $750 Million Mercenary Deal in Congo**\
+**Inside Erik Prince’s Mercenary Deal in Congo**\
 `The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
 https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
 
@@ -22,7 +22,7 @@ https://www.nytimes.com/video/podcasts/100000011203982/a-new-bachata-star-on-the
 `An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
 https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
 
-**Hurricane Isaias Comes at Inconvenient Time for College Football Fans**\
+**Alabama-Georgia Football Game Is Still On Despite Hurricane Isaias, but Trump Will Skip**\
 `The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
 https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
 
