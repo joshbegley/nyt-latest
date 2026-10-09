@@ -1,3 +1,7 @@
+**Senate Fact Finders Decry Costs of Immigrant Detention at Guantánamo**\
+`The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
+https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
+
 **Hurricane Isaias: What Travelers Need to Know**\
 `The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
 https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
@@ -178,13 +182,9 @@ https://www.nytimes.com/2026/10/09/us/politics/adam-hamilton-roger-marshall-kans
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/09/upshot/flashback.html
 
-**Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
-`He and the Bears won the Super Bowl in 1986, and after coaching he became one of the sport’s most visible and enduring talking heads. He was 86.`\
-https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
-
-**Trump Administration Hits International Criminal Court With Severe Sanctions**\
-`U.S. officials announced the new, sweeping punishments just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
-https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
+**James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
 `The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
@@ -193,8 +193,4 @@ https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 **Hurricane Isaias Live Updates: Roads Flood as Major Storm Pelts Gulf Coast**\
 `The hurricane, which reached Category 3 strength, is forecast to make landfall late Friday. The Florida panhandle will bear the brunt.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
-
-**Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
-`Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
-https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
