@@ -1,3 +1,139 @@
+**A New ‘Avatar’ Arrives**\
+`“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
+https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html
+
+**What if A.I. Is Just a ‘Normal Technology’?**\
+`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
+https://www.nytimes.com/2026/10/09/opinion/ezra-klein-podcast-arvind-narayanan.html
+
+**The Best Rain Boots**\
+`Our expert reveals the ideal pairs for city streets, mud and more.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-best-rain-boots.html
+
+**France’s Long, Fervent History of Protest**\
+`Student demonstrations in recent weeks re-lit a centuries-old torch of civil resistance. How do they compare to previous movements in France?`\
+https://www.nytimes.com/2026/10/09/world/europe/frances-long-fervent-history-of-protest.html
+
+**Inside Mark Zuckerberg’s Decision to Pull the Trigger on Meta’s A.I. Agent**\
+`Meta had delayed releasing Muse, its A.I. agent app, for months over safety concerns. Then new competition forced Mr. Zuckerberg’s hand.`\
+https://www.nytimes.com/2026/10/09/technology/inside-mark-zuckerbergs-decision-to-pull-the-trigger-on-metas-ai-agent.html
+
+**How to Find More Joy**\
+`Sharing happy memories and creating small uplifting moments are just a couple of ways to build in joy, according to one expert.`\
+https://www.nytimes.com/2026/10/09/well/find-joy.html
+
+**Min Jin Lee Wants Us to Rethink Everything We Believe About Education**\
+`After almost a decade away, the author of “Pachinko” is back with her latest tale about the Korean diaspora, “American Hagwon.”`\
+https://www.nytimes.com/2026/10/09/podcasts/american-hagwon.html
+
+**No One Was Paying Attention to Gina Hinojosa a Month Ago. Now Republicans Are Worried.**\
+`The Texas Democrat who says the culture wars are over.`\
+https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html
+
+**Cancer Vaccines Are the N.I.H’s Next ‘Big Bet’**\
+`New details have emerged about an initiative that starts in December to fast-track the vaccines, similar to the successful push for the Covid-19 vaccine.`\
+https://www.nytimes.com/2026/10/09/science/cancer-vaccines-nih-big-bet.html
+
+**Every Generation’s Campus Rape Story Is New**\
+`Politics, technology and sexual norms change. But the power dynamics — and the outrage — are familiar.`\
+https://www.nytimes.com/2026/10/09/magazine/cornell-sexual-assault-feminism.html
+
+**In Alex Gibney’s ‘Musk’, the Answer to the Trillionaire’s Power Is Unsatisfying.**\
+`Alex Gibney’s nearly four-hour documentary is deeply researched. But because the mogul has long been in the spotlight, little is new.`\
+https://www.nytimes.com/2026/10/09/movies/musk-documentary-alex-gibney.html
+
+**The Winning Stock Funds This Time Weren’t Tech. They Were Energy.**\
+`Stock and bond fund returns for the quarter were bad nearly everywhere you looked, our columnist says. Energy stocks, lifted by the war with Iran, were an exception.`\
+https://www.nytimes.com/2026/10/09/business/stock-bonds-tech-energy.html
+
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/10/09/movies/new-movies-this-week-critics.html
+
+**In a Dead Hero’s Ashes, El Salvador’s Ruler Finds a New Spark**\
+`Sword in hand, Nayib Bukele is revamping Latin America’s rich tradition of political exhumations. A new crypt projects his power across Central America.`\
+https://www.nytimes.com/2026/10/09/world/americas/nayib-bukele-francisco-morazan-el-salvador.html
+
+**India’s Young Put Their Bodies on the Line to Be Heard**\
+`Despite police barricades and detentions, activists like Neha Bora say they are determined to keep up the pressure on Prime Minister Narendra Modi.`\
+https://www.nytimes.com/2026/10/09/world/asia/india-student-protests-cockroach-neha-bora.html
+
+**New Delhi’s Crackdown on Protesters**\
+`The government in New Delhi is suppressing protests over the culling of 130 million names from India’s voter roll. Mujib Mashal, an India correspondent for The New York Times, reported from the heart of the demonstrations.`\
+https://www.nytimes.com/video/world/asia/100000011193986/india-protest-delhi-crackdown.html
+
+**Cars Return to a Queens Park, Rankling Some**\
+`Car-free parks advocates say the city reopened Freedom Drive, in Forest Lawn Park, to vehicles earlier than planned and without notice.`\
+https://www.nytimes.com/2026/10/09/nyregion/cars-return-to-a-queens-park-rankling-some.html
+
+**How a ‘Garbage Artist’ Is Helping Transform an Adirondack Mill Town**\
+`Thomas Dambo, the acclaimed Danish sculptor, unveiled his first permanent troll in New York State. Will it offer a lasting economic boon in the town of Tupper Lake?`\
+https://www.nytimes.com/2026/10/09/travel/thomas-dambo-trolls-tupper-lake-wild-center.html
+
+**The Diminishing Returns of Choke-Point Diplomacy**\
+`Nations are rediscovering choke points as a foreign policy strategy. They should use them sparingly.`\
+https://www.nytimes.com/2026/10/09/opinion/foreign-policy-diplomacy-choke-point.html
+
+**Why This Election Could Be More Complicated for Democrats Than Polls Suggest**\
+`The last two midterms where Democrats surged against an unpopular Republican president were in 2006 and 2018. They had notably different outcomes.`\
+https://www.nytimes.com/2026/10/09/us/midterm-election-democratic-wave.html
+
+**Only Karol G Knows How Wild Her Life Has Been**\
+`The Colombian star talks cultural appropriation, ICE, and channeling love and letdown into stadium-filling hits.`\
+https://www.nytimes.com/2026/10/09/arts/music/karol-g-popcast-interview.html
+
+**At a Revamped Museum, Goya’s Nightmares Seem Scarily Relevant**\
+`The artist’s portrayals of uncertainty and social upheaval are likely to resonate with visitors to an expanded museum in Zaragoza, Spain, that opens Friday.`\
+https://www.nytimes.com/2026/10/09/arts/goya-museum-zaragoza-spain.html
+
+**Aaron Sorkin on ‘The Social Reckoning’**\
+`The writer and director explains how he evolved the character of Mark Zuckerberg in the sort-of sequel to “The Social Network.”`\
+https://www.nytimes.com/2026/10/09/movies/the-social-reckoning-clip.html
+
+**Marina Abramović Can’t Be Ignored**\
+`On the cusp of 80, the most influential performance artist of our time considers her legacy — and the next 20 years, too.`\
+https://www.nytimes.com/2026/10/09/t-magazine/marina-abramovic.html
+
+**All the Ways Trump Has Attacked Elections In His Second Term**\
+`President Trump has attacked the integrity of U.S. elections on more than 70 percent of the days since he returned to office, repeatedly making false claims. Here’s how he does it.`\
+https://www.nytimes.com/interactive/2026/10/09/us/politics/trump-elections-results-doubt-midterms.html
+
+**My Greats | Marina Abramović**\
+`The artist discusses everything from her favorite TV show to her biggest regret in life.`\
+https://www.nytimes.com/video/t-magazine/100000011196734/my-greats-marina-abramovic.html
+
+**15-Minute Lesson Plan: Look of the Week**\
+`Who would you photograph and interview if your school had a “Look of the Week” feature?`\
+https://www.nytimes.com/2026/10/09/learning/15-minute-lesson-plan-look-of-the-week.html
+
+**Jonathan Blow Made 500 Hours of Puzzles to Explode Your Mind**\
+`Jonathan Blow has wondered since childhood about how the universe runs. In his new game, Order of the Sinking Star, players can join in his obsession.`\
+https://www.nytimes.com/2026/10/09/arts/jonathan-blow-order-of-the-sinking-star.html
+
+**Inside Ken Paxton’s Private Testimony About His Money**\
+`A leaked deposition from a fraud inquiry in 2014 provides insight into the Senate candidate’s growing wealth and his tactics for defending himself.`\
+https://www.nytimes.com/2026/10/09/us/ken-paxton-deposition-investments.html
+
+**Eli McCann Talks About ‘Stitched,’ His Best-Selling Novel About Quilting**\
+`Eli McCann had a surprise hit with his debut novel, “Stitched.” He talks about how he came to write the book and what its success has meant.`\
+https://www.nytimes.com/2026/10/09/books/review/eli-mccann-stitched.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include spooky watches for Halloween.`\
+https://www.nytimes.com/2026/10/09/movies/kids-movies-streaming-now.html
+
+**Wayne Lawson, Vanity Fair’s ‘Secret Weapon,’ Has Died**\
+`Working with Mr. Lawson, reporters said, was like taking a master class in writing: “He was a throwback to the old style of editing.”`\
+https://www.nytimes.com/2026/10/09/business/media/wayne-lawson-dead.html
+
+**What Difference Could You Make in Your Community?**\
+`How can you — or perhaps you and others working together — improve the place where you live?`\
+https://www.nytimes.com/2026/10/09/learning/what-difference-could-you-make-in-your-community.html
+
+**Word of the Day: ruminate**\
+`This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/09/learning/word-of-the-day-ruminate.html
+
 **Touching Up a Damaged Wood Floor**\
 `Cosmetic restoration of your floorboards takes only a few simple tools and materials.`\
 https://www.nytimes.com/2026/10/09/realestate/touching-up-a-damaged-wood-floor.html
@@ -57,140 +193,4 @@ https://www.nytimes.com/2026/10/09/us/mit-professor-michel-degraff-palestine-cou
 **Screens Are Not the Problem**\
 `If we make screens the villain, then we let the people who control children’s health care — Congress, insurers and health systems — off the hook for their failures.`\
 https://www.nytimes.com/2026/10/09/opinion/children-screens-parents-health.html
-
-**The New York Times News Quiz, October 9, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/10/09/briefing/weekly-news-quiz.html
-
-**What if A.I. Is Just a ‘Normal Technology’?**\
-`The computer scientist Arvind Narayanan explains that just because A.I. is intelligent doesn’t necessarily mean it’s powerful.`\
-https://www.nytimes.com/video/opinion/100000011203468/what-if-ai-is-just-a-normal-technology.html
-
-**Zuckerberg Loses Control in “The Social Reckoning”**\
-`The director and writer Aaron Sorkin explains how he evolved the character of Mark Zuckerberg in the film “The Social Reckoning.”`\
-https://www.nytimes.com/video/movies/100000011194622/social-reckoning-clip.html
-
-**As Putin Wages Shadow War, Europe Looks for a Way to Hit Back**\
-`Moscow has used tactics of fear and ambiguity to try to divide NATO and limit support for Ukraine. But how should Europe retaliate? And how hard?`\
-https://www.nytimes.com/2026/10/09/world/europe/putin-russia-ukraine-war-europe-nato.html
-
-**Senate Debates in Michigan and Georgia Turn Heated and Personal**\
-`In Michigan and Georgia, candidates in races that could determine control of the Senate exchanged bitter, personal attacks during Thursday’s debates.`\
-https://www.nytimes.com/video/us/politics/100000011204310/michigan-georgia-senate-debate.html
-
-**Live Updates: Nobel Peace Prize Winner to Be Announced**\
-`The recipient of the prize, one of the world’s most prestigious honors, is set to be announced on Friday morning in Oslo. The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
-https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
-
-**Michael Kosta Slams Kimberly Guilfoyle Over Reports She Asked Donor to Pay $100,000 Bill**\
-`“Man, if the Justice Department still existed, you’d be in so much trouble,” he said on “The Daily Show.”`\
-https://www.nytimes.com/2026/10/09/arts/television/latenight-michael-kosta-kimberly-guilfoyle.html
-
-**Will Trump’s Visit to Syracuse Be a Boon or a Bust for Blakeman?**\
-`The president is scheduled to appear on Friday at a rally with the Republican nominee for governor, but it’s not clear whether his presence will mobilize upstate Republicans.`\
-https://www.nytimes.com/2026/10/09/nyregion/trump-blakeman-syracuse-rally.html
-
-**NYT Spelling Bee Answers for October 9, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/09/crosswords/spelling-bee-forum.html
-
-**ICE Agent in New York Shoots Man in Car**\
-`An ICE agent shot a man, who federal officials said was an undocumented Dominican immigrant, on Thursday in the Marble Hill neighborhood of New York City.`\
-https://www.nytimes.com/video/nyregion/100000011204302/nyc-ice-shooting.html
-
-**Labour Holds Off Green Party in Election for Starmer’s Former London Seat**\
-`Sagal Abdi-Wali won a special election in central London that was seen as an early test for Prime Minister Andy Burnham, Keir Starmer’s successor.`\
-https://www.nytimes.com/2026/10/09/world/europe/holborn-st-pancras-byelection-uk-result.html
-
-**Here Is How to Bring Israel Out of Isolation**\
-`Many Israelis are hopeful that a new government would ease the growing distance between their country and the rest of the world.`\
-https://www.nytimes.com/2026/10/09/opinion/israel-elections-palestinians.html
-
-**Fiery Senate Debates in Maine, Michigan and Georgia: Five Takeaways**\
-`Candidates in three of the races that could determine control of the Senate engaged in bitter and personal attacks.`\
-https://www.nytimes.com/2026/10/09/us/fiery-senate-debates-in-maine-michigan-and-georgia-five-takeaways.html
-
-**A Rural Village Voted to Leave the U.K., Stirring Britain’s Migration Debate**\
-`A plan to house 1,250 asylum seekers on the outskirts of Piddington prompted a symbolic independence vote, highlighting a growing dilemma for the government.`\
-https://www.nytimes.com/2026/10/09/world/europe/piddington-village-uk-independence.html
-
-**Their Ice Cream Date Lasted Over Four Hours**\
-`From quiet glances in UConn classrooms to Capitol Hill internships, Megan Handau and Lucas Bladen built a bond rooted in steady support and shared ambition.`\
-https://www.nytimes.com/2026/10/09/style/megan-handau-lucas-bladen-wedding.html
-
-**She Turned to Witchcraft to Save the Wedding. It Sort of Worked.**\
-`Synclaire Warren, a feminist creator admired by Gloria Steinem, married Shane Clancy during the nor’easter last month.`\
-https://www.nytimes.com/2026/10/09/style/synclaire-warren-shane-clancy-wedding.html
-
-**When Breaking Up Means Going from One Bed to Bunk Beds**\
-`Our apartment was tiny. We decided to keep living together. Were we too old for a bunk bed?`\
-https://www.nytimes.com/2026/10/09/style/modern-love-when-breaking-up-means-going-from-one-bed-to-bunk-beds.html
-
-**She Lost Her Boyfriend, Her Job and a TV Gig. Then She Found Love.**\
-`Feeling down on her luck, Bayleigh Pelham booked a last-minute trip to Sayulita, Mexico — which is exactly where she met Stephanie Cassano.`\
-https://www.nytimes.com/2026/10/09/style/stephanie-cassano-bayleigh-pelham-wedding.html
-
-**A Decade After Meeting, They Were a ‘Happy Family’ of Four**\
-`Sarah Willis and Peter Timmins met in 2016, but didn’t start dating until she saw his dating profile a year later.`\
-https://www.nytimes.com/2026/10/09/style/sarah-willis-peter-timmins-wedding.html
-
-**On This Day, Oct. 9: In 1967, Che Guevara Was Executed**\
-`In 1967, Che Guevara, a communist revolutionary and prominent leader of the Cuban Revolution, was executed by Bolivian soldiers after being captured while leading a failed guerrilla campaign in Bolivia.`\
-https://www.nytimes.com/2026/10/09/learning/on-this-day-oct-9.html
-
-**5 Key Moments From Hostile Michigan Senate Debate Between El-Sayed and Rogers**\
-`Slashing personal attacks dominated the first televised face-off between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and former Representative Mike Rogers, his Republican rival.`\
-https://www.nytimes.com/2026/10/08/us/politics/michigan-senate-debate-moments-el-sayed-rogers.html
-
-**5 Key Moments From a Testy Maine Senate Debate**\
-`The second debate between Senator Susan Collins, a vulnerable Republican, and Troy Jackson, her Democratic challenger, quickly grew heated.`\
-https://www.nytimes.com/2026/10/08/us/maine-senate-debate-key-moments.html
-
-**Arlington County Sues to Block Trump’s Triumphal Arch**\
-`The county is home to Arlington National Cemetery, the military gravesite that is central to the legal battle over the planned arch.`\
-https://www.nytimes.com/2026/10/08/us/politics/arlington-county-lawsuit-trump-arch.html
-
-**NYT Crossword Answers for Oct. 9, 2026**\
-`Nam Jin Yoon opens our solving weekend.`\
-https://www.nytimes.com/2026/10/08/crosswords/daily-puzzle-2026-10-09.html
-
-**Key Moments From the Georgia Senate Debate Beween Ossoff and Collins**\
-`Senator Jon Ossoff, a Democrat, called his Republican opponent, Representative Mike Collins, a bigot. Mr. Collins called the incumbent a radical “trust-fund kid.”`\
-https://www.nytimes.com/2026/10/08/us/georgia-debate-ossoff-collins.html
-
-**How TikTok Warps Our Politics**\
-`What are the political consequences of the era of video? TikTok is overwhelming our world with emotional appeals that print media can’t capture, according to the Times of London columnist James Marriott, and it’s making us more mystical, tribal and autocratic.`\
-https://www.nytimes.com/video/opinion/100000011195428/how-tiktok-warps-our-politics.html
-
-**Reading Is Hard. Watching Is Not.**\
-`Reading has been on the decline since the advent of television, and now it’s only getting worse. On “Interesting Times,” the Times of London columnist James Marriott explains why we’d rather watch videos than read books.`\
-https://www.nytimes.com/video/opinion/100000011195427/reading-is-hard-watching-is-not.html
-
-**Some Palestinians Express Discomfort With Protest Targeting Mamdani**\
-`Palestinian advocates acknowledged the range of viewpoints within their movement but were dismayed by the vitriol directed at Mayor Zohran Mamdani, a longtime ally of their cause.`\
-https://www.nytimes.com/2026/10/08/nyregion/mamdani-nyc-october-7-vigil-protesters.html
-
-**Is It Fashionable to Be Narcissistic Now? Questions and Takeaways From Fashion Month.**\
-`T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
-https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
-
-**Federal Agent Shoots Man in New York City**\
-`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. The police said federal agents shot the man.`\
-https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
-
-**How Trump Has Alienated Republican Voters**\
-`Plus, a big debate night in Senate battlegrounds.`\
-https://www.nytimes.com/2026/10/08/us/politics/trump-republican-voters.html
-
-**Fort Hood Shooter’s Execution Will Be Public and Streamed Live, Pentagon Says**\
-`If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
-https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
-
-**Karol G on Bringing Latin Culture to the World’s Biggest Stages**\
-`Watch the full conversation with Karol G. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011198591/karol-g-on-bringing-latin-culture-to-the-worlds-biggest-stages.html
-
-**‘Animals’ Review: The Politician’s Dilemma**\
-`Ben Affleck plays a mayoral candidate who’s having a very bad day in this fizz-free political thriller.`\
-https://www.nytimes.com/2026/10/08/movies/animals-review-the-politicians-dilemma.html
 
