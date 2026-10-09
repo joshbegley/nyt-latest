@@ -1,3 +1,7 @@
+**Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
+`A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
+
 **Why France Is in Crisis**\
 `An autumn of discontent has gripped the country before its presidential election.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html

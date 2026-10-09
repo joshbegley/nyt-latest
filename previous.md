@@ -1,3 +1,7 @@
+**Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
+`A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-winner-pillay.html
+
 **Why France Is in Crisis**\
 `An autumn of discontent has gripped the country before its presidential election.`\
 https://www.nytimes.com/2026/10/09/podcasts/the-daily/france-economy-student-protests.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/09/movies/what-to-know-about-the-new-elon-musk-d
 **Why Weight Lifting Is Good for Your Heart**\
 `Strength training isn’t just for muscle and bone health — it’s also surprisingly good cardio.`\
 https://www.nytimes.com/2026/10/09/well/move/strength-training-heart-health.html
-
-**Great Horror Novels for Young Readers**\
-`The two-time Newbery medalist Erin Entrada Kelly recommends 10 books whose mingling of fear and suspense has tantalized her.`\
-https://www.nytimes.com/2026/10/09/books/review/erin-entrada-kelly-horror-novels-kids.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Wins Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
