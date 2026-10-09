@@ -1,3 +1,7 @@
+**Live Updates: Criticism Mounts After ICE Shooting in New York City**\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **On Texas TikTok, It’s All About Talarico**\
 `There is a lively social media debate about one of this year’s most-watched Senate races — and one candidate in particular.`\
 https://www.nytimes.com/interactive/2026/10/09/business/tiktok-texas-senate-talarico-paxton-midterms.html
