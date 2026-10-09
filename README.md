@@ -130,8 +130,8 @@ https://www.nytimes.com/video/opinion/100000011187601/the-mean-girls-presidency.
 `Also, Canadian poet Anne Carson wins Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/08/briefing/explosions-rattle-saudi-capital.html
 
-**ICE Agent Shoots and Wounds Man in New York City**\
-`Federal officials said that they were attempting to detain an undocumented immigrant. Mayor Zohran Mamdani accused the Trump administration of “terrorizing our city.”`\
+**ICE Agent Shoots Man During Arrest Attempt in New York Neighborhood**\
+`The man was in a car with a 5-year-old boy in the back seat when he was shot, the authorities said. Mayor Zohran Mamdani said the Trump administration was “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/08/nyregion/ice-shooting-nyc-bronx.html
 
 **What Are the Remaining Millennium Prize Problems?**\
