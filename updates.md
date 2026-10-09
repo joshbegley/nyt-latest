@@ -1,3 +1,11 @@
+**With Isaias in the Gulf, 2 Pacific Storms Are Barreling Toward Mexico**\
+`Hurricane Simon and Tropical Storm Rachel are both expected to make landfall in the coming days. Rachel could also affect Southern California.`\
+https://www.nytimes.com/2026/10/09/weather/hurricane-simon-rachel-california.html
+
+**A.I. Leaders Are Turning to Religion**\
+`This week on “Hard Fork”, the group discusses the trend of A.I. executives and thought leaders turning to religion for guidance. As models are growing more complex and capable, Anthropic has been meeting with religious scholars to try to learn how to make its A.I. models morally good.`\
+https://www.nytimes.com/video/podcasts/100000011203966/ai-leaders-are-turning-to-religion.html
+
 **The Local: News outlet aims to fill a ‘huge gap’**\
 `Also, Shadi brings his kids to a national soccer match. Questions ensue.`\
 https://www.nytimes.com/2026/10/09/briefing/mukhtar-ibrahim.html

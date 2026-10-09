@@ -1,3 +1,7 @@
+**Some G.O.P. Lawmakers Pan Hegseth’s Plan to Stream Execution of Fort Hood Shooter**\
+`Some G.O.P. members of Congress said that broadcasting the execution of the Fort Hood shooter was inappropriate, though others gleefully applauded it.`\
+https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-execution.html
+
 **With Isaias in the Gulf, 2 Pacific Storms Are Barreling Toward Mexico**\
 `Hurricane Simon and Tropical Storm Rachel are both expected to make landfall in the coming days. Rachel could also affect Southern California.`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-simon-rachel-california.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
 **China and Europe Step Back From Trade War With Limits on Chinese Car Exports**\
 `The European Union said the deal could roughly halve shipments of hybrid vehicles from China in the next four years. But it also could lead to an even stronger Chinese auto industry.`\
 https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
-
-**Trump Announces White House Inquiry Into Fed Governor Lisa Cook**\
-`President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
-https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
