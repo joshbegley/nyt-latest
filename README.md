@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-ar
 https://www.nytimes.com/2026/10/09/briefing/fish-food.html
 
 **Nobel Prize Winners Don’t Get a Heads-Up**\
-`The calls for`\
+`Navi Pillay wasn’t the first Nobel laureate that the prize committees have struggled to reach. Many weren’t even awake when the news broke.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
 
 **Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/10/09/crosswords/strands-sidekick-951.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
 https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
 
-**Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
@@ -80,7 +80,7 @@ https://www.nytimes.com/2026/10/09/podcasts/the-best-rain-boots.html
 
 **France’s Long, Fervent History of Protest**\
 `Student demonstrations in recent weeks re-lit a centuries-old torch of civil resistance. How do they compare to previous movements in France?`\
-https://www.nytimes.com/2026/10/09/world/europe/frances-long-fervent-history-of-protest.html
+https://www.nytimes.com/2026/10/09/world/europe/france-protest-history.html
 
 **Inside Mark Zuckerberg’s Decision to Pull the Trigger on Meta’s A.I. Agent**\
 `Meta had delayed releasing Muse, its A.I. agent app, for months over safety concerns. Then new competition forced Mr. Zuckerberg’s hand.`\
