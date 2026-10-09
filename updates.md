@@ -1,3 +1,7 @@
+**Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
+`The homeland security secretary said immigration agents were trying to arrest an undocumented immigrant with a criminal record when the man was shot in his car. He took aim at New York’s policies, saying they make citizens “less safe.”`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
 `After coaching, he became one of the sport’s most visible and enduring talking heads. He died at 86.`\
 https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
