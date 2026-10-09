@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-d
 https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
 
 **Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
-`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But Russia has an ongoing ban on exporting diesel.`\
+`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But the amounts would be small relative to global demand.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
 
 **Police Bodycam Shows Moments After Man Shot by Federal Agent**\

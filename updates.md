@@ -1,3 +1,7 @@
+**Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
+`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But the amounts would be small relative to global demand.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
+
 **Senate Fact Finders Decry Costs of Immigrant Detention at Guantánamo**\
 `The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
 https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
