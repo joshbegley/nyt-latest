@@ -1,3 +1,7 @@
+**In the Shadows of the Art World, an Invisible Industry Operates**\
+`Right now, hundreds of artworks worth millions are making their way across the world. These people make the travel arrangements.`\
+https://www.nytimes.com/2026/10/09/arts/design/frieze-london-art-shipping.html
+
 **Trump Casts Himself as Columbus’s Protector in Pitch to Italian Americans**\
 `President Trump sought to inject the Genoese explorer into the current political conversation.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/09/business/trump-obamacare-refund-checks.html
 **Ocasio-Cortez to Campaign for El-Sayed on Bus Tour in Michigan**\
 `Representative Alexandria Ocasio-Cortez of New York endorsed Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, ahead of the primary. She also appeared with him at a fund-raiser in New York this week.`\
 https://www.nytimes.com/2026/10/09/us/ocasio-cortez-el-sayed-michigan-senate.html
-
-**Top Democratic Group Pumps Millions Into Kansas Senate Race**\
-`The $5 million investment from the main super PAC for Senate Democrats is a sign that party leaders see a path to winning in another red state as the political environment worsens for Republicans.`\
-https://www.nytimes.com/2026/10/09/us/politics/adam-hamilton-roger-marshall-kansas-senate.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

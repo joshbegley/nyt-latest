@@ -1,3 +1,7 @@
+**Trump Casts Himself as Columbus’s Protector in Pitch to Italian Americans**\
+`President Trump sought to inject the Genoese explorer into the current political conversation.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.html
+
 **Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
 `President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But the amounts would be small relative to global demand.`\
 https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
