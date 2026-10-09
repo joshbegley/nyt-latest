@@ -1,3 +1,7 @@
+**Arlington County Sues to Block Trump’s Triumphal Arch**\
+`The county is home to Arlington National Cemetery, the military gravesite that is central to the legal battle over the planned arch.`\
+https://www.nytimes.com/2026/10/08/us/politics/arlington-county-lawsuit-trump-arch.html
+
 **NYT Crossword Answers for Oct. 9, 2026**\
 `Nam Jin Yoon opens our solving weekend.`\
 https://www.nytimes.com/2026/10/08/crosswords/daily-puzzle-2026-10-09.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/2026/10/08/nyregion/mamdani-nyc-october-7-vigil-proteste
 `T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
 https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
 
-**Federal Agents Shot Man in New York City**\
-`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. Police said federal agents shot the man.`\
+**Federal Agent Shoots Man in New York City**\
+`Cellphone footage shows the moments after a man was shot on Thursday in the Marble Hill neighborhood of New York City. The police said federal agents shot the man.`\
 https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents-nyc.html
 
 **How Trump Has Alienated Republican Voters**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/us/trump-deportations-boats-ships.html
 **French Student Protests Continue as Government Seeks Way Out of Crisis**\
 `Mass protests over decrepit schools and absent teachers are in their third week, with more planned. Officials have failed so far to quell a movement drawing many adult supporters.`\
 https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html
-
-**What’s Going On in This Picture? | Oct. 19, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-picture-oct-19-2026.html
 
