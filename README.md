@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: Federal Officials Criticize New York City Policies After ICE Shooting**\
-`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies at a news conference.`\
+`A federal immigration agent shot and wounded a man on Thursday during an arrest attempt. Markwayne Mullin, the homeland security secretary, blamed sanctuary city policies at a news conference, and highlighted the victim’s criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
@@ -181,10 +181,6 @@ https://www.nytimes.com/2026/10/09/t-magazine/marina-abramovic.html
 **All the Ways Trump Has Attacked Elections In His Second Term**\
 `President Trump has attacked the integrity of U.S. elections on more than 70 percent of the days since he returned to office, repeatedly making false claims. Here’s how he does it.`\
 https://www.nytimes.com/interactive/2026/10/09/us/politics/trump-elections-results-doubt-midterms.html
-
-**My Greats | Marina Abramović**\
-`The artist discusses everything from her favorite TV show to her biggest regret in life.`\
-https://www.nytimes.com/video/t-magazine/100000011196734/my-greats-marina-abramovic.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
