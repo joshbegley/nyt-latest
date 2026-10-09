@@ -1,3 +1,7 @@
+**Some Palestinians Express Discomfort With Protest Targeting Mamdani**\
+`Palestinian advocates acknowledged the range of viewpoints within their movement but were dismayed by the vitriol directed at Mayor Zohran Mamdani, a longtime ally of their cause.`\
+https://www.nytimes.com/2026/10/08/nyregion/mamdani-nyc-october-7-vigil-protesters.html
+
 **Is It Fashionable to Be Narcissistic Now? Questions and Takeaways From Fashion Month.**\
 `T’s editors ponder this and other questions that emerged from a month of runway shows spread across New York, London, Milan and Paris.`\
 https://www.nytimes.com/2026/10/08/t-magazine/fashion-month-questions-takeaways.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/08/learning/whats-going-on-in-this-graph-oct-21-
 **Forget Tech. San Francisco Is Home to Great Movies.**\
 `Along with films about algorithms and AI, the year has brought human stories that are welcome reminders of what life in the city is really like.`\
 https://www.nytimes.com/2026/10/08/t-magazine/san-francisco-movies-tech.html
-
-**As Hurricane Isaias Nears, Alabama Remembers Sally’s Impact in 2020**\
-`The storm led to widespread damage in 2020 in Gulf Shores. Hurricane Isaias is expected to hit nearby.`\
-https://www.nytimes.com/2026/10/08/weather/hurricane-isaias-alabama-landfall.html
 
