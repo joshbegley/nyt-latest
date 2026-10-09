@@ -54,8 +54,8 @@ https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
 `The hack left the nation’s premier law enforcement agency racing to respond as both the victim and the investigator of a murky group that threatened to expose agents’ personal information.`\
 https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
 
-**China and Europe Agree to Deal to Limit Chinese Exports of Hybrid Cars**\
-`The European Union said that the deal could roughly halve Chinese shipments over four years. But it also could lead to an even stronger Chinese auto industry.`\
+**China and Europe Step Back From Trade War With Limits on Chinese Car Exports**\
+`The European Union said the deal could roughly halve shipments of hybrid vehicles from China in the next four years. But it also could lead to an even stronger Chinese auto industry.`\
 https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
 
 **Trump Announces White House Inquiry Into Fed Governor Lisa Cook**\

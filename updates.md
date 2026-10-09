@@ -1,3 +1,7 @@
+**China and Europe Step Back From Trade War With Limits on Chinese Car Exports**\
+`The European Union said the deal could roughly halve shipments of hybrid vehicles from China in the next four years. But it also could lead to an even stronger Chinese auto industry.`\
+https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
+
 **Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
 `The homeland security secretary said immigration agents were trying to arrest an undocumented immigrant with a criminal record when the man was shot in his car. He took aim at New York’s policies, saying they make citizens “less safe.”`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
