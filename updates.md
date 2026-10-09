@@ -1,3 +1,7 @@
+**Some G.O.P. Lawmakers Pan Hegseth’s Plan to Stream Execution of Fort Hood Shooter**\
+`Some G.O.P. members of Congress said that broadcasting the execution of the Fort Hood shooter was inappropriate, though others gleefully applauded it.`\
+https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-execution.html
+
 **With Isaias in the Gulf, 2 Pacific Storms Are Barreling Toward Mexico**\
 `Hurricane Simon and Tropical Storm Rachel are both expected to make landfall in the coming days. Rachel could also affect Southern California.`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-simon-rachel-california.html
