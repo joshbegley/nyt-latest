@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Oct. 9, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/09/podcasts/the-headlines/the-headlines-news-quiz-oct-9-2026.html
+
 **Anthropic’s Quest to Give A.I. Morals**\
 `“For Anthropic, it was part research and part evangelism.”`\
 https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/09/books/review/eli-mccann-stitched.html
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include spooky watches for Halloween.`\
 https://www.nytimes.com/2026/10/09/movies/kids-movies-streaming-now.html
-
-**Wayne Lawson, Vanity Fair’s ‘Secret Weapon,’ Has Died**\
-`Working with Mr. Lawson, reporters said, was like taking a master class in writing: “He was a throwback to the old style of editing.”`\
-https://www.nytimes.com/2026/10/09/business/media/wayne-lawson-dead.html
 

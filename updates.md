@@ -1,3 +1,19 @@
+**Anthropic’s Quest to Give A.I. Morals**\
+`“For Anthropic, it was part research and part evangelism.”`\
+https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
+
+**Anthropic’s Quest to Give A.I. Morals**\
+`Hard Fork Full Episode #216`\
+https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-ai-morals.html
+
+**Houthi Attacks on Riyadh Airport Leave 3 Dead, Saudi Arabia Says**\
+`The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
+
+**Nobel Prize Winners Don’t Get a Heads-Up**\
+`The calls for`\
+https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
+
 **So you’re getting a Nobel Prize? Don’t expect a heads-up.**\
 `The calls for`\
 https://www.nytimes.com/2026/10/09/world/europe/so-you-won-a-nobel-prize-dont-expect-a-heads-up.html

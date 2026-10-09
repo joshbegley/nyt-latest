@@ -1,10 +1,22 @@
+**Anthropic’s Quest to Give A.I. Morals**\
+`“For Anthropic, it was part research and part evangelism.”`\
+https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
+
+**Anthropic’s Quest to Give A.I. Morals**\
+`Hard Fork Full Episode #216`\
+https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-ai-morals.html
+
+**Houthi Attacks on Riyadh Airport Leave 3 Dead, Saudi Arabia Says**\
+`The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
+
 **Fish Food**\
 `We take a look at where the fish on your plate come from.`\
 https://www.nytimes.com/2026/10/09/briefing/fish-food.html
 
-**So you’re getting a Nobel Prize? Don’t expect a heads-up.**\
+**Nobel Prize Winners Don’t Get a Heads-Up**\
 `The calls for`\
-https://www.nytimes.com/2026/10/09/world/europe/so-you-won-a-nobel-prize-dont-expect-a-heads-up.html
+https://www.nytimes.com/2026/10/09/world/europe/nobel-prize-winners-phone-call-know.html
 
 **Navi Pillay, a South African Human Rights Lawyer, Is Awarded the Nobel Peace Prize**\
 `A U.N. commission led by Ms. Pillay that investigated the war in Gaza found last year that Israel had committed genocide against Palestinians.`\
@@ -177,20 +189,4 @@ https://www.nytimes.com/2026/10/09/movies/kids-movies-streaming-now.html
 **Wayne Lawson, Vanity Fair’s ‘Secret Weapon,’ Has Died**\
 `Working with Mr. Lawson, reporters said, was like taking a master class in writing: “He was a throwback to the old style of editing.”`\
 https://www.nytimes.com/2026/10/09/business/media/wayne-lawson-dead.html
-
-**What Difference Could You Make in Your Community?**\
-`How can you — or perhaps you and others working together — improve the place where you live?`\
-https://www.nytimes.com/2026/10/09/learning/what-difference-could-you-make-in-your-community.html
-
-**Word of the Day: ruminate**\
-`This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/09/learning/word-of-the-day-ruminate.html
-
-**Touching Up a Damaged Wood Floor**\
-`Cosmetic restoration of your floorboards takes only a few simple tools and materials.`\
-https://www.nytimes.com/2026/10/09/realestate/touching-up-a-damaged-wood-floor.html
-
-**What to Know About the Facebook Whistle-Blowing Case Depicted in ‘The Social Reckoning’**\
-`Aaron Sorkin’s sort-of sequel to the 2010 “Social Network” dramatizes a whistle-blowing case at Facebook. Here’s what to know.`\
-https://www.nytimes.com/2026/10/09/arts/the-social-reckoning-movie-meta-facebook-mark-zuckerberg.html
 
