@@ -1,3 +1,7 @@
+**How Correspondent Banking Can Enable Sanctions Evasion**\
+`The correspondent system for banking has enabled globalism — and has been exploited by companies trying to skirt U.S. sanctions.`\
+https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctions-evasion.html
+
 **Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
 `Fourteen authors in the New Directions stable have been awarded the Nobel Prize in Literature, including this year and last. How does this small independent press pack such a punch?`\
 https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: Mullin Criticizes Sanctuary City Policies After ICE Shooting in New York**\
-`Markwayne Mullin, the homeland security secretary, spoke a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record and lashed out at Mayor Zohran Mamdani.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/09/movies/new-movies-this-week-critics.html
 **In a Dead Hero’s Ashes, El Salvador’s Ruler Finds a New Spark**\
 `Sword in hand, Nayib Bukele is revamping Latin America’s rich tradition of political exhumations. A new crypt projects his power across Central America.`\
 https://www.nytimes.com/2026/10/09/world/americas/nayib-bukele-francisco-morazan-el-salvador.html
-
-**India’s Young Put Their Bodies on the Line to Be Heard**\
-`Despite police barricades and detentions, activists like Neha Bora say they are determined to keep up the pressure on Prime Minister Narendra Modi.`\
-https://www.nytimes.com/2026/10/09/world/asia/india-student-protests-cockroach-neha-bora.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

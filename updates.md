@@ -1,3 +1,11 @@
+**How Correspondent Banking Can Enable Sanctions Evasion**\
+`The correspondent system for banking has enabled globalism — and has been exploited by companies trying to skirt U.S. sanctions.`\
+https://www.nytimes.com/2026/10/09/business/correspondent-banking-russia-sanctions-evasion.html
+
+**Live Updates: Mullin Criticizes Sanctuary City Policies After ICE Shooting in New York**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Anne Carson’s Publisher Has Won the Nobel Prize Twice in Two Years**\
 `Fourteen authors in the New Directions stable have been awarded the Nobel Prize in Literature, including this year and last. How does this small independent press pack such a punch?`\
 https://www.nytimes.com/2026/10/09/books/new-directions-nobel-anne-carson.html
