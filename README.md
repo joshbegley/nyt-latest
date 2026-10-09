@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/09/business/elon-musk-delta-starlink-wifi.html
 https://www.nytimes.com/2026/10/09/pageoneplus/editors-note-oct-9-2026.html
 
 **Live Updates: N.Y.P.D. Releases Bodycam Footage of Moments After ICE Shooting**\
-`Markwayne Mullin, the homeland security secretary, attacked sanctuary city policies a day after a federal immigration agent wounded a man in his car during an arrest attempt. At a news conference, Mr. Mullin highlighted the victim’s criminal record.`\
+`The homeland security secretary said immigration agents were trying to arrest an undocumented immigrant with a criminal record when the man was shot in his car. He took aim at New York’s policies, saying they make citizens “less safe.”`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **On Texas TikTok, It’s All About Talarico**\

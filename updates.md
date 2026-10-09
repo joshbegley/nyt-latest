@@ -1,3 +1,19 @@
+**Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
+`After coaching, he became one of the sport’s most visible and enduring talking heads. He died at 86.`\
+https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
+
+**Trump Administration Hits International Criminal Court With Severe Sanctions**\
+`U.S. officials announced new punishments aimed at the court, just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
+
+**ICE Shooting in New York: What We Know**\
+`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing our city.”`\
+https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
+
+**Days of Deadly Houthi Attacks Show Saudi Arabia’s Vulnerabilities**\
+`The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
+https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
+
 **Can You Make Enchiladas With Flour Tortillas?**\
 `A ruling on a home-cooking dispute.`\
 https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html

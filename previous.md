@@ -1,3 +1,11 @@
+**Mike Ditka, Fiery Coach of the Chicago Bears, Has Died**\
+`After coaching, he became one of the sport’s most visible and enduring talking heads. He died at 86.`\
+https://www.nytimes.com/2026/10/09/sports/mike-ditka-dead.html
+
+**Trump Administration Hits International Criminal Court With Severe Sanctions**\
+`U.S. officials announced new punishments aimed at the court, just hours after the Nobel Peace Prize committee gave its annual honor to a former court judge.`\
+https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-court-sanctions.html
+
 **Can You Make Enchiladas With Flour Tortillas?**\
 `A ruling on a home-cooking dispute.`\
 https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
@@ -39,7 +47,7 @@ https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
 
 **ICE Shooting in New York: What We Know**\
-`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing the city.”`\
+`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing our city.”`\
 https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
 
 **F.B.I. Arrests Key Suspect in ShinyHunters Hack of Its Own Agents’ Data**\
@@ -118,7 +126,7 @@ https://www.nytimes.com/2026/10/09/podcasts/hardfork-anthropic-ai-morals.html
 `Hard Fork Full Episode #216`\
 https://www.nytimes.com/video/podcasts/100000011204371/anthropics-quest-to-give-ai-morals.html
 
-**Houthi Attacks on Riyadh Airport Leave 3 Dead, Saudi Arabia Says**\
+**Days of Deadly Houthi Attacks Show Saudi Arabia’s Vulnerabilities**\
 `The escalating violence has brought the conflict in Yemen to the doorstep of the Saudi capital, and the kingdom has no easy options to curtail the increasingly sophisticated and targeted strikes.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/yemen-houthi-attack-saudi-arabia-airport-riyadh.html
 
@@ -165,18 +173,6 @@ https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 **Weather Balloons Help Build a Picture of Hurricane Isaias**\
 `Data from balloons sent up by the National Weather Service is a big part of how meteorologists can see rain and storms coming well in advance.`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-weather-balloons.html
-
-**‘The Biggest Scandal There’s Ever Been’**\
-`Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
-https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
-
-**How the Epstein Files forced the Nobel Peace Prize to reckon with impartiality.**\
-`The`\
-https://www.nytimes.com/2026/10/09/world/europe/epstein-files-thorbjorn-jagland-committee.html
-
-**A New ‘Avatar’ Arrives**\
-`“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
-https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
