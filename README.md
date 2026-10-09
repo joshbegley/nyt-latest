@@ -1,3 +1,7 @@
+**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
+`The N.Y.P.D. released body-camera footage of police officers who arrived at the scene after a federal agent shot and injured a man inside a car with his 5-year-old son. On Friday, Homeland Security Secretary Markwayne Mullin said ICE agents were trying to arrest Oscar Belgal, an undocumented immigrant with a criminal record.`\
+https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
+
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
 `The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after years of descending into extremism.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.ht
 `Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
 https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
 
-**Large Earthquake in Panama Sets Off Tsunami Alert**\
-`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
+**Panama Shaken by Large Earthquake and Its Aftershocks**\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region. Authorities canceled a tsunami alert for the region.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 
 **Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
@@ -182,12 +186,8 @@ https://www.nytimes.com/2026/10/09/movies/ashley-st-clair-interview-elon-musk.ht
 `Halloween brings with it one of the year’s biggest horror hits, plus ancient demons and a queered slasher throwback.`\
 https://www.nytimes.com/2026/10/09/movies/five-horror-movies-to-stream-now.html
 
-**Palestinian Authority Says Elections Are to Be Postponed**\
-`The delay, outlined in a letter to France, comes as Fatah, the governing party, is suffering from deep internal rifts.`\
-https://www.nytimes.com/2026/10/09/world/middleeast/palestinian-authority-elections-west-bank-postponed.html
-
-**Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
-`The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
+**Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
+`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
