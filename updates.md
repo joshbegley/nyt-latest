@@ -1,3 +1,7 @@
+**Live Updates: Navi Pillay, Former U.N. Human Rights Commissioner, Wins Nobel Peace Prize**\
+`Ms. Pillay, a South African lawyer, led an investigation that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
+
 **‘The Biggest Scandal There’s Ever Been’**\
 `Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
 https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
