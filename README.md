@@ -1,3 +1,7 @@
+**‘The Biggest Scandal There’s Ever Been’**\
+`Dissecting the “sham” deals, power players and disgrace of Manchester City.`\
+https://www.nytimes.com/2026/10/09/podcasts/manchester-city-premier-league-scandal.html
+
 **A New ‘Avatar’ Arrives**\
 `“Avatar: Seven Havens,” debuting Friday on Paramount+, is the third in the popular series of animated shows.`\
 https://www.nytimes.com/2026/10/09/arts/television/avatar-seven-havens-review.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/10/09/arts/mystic-conn-unmarked-grave-mystery.html
 `Frank Huyler’s new novel is a devastating commentary on the place of an ordinary man in the world of the ultrarich.`\
 https://www.nytimes.com/2026/10/09/books/review/the-red-dress-frank-huyler.html
 
-**The Controversial Class That M.I.T. Is Paying a Professor Not to Teach**\
-`Michel DeGraff, a vocal pro-Palestinian activist, can’t be easily fired because he has tenure. But he has been kicked out of his department.`\
-https://www.nytimes.com/2026/10/09/us/mit-professor-michel-degraff-palestine-course.html
-
-**Screens Are Not the Problem**\
-`If we make screens the villain, then we let the people who control children’s health care — Congress, insurers and health systems — off the hook for their failures.`\
-https://www.nytimes.com/2026/10/09/opinion/children-screens-parents-health.html
+**Live Updates: Navi Pillay Wins Nobel Peace Prize**\
+`The Norwegian Nobel Committee made its selection from a pool of 287 nominees.`\
+https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026
 
