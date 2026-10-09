@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/10/09/us/politics/trump-international-criminal-cour
 https://www.nytimes.com/quiz/2026/10/09/magazine/enchiladas-flour-hodgman-quiz.html
 
 **Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
-`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record.`\
+`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
 https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
 
 **Hurricane Isaias Live Updates: Roads Flood as Major Storm Pelts Gulf Coast**\

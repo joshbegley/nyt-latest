@@ -1,3 +1,7 @@
+**Live Updates: N.Y.P.D. Videos Show Moments Before and After ICE Shooting**\
+`The police department released footage of agents approaching the victim’s car, and the shooting’s aftermath. The homeland security secretary said its officers were trying to arrest an undocumented immigrant with a criminal record.`\
+https://www.nytimes.com/live/2026/10/09/nyregion/ice-shooting-bronx-nyc
+
 **Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
 `Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
 https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
