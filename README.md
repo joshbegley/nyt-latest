@@ -1,5 +1,5 @@
 **Large Earthquake in Panama Sets Off Tsunami Alert**\
-`The quake was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
+`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 
 **Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
