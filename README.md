@@ -1,3 +1,11 @@
+**Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
+`Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
+https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html
+
+**‘Other Mommy’ Review: Parent, Trap**\
+`Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
+https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
+
 **Large Earthquake in Panama Sets Off Tsunami Alert**\
 `The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region and was followed by strong aftershocks in the hour that followed.`\
 https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
@@ -102,9 +110,9 @@ https://www.nytimes.com/video/podcasts/100000011203617/alan-cummings-husband-thi
 `As many as 10 men made off with more than $5 million of first-rate Italian red wine.`\
 https://www.nytimes.com/2026/10/09/world/europe/wine-heist-italy-marchesi-antinori.html
 
-**The Urge to Shop**\
+**Fall Fashion Guide: The Perennial Urge to Shop**\
 `Let’s come back to reality (and look at some things we really want, available this season).`\
-https://www.nytimes.com/2026/10/09/style/the-fashions-the-urge-to-shop.html
+https://www.nytimes.com/2026/10/09/style/fall-shopping-guide.html
 
 **Sidney Offit, a ‘Central Figure’ in the World of New York Writers, Has Died**\
 `He was the author of more than a dozen books. “He knew every writer in New York,” Robert A. Caro said.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/09/business/medicare-private-health-care-costs.h
 **Ending a Notable Career, Durbin Laments the Decline of Legislating**\
 `Senator Richard J. Durbin of Illinois, the No. 2 Democrat, learned how to take his fights to the floor and prevail — except in one crucial case.`\
 https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
-
-**Nobel Peace Prize Choice Amounts to Implicit Rebuke of Trump**\
-`The Trump administration has repeatedly attacked the international legal order and the International Criminal Court in The Hague, where the Peace Prize winner, Navi Pillay, served as a judge.`\
-https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
-
-**ICE Shooting in New York: What We Know**\
-`A 28-year-old man was shot by a federal immigration agent in New York City on Thursday. Mayor Zohran Mamdani said agents were “terrorizing our city.”`\
-https://www.nytimes.com/2026/10/09/nyregion/ice-shooting-nyc-bronx.html
 
 **Live Updates: Immigration Officials Attack New York Policies After ICE Shooting**\
 `The homeland security secretary said agents were trying to arrest an undocumented immigrant with a criminal record when they shot the man. The police department released footage of the shooting’s aftermath.`\
