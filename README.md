@@ -10,7 +10,7 @@ https://www.nytimes.com/video/nyregion/100000011203957/bronx-shooting-ice-agents
 `Plus, a big debate night in Senate battlegrounds.`\
 https://www.nytimes.com/2026/10/08/us/politics/trump-republican-voters.html
 
-**Fort Hood Shooter’s Execution Will be Public and Streamed Live, Pentagon Says**\
+**Fort Hood Shooter’s Execution Will Be Public and Streamed Live, Pentagon Says**\
 `If carried out, the public execution of Maj. Nidal Malik Hasan by firing squad set for Dec. 3 would be the first in modern U.S. history.`\
 https://www.nytimes.com/2026/10/08/us/politics/fort-hood-execution-streamed-public.html
 
