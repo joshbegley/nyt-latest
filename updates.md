@@ -1,3 +1,11 @@
+**Paintings Stolen From Renoir Museum Are Recovered, Authorities Say**\
+`Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
+https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
+
+**South African Human Rights Lawyer Is Awarded Nobel Peace Prize**\
+`The 2026 Nobel Peace Prize was awarded to Navi Pillay, a former United Nations’ top human rights official who led a commission that determined Israel had committed genocide against Palestinians, a finding the Israeli government rejected.`\
+https://www.nytimes.com/video/world/europe/100000011204537/nobel-peace-prize-pillay-human-rights.html
+
 **India Cancels Trains, Floods Capital with Police to Block Protests**\
 `A planned protest against a sweeping voter roll revision prompted police to order a virtual shutdown of New Delhi, the capital. The country’s highest court intervened.`\
 https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html

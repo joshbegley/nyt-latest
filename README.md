@@ -1,3 +1,11 @@
+**Hurricane Isaias Surged in Intensity in a Few Hours. Here’s How.**\
+`The storm underwent a process that meteorologists call “rapid intensification.”`\
+https://www.nytimes.com/2026/10/09/weather/hurricane-isaias-rapid-intensification.html
+
+**Who Is Ahead in Colorado's 4th Congressional District?**\
+`Track the latest polls in Colorado's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/colorado-us-house-4-polls-2026.html
+
 **Paintings Stolen From Renoir Museum Are Recovered, Authorities Say**\
 `Officials also said that six suspects had been arrested in the robbery, which targeted a museum in southern France last month.`\
 https://www.nytimes.com/2026/10/09/world/europe/renoir-museum-artworks-theft-france-arrests.html
@@ -170,17 +178,9 @@ https://www.nytimes.com/video/world/asia/100000011193986/india-protest-delhi-cra
 `Car-free parks advocates say the city reopened Freedom Drive, in Forest Park, to vehicles earlier than planned and without notice.`\
 https://www.nytimes.com/2026/10/09/nyregion/cars-return-to-a-queens-park-rankling-some.html
 
-**How a ‘Garbage Artist’ Is Helping Transform an Adirondack Mill Town**\
+**How Giant Trolls Are Helping Transform an Adirondack Mill Town**\
 `Thomas Dambo, the acclaimed Danish sculptor, unveiled his first permanent troll in New York State. Will it offer a lasting economic boon in the town of Tupper Lake?`\
 https://www.nytimes.com/2026/10/09/travel/thomas-dambo-trolls-tupper-lake-wild-center.html
-
-**The Diminishing Returns of Choke-Point Diplomacy**\
-`Nations are rediscovering choke points as a foreign policy strategy. They should use them sparingly.`\
-https://www.nytimes.com/2026/10/09/opinion/foreign-policy-diplomacy-choke-point.html
-
-**Why This Election Could Be More Complicated for Democrats Than Polls Suggest**\
-`The last two midterms where Democrats surged against an unpopular Republican president were in 2006 and 2018. They had notably different outcomes.`\
-https://www.nytimes.com/2026/10/09/us/midterm-election-democratic-wave.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\
