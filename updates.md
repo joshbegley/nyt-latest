@@ -1,3 +1,11 @@
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
+`Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
+**Cars Return to a Queens Park, Rankling Some**\
+`Car-free parks advocates say the city reopened Freedom Drive, in Forest Park, to vehicles earlier than planned and without notice.`\
+https://www.nytimes.com/2026/10/09/nyregion/cars-return-to-a-queens-park-rankling-some.html
+
 **‘You’ve Lied to Me Enough.’ In Texas, MAGA Voters Are Breaking Ranks.**\
 `The Texas Democrat who says the culture wars are over.`\
 https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html

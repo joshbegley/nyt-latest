@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/10/09/crosswords/strands-sidekick-951.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 10, 2026.`\
 https://www.nytimes.com/2026/10/09/crosswords/wordle-review-1939.html
 
-**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 2 Storm**\
+**Live Updates: Hurricane Isaias Nears Florida and Alabama as a Category 3 Storm**\
 `Isaias is forecast to make landfall late Friday or early Saturday. It has been two years since a hurricane struck the mainland United States.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/10/09/world/asia/india-student-protests-cockroach-n
 https://www.nytimes.com/video/world/asia/100000011193986/india-protest-delhi-crackdown.html
 
 **Cars Return to a Queens Park, Rankling Some**\
-`Car-free parks advocates say the city reopened Freedom Drive, in Forest Lawn Park, to vehicles earlier than planned and without notice.`\
+`Car-free parks advocates say the city reopened Freedom Drive, in Forest Park, to vehicles earlier than planned and without notice.`\
 https://www.nytimes.com/2026/10/09/nyregion/cars-return-to-a-queens-park-rankling-some.html
 
 **How a ‘Garbage Artist’ Is Helping Transform an Adirondack Mill Town**\
