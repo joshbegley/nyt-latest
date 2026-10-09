@@ -1,3 +1,7 @@
+**Fish Food**\
+`We take a look at where the fish on your plate come from.`\
+https://www.nytimes.com/2026/10/09/briefing/fish-food.html
+
 **How the Epstein Files forced the Nobel Peace Prize to reckon with impartiality.**\
 `The`\
 https://www.nytimes.com/2026/10/09/world/europe/epstein-files-thorbjorn-jagland-committee.html
