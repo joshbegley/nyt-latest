@@ -1,3 +1,15 @@
+**Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
+`The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
+https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
+
+**Want to Avoid Another Jan. 6? Defeat These Republicans.**\
+`The 2028 election is on the ballot right now.`\
+https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.html
+
+**Katie Zacharia Picked as Trump’s New White House Press Secretary**\
+`Ms. Zacharia is a conservative commentator who briefly worked at the Department of Homeland Security. She succeeds Karoline Leavitt.`\
+https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
+
 **2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
 `A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
 https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
