@@ -1,3 +1,15 @@
+**Karol G on Cultural Appropriation in Latin Music**\
+`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music — including her mariachi song, “Ese Hombre Es Malo,” which was nominated for Best Regional Mexican Song at the 2026 Latin Grammy Awards. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
+https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
+
+**Private Medicare Plans Are Raising Costs And Forcing Millions To Find New Insurance**\
+`As enrollment for Medicare Advantage begins this month, older Americans are confronting fewer options because insurers are discontinuing coverage in many areas.`\
+https://www.nytimes.com/2026/10/09/business/medicare-private-health-care-costs.html
+
+**Ending a Notable Career, Durbin Laments the Decline of Legislating**\
+`Senator Richard J. Durbin of Illinois, the No. 2 Democrat, learned how to take his fights to the floor and prevail — except in one crucial case.`\
+https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
+
 **Nobel Peace Prize Choice Amounts to Implicit Rebuke of Trump**\
 `The Trump administration has repeatedly attacked the international legal order and the International Criminal Court in The Hague, where the Peace Prize winner, Navi Pillay, served as a judge.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
@@ -14,7 +26,7 @@ https://www.nytimes.com/2026/10/09/us/politics/fbi-hack-shinyhunters-arrest.html
 `The European Union said that the deal could roughly halve Chinese shipments over four years. But it also could lead to an even stronger Chinese auto industry.`\
 https://www.nytimes.com/2026/10/09/business/china-european-union-trade.html
 
-**Trump Announces White House Inquiry Into Fed Governor Cook**\
+**Trump Announces White House Inquiry Into Fed Governor Lisa Cook**\
 `President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
 https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
 
@@ -161,18 +173,6 @@ https://www.nytimes.com/2026/10/09/technology/inside-mark-zuckerbergs-decision-t
 **How to Find More Joy**\
 `Sharing happy memories and creating small uplifting moments are just a couple of ways to build in joy, according to one expert.`\
 https://www.nytimes.com/2026/10/09/well/find-joy.html
-
-**Min Jin Lee Wants Us to Rethink Everything We Believe About Education**\
-`After almost a decade away, the author of “Pachinko” is back with her latest tale about the Korean diaspora, “American Hagwon.”`\
-https://www.nytimes.com/2026/10/09/podcasts/american-hagwon.html
-
-**‘You’ve Lied to Me Enough.’ In Texas, MAGA Voters Are Breaking Ranks.**\
-`The Texas Democrat who says the culture wars are over.`\
-https://www.nytimes.com/2026/10/09/opinion/gina-hinojosa-governor-texas.html
-
-**Cancer Vaccines Are the N.I.H’s Next ‘Big Bet’**\
-`New details have emerged about an initiative that starts in December to fast-track the vaccines, similar to the successful push for the Covid-19 vaccine.`\
-https://www.nytimes.com/2026/10/09/science/cancer-vaccines-nih-big-bet.html
 
 **Live Updates: Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize**\
 `Ms. Pillay has served as a judge in her native South Africa and on international courts investigating war crimes. She led a U.N. panel that determined that Israel had committed genocide against Palestinians in Gaza, a finding the Israeli government rejected.`\

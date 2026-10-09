@@ -1,3 +1,19 @@
+**Karol G on Cultural Appropriation in Latin Music**\
+`The Colombian singer Karol G has faced criticism of cultural appropriation as she adopts various Latin genres into her music — including her mariachi song, “Ese Hombre Es Malo,” which was nominated for Best Regional Mexican Song at the 2026 Latin Grammy Awards. In her interview with Popcast, Karol G discusses why she views her incorporation of these sounds as appreciation rather than appropriation.`\
+https://www.nytimes.com/video/podcasts/100000011198592/karol-g-on-cultural-appropriation-in-latin-music.html
+
+**Private Medicare Plans Are Raising Costs And Forcing Millions To Find New Insurance**\
+`As enrollment for Medicare Advantage begins this month, older Americans are confronting fewer options because insurers are discontinuing coverage in many areas.`\
+https://www.nytimes.com/2026/10/09/business/medicare-private-health-care-costs.html
+
+**Ending a Notable Career, Durbin Laments the Decline of Legislating**\
+`Senator Richard J. Durbin of Illinois, the No. 2 Democrat, learned how to take his fights to the floor and prevail — except in one crucial case.`\
+https://www.nytimes.com/2026/10/09/us/dick-durbin-retiring.html
+
+**Trump Announces White House Inquiry Into Fed Governor Lisa Cook**\
+`President Trump said the White House would investigate unsubstantiated claims that Lisa D. Cook committed mortgage fraud and hold a hearing next month.`\
+https://www.nytimes.com/2026/10/09/business/trump-lisa-cook-fed.html
+
 **Nobel Peace Prize Choice Amounts to Implicit Rebuke of Trump**\
 `The Trump administration has repeatedly attacked the international legal order and the International Criminal Court in The Hague, where the Peace Prize winner, Navi Pillay, served as a judge.`\
 https://www.nytimes.com/2026/10/09/world/europe/nobel-peace-prize-trump-international-law.html
