@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
 **Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
-`Darkness fell across mostly deserted beach towns as power outages multiplied, and the strongest part of the Category 3 storm began to move onshore.`\
+`Darkness fell across mostly deserted beach towns as power outages multiplied. The strongest part of the storm, now a Category 2 hurricane, began to move onshore.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
