@@ -1,3 +1,7 @@
+**Along Florida’s Gulf Coast, Residents Breathe Easier After Hurricane Isaias Passes**\
+`Beachside towns normally teeming with tourists were hit by fallen trees and power outages, not catastrophic flooding.`\
+https://www.nytimes.com/2026/10/10/weather/florida-hurricane-isaias-damage.html
+
 **How Steffen Skjottelvik's Journey Across Canada Came to a Tragic End**\
 `For three years and 750 miles, Steffen Skjottelvik lived a life of adventure. Until the adventure took his life.`\
 https://www.nytimes.com/interactive/2026/10/10/magazine/steffen-skjottelvik-canada-journey-death.html
