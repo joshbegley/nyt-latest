@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
 https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
 
 **8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
-`The shooting was reported on Friday night in what appears to be a residential area. The shooter was also dead, city officials said.`\
+`The shooting was reported on Friday night in what appeared to be a residential area. The shooter was also dead, city officials said.`\
 https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
 
 **From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 
-**Live Updates: Isaias Weakens as It Moves East, Leaving at Least 4 Dead**\
+**Live Updates: Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
 `Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
