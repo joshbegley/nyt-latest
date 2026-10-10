@@ -1,3 +1,7 @@
+**Why Ketamine Immobilizes Some Users**\
+`Potent powders can produce a nearly catatonic state, particularly in those who have not tried the drug before.`\
+https://www.nytimes.com/2026/10/10/science/ketamine-cornell-anesthesia.html
+
 **Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
 `The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-ha
 **Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
 `Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
-
-**Inside Grace Coddington’s East Hampton Home**\
-`The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
-https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hamptons-home-tour.html
 
