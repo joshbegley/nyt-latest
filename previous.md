@@ -1,3 +1,7 @@
+**Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
+`The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
+
 **Were Isaias Forecasts Accurate?**\
 `Many people in the storm’s path escaped the worst, but 4 people were killed and there was plenty of damage.`\
 https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
 https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
 
 **Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
-`Flights were diverted from the airport in the capital of Saudi Arabia, which has faced repeated deadly attacks from the Iran-backed militia in Yemen.`\
+`The strike on Saturday was the deadliest attack in a Gulf Arab country since the U.S.-Israeli war with Iran began in February, and forced the airport to temporarily suspend operations.`\
 https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
 
 **Trump Is Begging to Be Impeached**\
@@ -102,13 +106,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republic
 **Inside Grace Coddington’s East Hampton Home**\
 `The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
 https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hamptons-home-tour.html
-
-**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
-`Are we in the middle of a new world war without realizing it? Mirjana Spoljaric, the head of the International Committee of the Red Cross, is deeply worried about the growing number of conflicts in the world and thinks many world leaders “simply don’t care anymore.”`\
-https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met-with-the-iranians-now-she-has-a-warning.html
 

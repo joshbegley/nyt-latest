@@ -1,3 +1,11 @@
+**Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
+`The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
+
+**Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
+`The strike on Saturday was the deadliest attack in a Gulf Arab country since the U.S.-Israeli war with Iran began in February, and forced the airport to temporarily suspend operations.`\
+https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
+
 **8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
 `The shooting was reported on Friday night in what appeared to be a residential area. The shooter was also dead, city officials said.`\
 https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
