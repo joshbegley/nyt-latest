@@ -1,3 +1,43 @@
+**Abolish Frats**\
+`As undergraduates, we led a movement to abolish fraternities and sororities. Our story shows how challenging it is.`\
+https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.html
+
+**Republicans Have the Money. Democrats Have the Momentum.**\
+`This week in politics: Which Democrats? And whose A.I. morals?`\
+https://www.nytimes.com/2026/10/10/opinion/republicans-money-democrats-midterms.html
+
+**What This 1959 Novel Can Teach Us About A.I.**\
+`How will we be able to tell whether A.I. is conscious? On “The Opinions,” the columnist Carlos Lozada draws on the 1959 novel “A Canticle for Leibowitz” to explore the line between intelligence and consciousness — and whether we’re asking the right questions about A.I.`\
+https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-teach-us-about-ai.html
+
+**Why Joseph Gordon-Levitt Is Speaking Up About A.I.**\
+`The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
+https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
+
+**This New Hampshire Republican Is Showing Republicans How to Win. Even if He Loses.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**How Is Child Marriage Still Legal in the U.S.?**\
+`Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
+https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
+
+**Think You Have It Bad, Millennials? Join the Club.**\
+`All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
+https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
+
+**Hold A.I. Companies Liable**\
+`A.I. companies must operate under our laws.`\
+https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
+
+**Why Should Students Write? Let Us Count the Ways.**\
+`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
+https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
+
 **Republicans Have the Money. Democrats Have the Momentum.**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
 https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money-democrats-have-the-momentum.html

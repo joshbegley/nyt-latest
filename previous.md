@@ -1,3 +1,43 @@
+**Abolish Frats**\
+`As undergraduates, we led a movement to abolish fraternities and sororities. Our story shows how challenging it is.`\
+https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.html
+
+**Republicans Have the Money. Democrats Have the Momentum.**\
+`This week in politics: Which Democrats? And whose A.I. morals?`\
+https://www.nytimes.com/2026/10/10/opinion/republicans-money-democrats-midterms.html
+
+**What This 1959 Novel Can Teach Us About A.I.**\
+`How will we be able to tell whether A.I. is conscious? On “The Opinions,” the columnist Carlos Lozada draws on the 1959 novel “A Canticle for Leibowitz” to explore the line between intelligence and consciousness — and whether we’re asking the right questions about A.I.`\
+https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-teach-us-about-ai.html
+
+**Why Joseph Gordon-Levitt Is Speaking Up About A.I.**\
+`The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
+https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
+
+**This New Hampshire Republican Is Showing Republicans How to Win. Even if He Loses.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**How Is Child Marriage Still Legal in the U.S.?**\
+`Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
+https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
+
+**Think You Have It Bad, Millennials? Join the Club.**\
+`All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
+https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
+
+**Hold A.I. Companies Liable**\
+`A.I. companies must operate under our laws.`\
+https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
+
+**Why Should Students Write? Let Us Count the Ways.**\
+`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
+https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
+
 **Republicans Have the Money. Democrats Have the Momentum.**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
 https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money-democrats-have-the-momentum.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/video/us/100000011186272/wherever-food-delivery-robots-g
 **Have Rachel Cusk’s Novels Lost the Plot?**\
 `Rachel Cusk’s newest novel, “Life of M,” arrived in a pile of old-fashioned gossip. Alexandra Jacobs, a New York Times book critic, reviews the author’s latest novel.`\
 https://www.nytimes.com/video/books/review/100000011134451/have-rachel-cusks-novels-lost-the-plot.html
-
-**An International Career Forged by the Struggles of Apartheid**\
-`Navi Pillay, who won this year’s Nobel Peace Prize, fought racism in South Africa, shaping her international career as a judge and advocate for justice and human rights.`\
-https://www.nytimes.com/2026/10/10/world/africa/navi-pillay-nobel-prize-apartheid-genocide.html
-
-**Blocked by Police, India’s Youth Voice Their Fury**\
-`Members of a youth protest movement are outraged after being intercepted at airports and stopped by barricades. “Aren’t we children of this nation?”`\
-https://www.nytimes.com/2026/10/10/world/asia/police-india-cockroach-protest-anger.html
-
-**At Cornell, a Sorority Finds Itself Sued by One of Its Own**\
-`Some Delta Delta Delta members are asking if the sorority shares blame in the bombshell case — or if the group is a scapegoat.`\
-https://www.nytimes.com/2026/10/10/nyregion/at-cornell-a-sorority-finds-itself-sued-by-one-of-its-own.html
-
-**A New Tower Will Have Lots of Public Space but No Public Bathrooms**\
-`Amid a bathroom shortage in New York City, community leaders and advocates are calling on city officials to require bathroom access in privately owned public spaces.`\
-https://www.nytimes.com/2026/10/10/nyregion/public-bathrooms-private-spaces-nyc.html
-
-**NYT Spelling Bee Answers for October 10, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/10/crosswords/spelling-bee-forum.html
-
-**George and Amal Clooney Host Star-Studded Albies Gala in London**\
-`The couple hosted their foundation’s annual awards gala in London, drawing a crowd that included Emma Thompson, Donatella Versace and more.`\
-https://www.nytimes.com/2026/10/10/style/george-amal-clooney-albies-2026.html
-
-**Winston Lee, Accused in Cornell Sexual Assault Case, Is Related to Former South Korean Prime Minister**\
-`Lawyers for Winston Lee, the grandson of a former premier of South Korea, said statements by the New York attorney general may have sown prejudice against him.`\
-https://www.nytimes.com/2026/10/10/nyregion/cornell-case-winston-lee-south-korea-prime-minister.html
-
-**Quote of the Day: Peace Prize Goes to a Jurist Who Rebuked Israel**\
-`Quotation of the Day for Saturday, October, 10, 2026.`\
-https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes-to-a-jurist-who-rebuked-israel.html
-
-**On This Day, Oct. 10: In 1973, Vice President Spiro Agnew Resigned**\
-`In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
-https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
-
-**Live Updates: Protest Leaders Rounded Up as New Delhi Is Locked Down**\
-`The Cockroach Janta Party said senior members of the youth activist group had been detained by police. Thousands defied a police ban to to rally against the expunging of millions of names from India’s voter roll.`\
-https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
 
