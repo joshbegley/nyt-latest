@@ -1,3 +1,7 @@
+**Were Isaias Forecasts Accurate?**\
+`Many people in the storm’s path escaped the worst, but 4 people were killed and there was plenty of damage.`\
+https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
+
 **Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
 `On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
@@ -98,13 +102,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
-
 **John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
 `A New Hampshire insider-outsider candidate is executing a complex political dance.`\
 https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hampt
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
 `Are we in the middle of a new world war without realizing it? Mirjana Spoljaric, the head of the International Committee of the Red Cross, is deeply worried about the growing number of conflicts in the world and thinks many world leaders “simply don’t care anymore.”`\
 https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met-with-the-iranians-now-she-has-a-warning.html
-
-**Elon Musk’s Words Set to Music and 9 More Songs We’re Talking About**\
-`David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
-https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
 
