@@ -1,3 +1,7 @@
+**New Footage Shows Moments Surrounding ICE Shooting in N.Y.C.**\
+`Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
+https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
+
 **Celebrating the Enduring Newness of Magritte in London**\
 `A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
 https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.ht
 **2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
 `A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
 https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
-
-**Map: Earthquake Shakes Panama**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker-panama.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

@@ -1,3 +1,7 @@
+**New Footage Shows Moments Surrounding ICE Shooting in N.Y.C.**\
+`Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
+https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
+
 **Celebrating the Enduring Newness of Magritte in London**\
 `A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
 https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
