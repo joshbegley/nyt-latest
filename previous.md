@@ -1,3 +1,7 @@
+**Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
+`Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
+https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html
+
 **Our Best Lasagna Recipe**\
 `And more marvelous mains for any special dinner (including a certain special November dinner).`\
 https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
 `A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
 https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
 
-**Multiple People Are Dead in Erie, Pa., Shooting, City Officials Say**\
-`The number of people killed or injured had not been released by city officials. The shooter was also dead, they said.`\
+**8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
+`The shooting was reported on Friday night in what appears to be a residential area. The shooter was also dead, city officials said.`\
 https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
 
 **From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/arts/deniz-goktas-jail-joke-free-speech.html
 **Mathematician Who Waited 50 Years for Proper Credit for Her Work Has Died**\
 `At the Los Alamos National Laboratory, Mary Tsingou Menzel’s computer programming helped set the stage for chaos theory and other fields.`\
 https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
-
-**Will We Ever Understand Dementia?**\
-`Since the days of Dr. Alzheimer himself, there has been a dream that severe senility might have an explanation — and a cure. The search for both has never been more urgent.`\
-https://www.nytimes.com/2026/10/10/science/will-we-ever-understand-dementia.html
 

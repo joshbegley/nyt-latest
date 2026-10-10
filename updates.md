@@ -1,3 +1,11 @@
+**Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
+`Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
+https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html
+
+**8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
+`The shooting was reported on Friday night in what appears to be a residential area. The shooter was also dead, city officials said.`\
+https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
+
 **Our Best Lasagna Recipe**\
 `And more marvelous mains for any special dinner (including a certain special November dinner).`\
 https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
