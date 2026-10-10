@@ -1,3 +1,11 @@
+**Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
+`On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
+
+**Live Updates: Isaias Weakens as It Moves East, Leaving at Least 4 Dead**\
+`Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **Rebuking Ukraine Over Oil Strikes, Trump Says It Should ‘Get a New President’**\
 `Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
 https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html

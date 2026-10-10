@@ -1,3 +1,7 @@
+**Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
+`On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
+
 **‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
 `Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
 https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
@@ -150,8 +154,8 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 
-**Live Updates: Isaias Drenches Eastern U.S. as Weaker Storm After Lashing Gulf Coast**\
-`About 700,000 people in Alabama, Florida and Georgia remained without power Saturday afternoon. Officials said that two people had been killed by trees that fell on their homes.`\
+**Live Updates: Isaias Weakens as It Moves East, Leaving at Least 4 Dead**\
+`Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met
 **Elon Musk’s Words Set to Music and 9 More Songs We’re Talking About**\
 `David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
 https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
-
-**After Christa Pike’s Botched Execution, Tennessee’s Lethal Injection Protocol Draws Scrutiny**\
-`The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
-https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
 
