@@ -1,3 +1,7 @@
+**Exasperation and Resignation in Greece Over Allegations Against Kimberly Guilfoyle**\
+`The U.S. ambassador to Greece is facing accusations that she asked a donor to pay off her credit card bill before she took up her post in Athens.`\
+https://www.nytimes.com/2026/10/10/world/europe/kimberly-guilfoyle-greece.html
+
 **More Than 500 Trees to Be Cut Down at D.C. Golf Course That Trump Wants to Redo**\
 `The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html

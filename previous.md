@@ -1,3 +1,7 @@
+**Exasperation and Resignation in Greece Over Allegations Against Kimberly Guilfoyle**\
+`The U.S. ambassador to Greece is facing accusations that she asked a donor to pay off her credit card bill before she took up her post in Athens.`\
+https://www.nytimes.com/2026/10/10/world/europe/kimberly-guilfoyle-greece.html
+
 **One Philadelphia Police Officer Killed, Another Shot 12 Times in Ambush Attack**\
 `Two officers responding to a call were shot multiple times as they reached the scene. Officials said they took “significant fire.”`\
 https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
@@ -70,13 +74,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/realestate/accessible-parking-apartment-build
 **The Head of the International Committee of the Red Cross on What She Saw in Gaza**\
 `Mirjana Spoljaric, the head of the International Committee of the Red Cross, talked about visiting Gaza. “There’s so many people complicit in what happened there and continues to happen,” she told Lulu Garcia-Navarro on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011193896/the-head-of-the-international-committee-of-the-red-cross-on-what-she-saw-in-gaza.html
-
-**Mirjana Spoljaric’s Earliest Memories of War and Suffering**\
-`The head of the International Committee of the Red Cross talked about her family’s experience during World War II.`\
-https://www.nytimes.com/video/podcasts/100000011193893/mirjana-spoljarics-earliest-memories-of-war-and-suffering.html
 
