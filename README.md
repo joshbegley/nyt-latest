@@ -1,3 +1,7 @@
+**Our Best Lasagna Recipe**\
+`And more marvelous mains for any special dinner (including a certain special November dinner).`\
+https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
+
 **Two Killed as Hurricane Isaias Topples Trees Onto Homes**\
 `A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
 https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
-**Hold A.I. Companies Liable**\
-`A.I. companies must operate under our laws.`\
+**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
+`A.I. giants must operate under our laws.`\
 https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
 
 **Why Should Students Write? Let Us Count the Ways.**\
@@ -146,7 +150,7 @@ https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met
 `David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
 https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
 
-**A Vague, Redacted Execution Protocol in Tennessee Draws Scrutiny**\
+**After Christa Pike’s Botched Execution, Tennessee’s Lethal Injection Protocol Draws Scrutiny**\
 `The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
 https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
 **Will We Ever Understand Dementia?**\
 `Since the days of Dr. Alzheimer himself, there has been a dream that severe senility might have an explanation — and a cure. The search for both has never been more urgent.`\
 https://www.nytimes.com/2026/10/10/science/will-we-ever-understand-dementia.html
-
-**Book Review: ‘Weimar Germany,’ by Victor Sebestyen**\
-`In “Weimar Germany,” Victor Sebestyen focuses on the populist culture wars that brought an end to popular rule in the fledgling republic.`\
-https://www.nytimes.com/2026/10/10/books/review/weimar-germany-victor-sebestyen.html
 
