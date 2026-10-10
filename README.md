@@ -1,3 +1,7 @@
+**3 Men Found Guilty in Murders of Tourists on Mexico Surf Trip**\
+`The 2024 killings of two Australian brothers and their American friend drew international attention.`\
+https://www.nytimes.com/2026/10/10/world/americas/mexico-murder-trial-surfers-jake-callum-robinson-rhoad.html
+
 **Along Florida’s Gulf Coast, Residents Breathe Easier After Hurricane Isaias Passes**\
 `Beachside towns normally teeming with tourists were hit by fallen trees and power outages, not catastrophic flooding.`\
 https://www.nytimes.com/2026/10/10/weather/florida-hurricane-isaias-damage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/7-coffins-human-remains-north-dakota-gover
 **Could the Oregon Governor’s Race Be a Republican Hope?**\
 `Republicans are playing defense in some of the most conservative parts of the country, but an unpopular Democratic governor has them hopeful in a progressive West Coast state.`\
 https://www.nytimes.com/2026/10/10/us/elections/oregon-governor-republican-election.html
-
-**Mirjana Spoljaric: If You Torture Your Enemies, You Dehumanize Yourself**\
-`The head of the International Committee of the Red Cross, Mirjana Spoljaric, talked about the memories that haunt soldiers after they return from war.`\
-https://www.nytimes.com/video/podcasts/100000011199909/mirjana-spoljaric-if-you-torture-your-enemies-you-dehumanize-yourself.html
 
