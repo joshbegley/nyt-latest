@@ -1,3 +1,7 @@
+**5 Killed in Murder-Suicide at a Home in Georgia**\
+`Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
+https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
+
 **Hurricane Isaias Lashes Gulf Coast Before Weakening**\
 `Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The hurricane weakened to a post-tropical cyclone on Saturday, but officials warned there was still a risk of flash flooding.`\
 https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-landfall-damage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/pageoneplus/corrections-oct-10-2026.html
 **Executions, After Christa Pike, Are on the Minds of a Divided Public**\
 `A botched execution and a planned execution that might be livestreamed have renewed debate and divisions over the most severe form of punishment.`\
 https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
-
-**A Week Later, Russia Hasn’t Said What Pathogen Killed Plague Researcher**\
-`Experts said they believed that with modern testing technology, the Russian authorities should know the answer by now.`\
-https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
 
