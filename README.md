@@ -1,4 +1,4 @@
-**Riyadh Airport Attacked Again, Diplomats Say, After Days of Houthi Strikes**\
+**Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
 `Flights were diverted from the airport in the capital of Saudi Arabia, which has faced repeated deadly attacks from the Iran-backed militia in Yemen.`\
 https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
 
