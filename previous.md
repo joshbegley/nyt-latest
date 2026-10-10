@@ -1,3 +1,7 @@
+**Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
+`A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
+https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
+
 **‘Not Today, Satan!’**\
 `Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
 https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/arts/dance/review-oscar-ballet-christopher-wh
 **Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
 `The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
 https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
-
-**Want to Avoid Another Jan. 6? Defeat These Republicans.**\
-`The 2028 election is on the ballot right now.`\
-https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

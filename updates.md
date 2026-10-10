@@ -1,3 +1,7 @@
+**Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
+`A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
+https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
+
 **New Footage Shows Moments Before and After ICE Shooting in N.Y.C.**\
 `Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
 https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
