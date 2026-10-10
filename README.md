@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
 `A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
 https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
 
-**Multiple People Are Dead in Erie, Pa., Shooting, City Officials Say**\
-`The number of people killed or injured had not been released by city officials. The shooter was also dead, they said.`\
+**8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
+`The shooting was reported on Friday night in what appears to be a residential area. The shooter was also dead, city officials said.`\
 https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
 
 **From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
