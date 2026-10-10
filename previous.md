@@ -1,3 +1,7 @@
+**Winston Lee, Accused in Cornell Sexual Assault Case, Is Related to Former South Korean Prime Minister**\
+`Lawyers for Winston Lee, the grandson of a former premier of South Korea, said statements by the New York attorney general may have sown prejudice against him.`\
+https://www.nytimes.com/2026/10/10/world/asia/cornell-case-winston-lee-south-korea-prime-minister.html
+
 **Quote of the Day: Peace Prize Goes to a Jurist Who Rebuked Israel**\
 `Quotation of the Day for Saturday, October, 10, 2026.`\
 https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes-to-a-jurist-who-rebuked-israel.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes
 `In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
 https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
 
-**Live Updates: Protesters Converge on New Delhi Over Cuts to India’s Voter Roll**\
-`The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the roll.`\
+**Live Updates: Police Block Gen Z Protesters Rallying in New Delhi**\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
 
 **What to Know About the Delhi Protests**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/us/politics/vance-livestream-execution.html
 **Some G.O.P. Lawmakers Pan Hegseth’s Plan to Stream Execution of Fort Hood Shooter**\
 `Some G.O.P. members of Congress said that broadcasting the execution of the Fort Hood shooter was inappropriate, though others gleefully applauded it.`\
 https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-execution.html
-
-**With Isaias in the Gulf, 2 Pacific Storms Are Barreling Toward Mexico**\
-`Hurricane Simon and Tropical Storm Rachel are both expected to make landfall in the coming days. Rachel could also affect Southern California.`\
-https://www.nytimes.com/2026/10/09/weather/hurricane-simon-rachel-california.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

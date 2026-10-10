@@ -1,3 +1,11 @@
+**Winston Lee, Accused in Cornell Sexual Assault Case, Is Related to Former South Korean Prime Minister**\
+`Lawyers for Winston Lee, the grandson of a former premier of South Korea, said statements by the New York attorney general may have sown prejudice against him.`\
+https://www.nytimes.com/2026/10/10/world/asia/cornell-case-winston-lee-south-korea-prime-minister.html
+
+**Live Updates: Police Block Gen Z Protesters Rallying in New Delhi**\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
+https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
+
 **Live Updates: Protesters Converge on New Delhi Over Cuts to India’s Voter Roll**\
 `The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
