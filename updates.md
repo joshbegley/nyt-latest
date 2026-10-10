@@ -1,3 +1,7 @@
+**Some Republicans Reject Trump’s Move to Import Diesel Fuel From Russia**\
+`High diesel costs have posed a problem for Republicans in the midterms, but President Trump’s decision did not satisfy some candidates in key Senate races.`\
+https://www.nytimes.com/2026/10/10/us/politics/republicans-midterms-trump-diesel-russia.html
+
 **Heart Transplants**\
 `Prepare to be duped by Michael Lieberman’s spirited Sunday grid.`\
 https://www.nytimes.com/2026/10/10/crosswords/daily-puzzle-2026-10-11.html
