@@ -1,3 +1,7 @@
+**‘It Was Horrific’: 8 Killed in Shooting in Erie, Pa.**\
+`The dead included a pregnant woman, a 5 year old and a toddler. The shooter was also dead, city officials said.`\
+https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
+
 **5 Killed in Murder-Suicide at a Home in Georgia**\
 `Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
 https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
