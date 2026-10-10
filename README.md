@@ -1,3 +1,15 @@
+**At Cornell, a Sorority Finds Itself Sued by One of Its Own**\
+`Some Delta Delta Delta members are asking if the sorority shares blame in the bombshell case — or if the group is a scapegoat.`\
+https://www.nytimes.com/2026/10/10/nyregion/at-cornell-a-sorority-finds-itself-sued-by-one-of-its-own.html
+
+**A New Tower Will Have Lots of Public Space but No Public Bathrooms**\
+`Amid a bathroom shortage in New York City, community leaders and advocates are calling on city officials to require bathroom access in privately owned public spaces.`\
+https://www.nytimes.com/2026/10/10/nyregion/public-bathrooms-private-spaces-nyc.html
+
+**NYT Spelling Bee Answers for October 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/10/crosswords/spelling-bee-forum.html
+
 **George and Amal Clooney Host Star-Studded Albies Gala in London**\
 `The couple hosted their foundation’s annual awards gala in London, drawing a crowd that included Emma Thompson, Donatella Versace and more.`\
 https://www.nytimes.com/2026/10/10/style/george-amal-clooney-albies-2026.html
@@ -14,7 +26,7 @@ https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes
 `In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
 https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
 
-**Live Updates: Police Detain Leaders of Protest Paralyzing New Delhi**\
+**Live Updates: Leaders of Protest Paralyzing New Delhi Say They’ve Been Detained by Police**\
 `The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
 
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/10/09/travel/avianca-flight-severe-turbulence.html
 **Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
 `Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
 https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html
-
-**‘Other Mommy’ Review: Parent, Trap**\
-`Jessica Chastain pulls double duty in “Other Mommy,” bringing campy charisma to this horror schlockfest.`\
-https://www.nytimes.com/2026/10/09/movies/other-mommy-review.html
-
-**7.7-Magnitude Panama Earthquake Sets Off Series of Aftershocks**\
-`The quake, which had a preliminary magnitude of 7.7, was centered in the country’s southern region.`\
-https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
-
-**Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
-`The vice president also cast doubt on whether the public execution of Maj. Nidal Malik Hasan, the 2009 Fort Hood gunman, would go forward as Pentagon officials have planned.`\
-https://www.nytimes.com/2026/10/09/us/politics/vance-livestream-execution.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
