@@ -1,3 +1,15 @@
+**Republicans Have the Money. Democrats Have the Momentum.**\
+`This week in politics: Which Democrats? And whose A.I. morals?`\
+https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money-democrats-have-the-momentum.html
+
+**Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/video/opinion/100000011196190/joseph-gordon-levitt-has-some-things-to-say-about-ai.html
+
+**Screen Time**\
+`It’s fall. Which means a deluge of films ahead of awards season. When you leave the theater, notice the change in the light outside.`\
+https://www.nytimes.com/2026/10/10/briefing/screen-time.html
+
 **My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
 `I worry that the child is not receiving the care he needs and that my sister is in danger.`\
 https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
 **Live Updates: Protest Leaders Rounded Up as New Delhi Is Locked Down**\
 `The Cockroach Janta Party said senior members of the youth activist group had been detained by police. Thousands defied a police ban to to rally against the expunging of millions of names from India’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
-
-**What to Know About the Delhi Protests**\
-`Protesters opposed to sweeping revisions to India’s voter rolls are trying to rally in New Delhi. The police have come out in force.`\
-https://www.nytimes.com/2026/10/09/world/asia/what-to-know-about-the-delhi-protests.html
-
-**Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
-`A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
-https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
-
-**‘Not Today, Satan!’**\
-`Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
-https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
 
