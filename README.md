@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes
 `In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
 https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
 
-**Live Updates: Police Block Protesters Rallying in New Delhi**\
+**Live Updates: Police Detain Leaders of Protest Paralyzing New Delhi**\
 `The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
 
