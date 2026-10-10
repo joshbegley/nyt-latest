@@ -1,3 +1,11 @@
+**From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
+`A group of demonstrators used a house of worship known as a gurdwara as a staging ground before their long-shot effort to reach a locked-down protest site in New Delhi.`\
+https://www.nytimes.com/2026/10/10/world/asia/india-cjp-cockroach-protest.html
+
+**Palestinian Authority Formally Delays Elections, Despite Western Pressure**\
+`The aging Palestinian leader, Mahmoud Abbas, pushed off the planned vote until late 2027. Palestinians haven’t had major elections for about two decades.`\
+https://www.nytimes.com/2026/10/10/world/middleeast/palestinian-authority-elections-abbas.html
+
 **India Cracks Down on Gen Z-Led Protests**\
 `Demonstrators from the youth movement known as the Cockroach Janta Party met walls of security forces in New Delhi on Saturday as they tried to protest a revision of India’s voter roll.`\
 https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroach-janta-party-new-delhi-police.html
