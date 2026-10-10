@@ -1,3 +1,7 @@
+**Conor Kennedy and Giulia Be Married in Rio**\
+`The couple’s three-day wedding celebration in Rio de Janeiro brought together two families with political ties as rising tensions surround Brazil’s presidential election.`\
+https://www.nytimes.com/2026/10/10/style/conor-kennedy-and-giulia-be-married-rio-brazil.html
+
 **Some Republicans Reject Trump’s Move to Import Diesel Fuel From Russia**\
 `High diesel costs have posed a problem for Republicans in the midterms, but President Trump’s decision did not satisfy some candidates in key Senate races.`\
 https://www.nytimes.com/2026/10/10/us/politics/republicans-midterms-trump-diesel-russia.html

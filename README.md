@@ -1,3 +1,7 @@
+**Pentagon Again Increases Number of U.S. Casualties in Iran War**\
+`In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
+https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
+
 **Conor Kennedy and Giulia Be Married in Rio**\
 `The couple’s three-day wedding celebration in Rio de Janeiro brought together two families with political ties as rising tensions surround Brazil’s presidential election.`\
 https://www.nytimes.com/2026/10/10/style/conor-kennedy-and-giulia-be-married-rio-brazil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 **Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
 `Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
-
-**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
-`As the head of the International Committee of the Red Cross, Mirjana Spoljaric goes to both sides of conflicts. She’s worried that our warring world is spiraling out of control.`\
-https://www.nytimes.com/2026/10/10/magazine/mirjana-spoljaric-interview.html
 

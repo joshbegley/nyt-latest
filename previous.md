@@ -1,3 +1,7 @@
+**Conor Kennedy and Giulia Be Married in Rio**\
+`The couple’s three-day wedding celebration in Rio de Janeiro brought together two families with political ties as rising tensions surround Brazil’s presidential election.`\
+https://www.nytimes.com/2026/10/10/style/conor-kennedy-and-giulia-be-married-rio-brazil.html
+
 **Some Republicans Reject Trump’s Move to Import Diesel Fuel From Russia**\
 `High diesel costs have posed a problem for Republicans in the midterms, but President Trump’s decision did not satisfy some candidates in key Senate races.`\
 https://www.nytimes.com/2026/10/10/us/politics/republicans-midterms-trump-diesel-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
 `As the head of the International Committee of the Red Cross, Mirjana Spoljaric goes to both sides of conflicts. She’s worried that our warring world is spiraling out of control.`\
 https://www.nytimes.com/2026/10/10/magazine/mirjana-spoljaric-interview.html
-
-**How to Buy and Eat Seafood Ethically**\
-`Our investigation into the farmed fish industry found human-rights violations and health concerns. Here’s what you can do.`\
-https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsibly.html
 
