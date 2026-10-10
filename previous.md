@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes
 https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
 
 **Live Updates: Protesters Converge on New Delhi Over Cuts to India’s Voter Roll**\
-`The youth movement known as the Cockroach Janta Party called for demonstrations after the Modi government cut more than 130 million names from the roll.`\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
 
 **What to Know About the Delhi Protests**\
