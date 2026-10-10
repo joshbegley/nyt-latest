@@ -1,3 +1,15 @@
+**Republicans Have the Money. Democrats Have the Momentum.**\
+`This week in politics: Which Democrats? And whose A.I. morals?`\
+https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money-democrats-have-the-momentum.html
+
+**Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/video/opinion/100000011196190/joseph-gordon-levitt-has-some-things-to-say-about-ai.html
+
+**Screen Time**\
+`It’s fall. Which means a deluge of films ahead of awards season. When you leave the theater, notice the change in the light outside.`\
+https://www.nytimes.com/2026/10/10/briefing/screen-time.html
+
 **Live Updates: Protest Leaders Rounded Up as New Delhi Is Locked Down**\
 `The Cockroach Janta Party said senior members of the youth activist group had been detained by police. Thousands defied a police ban to to rally against the expunging of millions of names from India’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
