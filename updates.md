@@ -1,3 +1,7 @@
+**Pentagon Again Increases Number of U.S. Casualties in Iran War**\
+`In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
+https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
+
 **Conor Kennedy and Giulia Be Married in Rio**\
 `The couple’s three-day wedding celebration in Rio de Janeiro brought together two families with political ties as rising tensions surround Brazil’s presidential election.`\
 https://www.nytimes.com/2026/10/10/style/conor-kennedy-and-giulia-be-married-rio-brazil.html

@@ -1,3 +1,7 @@
+**Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
+`Major TV networks were notified on Friday that the department was looking into whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
+https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
+
 **Pentagon Again Increases Number of U.S. Casualties in Iran War**\
 `In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
 https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 **NYT Strands Hints for October 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
-
-**Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
-`Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
-https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
