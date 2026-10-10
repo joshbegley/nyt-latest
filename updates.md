@@ -1,3 +1,23 @@
+**My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
+`I worry that the child is not receiving the care he needs and that my sister is in danger.`\
+https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
+
+**Quebec Independence Is Unlikely, but Some Will Still Dream**\
+`The idea of independence remains deeply unpopular in Quebec, yet the separatist Parti Québécois was re-elected to a minority government this week.`\
+https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-separatism.html
+
+**NYT Connections Answers for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/connections-companion-1218.html
+
+**Today’s Wordle Hints for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
+
+**NYT Strands Hints for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
+
 **Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
 `Isaias came ashore Friday over Florida as a hurricane. It was forecast to continue dumping rain as it moves north through Alabama on Saturday.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker

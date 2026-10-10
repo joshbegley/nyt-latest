@@ -1,3 +1,23 @@
+**My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
+`I worry that the child is not receiving the care he needs and that my sister is in danger.`\
+https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
+
+**Quebec Independence Is Unlikely, but Some Will Still Dream**\
+`The idea of independence remains deeply unpopular in Quebec, yet the separatist Parti Québécois was re-elected to a minority government this week.`\
+https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-separatism.html
+
+**NYT Connections Answers for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/connections-companion-1218.html
+
+**Today’s Wordle Hints for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
+
+**NYT Strands Hints for October 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
+
 **Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
 `Isaias came ashore Friday over Florida as a hurricane. It was forecast to continue dumping rain as it moves north through Alabama on Saturday.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
 **‘Not Today, Satan!’**\
 `Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
 https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
-
-**New Footage Shows Moments Before and After ICE Shooting in N.Y.C.**\
-`Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
-https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
-
-**Celebrating the Enduring Newness of Magritte in London**\
-`A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
-https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
-
-**Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
-`After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
-https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
-
-**2 Pedestrians Are Killed in a 5-Car Wreck in the Bronx**\
-`The driver, an 81-year-old man, failed to stop his car at a busy intersection and hit two other vehicles, according to the police.`\
-https://www.nytimes.com/2026/10/09/nyregion/two-killed-car-wreck-nyc.html
-
-**A.I. Hurricane Models Were Front and Center as Isaias Headed Toward Land**\
-`Expert forecasters say the new technology is helping them understand where a storm will go.`\
-https://www.nytimes.com/2026/10/09/weather/ai-models-hurricane-isaias.html
 
