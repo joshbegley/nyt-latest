@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/10/10/well/move/mobility-routine-sitting.html
 `Silverfish, book lice and mold are a thing, especially in secondhand books. Here’s how to deal with them.`\
 https://www.nytimes.com/2026/10/10/books/book-preservation-silverfish.html
 
-**John Cena Had Wrestling on His Mind From an Early Age**\
-`“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
-https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
-
 **The Underappreciated Benefits of Leaving Fallen Leaves Alone**\
 `To homeowners, fallen leaves look like work. To nature, they’re an investment, with tremendous value on the secondary market as invertebrate real estate.`\
 https://www.nytimes.com/2026/10/10/science/fallen-leaves.html
+
+**John Cena Had Wrestling on His Mind From an Early Age**\
+`“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
+https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
 
 **This Robot Will Deliver Your Food, if It Doesn’t Get Smashed First**\
 `The winsome machines have been kicked, beaten and defaced as they roll through American cities bringing pizza and sushi — and vacuuming up data.`\
