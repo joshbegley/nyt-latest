@@ -1,3 +1,7 @@
+**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
+`Darkness fell across mostly deserted beach towns as power outages multiplied. The strongest part of the storm, now a Category 2 hurricane, began to move onshore.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **A.I. Hurricane Models Were Front and Center as Isaias Headed Toward Land**\
 `Expert forecasters say the new technology is helping them understand where a storm will go.`\
 https://www.nytimes.com/2026/10/09/weather/ai-models-hurricane-isaias.html
