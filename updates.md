@@ -1,3 +1,7 @@
+**Live Updates: Protest Leaders Rounded Up as New Delhi Is Locked Down**\
+`The Cockroach Janta Party said senior members of the youth activist group had been detained by police. Thousands defied a police ban to to rally against the expunging of millions of names from India’s voter roll.`\
+https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
+
 **My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
 `I worry that the child is not receiving the care he needs and that my sister is in danger.`\
 https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
