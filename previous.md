@@ -1,3 +1,7 @@
+**Caroline Schiff Eats Focaccia Every Day**\
+`“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
+https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html
+
 **Ukraine Peace Talks Sputter After Trump and Putin Strike Fuel Deal**\
 `Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
 https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
 **This Robot Will Deliver Your Food, if It Doesn’t Get Smashed First**\
 `The winsome machines have been kicked, beaten and defaced as they roll through American cities bringing pizza and sushi — and vacuuming up data.`\
 https://www.nytimes.com/2026/10/10/us/delivery-robots-violence.html
-
-**Book Review: ‘Voice of a Century,’ by Anthony Tommasini**\
-`As Anthony Tommasini demonstrates in his new biography, the inspiring singer preferred to incite change through excellence, not banner-waving.`\
-https://www.nytimes.com/2026/10/10/books/review/voice-of-a-century-anthony-tommasini-marian-anderson.html
 

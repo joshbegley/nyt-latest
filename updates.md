@@ -1,3 +1,7 @@
+**Caroline Schiff Eats Focaccia Every Day**\
+`“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
+https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html
+
 **Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
 `Nearly 900,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
