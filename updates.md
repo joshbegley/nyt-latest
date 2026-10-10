@@ -1,3 +1,7 @@
+**‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
+`Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
+https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
+
 **Christa Pike Back In Prison After Surviving Execution Attempt**\
 `Christa Pike is in prison after being discharged from the hospital on Saturday following an execution attempt, her lawyers said. Weeks before her planned execution, Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The Times.`\
 https://www.nytimes.com/video/us/100000011207414/christa-pike-discharged-hospital-prison-execution.html
