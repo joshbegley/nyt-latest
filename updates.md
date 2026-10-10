@@ -1,3 +1,7 @@
+**Live Updates: Isaias Drops to Post-Tropical Cyclone After Making Landfall in Florida**\
+`The storm came ashore as a hurricane, with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Live Updates: Police Detain Leaders of Protest Paralyzing New Delhi**\
 `The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
