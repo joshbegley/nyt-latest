@@ -1,3 +1,7 @@
+**Live Updates: Isaias Drenches Eastern U.S. as Weaker Storm After Lashing Gulf Coast**\
+`About 800,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
 `Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
 https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html

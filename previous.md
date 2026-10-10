@@ -110,8 +110,8 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 
-**Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
-`Nearly 900,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
+**Live Updates: Isaias Drenches Eastern U.S. as Weaker Storm After Lashing Gulf Coast**\
+`About 800,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
