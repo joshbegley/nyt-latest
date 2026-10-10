@@ -1,3 +1,7 @@
+**Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
+`The storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **‘Not Today, Satan!’**\
 `Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
 https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
