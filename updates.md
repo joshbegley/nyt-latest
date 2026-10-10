@@ -1,3 +1,11 @@
+**Christa Pike Back In Prison After Surviving Execution Attempt**\
+`Christa Pike is in prison after being discharged from the hospital on Saturday following an execution attempt, her lawyers said. Weeks before her planned execution, Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The Times.`\
+https://www.nytimes.com/video/us/100000011207414/christa-pike-discharged-hospital-prison-execution.html
+
+**3 Men Found Guilty in Murders of Tourists on Mexico Surf Trip**\
+`The 2024 killings of two Australian brothers and their American friend drew international attention.`\
+https://www.nytimes.com/2026/10/10/world/americas/mexico-murder-trial-surfers-jake-callum-robinson-rhoad.html
+
 **Along Florida’s Gulf Coast, Residents Breathe Easier After Hurricane Isaias Passes**\
 `Beachside towns normally teeming with tourists were hit by fallen trees and power outages, not catastrophic flooding.`\
 https://www.nytimes.com/2026/10/10/weather/florida-hurricane-isaias-damage.html

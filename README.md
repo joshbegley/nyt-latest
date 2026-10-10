@@ -130,13 +130,13 @@ https://www.nytimes.com/2026/10/10/briefing/screen-time.html
 `I worry that the child is not receiving the care he needs and that my sister is in danger.`\
 https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
 
-**Quebec Independence Is Unlikely, but Some Will Still Dream**\
-`The idea of independence remains deeply unpopular in Quebec, yet the separatist Parti Québécois was re-elected to a minority government this week.`\
-https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-separatism.html
-
 **NYT Connections Answers for October 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/connections-companion-1218.html
+
+**Quebec Independence Is Unlikely, but Some Will Still Dream**\
+`The idea of independence remains deeply unpopular in Quebec, yet the separatist Parti Québécois was re-elected to a minority government this week.`\
+https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-separatism.html
 
 **Today’s Wordle Hints for October 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
