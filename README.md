@@ -1,3 +1,7 @@
+**Hurricane Isaias Lashes Gulf Coast Before Weakening**\
+`Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The storm weakened on Saturday, but officials warned there was still a risk of flash flooding.`\
+https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-landfall-damage.html
+
 **4 Killed as a Weakened Isaias Pushes Through the Southeast**\
 `Hundreds of thousands of people lost power, but towns near the landfall site in Florida were relieved that the hurricane damage was not worse.`\
 https://www.nytimes.com/2026/10/10/us/hurricane-isaias-florida-damage-four-killed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
 **A Week Later, Russia Hasn’t Said What Pathogen Killed Plague Researcher**\
 `Experts said they believed that with modern testing technology, the Russian authorities should know the answer by now.`\
 https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
-
-**Fact-Checking Senate Ads in Iowa, New Hampshire and North Carolina**\
-`We assess three campaign ads in the battleground states that have focused on the cost of living.`\
-https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-hampshire-north-carolina.html
 
