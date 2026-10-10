@@ -1,3 +1,7 @@
+**Ukraine Peace Talks Sputter After Trump and Putin Strike Fuel Deal**\
+`Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
+https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
+
 **What’s Dragging Down A.I. Efficiency? The ‘Verification Tax.’**\
 `As artificial intelligence automates office tasks, it is also creating a new type of human work.`\
 https://www.nytimes.com/2026/10/10/business/dealbook/ai-verification-tax-rework.html
