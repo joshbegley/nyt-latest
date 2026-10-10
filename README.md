@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
 `On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
 
-**‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
+**How Cornell University Chi Phi Fraternity Members Responded After Rape Accusation**\
 `Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
 https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
 
