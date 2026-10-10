@@ -1,3 +1,7 @@
+**Heart Transplants**\
+`Prepare to be duped by Michael Lieberman’s spirited Sunday grid.`\
+https://www.nytimes.com/2026/10/10/crosswords/daily-puzzle-2026-10-11.html
+
 **5 Killed in Murder-Suicide at a Home in Georgia**\
 `Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
 https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsib
 **Corrections: Oct. 10, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 10, 2026.`\
 https://www.nytimes.com/2026/10/10/pageoneplus/corrections-oct-10-2026.html
-
-**Executions, After Christa Pike, Are on the Minds of a Divided Public**\
-`A botched execution and a planned execution that might be livestreamed have renewed debate and divisions over the most severe form of punishment.`\
-https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
 
