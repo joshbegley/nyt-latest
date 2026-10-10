@@ -1,3 +1,7 @@
+**How Steffen Skjottelvik's Journey Across Canada Came to a Tragic End**\
+`For three years and 750 miles, Steffen Skjottelvik lived a life of adventure. Until the adventure took his life.`\
+https://www.nytimes.com/interactive/2026/10/10/magazine/steffen-skjottelvik-canada-journey-death.html
+
 **Exasperation and Resignation in Greece Over Allegations Against Kimberly Guilfoyle**\
 `The U.S. ambassador to Greece is facing accusations that she asked a donor to pay off her credit card bill before she took up her post in Athens.`\
 https://www.nytimes.com/2026/10/10/world/europe/kimberly-guilfoyle-greece.html
