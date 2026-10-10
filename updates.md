@@ -1,3 +1,15 @@
+**Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
+`After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
+https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
+
+**2 Pedestrians Are Killed in a 5-Car Wreck in the Bronx**\
+`The driver, an 81-year-old man, failed to stop his car at a busy intersection and hit two other vehicles, according to the police.`\
+https://www.nytimes.com/2026/10/09/nyregion/two-killed-car-wreck-nyc.html
+
+**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
+`Darkness fell across mostly deserted beach towns as power outages multiplied. Now a Category 2 hurricane, the storm is close to making landfall.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
 `Darkness fell across mostly deserted beach towns as power outages multiplied. The strongest part of the storm, now a Category 2 hurricane, began to move onshore.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
