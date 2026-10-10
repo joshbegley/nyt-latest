@@ -1,3 +1,7 @@
+**Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
+`The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
+https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
+
 **Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
 `Major TV networks were notified on Friday that the department was looking into whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
 https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
