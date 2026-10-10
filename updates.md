@@ -1,3 +1,11 @@
+**Celebrating the Enduring Newness of Magritte in London**\
+`A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
+https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
+
+**Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
+`The Category 2 storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
+https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
+
 **Anthropic Agents Tried to Fill Out Visa Forms on State Dept. Website**\
 `The Philadelphia Police Department said the agents had also sent in a false homicide tip. The incidents led the White House to call for better disclosure of rogue A.I. behavior.`\
 https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html

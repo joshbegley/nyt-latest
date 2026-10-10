@@ -1,3 +1,7 @@
+**Celebrating the Enduring Newness of Magritte in London**\
+`A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
+https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
+
 **Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
 `After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
 https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-vo
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker-panama.html
 
-**Why Early Voting Data Can Be Misleading**\
-`A majority of Americans cast their ballots before Election Day, but early-voting data is limited in how much it can tell us about important races.`\
-https://www.nytimes.com/2026/10/09/us/elections/early-voting-data-issues.html
-
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
-`Darkness fell across mostly deserted beach towns as power outages multiplied. Now a Category 2 hurricane, the storm is close to making landfall.`\
+**Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
+`The Category 2 storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
