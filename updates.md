@@ -1,3 +1,11 @@
+**Two Killed as Hurricane Isaias Topples Trees Onto Homes**\
+`A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
+https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
+
+**Multiple People Are Dead in Erie, Pa., Shooting, City Officials Say**\
+`The number of people killed or injured had not been released by city officials. The shooter was also dead, they said.`\
+https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
+
 **From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
 `A group of demonstrators used a house of worship known as a gurdwara as a staging ground before their long-shot effort to reach a locked-down protest site in New Delhi.`\
 https://www.nytimes.com/2026/10/10/world/asia/india-cjp-cockroach-protest.html
