@@ -1,3 +1,7 @@
+**What We Know About the Man Shot By ICE**\
+`Oscar Belgal, 28, was often seen fixing cars and playing music on Marble Hill Avenue, where few residents knew of his criminal record.`\
+https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
+
 **How A.I. Could Make Work Worse**\
 `As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
 https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
 **Frieze London: A 72-year-old Artist Makes Her Debut**\
 `Kaye Brown, a retired teacher, didn’t pick up a paintbrush until 2012. Her works depict the body-painting designs Tiwi people wear in mourning.`\
 https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
-
-**Katie Zacharia Picked as Trump’s New White House Press Secretary**\
-`Ms. Zacharia is a conservative commentator who is also an adviser to the company that runs President Trump’s social media site, Truth Social. She succeeds Karoline Leavitt.`\
-https://www.nytimes.com/2026/10/09/us/politics/katie-zacharia-trump-white-house-press-secretary.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

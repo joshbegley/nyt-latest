@@ -1,3 +1,7 @@
+**A.I. Hurricane Models Were Front and Center as Isaias Headed Toward Land**\
+`Expert forecasters say the new technology is helping them understand where a storm will go.`\
+https://www.nytimes.com/2026/10/09/weather/ai-models-hurricane-isaias.html
+
 **What We Know About the Man Shot By ICE**\
 `Oscar Belgal, 28, was often seen fixing cars and playing music on Marble Hill Avenue, where few residents knew of his criminal record.`\
 https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
 **Frieze London: Bringing Attention to Art From the Middle East**\
 `A Saudi gallery will be making its Frieze London debut, showcasing two artists from the region.`\
 https://www.nytimes.com/2026/10/09/arts/design/hafez-gallery-frieze-london.html
-
-**Frieze London: A 72-year-old Artist Makes Her Debut**\
-`Kaye Brown, a retired teacher, didn’t pick up a paintbrush until 2012. Her works depict the body-painting designs Tiwi people wear in mourning.`\
-https://www.nytimes.com/2026/10/09/arts/design/frieze-london-kaye-brown.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

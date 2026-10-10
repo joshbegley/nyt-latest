@@ -1,3 +1,7 @@
+**What We Know About the Man Shot By ICE**\
+`Oscar Belgal, 28, was often seen fixing cars and playing music on Marble Hill Avenue, where few residents knew of his criminal record.`\
+https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
+
 **How A.I. Could Make Work Worse**\
 `As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
 https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
