@@ -1,3 +1,7 @@
+**4 Killed as a Weakened Isaias Pushes Through the Southeast**\
+`Hundreds of thousands of people lost power, but towns near the landfall site in Florida were relieved that the hurricane damage was not worse.`\
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-florida-damage-four-killed.html
+
 **Why Ketamine Immobilizes Some Users**\
 `Potent powders can produce a nearly catatonic state, particularly in those who have not tried the drug before.`\
 https://www.nytimes.com/2026/10/10/science/ketamine-cornell-anesthesia.html

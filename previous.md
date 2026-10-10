@@ -1,3 +1,7 @@
+**4 Killed as a Weakened Isaias Pushes Through the Southeast**\
+`Hundreds of thousands of people lost power, but towns near the landfall site in Florida were relieved that the hurricane damage was not worse.`\
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-florida-damage-four-killed.html
+
 **Why Ketamine Immobilizes Some Users**\
 `Potent powders can produce a nearly catatonic state, particularly in those who have not tried the drug before.`\
 https://www.nytimes.com/2026/10/10/science/ketamine-cornell-anesthesia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
 **Fact-Checking Senate Ads in Iowa, New Hampshire and North Carolina**\
 `We assess three campaign ads in the battleground states that have focused on the cost of living.`\
 https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-hampshire-north-carolina.html
-
-**Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
-`Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
-https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
 
