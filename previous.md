@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 
-**Live Updates: Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
+**Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
 `Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 

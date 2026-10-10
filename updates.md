@@ -1,3 +1,7 @@
+**Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
+`Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **Hurricane Isaias Lashes Gulf Coast Before Weakening**\
 `Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The hurricane weakened to a post-tropical cyclone on Saturday, but officials warned there was still a risk of flash flooding.`\
 https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-landfall-damage.html
