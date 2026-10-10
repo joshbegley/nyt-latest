@@ -1,4 +1,8 @@
 **Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
+`Nearly 900,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
+**Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
 `More than 800,000 people in Alabama, Florida and Georgia were without power as the storm churned north on Saturday.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
