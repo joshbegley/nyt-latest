@@ -1,3 +1,7 @@
+**Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
+`The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
+https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
+
 **Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
 `Major TV networks were notified on Friday that the department was looking into whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
 https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
-
 **John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
 `A New Hampshire insider-outsider candidate is executing a complex political dance.`\
 https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-
 **Today’s Wordle Hints for October 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
 https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
-
-**NYT Strands Hints for October 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
-https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 

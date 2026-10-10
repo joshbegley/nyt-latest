@@ -1,3 +1,7 @@
+**Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
+`Major TV networks were notified on Friday that the department was looking into whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
+https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
+
 **Pentagon Again Increases Number of U.S. Casualties in Iran War**\
 `In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
 https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
