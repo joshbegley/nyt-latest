@@ -1,3 +1,7 @@
+**Blocked by Police, India’s Youth Voice Their Fury**\
+`Members of a youth protest movement are outraged after being intercepted at airports and stopped by barricades. “Aren’t we children of this nation?”`\
+https://www.nytimes.com/2026/10/10/world/asia/police-india-cockroach-protest-anger.html
+
 **At Cornell, a Sorority Finds Itself Sued by One of Its Own**\
 `Some Delta Delta Delta members are asking if the sorority shares blame in the bombshell case — or if the group is a scapegoat.`\
 https://www.nytimes.com/2026/10/10/nyregion/at-cornell-a-sorority-finds-itself-sued-by-one-of-its-own.html

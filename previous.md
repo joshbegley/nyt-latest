@@ -1,3 +1,7 @@
+**Blocked by Police, India’s Youth Voice Their Fury**\
+`Members of a youth protest movement are outraged after being intercepted at airports and stopped by barricades. “Aren’t we children of this nation?”`\
+https://www.nytimes.com/2026/10/10/world/asia/police-india-cockroach-protest-anger.html
+
 **At Cornell, a Sorority Finds Itself Sued by One of Its Own**\
 `Some Delta Delta Delta members are asking if the sorority shares blame in the bombshell case — or if the group is a scapegoat.`\
 https://www.nytimes.com/2026/10/10/nyregion/at-cornell-a-sorority-finds-itself-sued-by-one-of-its-own.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
 **9 Injured After J.F.K.-Bound Flight Hits Severe Turbulence**\
 `Avianca Flight 42 was en route to New York from Medellín, Colombia, when it “encountered unexpected turbulence” and was diverted to Miami.`\
 https://www.nytimes.com/2026/10/09/travel/avianca-flight-severe-turbulence.html
-
-**Donor Says Kimberly Guilfoyle Sought Money From Him to Cover Debt**\
-`Correspondence suggests that Ms. Guilfoyle, the U.S. ambassador to Greece and former fiancée of Donald Trump Jr., asked a G.O.P. donor to pay off her credit card.`\
-https://www.nytimes.com/2026/10/09/us/politics/kimberly-guilfoyle-donor-texts.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
