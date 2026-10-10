@@ -1,3 +1,11 @@
+**8 People Are Killed in Shooting in Erie, Pa., City Officials Say**\
+`The shooting was reported on Friday night in what appeared to be a residential area. The shooter was also dead, city officials said.`\
+https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
+
+**Live Updates: Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
+`Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **Were Isaias Forecasts Accurate?**\
 `Many people in the storm’s path escaped the worst, but 4 people were killed and there was plenty of damage.`\
 https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html

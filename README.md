@@ -1,3 +1,7 @@
+**Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
+`The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
+
 **Were Isaias Forecasts Accurate?**\
 `Many people in the storm’s path escaped the worst, but 4 people were killed and there was plenty of damage.`\
 https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
 https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
 
 **Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
-`Flights were diverted from the airport in the capital of Saudi Arabia, which has faced repeated deadly attacks from the Iran-backed militia in Yemen.`\
+`The strike on Saturday was the deadliest attack in a Gulf Arab country since the U.S.-Israeli war with Iran began in February, and forced the airport to temporarily suspend operations.`\
 https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
 
 **Trump Is Begging to Be Impeached**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republic
 **Inside Grace Coddington’s East Hampton Home**\
 `The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
 https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hamptons-home-tour.html
-
-**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
-`Are we in the middle of a new world war without realizing it? Mirjana Spoljaric, the head of the International Committee of the Red Cross, is deeply worried about the growing number of conflicts in the world and thinks many world leaders “simply don’t care anymore.”`\
-https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met-with-the-iranians-now-she-has-a-warning.html
 
