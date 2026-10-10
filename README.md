@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.ht
 https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html
 
 **Hochul Opts New York Into Trump-Backed School Voucher Plan**\
-`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide taxpayer dollars to parents for both private and public school expenses.`\
+`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide federal tax dollars to parents for both private and public school expenses.`\
 https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
 
 **The ‘A.I. vs. A.I.’ Future**\
