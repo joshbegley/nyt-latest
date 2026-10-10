@@ -1,3 +1,7 @@
+**More Than 500 Trees to Be Cut Down at D.C. Golf Club That Trump Wants to Redo**\
+`The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
+
 **Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
 `Flights were diverted from the airport in the capital of Saudi Arabia, which has faced repeated deadly attacks from the Iran-backed militia in Yemen.`\
 https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
@@ -62,19 +66,19 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
 https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 
-**Think You Have It Bad, Millennials? Join the Club.**\
+**Boomers Didn’t Always Have It So Easy**\
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011193893/mirjana-spoljarics-earlie
 **Why the Head of the International Committee of the Red Cross Is Speaking Out Now**\
 `Mirjana Spoljaric, the head of the International Committee of the Red Cross, rarely gives interviews, but she joined Lulu Garcia-Navarro on “The Interview” to explain the importance of the rules of war and warn about dangerous current conflicts.`\
 https://www.nytimes.com/video/podcasts/100000011193889/why-the-head-of-the-international-committee-of-the-red-cross-is-speaking-out-now.html
-
-**Stephen King and Mike Flanagan on the Resurrected ‘Carrie’**\
-`Mike Flanagan has become the most trusted steward of the author’s work. Now they revisit the story that first made King a star.`\
-https://www.nytimes.com/2026/10/10/arts/television/stephen-king-mike-flanagan-interview-carrie.html
 

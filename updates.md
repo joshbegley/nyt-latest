@@ -1,3 +1,11 @@
+**More Than 500 Trees to Be Cut Down at D.C. Golf Club That Trump Wants to Redo**\
+`The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
+
+**Boomers Didn’t Always Have It So Easy**\
+`All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
+https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
+
 **Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
 `Flights were diverted from the airport in the capital of Saudi Arabia, which has faced repeated deadly attacks from the Iran-backed militia in Yemen.`\
 https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
