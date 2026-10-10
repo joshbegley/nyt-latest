@@ -1,3 +1,7 @@
+**‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
+`Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
+https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
+
 **Christa Pike Back In Prison After Surviving Execution Attempt**\
 `Christa Pike is in prison after being discharged from the hospital on Saturday following an execution attempt, her lawyers said. Weeks before her planned execution, Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The Times.`\
 https://www.nytimes.com/video/us/100000011207414/christa-pike-discharged-hospital-prison-execution.html
@@ -90,13 +94,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyt
 **After Christa Pike’s Botched Execution, Tennessee’s Lethal Injection Protocol Draws Scrutiny**\
 `The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
 https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
-
-**7 Coffins Are Found Near North Dakota Governor’s Residence**\
-`The bodies are believed to have been overlooked when a cemetery at the current site of the governor’s residence in Bismarck was moved in the 1870s, during the capital’s early settlement period.`\
-https://www.nytimes.com/2026/10/10/us/7-coffins-human-remains-north-dakota-governor.html
 
