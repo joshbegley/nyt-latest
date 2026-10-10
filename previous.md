@@ -1,5 +1,5 @@
 **Hurricane Isaias Lashes Gulf Coast Before Weakening**\
-`Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The storm weakened on Saturday, but officials warned there was still a risk of flash flooding.`\
+`Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The hurricane weakened to a post-tropical cyclone on Saturday, but officials warned there was still a risk of flash flooding.`\
 https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-landfall-damage.html
 
 **4 Killed as a Weakened Isaias Pushes Through the Southeast**\
@@ -47,7 +47,7 @@ https://www.nytimes.com/interactive/2026/10/10/magazine/steffen-skjottelvik-cana
 https://www.nytimes.com/2026/10/10/world/europe/kimberly-guilfoyle-greece.html
 
 **One Philadelphia Police Officer Killed, Another Shot 12 Times in Ambush Attack**\
-`Two officers responding to a call were shot multiple times as they reached the scene. Officials said they took “significant fire.”`\
+`Two officers responding to the call took “significant fire.” Officials said the gunman fired at 9 other officers who responded to the scene.`\
 https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
 
 **More Than 500 Trees to Be Cut Down at D.C. Golf Course That Trump Wants to Redo**\
