@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/10/09/us/politics/vance-livestream-execution.html
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
-`The storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
+**Live Updates: Isaias Drops to Post-Tropical Cyclone After Making Landfall in Florida**\
+`The storm came ashore as a hurricane, with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
