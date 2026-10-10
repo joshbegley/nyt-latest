@@ -1,3 +1,19 @@
+**At Cornell, a Sorority Finds Itself Sued by One of Its Own**\
+`Some Delta Delta Delta members are asking if the sorority shares blame in the bombshell case — or if the group is a scapegoat.`\
+https://www.nytimes.com/2026/10/10/nyregion/at-cornell-a-sorority-finds-itself-sued-by-one-of-its-own.html
+
+**A New Tower Will Have Lots of Public Space but No Public Bathrooms**\
+`Amid a bathroom shortage in New York City, community leaders and advocates are calling on city officials to require bathroom access in privately owned public spaces.`\
+https://www.nytimes.com/2026/10/10/nyregion/public-bathrooms-private-spaces-nyc.html
+
+**NYT Spelling Bee Answers for October 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/10/crosswords/spelling-bee-forum.html
+
+**Live Updates: Leaders of Protest Paralyzing New Delhi Say They’ve Been Detained by Police**\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
+https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
+
 **Live Updates: Isaias Drops to Post-Tropical Cyclone After Making Landfall in Florida**\
 `The storm came ashore as a hurricane, with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
