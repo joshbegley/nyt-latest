@@ -190,7 +190,7 @@ https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker
 `(No description)`\
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
-**Hurricane Isaias Live Updates: Howling Gusts Batter the Florida Panhandle**\
-`Darkness fell across mostly deserted beach towns as power outages multiplied. Now a Category 2 hurricane, the storm is close to making landfall.`\
+**Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
+`The Category 2 storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
