@@ -1,3 +1,7 @@
+**Hochul Opts New York Into Trump-Backed School Voucher Plan**\
+`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide federal tax dollars to parents for both private and public school expenses.`\
+https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
+
 **Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
 `The storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
