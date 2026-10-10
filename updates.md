@@ -1,3 +1,123 @@
+**How to Buy and Eat Seafood Ethically**\
+`Our investigation into the farmed fish industry found human-rights violations and health concerns. Here’s what you can do.`\
+https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsibly.html
+
+**Corrections: Oct. 10, 2026**\
+`Corrections that appeared in print on Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/10/pageoneplus/corrections-oct-10-2026.html
+
+**Executions, After Christa Pike, Are on the Minds of a Divided Public**\
+`A botched execution and a planned execution that might be livestreamed have renewed debate and divisions over the most severe form of punishment.`\
+https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
+
+**A Week Later, Russia Hasn’t Said What Pathogen Killed Plague Researcher**\
+`Experts said they believed that with modern testing technology, the Russian authorities should know the answer by now.`\
+https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
+
+**Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
+`Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
+
+**Fact-Checking Senate Ads in Iowa, New Hampshire and North Carolina**\
+`We assess three campaign ads in the battleground states that have focused on the cost of living.`\
+https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-hampshire-north-carolina.html
+
+**Inside Grace Coddington’s East Hampton Home**\
+`The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
+https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hamptons-home-tour.html
+
+**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
+`Are we in the middle of a new world war without realizing it? Mirjana Spoljaric, the head of the International Committee of the Red Cross, is deeply worried about the growing number of conflicts in the world and thinks many world leaders “simply don’t care anymore.”`\
+https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met-with-the-iranians-now-she-has-a-warning.html
+
+**Elon Musk’s Words Set to Music and 9 More Songs We’re Talking About**\
+`David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
+https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
+
+**A Vague, Redacted Execution Protocol in Tennessee Draws Scrutiny**\
+`The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
+https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
+
+**7 Coffins Are Found Near North Dakota Governor’s Residence**\
+`The bodies are believed to have been overlooked when a cemetery at the current site of the governor’s residence in Bismarck was moved in the 1870s, during the capital’s early settlement period.`\
+https://www.nytimes.com/2026/10/10/us/7-coffins-human-remains-north-dakota-governor.html
+
+**Could the Oregon Governor’s Race Be a Republican Hope?**\
+`Republicans are playing defense in some of the most conservative parts of the country, but an unpopular Democratic governor has them hopeful in a progressive West Coast state.`\
+https://www.nytimes.com/2026/10/10/us/elections/oregon-governor-republican-election.html
+
+**Mirjana Spoljaric: If You Torture Your Enemies, You Dehumanize Yourself**\
+`The head of the International Committee of the Red Cross, Mirjana Spoljaric, talked about the memories that haunt soldiers after they return from war.`\
+https://www.nytimes.com/video/podcasts/100000011199909/mirjana-spoljaric-if-you-torture-your-enemies-you-dehumanize-yourself.html
+
+**I Need Accessible Parking, but My Building Says the Spots Are Deeded. What Now?**\
+`The condominium association is still obligated to provide a reasonable accommodation, experts said.`\
+https://www.nytimes.com/2026/10/10/realestate/accessible-parking-apartment-building.html
+
+**The Head of the International Committee of the Red Cross on What She Saw in Gaza**\
+`Mirjana Spoljaric, the head of the International Committee of the Red Cross, talked about visiting Gaza. “There’s so many people complicit in what happened there and continues to happen,” she told Lulu Garcia-Navarro on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011193896/the-head-of-the-international-committee-of-the-red-cross-on-what-she-saw-in-gaza.html
+
+**Mirjana Spoljaric’s Earliest Memories of War and Suffering**\
+`The head of the International Committee of the Red Cross talked about her family’s experience during World War II.`\
+https://www.nytimes.com/video/podcasts/100000011193893/mirjana-spoljarics-earliest-memories-of-war-and-suffering.html
+
+**Why the Head of the International Committee of the Red Cross Is Speaking Out Now**\
+`Mirjana Spoljaric, the head of the International Committee of the Red Cross, rarely gives interviews, but she joined Lulu Garcia-Navarro on “The Interview” to explain the importance of the rules of war and warn about dangerous current conflicts.`\
+https://www.nytimes.com/video/podcasts/100000011193889/why-the-head-of-the-international-committee-of-the-red-cross-is-speaking-out-now.html
+
+**Stephen King and Mike Flanagan on the Resurrected ‘Carrie’**\
+`Mike Flanagan has become the most trusted steward of the author’s work. Now they revisit the story that first made King a star.`\
+https://www.nytimes.com/2026/10/10/arts/television/stephen-king-mike-flanagan-interview-carrie.html
+
+**Deniz Goktas, Jailed in Turkey for a Joke, Delivers a Bold Defense in Court**\
+`Facing 19 months in prison, Deniz Goktas says in an interview that he made his bold statement as a way to show what an artist could endure.`\
+https://www.nytimes.com/2026/10/10/arts/deniz-goktas-jail-joke-free-speech.html
+
+**Mathematician Who Waited 50 Years for Proper Credit for Her Work Has Died**\
+`At the Los Alamos National Laboratory, Mary Tsingou Menzel’s computer programming helped set the stage for chaos theory and other fields.`\
+https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
+
+**Will We Ever Understand Dementia?**\
+`Since the days of Dr. Alzheimer himself, there has been a dream that severe senility might have an explanation — and a cure. The search for both has never been more urgent.`\
+https://www.nytimes.com/2026/10/10/science/will-we-ever-understand-dementia.html
+
+**Book Review: ‘Weimar Germany,’ by Victor Sebestyen**\
+`In “Weimar Germany,” Victor Sebestyen focuses on the populist culture wars that brought an end to popular rule in the fledgling republic.`\
+https://www.nytimes.com/2026/10/10/books/review/weimar-germany-victor-sebestyen.html
+
+**A Simple Mobility Routine to Prevent Aches and Pains**\
+`Try these simple moves to avoid aches and pains.`\
+https://www.nytimes.com/2026/10/10/well/move/mobility-routine-sitting.html
+
+**Should You Put Your Books in the Freezer?**\
+`Silverfish, book lice and mold are a thing, especially in secondhand books. Here’s how to deal with them.`\
+https://www.nytimes.com/2026/10/10/books/book-preservation-silverfish.html
+
+**John Cena Had Wrestling on His Mind From an Early Age**\
+`“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
+https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
+
+**The Underappreciated Benefits of Leaving Fallen Leaves Alone**\
+`To homeowners, fallen leaves look like work. To nature, they’re an investment, with tremendous value on the secondary market as invertebrate real estate.`\
+https://www.nytimes.com/2026/10/10/science/fallen-leaves.html
+
+**This Robot Will Deliver Your Food, if It Doesn’t Get Smashed First**\
+`The winsome machines have been kicked, beaten and defaced as they roll through American cities bringing pizza and sushi — and vacuuming up data.`\
+https://www.nytimes.com/2026/10/10/us/delivery-robots-violence.html
+
+**Book Review: ‘Voice of a Century,’ by Anthony Tommasini**\
+`As Anthony Tommasini demonstrates in his new biography, the inspiring singer preferred to incite change through excellence, not banner-waving.`\
+https://www.nytimes.com/2026/10/10/books/review/voice-of-a-century-anthony-tommasini-marian-anderson.html
+
+**Wherever Food Delivery Robots Go, Mayhem Seems to Follow**\
+`Food delivery robots have been kicked, beaten and tipped over. They have touched a nerve for many Americans who are concerned about A.I. technology.`\
+https://www.nytimes.com/video/us/100000011186272/wherever-food-delivery-robots-go-mayhem-seems-to-follow.html
+
+**Have Rachel Cusk’s Novels Lost the Plot?**\
+`Rachel Cusk’s newest novel, “Life of M,” arrived in a pile of old-fashioned gossip. Alexandra Jacobs, a New York Times book critic, reviews the author’s latest novel.`\
+https://www.nytimes.com/video/books/review/100000011134451/have-rachel-cusks-novels-lost-the-plot.html
+
 **An International Career Forged by the Struggles of Apartheid**\
 `Navi Pillay, who won this year’s Nobel Peace Prize, fought racism in South Africa, shaping her international career as a judge and advocate for justice and human rights.`\
 https://www.nytimes.com/2026/10/10/world/africa/navi-pillay-nobel-prize-apartheid-genocide.html

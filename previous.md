@@ -1,3 +1,123 @@
+**How to Buy and Eat Seafood Ethically**\
+`Our investigation into the farmed fish industry found human-rights violations and health concerns. Here’s what you can do.`\
+https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsibly.html
+
+**Corrections: Oct. 10, 2026**\
+`Corrections that appeared in print on Saturday, Oct. 10, 2026.`\
+https://www.nytimes.com/2026/10/10/pageoneplus/corrections-oct-10-2026.html
+
+**Executions, After Christa Pike, Are on the Minds of a Divided Public**\
+`A botched execution and a planned execution that might be livestreamed have renewed debate and divisions over the most severe form of punishment.`\
+https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
+
+**A Week Later, Russia Hasn’t Said What Pathogen Killed Plague Researcher**\
+`Experts said they believed that with modern testing technology, the Russian authorities should know the answer by now.`\
+https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
+
+**Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
+`Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
+
+**Fact-Checking Senate Ads in Iowa, New Hampshire and North Carolina**\
+`We assess three campaign ads in the battleground states that have focused on the cost of living.`\
+https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-hampshire-north-carolina.html
+
+**Inside Grace Coddington’s East Hampton Home**\
+`The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
+https://www.nytimes.com/interactive/2026/10/10/realestate/grace-coddington-hamptons-home-tour.html
+
+**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
+`Are we in the middle of a new world war without realizing it? Mirjana Spoljaric, the head of the International Committee of the Red Cross, is deeply worried about the growing number of conflicts in the world and thinks many world leaders “simply don’t care anymore.”`\
+https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met-with-the-iranians-now-she-has-a-warning.html
+
+**Elon Musk’s Words Set to Music and 9 More Songs We’re Talking About**\
+`David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
+https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
+
+**A Vague, Redacted Execution Protocol in Tennessee Draws Scrutiny**\
+`The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
+https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
+
+**7 Coffins Are Found Near North Dakota Governor’s Residence**\
+`The bodies are believed to have been overlooked when a cemetery at the current site of the governor’s residence in Bismarck was moved in the 1870s, during the capital’s early settlement period.`\
+https://www.nytimes.com/2026/10/10/us/7-coffins-human-remains-north-dakota-governor.html
+
+**Could the Oregon Governor’s Race Be a Republican Hope?**\
+`Republicans are playing defense in some of the most conservative parts of the country, but an unpopular Democratic governor has them hopeful in a progressive West Coast state.`\
+https://www.nytimes.com/2026/10/10/us/elections/oregon-governor-republican-election.html
+
+**Mirjana Spoljaric: If You Torture Your Enemies, You Dehumanize Yourself**\
+`The head of the International Committee of the Red Cross, Mirjana Spoljaric, talked about the memories that haunt soldiers after they return from war.`\
+https://www.nytimes.com/video/podcasts/100000011199909/mirjana-spoljaric-if-you-torture-your-enemies-you-dehumanize-yourself.html
+
+**I Need Accessible Parking, but My Building Says the Spots Are Deeded. What Now?**\
+`The condominium association is still obligated to provide a reasonable accommodation, experts said.`\
+https://www.nytimes.com/2026/10/10/realestate/accessible-parking-apartment-building.html
+
+**The Head of the International Committee of the Red Cross on What She Saw in Gaza**\
+`Mirjana Spoljaric, the head of the International Committee of the Red Cross, talked about visiting Gaza. “There’s so many people complicit in what happened there and continues to happen,” she told Lulu Garcia-Navarro on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011193896/the-head-of-the-international-committee-of-the-red-cross-on-what-she-saw-in-gaza.html
+
+**Mirjana Spoljaric’s Earliest Memories of War and Suffering**\
+`The head of the International Committee of the Red Cross talked about her family’s experience during World War II.`\
+https://www.nytimes.com/video/podcasts/100000011193893/mirjana-spoljarics-earliest-memories-of-war-and-suffering.html
+
+**Why the Head of the International Committee of the Red Cross Is Speaking Out Now**\
+`Mirjana Spoljaric, the head of the International Committee of the Red Cross, rarely gives interviews, but she joined Lulu Garcia-Navarro on “The Interview” to explain the importance of the rules of war and warn about dangerous current conflicts.`\
+https://www.nytimes.com/video/podcasts/100000011193889/why-the-head-of-the-international-committee-of-the-red-cross-is-speaking-out-now.html
+
+**Stephen King and Mike Flanagan on the Resurrected ‘Carrie’**\
+`Mike Flanagan has become the most trusted steward of the author’s work. Now they revisit the story that first made King a star.`\
+https://www.nytimes.com/2026/10/10/arts/television/stephen-king-mike-flanagan-interview-carrie.html
+
+**Deniz Goktas, Jailed in Turkey for a Joke, Delivers a Bold Defense in Court**\
+`Facing 19 months in prison, Deniz Goktas says in an interview that he made his bold statement as a way to show what an artist could endure.`\
+https://www.nytimes.com/2026/10/10/arts/deniz-goktas-jail-joke-free-speech.html
+
+**Mathematician Who Waited 50 Years for Proper Credit for Her Work Has Died**\
+`At the Los Alamos National Laboratory, Mary Tsingou Menzel’s computer programming helped set the stage for chaos theory and other fields.`\
+https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
+
+**Will We Ever Understand Dementia?**\
+`Since the days of Dr. Alzheimer himself, there has been a dream that severe senility might have an explanation — and a cure. The search for both has never been more urgent.`\
+https://www.nytimes.com/2026/10/10/science/will-we-ever-understand-dementia.html
+
+**Book Review: ‘Weimar Germany,’ by Victor Sebestyen**\
+`In “Weimar Germany,” Victor Sebestyen focuses on the populist culture wars that brought an end to popular rule in the fledgling republic.`\
+https://www.nytimes.com/2026/10/10/books/review/weimar-germany-victor-sebestyen.html
+
+**A Simple Mobility Routine to Prevent Aches and Pains**\
+`Try these simple moves to avoid aches and pains.`\
+https://www.nytimes.com/2026/10/10/well/move/mobility-routine-sitting.html
+
+**Should You Put Your Books in the Freezer?**\
+`Silverfish, book lice and mold are a thing, especially in secondhand books. Here’s how to deal with them.`\
+https://www.nytimes.com/2026/10/10/books/book-preservation-silverfish.html
+
+**John Cena Had Wrestling on His Mind From an Early Age**\
+`“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
+https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
+
+**The Underappreciated Benefits of Leaving Fallen Leaves Alone**\
+`To homeowners, fallen leaves look like work. To nature, they’re an investment, with tremendous value on the secondary market as invertebrate real estate.`\
+https://www.nytimes.com/2026/10/10/science/fallen-leaves.html
+
+**This Robot Will Deliver Your Food, if It Doesn’t Get Smashed First**\
+`The winsome machines have been kicked, beaten and defaced as they roll through American cities bringing pizza and sushi — and vacuuming up data.`\
+https://www.nytimes.com/2026/10/10/us/delivery-robots-violence.html
+
+**Book Review: ‘Voice of a Century,’ by Anthony Tommasini**\
+`As Anthony Tommasini demonstrates in his new biography, the inspiring singer preferred to incite change through excellence, not banner-waving.`\
+https://www.nytimes.com/2026/10/10/books/review/voice-of-a-century-anthony-tommasini-marian-anderson.html
+
+**Wherever Food Delivery Robots Go, Mayhem Seems to Follow**\
+`Food delivery robots have been kicked, beaten and tipped over. They have touched a nerve for many Americans who are concerned about A.I. technology.`\
+https://www.nytimes.com/video/us/100000011186272/wherever-food-delivery-robots-go-mayhem-seems-to-follow.html
+
+**Have Rachel Cusk’s Novels Lost the Plot?**\
+`Rachel Cusk’s newest novel, “Life of M,” arrived in a pile of old-fashioned gossip. Alexandra Jacobs, a New York Times book critic, reviews the author’s latest novel.`\
+https://www.nytimes.com/video/books/review/100000011134451/have-rachel-cusks-novels-lost-the-plot.html
+
 **An International Career Forged by the Struggles of Apartheid**\
 `Navi Pillay, who won this year’s Nobel Peace Prize, fought racism in South Africa, shaping her international career as a judge and advocate for justice and human rights.`\
 https://www.nytimes.com/2026/10/10/world/africa/navi-pillay-nobel-prize-apartheid-genocide.html
@@ -77,120 +197,4 @@ https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
 **How A.I. Could Make Work Worse**\
 `As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
 https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
-
-**Anthropic Agents Tried to Fill Out Visa Forms on State Dept. Website**\
-`The Philadelphia Police Department said the agents had also sent in a false homicide tip. The incidents led the White House to call for better disclosure of rogue A.I. behavior.`\
-https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
-
-**Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\
-`The lawyer for Jane Doe said his team identified the wrong person and apologized for the error. Now, the judge in the case has ordered sensitive information to be sealed.`\
-https://www.nytimes.com/2026/10/09/nyregion/cornell-mistaken-identity-lawsuit.html
-
-**In Deep-Red Kansas, a Surprisingly Competitive Senate Race Takes Shape**\
-`Adam Hamilton wants to be the first Democrat to win a Senate seat there in nearly 100 years.`\
-https://www.nytimes.com/2026/10/09/us/politics/kansas-senate-race-2026-marshall-hamilton.html
-
-**Hochul Opts New York Into Trump-Backed School Voucher Plan**\
-`The governor’s decision, which is at odds with New York’s teachers’ unions, would provide federal tax dollars to parents for both private and public school expenses.`\
-https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
-
-**The ‘A.I. vs. A.I.’ Future**\
-`The idea of A.I. monitoring other A.I. for safety and alignment may feel uncomfortable, but “we’re going to have to go there,” argues the computer science professor Arvind Narayanan on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011204138/the-ai-vs-ai-future.html
-
-**Inside Erik Prince’s Mercenary Deal in Congo**\
-`The injury of a former Green Beret and death of an elite soldier from New Zealand have highlighted the Blackwater founder’s growing role in one of Africa’s most intractable conflicts.`\
-https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html
-
-**Storm Surge Expected Along Parts of the Gulf Coast**\
-`Water is expected to inundate parts of Alabama and Florida as Hurricane Isaias crosses over onto land.`\
-https://www.nytimes.com/2026/10/09/weather/storm-surge-gulf-coast-hurricane-isaias.html
-
-**For Trump, a Firing Squad on Livestream Becomes the Latest Spectacle**\
-`The idea seemed to surprise even some inside the Trump administration.`\
-https://www.nytimes.com/2026/10/09/us/politics/trump-firing-squad-spectacle.html
-
-**Hurricane Isaias Nears Landfall**\
-`Plus, the Nobel Peace Prize is awarded. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/10/09/briefing/isaias-nobel-ice.html
-
-**A New Bachata Star on the Horizon**\
-`Dalvin La Melodia has emerged as a strong new voice in bachata, following his feature on the 2025 collaboration album by Romeo Santos and Prince Royce. Our critic Jon Caramanica breaks down how the singer’s single “Amnesia” brings power, muscularity and texture back to modern bachata.`\
-https://www.nytimes.com/video/podcasts/100000011203982/a-new-bachata-star-on-the-horizon.html
-
-**Blogger on Trial: Is a Lewd Image of Shrek Free Speech or Harassment?**\
-`An Ohio municipal court heard a misdemeanor case that considered the limits of political discourse in the age of the internet.`\
-https://www.nytimes.com/2026/10/09/us/ohio-blogger-shrek-meme-trial.html
-
-**Alabama-Georgia Football Game Is Still On Despite Hurricane Isaias, but Trump Will Skip**\
-`The highly anticipated Alabama-Georgia game is set to take place on Saturday in one of the 40 counties under a state of emergency in Alabama.`\
-https://www.nytimes.com/2026/10/09/weather/isaias-alabama-georgia-football.html
-
-**At Frieze London, the People Who Make It All Work**\
-`Behind the scenes, it takes a small army of players to pull off the art fair. Here is a look at four of them.`\
-https://www.nytimes.com/2026/10/09/arts/design/frieze-london-workers.html
-
-**Beyond the London Fairs: Even More Art**\
-`The museums and galleries have much to offer those coming to Frieze London.`\
-https://www.nytimes.com/2026/10/09/arts/design/frieze-london-fairs.html
-
-**Fort Hood Shooter’s Execution Could Face Challenge in Federal Courts**\
-`Legal experts say the former Army officer convicted in a 2009 mass shooting could face a narrow, rushed path to appeal a public execution by firing squad.`\
-https://www.nytimes.com/2026/10/09/us/politics/fort-hood-execution-legal-challenges.html
-
-**Gabriel Orozco Shows New Art In London**\
-`A conversation with Gabriel Orozco, who will be showing a sprawling body of work, both old and new, in London.`\
-https://www.nytimes.com/2026/10/09/arts/design/gabriel-orozco-show-london.html
-
-**Sotheby’s Soars as Galleries Struggle in Britain’s Art World**\
-`As auction houses like Sotheby’s move millions of dollars of art, some high-profile galleries struggle.`\
-https://www.nytimes.com/2026/10/09/arts/design/london-art-scene-frieze.html
-
-**In the Shadows of the Art World, an Invisible Industry Operates**\
-`Right now, hundreds of artworks worth millions are making their way across the world. These people make the travel arrangements.`\
-https://www.nytimes.com/2026/10/09/arts/design/frieze-london-art-shipping.html
-
-**Trump Casts Himself as Columbus’s Protector in Pitch to Italian Americans**\
-`President Trump sought to inject the Genoese explorer into the current political conversation.`\
-https://www.nytimes.com/2026/10/09/us/politics/trump-columbus-italian-americans.html
-
-**Senate Fact Finders Decry Costs of Immigrant Detention at Guantánamo**\
-`The setup has cost more than $100 million, the study said. A recent inspection found nearly 450 government employees and zero detainees.`\
-https://www.nytimes.com/2026/10/09/us/politics/senate-migrants-detention-guantanamo.html
-
-**What Travelers Need to Know as Hurricane Isaias Nears the Gulf Coast**\
-`The storm, which has already closed airports and canceled trains along the Gulf, could have impacts on major hubs like Atlanta and Charlotte.`\
-https://www.nytimes.com/2026/10/09/travel/hurricane-isaias-travel-what-to-know.html
-
-**Ukrainian Drones Close Moscow Airports as Putin Flies Back to Russia**\
-`Government planes reported to be carrying the Russian president and his aides home from Turkmenistan were forced to circle or divert to another city.`\
-https://www.nytimes.com/2026/10/09/world/europe/russia-putin-plane-ukraine.html
-
-**How a Reporter Traced the Digital Bread Crumbs of Hollywood Smear Campaigns**\
-`For an investigation of malicious public relations blitzes, Debra Kamin interviewed more than 60 people and analyzed hundreds of websites and social media profiles.`\
-https://www.nytimes.com/2026/10/09/insider/hollywood-smear-campaigns-reporting-digital-bread-crumbs.html
-
-**Big Controversy Upends a Contest About Microscopic Videos**\
-`Nikon announced that it had disqualified the winner of its Small World in Motion competition over how A.I. was used in his submission.`\
-https://www.nytimes.com/2026/10/09/science/nikon-microscopic-videos-ai.html
-
-**Trump Says He Will Import Russian Diesel Fuel Amid High Prices**\
-`President Trump said Russia had agreed to ship potentially millions of tons of diesel fuel in the coming months. But the amounts would be small relative to global demand.`\
-https://www.nytimes.com/2026/10/09/us/politics/trump-russia-diesel-putin.html
-
-**Police Bodycam Shows Moments After Man Shot by Federal Agent**\
-`The Police Department released body-camera footage from officers who had arrived at the scene after a federal agent shot and injured Oscar Belgal inside his car. On Friday, Homeland Security Secretary Markwayne Mullin said that ICE agents had been trying to arrest Mr. Belgal, who Mr. Mullin said was an undocumented immigrant with a criminal record.`\
-https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.html
-
-**Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
-`The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after  years of developing extreme Islamist views.`\
-https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
-
-**James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/09/us/midterms-elections
-
-**Live Updates: Isaias Drops to Post-Tropical Cyclone After Making Landfall in Florida**\
-`The storm came ashore as a hurricane, with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
-https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 
