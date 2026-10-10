@@ -1,3 +1,19 @@
+**Our Best Lasagna Recipe**\
+`And more marvelous mains for any special dinner (including a certain special November dinner).`\
+https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
+
+**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
+`A.I. giants must operate under our laws.`\
+https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
+
+**After Christa Pike’s Botched Execution, Tennessee’s Lethal Injection Protocol Draws Scrutiny**\
+`The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
+https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
+
 **Two Killed as Hurricane Isaias Topples Trees Onto Homes**\
 `A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
 https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
