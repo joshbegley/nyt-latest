@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/10/style/george-amal-clooney-albies-2026.html
 
 **Winston Lee, Accused in Cornell Sexual Assault Case, Is Related to Former South Korean Prime Minister**\
 `Lawyers for Winston Lee, the grandson of a former premier of South Korea, said statements by the New York attorney general may have sown prejudice against him.`\
-https://www.nytimes.com/2026/10/10/world/asia/cornell-case-winston-lee-south-korea-prime-minister.html
+https://www.nytimes.com/2026/10/10/nyregion/cornell-case-winston-lee-south-korea-prime-minister.html
 
 **Quote of the Day: Peace Prize Goes to a Jurist Who Rebuked Israel**\
 `Quotation of the Day for Saturday, October, 10, 2026.`\
