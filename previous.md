@@ -1,3 +1,19 @@
+**Quote of the Day: Peace Prize Goes to a Jurist Who Rebuked Israel**\
+`Quotation of the Day for Saturday, October, 10, 2026.`\
+https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes-to-a-jurist-who-rebuked-israel.html
+
+**On This Day, Oct. 10: In 1973, Vice President Spiro Agnew Resigned**\
+`In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
+https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
+
+**Live Updates: Protesters Converge on New Delhi Over Cuts to India’s Voter Roll**\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after the Modi government cut more than 130 million names from the roll.`\
+https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
+
+**What to Know About the Delhi Protests**\
+`Protesters opposed to sweeping revisions to India’s voter rolls are trying to rally in New Delhi. The police have come out in force.`\
+https://www.nytimes.com/2026/10/09/world/asia/what-to-know-about-the-delhi-protests.html
+
 **Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
 `A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
 https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-exe
 **With Isaias in the Gulf, 2 Pacific Storms Are Barreling Toward Mexico**\
 `Hurricane Simon and Tropical Storm Rachel are both expected to make landfall in the coming days. Rachel could also affect Southern California.`\
 https://www.nytimes.com/2026/10/09/weather/hurricane-simon-rachel-california.html
-
-**A.I. Leaders Are Turning to Religion**\
-`This week on “Hard Fork”, the group discusses the trend of A.I. executives and thought leaders turning to religion for guidance. As models are growing more complex and capable, Anthropic has been meeting with religious scholars to try to learn how to make its A.I. models morally good.`\
-https://www.nytimes.com/video/podcasts/100000011203966/ai-leaders-are-turning-to-religion.html
-
-**The Local: News outlet aims to fill a ‘huge gap’**\
-`Also, Shadi brings his kids to a national soccer match. Questions ensue.`\
-https://www.nytimes.com/2026/10/09/briefing/mukhtar-ibrahim.html
-
-**Review: A Dancing Oscar Wilde, in Love but Drained of Wit**\
-`Christopher Wheeldon’s “Oscar,” performed by the Australian Ballet, is constructed with skill but is disappointingly timid.`\
-https://www.nytimes.com/2026/10/09/arts/dance/review-oscar-ballet-christopher-wheeldon-australian-ballet.html
-
-**Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
-`The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
-https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

@@ -1,3 +1,19 @@
+**Quote of the Day: Peace Prize Goes to a Jurist Who Rebuked Israel**\
+`Quotation of the Day for Saturday, October, 10, 2026.`\
+https://www.nytimes.com/2026/10/10/pageoneplus/quote-of-the-day-peace-prize-goes-to-a-jurist-who-rebuked-israel.html
+
+**On This Day, Oct. 10: In 1973, Vice President Spiro Agnew Resigned**\
+`In 1973, Vice President Spiro T. Agnew pleaded no contest to one count of federal income tax evasion and resigned from office, becoming the only vice president in U.S. history to resign amid criminal charges.`\
+https://www.nytimes.com/2026/10/10/learning/on-this-day-oct-10.html
+
+**Live Updates: Protesters Converge on New Delhi Over Cuts to India’s Voter Roll**\
+`The youth movement known as the Cockroach Janta Party called for demonstrations after the Modi government cut more than 130 million names from the roll.`\
+https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest
+
+**What to Know About the Delhi Protests**\
+`Protesters opposed to sweeping revisions to India’s voter rolls are trying to rally in New Delhi. The police have come out in force.`\
+https://www.nytimes.com/2026/10/09/world/asia/what-to-know-about-the-delhi-protests.html
+
 **Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
 `A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
 https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
