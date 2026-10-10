@@ -1,3 +1,7 @@
+**An International Career Forged by the Struggles of Apartheid**\
+`Navi Pillay, who won this year’s Nobel Peace Prize, fought racism in South Africa, shaping her international career as a judge and advocate for justice and human rights.`\
+https://www.nytimes.com/2026/10/10/world/africa/navi-pillay-nobel-prize-apartheid-genocide.html
+
 **Blocked by Police, India’s Youth Voice Their Fury**\
 `Members of a youth protest movement are outraged after being intercepted at airports and stopped by barricades. “Aren’t we children of this nation?”`\
 https://www.nytimes.com/2026/10/10/world/asia/police-india-cockroach-protest-anger.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/nyregion/100000011205357/ice-shooting-bronx-nyc.ht
 **Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say**\
 `The attorney general of the United Arab Emirates said that the co-pilot had been inspired by the Sept. 11 attacks after  years of developing extreme Islamist views.`\
 https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html
-
-**9 Injured After J.F.K.-Bound Flight Hits Severe Turbulence**\
-`Avianca Flight 42 was en route to New York from Medellín, Colombia, when it “encountered unexpected turbulence” and was diverted to Miami.`\
-https://www.nytimes.com/2026/10/09/travel/avianca-flight-severe-turbulence.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\

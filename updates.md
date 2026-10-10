@@ -1,3 +1,7 @@
+**An International Career Forged by the Struggles of Apartheid**\
+`Navi Pillay, who won this year’s Nobel Peace Prize, fought racism in South Africa, shaping her international career as a judge and advocate for justice and human rights.`\
+https://www.nytimes.com/2026/10/10/world/africa/navi-pillay-nobel-prize-apartheid-genocide.html
+
 **Blocked by Police, India’s Youth Voice Their Fury**\
 `Members of a youth protest movement are outraged after being intercepted at airports and stopped by barricades. “Aren’t we children of this nation?”`\
 https://www.nytimes.com/2026/10/10/world/asia/police-india-cockroach-protest-anger.html
