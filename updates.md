@@ -1,3 +1,7 @@
+**Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
+`Isaias came ashore Friday over Florida as a hurricane. It was forecast to continue dumping rain as it moves north through Alabama on Saturday.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
 `As the head of the International Committee of the Red Cross, Mirjana Spoljaric goes to both sides of conflicts. She’s worried that our warring world is spiraling out of control.`\
 https://www.nytimes.com/2026/10/10/magazine/mirjana-spoljaric-interview.html
