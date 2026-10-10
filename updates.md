@@ -1,3 +1,7 @@
+**5 Killed in Murder-Suicide at a Home in Georgia**\
+`Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
+https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
+
 **Isaias Weakens as It Moves North, Leaving at Least 4 Dead**\
 `Hundreds of thousands remained without power Saturday afternoon. Officials said two people had died in Florida and another two in Georgia.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
