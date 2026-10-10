@@ -1,3 +1,7 @@
+**Heart Transplants**\
+`Prepare to be duped by Michael Lieberman’s spirited Sunday grid.`\
+https://www.nytimes.com/2026/10/10/crosswords/daily-puzzle-2026-10-11.html
+
 **5 Killed in Murder-Suicide at a Home in Georgia**\
 `Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
 https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
-**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
-`A.I. giants must operate under our laws.`\
-https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
-
 **Why Should Students Write? Let Us Count the Ways.**\
 `Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
 https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
+
+**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
+`A.I. giants must operate under our laws.`\
+https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
 
 **Republicans Have the Money. Democrats Have the Momentum.**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsib
 **Corrections: Oct. 10, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 10, 2026.`\
 https://www.nytimes.com/2026/10/10/pageoneplus/corrections-oct-10-2026.html
-
-**Executions, After Christa Pike, Are on the Minds of a Divided Public**\
-`A botched execution and a planned execution that might be livestreamed have renewed debate and divisions over the most severe form of punishment.`\
-https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
 

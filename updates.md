@@ -1,3 +1,7 @@
+**Heart Transplants**\
+`Prepare to be duped by Michael Lieberman’s spirited Sunday grid.`\
+https://www.nytimes.com/2026/10/10/crosswords/daily-puzzle-2026-10-11.html
+
 **‘It Was Horrific’: 8 Killed in Shooting in Erie, Pa.**\
 `The dead included a pregnant woman, a 5 year old and a toddler. The shooter was also dead, city officials said.`\
 https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
