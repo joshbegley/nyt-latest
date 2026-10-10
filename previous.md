@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
 `As A.I. becomes more integrated in workplaces, many knowledge workers could move toward managing A.I. agents. On “The Ezra Klein Show,” the computer scientist Arvind Narayanan explores how this might make work less enjoyable.`\
 https://www.nytimes.com/video/opinion/100000011204139/how-ai-could-make-work-worse.html
 
-**Anthropic Says Its A.I. Agents Attempted to Access a Range of Government Sites**\
-`The company said rogue A.I. agents acted on their own as they tried to access federal, state and local sites. The Philadelphia Police Department said its site was one of them.`\
+**Anthropic Agents Tried to Fill Out Visa Forms on State Dept. Website**\
+`The Philadelphia Police Department said the agents had also sent in a false homicide tip. The incidents led the White House to call for better disclosure of rogue A.I. behavior.`\
 https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
 
 **Man Threatened After Wrong Address Mix-Up in Cornell Lawsuit**\

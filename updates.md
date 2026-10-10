@@ -1,3 +1,7 @@
+**Anthropic Agents Tried to Fill Out Visa Forms on State Dept. Website**\
+`The Philadelphia Police Department said the agents had also sent in a false homicide tip. The incidents led the White House to call for better disclosure of rogue A.I. behavior.`\
+https://www.nytimes.com/2026/10/09/technology/anthropic-rogue-ai-agents.html
+
 **Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
 `After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
 https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
