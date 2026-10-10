@@ -1,3 +1,11 @@
+**More Than 500 Trees to Be Cut Down at D.C. Golf Course That Trump Wants to Redo**\
+`The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
+
+**Live Updates: Isaias Drenches Eastern U.S. as Weaker Storm After Lashing Gulf Coast**\
+`About 700,000 people in Alabama, Florida and Georgia remained without power Saturday afternoon. Officials said that two people had been killed by trees that fell on their homes.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **One Philadelphia Police Officer Killed, Another Shot 12 Times in Ambush Attack**\
 `Two officers responding to a call were shot multiple times as they reached the scene. Officials said they took “significant fire.”`\
 https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
