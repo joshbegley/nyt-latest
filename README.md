@@ -1,3 +1,7 @@
+**Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
+`After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
+https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
+
 **2 Pedestrians Are Killed in a 5-Car Wreck in the Bronx**\
 `The driver, an 81-year-old man, failed to stop his car at a busy intersection and hit two other vehicles, according to the police.`\
 https://www.nytimes.com/2026/10/09/nyregion/two-killed-car-wreck-nyc.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker
 **Why Early Voting Data Can Be Misleading**\
 `A majority of Americans cast their ballots before Election Day, but early-voting data is limited in how much it can tell us about important races.`\
 https://www.nytimes.com/2026/10/09/us/elections/early-voting-data-issues.html
-
-**Zohran Mamdani’s Moral Obscenity**\
-`A mayor for one million Jewish New Yorkers fails his duty.`\
-https://www.nytimes.com/2026/10/09/opinion/zohran-mamdani-israel-gaza.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
