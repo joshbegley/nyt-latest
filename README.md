@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.ht
 https://www.nytimes.com/live/2026/10/09/us/midterms-elections
 
 **Live Updates: Hurricane Isaias Makes Landfall in the Florida Panhandle**\
-`The Category 2 storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
+`The storm came ashore with howling winds and pelting downpours. Its effects are expected to be felt far inland.`\
 https://www.nytimes.com/live/2026/10/09/weather/hurricane-isaias-updates
 

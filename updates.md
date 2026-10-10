@@ -1,3 +1,7 @@
+**‘Not Today, Satan!’**\
+`Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
+https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
+
 **New Footage Shows Moments Surrounding ICE Shooting in N.Y.C.**\
 `Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
 https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html

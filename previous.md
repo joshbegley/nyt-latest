@@ -1,3 +1,7 @@
+**‘Not Today, Satan!’**\
+`Don’t let David Levinson Wilk’s themeless puzzle put you on the ropes.`\
+https://www.nytimes.com/2026/10/09/crosswords/daily-puzzle-2026-10-10.html
+
 **New Footage Shows Moments Surrounding ICE Shooting in N.Y.C.**\
 `Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
 https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
 **Want to Avoid Another Jan. 6? Defeat These Republicans.**\
 `The 2028 election is on the ballot right now.`\
 https://www.nytimes.com/2026/10/09/opinion/midterms-wisconsin-georgia-arizona.html
-
-**2026 Midterm Elections: Early Vote Tracking in Key Senate Battleground States**\
-`A majority of voters now cast their ballots ahead of Election Day, and we are tracking the returns in key Senate battleground states.`\
-https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-voting-tracker-battleground-states.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
