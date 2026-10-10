@@ -1,3 +1,11 @@
+**Riyadh Airport Attacked Again, Diplomats Say, After Week of Houthi Strikes**\
+`Flights were diverted from the airport in the capital of Saudi Arabia, which has faced days of deadly attacks from the Iran-backed militia in Yemen.`\
+https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
+
+**Trump Is Begging to Be Impeached**\
+`The president’s despotism is itself a constitutional offense.`\
+https://www.nytimes.com/2026/10/10/opinion/impeachment-trump-democrats-midterms.html
+
 **Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
 `Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
 https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html
@@ -54,13 +62,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
-
 **This New Hampshire Republican Is Showing Republicans How to Win. Even if He Loses.**\
 `A New Hampshire insider-outsider candidate is executing a complex political dance.`\
 https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011193889/why-the-head-of-the-inter
 **Stephen King and Mike Flanagan on the Resurrected ‘Carrie’**\
 `Mike Flanagan has become the most trusted steward of the author’s work. Now they revisit the story that first made King a star.`\
 https://www.nytimes.com/2026/10/10/arts/television/stephen-king-mike-flanagan-interview-carrie.html
-
-**Deniz Goktas, Jailed in Turkey for a Joke, Delivers a Bold Defense in Court**\
-`Facing 19 months in prison, Deniz Goktas says in an interview that he made his bold statement as a way to show what an artist could endure.`\
-https://www.nytimes.com/2026/10/10/arts/deniz-goktas-jail-joke-free-speech.html
-
-**Mathematician Who Waited 50 Years for Proper Credit for Her Work Has Died**\
-`At the Los Alamos National Laboratory, Mary Tsingou Menzel’s computer programming helped set the stage for chaos theory and other fields.`\
-https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
 

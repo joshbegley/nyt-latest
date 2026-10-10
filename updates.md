@@ -1,3 +1,11 @@
+**Riyadh Airport Attacked Again, Diplomats Say, After Week of Houthi Strikes**\
+`Flights were diverted from the airport in the capital of Saudi Arabia, which has faced days of deadly attacks from the Iran-backed militia in Yemen.`\
+https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
+
+**Trump Is Begging to Be Impeached**\
+`The president’s despotism is itself a constitutional offense.`\
+https://www.nytimes.com/2026/10/10/opinion/impeachment-trump-democrats-midterms.html
+
 **Live Updates: Isaias Drenches Eastern U.S. as Weaker Storm After Lashing Gulf Coast**\
 `About 800,000 people in Alabama, Florida and Georgia were without power on Saturday. Officials said that two people had been killed by trees that fell on their homes.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
