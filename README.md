@@ -1,3 +1,7 @@
+**Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
+`Isaias came ashore Friday over Florida as a hurricane. It was forecast to continue dumping rain as it moves north through Alabama on Saturday.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
 `As the head of the International Committee of the Red Cross, Mirjana Spoljaric goes to both sides of conflicts. She’s worried that our warring world is spiraling out of control.`\
 https://www.nytimes.com/2026/10/10/magazine/mirjana-spoljaric-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/09/nyregion/two-killed-car-wreck-nyc.html
 **A.I. Hurricane Models Were Front and Center as Isaias Headed Toward Land**\
 `Expert forecasters say the new technology is helping them understand where a storm will go.`\
 https://www.nytimes.com/2026/10/09/weather/ai-models-hurricane-isaias.html
-
-**What We Know About the Man Shot By ICE**\
-`Oscar Belgal, 28, was often seen fixing cars and playing music on Marble Hill Avenue, where few residents knew of his criminal record.`\
-https://www.nytimes.com/2026/10/09/nyregion/oscar-belgal-ice-shooting-nyc.html
 
