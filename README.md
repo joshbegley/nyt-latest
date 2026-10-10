@@ -1,3 +1,7 @@
+**Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
+`On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
+
 **‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
 `Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
 https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011202954/shes-been-to-gaza-she-met
 **Elon Musk’s Words Set to Music and 9 More Songs We’re Talking About**\
 `David Byrne and Daniel Pemberton bring nervous energy, Victoria Monét and SZA conjure dreams, and Jess Williamson touts second chances.`\
 https://www.nytimes.com/2026/10/10/arts/music/david-byrne-victoria-monet-slayyyter-new-music.html
-
-**After Christa Pike’s Botched Execution, Tennessee’s Lethal Injection Protocol Draws Scrutiny**\
-`The differences between the current protocol and the previous one have become a focus in Christa Pike’s failed execution.`\
-https://www.nytimes.com/2026/10/10/us/politics/tennessee-lethal-injection-protocol-christa-pike.html
 
