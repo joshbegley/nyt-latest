@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
 https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 
-**Think You Have It Bad, Millennials? Join the Club.**\
+**Boomers Didn’t Always Have It So Easy**\
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
