@@ -1,3 +1,7 @@
+**Palestinian Authority Formally Delays Elections, Despite Western Pressure**\
+`The aging Palestinian leader, Mahmoud Abbas, pushed off the planned vote until late 2027. Palestinians haven’t had major elections for about two decades.`\
+https://www.nytimes.com/2026/10/10/world/middleeast/palestinian-authority-elections-abbas.html
+
 **India Cracks Down on Gen Z-Led Protests**\
 `Demonstrators from the youth movement known as the Cockroach Janta Party met walls of security forces in New Delhi on Saturday as they tried to protest a revision of India’s voter roll.`\
 https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroach-janta-party-new-delhi-police.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/books/book-preservation-silverfish.html
 **The Underappreciated Benefits of Leaving Fallen Leaves Alone**\
 `To homeowners, fallen leaves look like work. To nature, they’re an investment, with tremendous value on the secondary market as invertebrate real estate.`\
 https://www.nytimes.com/2026/10/10/science/fallen-leaves.html
-
-**John Cena Had Wrestling on His Mind From an Early Age**\
-`“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
-https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
 
