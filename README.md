@@ -1,3 +1,7 @@
+**Ukraine Peace Talks Sputter After Trump and Putin Strike Fuel Deal**\
+`Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
+https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
+
 **What’s Dragging Down A.I. Efficiency? The ‘Verification Tax.’**\
 `As artificial intelligence automates office tasks, it is also creating a new type of human work.`\
 https://www.nytimes.com/2026/10/10/business/dealbook/ai-verification-tax-rework.html
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/10/10/us/executions-death-penalty-culture-war.html
 `Experts said they believed that with modern testing technology, the Russian authorities should know the answer by now.`\
 https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html
 
-**Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
-`Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
-https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
-
 **Fact-Checking Senate Ads in Iowa, New Hampshire and North Carolina**\
 `We assess three campaign ads in the battleground states that have focused on the cost of living.`\
 https://www.nytimes.com/2026/10/10/us/politics/fact-check-senate-ads-iowa-new-hampshire-north-carolina.html
+
+**Economic Pain and an Unpopular Trump Put G.O.P. on its Heels With Three Weeks to Go**\
+`Inflation has hurt Americans at many levels: Farmers, truckers, consumers. It has also expanded the electoral map into what was safely Republican country just a few months ago.`\
+https://www.nytimes.com/2026/10/10/us/politics/trump-inflation-midterms-republicans.html
 
 **Inside Grace Coddington’s East Hampton Home**\
 `The fashion stylist and creative director decorated her Hamptons home with mementos from her storied career and an abundance of cats.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/delivery-robots-violence.html
 **Book Review: ‘Voice of a Century,’ by Anthony Tommasini**\
 `As Anthony Tommasini demonstrates in his new biography, the inspiring singer preferred to incite change through excellence, not banner-waving.`\
 https://www.nytimes.com/2026/10/10/books/review/voice-of-a-century-anthony-tommasini-marian-anderson.html
-
-**Wherever Food Delivery Robots Go, Mayhem Seems to Follow**\
-`Food delivery robots have been kicked, beaten and tipped over. They have touched a nerve for many Americans who are concerned about A.I. technology.`\
-https://www.nytimes.com/video/us/100000011186272/wherever-food-delivery-robots-go-mayhem-seems-to-follow.html
 

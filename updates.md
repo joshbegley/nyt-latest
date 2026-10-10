@@ -1,3 +1,7 @@
+**What’s Dragging Down A.I. Efficiency? The ‘Verification Tax.’**\
+`As artificial intelligence automates office tasks, it is also creating a new type of human work.`\
+https://www.nytimes.com/2026/10/10/business/dealbook/ai-verification-tax-rework.html
+
 **Abolish Frats**\
 `As undergraduates, we led a movement to abolish fraternities and sororities. Our story shows how challenging it is.`\
 https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.html
