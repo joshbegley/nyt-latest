@@ -1,3 +1,7 @@
+**Why Ketamine Immobilizes Some Users**\
+`Potent powders can produce a nearly catatonic state, particularly in those who have not tried the drug before.`\
+https://www.nytimes.com/2026/10/10/science/ketamine-cornell-anesthesia.html
+
 **Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
 `The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
