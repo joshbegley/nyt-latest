@@ -1,3 +1,7 @@
+**Rebuking Ukraine Over Oil Strikes, Trump Says It Should ‘Get a New President’**\
+`Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
+https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
+
 **‘What’s the Plan?’ Crisis Response at the Chi Phi House at Cornell**\
 `Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
 https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html

@@ -70,7 +70,7 @@ https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroac
 `“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
 https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html
 
-**Ukraine Peace Talks Sputter After Trump and Putin Strike Fuel Deal**\
+**Rebuking Ukraine Over Oil Strikes, Trump Says It Should ‘Get a New President’**\
 `Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
 https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
 
