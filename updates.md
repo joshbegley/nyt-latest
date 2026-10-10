@@ -1,3 +1,7 @@
+**One Philadelphia Police Officer Killed, Another Shot 12 Times in Ambush Attack**\
+`Two officers responding to a call were shot multiple times as they reached the scene. Officials said they took “significant fire.”`\
+https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
+
 **More Than 500 Trees to Be Cut Down at D.C. Golf Club That Trump Wants to Redo**\
 `The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
