@@ -1,3 +1,7 @@
+**India Cracks Down on Gen Z-Led Protests**\
+`Demonstrators from the youth movement known as the Cockroach Janta Party met walls of security forces in New Delhi on Saturday as they tried to protest a revision of India’s voter roll.`\
+https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroach-janta-party-new-delhi-police.html
+
 **Caroline Schiff Eats Focaccia Every Day**\
 `“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
 https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html

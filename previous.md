@@ -1,3 +1,7 @@
+**India Cracks Down on Gen Z-Led Protests**\
+`Demonstrators from the youth movement known as the Cockroach Janta Party met walls of security forces in New Delhi on Saturday as they tried to protest a revision of India’s voter roll.`\
+https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroach-janta-party-new-delhi-police.html
+
 **Caroline Schiff Eats Focaccia Every Day**\
 `“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
 https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/science/fallen-leaves.html
 **John Cena Had Wrestling on His Mind From an Early Age**\
 `“I dreamed as a young kid — there’s a very iconic picture of me with a homemade paper championship belt — about one day being a W.W.E. champion,” he said.`\
 https://www.nytimes.com/2026/10/10/movies/john-cena-matchbox-movie.html
-
-**This Robot Will Deliver Your Food, if It Doesn’t Get Smashed First**\
-`The winsome machines have been kicked, beaten and defaced as they roll through American cities bringing pizza and sushi — and vacuuming up data.`\
-https://www.nytimes.com/2026/10/10/us/delivery-robots-violence.html
 
