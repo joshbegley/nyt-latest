@@ -1,3 +1,7 @@
+**Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
+`More than 800,000 people in Alabama, Florida and Georgia were without power as the storm churned north on Saturday.`\
+https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
+
 **Ukraine Peace Talks Sputter After Trump and Putin Strike Fuel Deal**\
 `Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
 https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html

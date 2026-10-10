@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 https://www.nytimes.com/2026/10/10/crosswords/strands-sidekick-952.html
 
 **Live Updates: Isaias Moves Inland as Weaker Storm After Lashing Gulf Coast**\
-`Isaias came ashore Friday over Florida as a hurricane. It was forecast to continue dumping rain as it moves north through Alabama on Saturday.`\
+`More than 800,000 people in Alabama, Florida and Georgia were without power as the storm churned north on Saturday.`\
 https://www.nytimes.com/live/2026/10/10/weather/hurricane-isaias-updates-tracker
 
 **She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
