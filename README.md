@@ -1,3 +1,7 @@
+**Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
+`Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
+https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html
+
 **Our Best Lasagna Recipe**\
 `And more marvelous mains for any special dinner (including a certain special November dinner).`\
 https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/arts/deniz-goktas-jail-joke-free-speech.html
 **Mathematician Who Waited 50 Years for Proper Credit for Her Work Has Died**\
 `At the Los Alamos National Laboratory, Mary Tsingou Menzel’s computer programming helped set the stage for chaos theory and other fields.`\
 https://www.nytimes.com/2026/10/10/science/mary-tsingou-menzel-dead.html
-
-**Will We Ever Understand Dementia?**\
-`Since the days of Dr. Alzheimer himself, there has been a dream that severe senility might have an explanation — and a cure. The search for both has never been more urgent.`\
-https://www.nytimes.com/2026/10/10/science/will-we-ever-understand-dementia.html
 
