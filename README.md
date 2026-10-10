@@ -1,3 +1,7 @@
+**What’s Dragging Down A.I. Efficiency? The ‘Verification Tax.’**\
+`As artificial intelligence automates office tasks, it is also creating a new type of human work.`\
+https://www.nytimes.com/2026/10/10/business/dealbook/ai-verification-tax-rework.html
+
 **Abolish Frats**\
 `As undergraduates, we led a movement to abolish fraternities and sororities. Our story shows how challenging it is.`\
 https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/books/review/voice-of-a-century-anthony-tomma
 **Wherever Food Delivery Robots Go, Mayhem Seems to Follow**\
 `Food delivery robots have been kicked, beaten and tipped over. They have touched a nerve for many Americans who are concerned about A.I. technology.`\
 https://www.nytimes.com/video/us/100000011186272/wherever-food-delivery-robots-go-mayhem-seems-to-follow.html
-
-**Have Rachel Cusk’s Novels Lost the Plot?**\
-`Rachel Cusk’s newest novel, “Life of M,” arrived in a pile of old-fashioned gossip. Alexandra Jacobs, a New York Times book critic, reviews the author’s latest novel.`\
-https://www.nytimes.com/video/books/review/100000011134451/have-rachel-cusks-novels-lost-the-plot.html
 
