@@ -1,3 +1,7 @@
+**Celebrating the Enduring Newness of Magritte in London**\
+`A gallery show in London features works by the famously cranky Belgian Surrealist alongside new works by artists he inspired.`\
+https://www.nytimes.com/2026/10/09/arts/design/rene-magritte-london.html
+
 **Mamdani’s Ability to Persuade Trump Hits Limit in Wake of ICE Shooting**\
 `After a federal agent shot an immigrant in New York City, inciting protests, some of Mayor Zohran Mamdani’s allies questioned his attitude toward the president and his own Police Department.`\
 https://www.nytimes.com/2026/10/09/nyregion/mamdani-trump-ice-shooting-nyc.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/us/elections/midterm-elections-early-vo
 **Map: Earthquake Shakes Panama**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/10/09/world/americas/earthquake-tracker-panama.html
-
-**Why Early Voting Data Can Be Misleading**\
-`A majority of Americans cast their ballots before Election Day, but early-voting data is limited in how much it can tell us about important races.`\
-https://www.nytimes.com/2026/10/09/us/elections/early-voting-data-issues.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
