@@ -1,3 +1,7 @@
+**New Footage Shows Moments Before and After ICE Shooting in N.Y.C.**\
+`Newly released video from the New York Police Department shows federal officers pointing guns and approaching the vehicle of Oscar Belgal moments before the shooting.`\
+https://www.nytimes.com/video/nyregion/100000011206295/new-footage-shows-moments-surrounding-ice-shooting-in-nyc.html
+
 **Hochul Opts New York Into Trump-Backed School Voucher Plan**\
 `The governor’s decision, which is at odds with New York’s teachers’ unions, would provide federal tax dollars to parents for both private and public school expenses.`\
 https://www.nytimes.com/2026/10/09/nyregion/hochul-trump-new-york-school-vouchers.html
