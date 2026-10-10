@@ -1,3 +1,7 @@
+**What to Know About the Delhi Protests**\
+`Protesters opposed to sweeping revisions to India’s voter rolls are trying to rally in New Delhi. The police have come out in force.`\
+https://www.nytimes.com/2026/10/09/world/asia/what-to-know-about-the-delhi-protests.html
+
 **Off-Duty ICE Agent Is Shot and Arrested After Sleeping on Lawn in California**\
 `A woman found the agent asleep on her lawn early Friday, and her 72-year-old father shot the agent after he assaulted her, the police said.`\
 https://www.nytimes.com/2026/10/09/us/ice-agent-shot-fresno.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/briefing/mukhtar-ibrahim.html
 **Review: A Dancing Oscar Wilde, in Love but Drained of Wit**\
 `Christopher Wheeldon’s “Oscar,” performed by the Australian Ballet, is constructed with skill but is disappointingly timid.`\
 https://www.nytimes.com/2026/10/09/arts/dance/review-oscar-ballet-christopher-wheeldon-australian-ballet.html
-
-**Target Says It’s Not Working With ICE Amid Uproar Over Parking Lot Use**\
-`The retailer came under attack for being a staging area for immigration officers after Thursday’s shooting in New York City.`\
-https://www.nytimes.com/2026/10/09/nyregion/target-parking-lot-ice.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
