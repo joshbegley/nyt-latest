@@ -1,3 +1,7 @@
+**She’s Been to Gaza. She Met With the Iranians. Now She Has a Warning.**\
+`As the head of the International Committee of the Red Cross, Mirjana Spoljaric goes to both sides of conflicts. She’s worried that our warring world is spiraling out of control.`\
+https://www.nytimes.com/2026/10/10/magazine/mirjana-spoljaric-interview.html
+
 **How to Buy and Eat Seafood Ethically**\
 `Our investigation into the farmed fish industry found human-rights violations and health concerns. Here’s what you can do.`\
 https://www.nytimes.com/2026/10/10/magazine/how-to-buy-and-eat-seafood-responsibly.html
