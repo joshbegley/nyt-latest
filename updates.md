@@ -1,3 +1,7 @@
+**George and Amal Clooney Host Star-Studded Albies Gala in London**\
+`The couple hosted their foundation’s annual awards gala in London, drawing a crowd that included Emma Thompson, Donatella Versace and more.`\
+https://www.nytimes.com/2026/10/10/style/george-amal-clooney-albies-2026.html
+
 **Live Updates: Police Block Protesters Rallying in New Delhi**\
 `The youth movement known as the Cockroach Janta Party called for demonstrations after more than 130 million names were cut from the nation’s voter roll.`\
 https://www.nytimes.com/live/2026/10/09/world/india-cjp-cockroach-protest

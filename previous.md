@@ -1,3 +1,7 @@
+**George and Amal Clooney Host Star-Studded Albies Gala in London**\
+`The couple hosted their foundation’s annual awards gala in London, drawing a crowd that included Emma Thompson, Donatella Versace and more.`\
+https://www.nytimes.com/2026/10/10/style/george-amal-clooney-albies-2026.html
+
 **Winston Lee, Accused in Cornell Sexual Assault Case, Is Related to Former South Korean Prime Minister**\
 `Lawyers for Winston Lee, the grandson of a former premier of South Korea, said statements by the New York attorney general may have sown prejudice against him.`\
 https://www.nytimes.com/2026/10/10/world/asia/cornell-case-winston-lee-south-korea-prime-minister.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/09/world/americas/panama-earthquake-tsunami.html
 **Vance Says He Would Not Watch Livestreamed Execution of Fort Hood Shooter**\
 `The vice president also cast doubt on whether the public execution of Maj. Nidal Malik Hasan, the 2009 Fort Hood gunman, would go forward as Pentagon officials have planned.`\
 https://www.nytimes.com/2026/10/09/us/politics/vance-livestream-execution.html
-
-**Some G.O.P. Lawmakers Pan Hegseth’s Plan to Stream Execution of Fort Hood Shooter**\
-`Some G.O.P. members of Congress said that broadcasting the execution of the Fort Hood shooter was inappropriate, though others gleefully applauded it.`\
-https://www.nytimes.com/2026/10/09/us/politics/democrats-republicans-hegseth-execution.html
 
 **James Talarico Returns to Campaign Trail in Texas After Absence Raised Questions**\
 `(No description)`\
