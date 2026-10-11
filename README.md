@@ -1,3 +1,7 @@
+**The Times’s New Space Editor Has Her Eye on the Cosmos**\
+`On the Science desk, Victoria Jaggard spends her days pondering the universe’s most pressing mysteries.`\
+https://www.nytimes.com/2026/10/11/insider/new-york-times-space-editor-victoria-jaggard.html
+
 **India’s Youth Protests Challenge Narendra Modi**\
 `Prime Minister Narendra Modi of India has long succeeded in isolating and undermining opponents. The Gen Z protests pose a challenge unlike any he has faced before.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-crackdown-narendra-modi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/business/san-francisco-housing-conversions.ht
 **A Reporter Returns to China to Find it Richer, but Also Highly Paranoid.**\
 `Returning to China after decades away, a correspondent finds bullet trains, dazzling skylines — and a surveillance state more paranoid and pervasive than ever.`\
 https://www.nytimes.com/2026/10/11/world/asia/china-essay-higgins-surveillance.html
-
-**50 Years Later, ‘The Hite Report’ Still Matters**\
-`Its author became a pop culture celebrity, and sometimes punchline, but “The Hite Report” helped make way for frank discussions about pleasure.`\
-https://www.nytimes.com/2026/10/11/books/review/shere-hite-report-biography.html
 
