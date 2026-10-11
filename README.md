@@ -1,3 +1,91 @@
+**In Unlikely Turn, Law and Order Heats Up L.A. Mayor’s Race**\
+`Two Democratic candidates choose opposite tacks on public safety and policing, seeking to corral undecided voters.`\
+https://www.nytimes.com/2026/10/11/us/los-angeles-mayor-policing-election.html
+
+**Corrections: Oct. 11, 2026**\
+`Corrections that appeared in print on Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/11/pageoneplus/corrections-oct-11-2026.html
+
+**Alex Gibney on ‘Musk’ and Why a 4-Hour Film Was Necessary**\
+`The documentarian also talks about trying to interview the trillionaire and the roadblocks the film has run into.`\
+https://www.nytimes.com/2026/10/11/movies/alex-gibney-musk-documentary.html
+
+**A Contagious Aversion to Overhead Lights**\
+`Plus: How far to go for a colleague, and now your chance to give someone advice.`\
+https://www.nytimes.com/2026/10/11/business/office-lighting-work-advice.html
+
+**How the White House Manufactured a Narrative About a Trump Aide’s Call Logs**\
+`A release of selected records from the classified documents inquiry is a case study in how omitting context can create political ammunition.`\
+https://www.nytimes.com/2026/10/11/us/politics/white-house-manufactured-narrative-solomon.html
+
+**Wringing Hope From the Rubble of Gaza**\
+`The cease-fire last October ostensibly brought an end to Israel’s war in Gaza after the Hamas-led attacks on Oct. 7, 2023. A year later, however, Israeli strikes, though less frequent, haven’t stopped.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/wringing-hope-from-the-rubble-of-gaza.html
+
+**The Many Mark Zuckerbergs**\
+`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive Mark Zuckerberg are all playing parts. Our movie critic Alissa Wilkinson breaks down how each man relates to the others.`\
+https://www.nytimes.com/video/movies/100000011190982/the-many-mark-zuckerbergs.html
+
+**Three Mark Zuckerbergs, Three Surprisingly Different Men**\
+`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive are all playing parts. But only one has changed his approach.`\
+https://www.nytimes.com/2026/10/11/movies/mark-zuckerberg-social-network-reckoning.html
+
+**Republicans Held Onto the Great Plains for Years. Now They’re Nervous.**\
+`Republicans have dominated the center of the country for a quarter-century. Now they face several tough races for Senate and governor.`\
+https://www.nytimes.com/2026/10/11/us/great-plains-elections-nebraska-kansas-governor.html
+
+**Thrifting Guarantees ‘Something Old’ in Weddings**\
+`As Gen Z, a generation that has embraced thrifting, begins to get married, it’s no surprise that they’re incorporating secondhand swag.`\
+https://www.nytimes.com/2026/10/11/style/weddings-thrifting-second.html
+
+**In the Senate, Collins Often Defies Trump but Rarely Stops Him**\
+`A New York Times analysis of Senator Susan Collins’s voting record shows that she frequently breaks with Republicans but more seldom changes an outcome.`\
+https://www.nytimes.com/2026/10/11/us/politics/in-the-senate-collins-often-defies-trump-but-rarely-stops-him.html
+
+**After Many Threats, an Arizona Lawmaker Asks: ‘Is It Really Worth It?’**\
+`Threats have altered the lives of State Representative Alma Hernandez, her family, friends and neighbors. They have even transformed her policymaking.`\
+https://www.nytimes.com/2026/10/11/us/arizona-alma-hernandez-threats-violence.html
+
+**Book Review: ‘The Havana Syndrome,’ by Michael Rey and Oriana Zill de Granados**\
+`In “The Havana Syndrome,” Michael Rey and Oriana Zill de Granados make the case that a mysterious Russian weapon has been used to target American intelligence agents.`\
+https://www.nytimes.com/2026/10/11/books/review/the-havana-syndrome-michael-rey-oriana-zill-de-granados.html
+
+**Threats of Political Violence Have America’s Elected Officials Living in Fear**\
+`A Times investigation has found that violent threats have become a new normal among public officials, reshaped private lives, cost millions in security and pushed people out of office.`\
+https://www.nytimes.com/2026/10/11/us/politics/elections-political-violence-harassment.html
+
+**Living Under Threat of Political Violence**\
+`Our reporter Nick Corasaniti interviewed elected officials from across the political spectrum on what it’s like to live and work with threats of political violence.`\
+https://www.nytimes.com/video/us/politics/100000011159238/living-under-threat-of-political-violence.html
+
+**Who Were the Vikings? 21 Graves Weave a Tale of Hunters, Nomads and Sorceresses.**\
+`“The Sea-King and the Sorceress” examines the lives and deaths of the diverse people who called themselves Vikings.`\
+https://www.nytimes.com/2026/10/11/science/vikings-archaeology-history-sea-king-sorceress.html
+
+**In Canada’s Arctic, a New Generation of Inuit Creatives Are Using Identity to Fuel Their Art**\
+`In Iqaluit, the only city in Canada’s Arctic, a new generation of Inuit writers and artists is turning questions of language, land and identity into books, films and even tattoos.`\
+https://www.nytimes.com/2026/10/11/world/canada/inuit-inuk-indigenous-people-identity-iqaluit.html
+
+**A Russian Spy’s Lone Regret: ‘I Got Caught’**\
+`Though born in Ukraine, Alexsander supports the Russian cause. He wishes he had deleted one photo from his phone.`\
+https://www.nytimes.com/2026/10/11/world/europe/russia-spy-ukraine.html
+
+**Book Review: ‘The Case of the Autographed Corpse,’ by Jack El-Hai**\
+`In “The Case of the Autographed Corpse,” Jack El-Hai reveals how the relationship between a celebrity author and a captive healer reopened a closed case.`\
+https://www.nytimes.com/2026/10/11/books/review/case-of-the-autographed-corpse-jack-el-hai.html
+
+**San Francisco Is Still Pushing to Turn Offices Into Homes**\
+`The city has not completed a single office-to-housing conversion, despite hopes to meet housing demand and inject life into empty downtowns.`\
+https://www.nytimes.com/2026/10/11/business/san-francisco-housing-conversions.html
+
+**A Reporter Returns to China to Find it Richer, but Also Highly Paranoid.**\
+`Returning to China after decades away, a correspondent finds bullet trains, dazzling skylines — and a surveillance state more paranoid and pervasive than ever.`\
+https://www.nytimes.com/2026/10/11/world/asia/china-essay-higgins-surveillance.html
+
+**50 Years Later, ‘The Hite Report’ Still Matters**\
+`Its author became a pop culture celebrity, and sometimes punchline, but “The Hite Report” helped make way for frank discussions about pleasure.`\
+https://www.nytimes.com/2026/10/11/books/review/shere-hite-report-biography.html
+
 **At Least 12 Killed in Houthi Attack on Saudi Airport**\
 `The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
 https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
@@ -109,92 +197,4 @@ https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
 **Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
 `On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
-
-**How Cornell University Chi Phi Fraternity Members Responded After Rape Accusation**\
-`Records reveal how fraternity members responded when a fellow student accused them of sexual assault.`\
-https://www.nytimes.com/2026/10/10/nyregion/cornell-rape-lawsuit-fraternity-brothers.html
-
-**Christa Pike Back In Prison After Surviving Execution Attempt**\
-`Christa Pike is in prison after being discharged from the hospital on Saturday following an execution attempt, her lawyers said. Weeks before her planned execution, Pike expressed concerns that the lethal injections might not work, according to an unedited audio recording shared by her lawyers in response to questions from The Times.`\
-https://www.nytimes.com/video/us/100000011207414/christa-pike-discharged-hospital-prison-execution.html
-
-**3 Men Found Guilty in Murders of Tourists on Mexico Surf Trip**\
-`The 2024 killings of two Australian brothers and their American friend drew international attention.`\
-https://www.nytimes.com/2026/10/10/world/americas/mexico-murder-trial-surfers-jake-callum-robinson-rhoad.html
-
-**Along Florida’s Gulf Coast, Residents Breathe Easier After Hurricane Isaias Passes**\
-`Beachside towns normally teeming with tourists were hit by fallen trees and power outages, not catastrophic flooding.`\
-https://www.nytimes.com/2026/10/10/weather/florida-hurricane-isaias-damage.html
-
-**How Steffen Skjottelvik's Journey Across Canada Came to a Tragic End**\
-`For three years and 750 miles, Steffen Skjottelvik lived a life of adventure. Until the adventure took his life.`\
-https://www.nytimes.com/interactive/2026/10/10/magazine/steffen-skjottelvik-canada-journey-death.html
-
-**Exasperation and Resignation in Greece Over Allegations Against Kimberly Guilfoyle**\
-`The U.S. ambassador to Greece is facing accusations that she asked a donor to pay off her credit card bill before she took up her post in Athens.`\
-https://www.nytimes.com/2026/10/10/world/europe/kimberly-guilfoyle-greece.html
-
-**One Philadelphia Police Officer Killed, Another Shot 12 Times in Ambush Attack**\
-`Two officers responding to the call took “significant fire.” Officials said the gunman fired at 9 other officers who responded to the scene.`\
-https://www.nytimes.com/2026/10/10/us/philadelphia-shooting-police-killed.html
-
-**More Than 500 Trees to Be Cut Down at D.C. Golf Course That Trump Wants to Redo**\
-`The National Park Service notified a court of the plan as part of continuing litigation over the president’s proposal to create a “champion-level” course.`\
-https://www.nytimes.com/2026/10/10/us/politics/trump-trees-golf-national-park.html
-
-**Saudi Arabia’s Riyadh Airport Attacked Again, After Days of Houthi Strikes**\
-`The strike on Saturday was the deadliest attack in a Gulf Arab country since the U.S.-Israeli war with Iran began in February, and forced the airport to temporarily suspend operations.`\
-https://www.nytimes.com/2026/10/10/world/middleeast/riyadh-airport-attack-energy-congress.html
-
-**Trump Is Begging to Be Impeached**\
-`The president’s despotism is itself a constitutional offense.`\
-https://www.nytimes.com/2026/10/10/opinion/impeachment-trump-democrats-midterms.html
-
-**Christa Pike Discharged From Hospital After Surviving Execution Attempt**\
-`Ms. Pike, 50 and convicted of the 1995 murder of a classmate, survived two doses of the drug pentobarbital late last month.`\
-https://www.nytimes.com/2026/10/10/us/politics/christa-pike-discharged-hospital-survive-execution.html
-
-**Our Best Lasagna Recipe**\
-`And more marvelous mains for any special dinner (including a certain special November dinner).`\
-https://www.nytimes.com/2026/10/10/dining/our-best-lasagna-recipe.html
-
-**Two Killed as Hurricane Isaias Topples Trees Onto Homes**\
-`A person in Florida and another in Alabama lost their lives as the fast-moving storm came ashore along the Gulf states.`\
-https://www.nytimes.com/2026/10/10/weather/two-killed-trees-isais.html
-
-**‘It Was Horrific’: 8 Killed in Shooting in Erie, Pa.**\
-`The dead included a pregnant woman, a 5 year old and a toddler. The shooter was also dead, city officials said.`\
-https://www.nytimes.com/2026/10/10/us/erie-shooting-pennsylvania-multiple-dead.html
-
-**From a Sikh Sanctuary to Chaotic Streets, Protesters Brave Police in Delhi**\
-`A group of demonstrators used a house of worship known as a gurdwara as a staging ground before their long-shot effort to reach a locked-down protest site in New Delhi.`\
-https://www.nytimes.com/2026/10/10/world/asia/india-cjp-cockroach-protest.html
-
-**Palestinian Authority Formally Delays Elections, Despite Western Pressure**\
-`The aging Palestinian leader, Mahmoud Abbas, pushed off the planned vote until late 2027. Palestinians haven’t had major elections for about two decades.`\
-https://www.nytimes.com/2026/10/10/world/middleeast/palestinian-authority-elections-abbas.html
-
-**India Cracks Down on Gen Z-Led Protests**\
-`Demonstrators from the youth movement known as the Cockroach Janta Party met walls of security forces in New Delhi on Saturday as they tried to protest a revision of India’s voter roll.`\
-https://www.nytimes.com/video/world/asia/100000011207114/india-protests-cockroach-janta-party-new-delhi-police.html
-
-**Caroline Schiff Eats Focaccia Every Day**\
-`“Plain, with eggs for breakfast, dunked in olive oil, as a pressed sandwich — with anything and everything.”`\
-https://www.nytimes.com/2026/10/10/dining/caroline-schiff-eats-focaccia-every-day.html
-
-**Rebuking Ukraine Over Oil Strikes, Trump Says It Should ‘Get a New President’**\
-`Hours after President Trump said the United States would buy Russian diesel, the Kremlin said there would be no immediate resumption of discussions to end the war.`\
-https://www.nytimes.com/2026/10/10/world/europe/ukraine-russia-trump-diesel-talks.html
-
-**What’s Dragging Down A.I. Efficiency? The ‘Verification Tax.’**\
-`As artificial intelligence automates office tasks, it is also creating a new type of human work.`\
-https://www.nytimes.com/2026/10/10/business/dealbook/ai-verification-tax-rework.html
-
-**Abolish Frats**\
-`As undergraduates, we led a movement to abolish fraternities and sororities. Our story shows how challenging it is.`\
-https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.html
-
-**How Democrats Beat the Republican Money Machine**\
-`This week in politics: Which Democrats? And whose A.I. morals?`\
-https://www.nytimes.com/2026/10/10/opinion/republicans-money-democrats-midterms.html
 
