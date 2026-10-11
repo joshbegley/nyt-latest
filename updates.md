@@ -1,3 +1,11 @@
+**India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
+`The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police on Saturday before they could lead protests over voting rights.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
+
+**5 Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
+`The five victims in Richmond, Utah, included four minors whose ages ranged from 5 to 16, the police said. The causes of their deaths were not immediately clear.`\
+https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
+
 **A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
 `A.I. giants must operate under our laws.`\
 https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
