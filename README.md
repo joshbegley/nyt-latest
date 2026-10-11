@@ -1,3 +1,11 @@
+**Over 100 Migrants Are Dead After Boat Capsizes Near Djibouti**\
+`The shipwreck is among the deadliest ever recorded on the route to Yemen, the International Organization for Migration said. Dozens remain missing, and the bodies of 15 children were recovered.`\
+https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-dead-yemen.html
+
+**Democrats Press Pentagon on Iran Civilian Deaths**\
+`A new letter from 74 lawmakers suggests that civilian casualties will become a focus of investigation if Democrats take control of Congress.`\
+https://www.nytimes.com/2026/10/11/us/politics/democrats-press-pentagon-on-iran-civilian-deaths.html
+
 **2 Storms Bring Flood Risks to Mexico and the Southwest**\
 `Hurricane Simon was hugging the west coast of Mexico early Sunday, while Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/11/nyregion/lower-east-side-parishioners-mourn-l
 **NYT Spelling Bee Answers for October 11, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/11/crosswords/spelling-bee-forum.html
-
-**India’s ‘Cockroach’ Leaders Released as Small Protests Go On in Delhi**\
-`The leaders of the Cockroach Janta Party, an Indian youth movement, had been detained by the police on Saturday before they could lead protests over voting rights.`\
-https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
-
-**Neuroscience Can Make Decluttering Easier**\
-`Decluttering is a challenge for many Americans, but neuroscience indicates we can make the process easier on ourselves and our loved ones.`\
-https://www.nytimes.com/2026/10/11/opinion/clutter-spring-cleaning-psychology.html
 
