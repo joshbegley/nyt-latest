@@ -1,3 +1,7 @@
+**Saudi Arabia Hosts Energy Summit as It Trades Strikes With Houthis**\
+`Foreign officials and industry leaders were in Riyadh on Sunday for the International Energy Forum. Also on Sunday, Saudi officials and a spokesman for the Iran-backed Houthi militia said that airports in the Saudi and Yemeni capitals had been hit.`\
+https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-hosts-energy-summit-as-it-trades-strikes-with-houthis.html
+
 **Hurricane Simon and Post-Tropical Storm Rachel Bring Flood Risks to Mexico and Southwestern U.S.**\
 `Hurricane Simon was hugging the west coast of Mexico on Sunday, while the remnants of Post-Tropical Storm Rachel churned inland, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
