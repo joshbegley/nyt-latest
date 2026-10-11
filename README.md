@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-de
 https://www.nytimes.com/2026/10/11/us/politics/democrats-press-pentagon-on-iran-civilian-deaths.html
 
 **2 Storms Bring Flood Risks to Mexico and the Southwest**\
-`Hurricane Simon was hugging the west coast of Mexico early Sunday, while Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
+`Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
 
 **The Trump Administration’s Cosmic Battle**\
