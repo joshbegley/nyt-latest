@@ -1,4 +1,4 @@
-**Powerful Storm Surge Pounds Beach Homes in Southern California**\
+**Waves From Powerful Storm Pound Beach Homes in Southern California**\
 `Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
 https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
 

@@ -1,3 +1,7 @@
+**Waves From Powerful Storm Pound Beach Homes in Southern California**\
+`Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
+https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
+
 **Quentin Tarantino Play ‘The Popinjay Cavalier’ to Open in London in February**\
 `“The Popinjay Cavalier,” directed by Tarantino, is scheduled to open for previews in London’s West End in February.`\
 https://www.nytimes.com/2026/10/11/theater/quentin-tarantino-sacha-baron-cohen-popinjay-cavalier.html
