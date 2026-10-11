@@ -1,3 +1,19 @@
+**Celine Dion’s Triumphant Return to the Stage**\
+`After a devastating diagnosis, the superstar makes a thrilling comeback.`\
+https://www.nytimes.com/2026/10/11/podcasts/the-daily/celine-dions-triumphant-return-to-the-stage.html
+
+**NYT Connections Answers for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/connections-companion-1219.html
+
+**NYT Strands Hints for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/strands-sidekick-953.html
+
+**Today’s Wordle Hints for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/wordle-review-1941.html
+
 **In Unlikely Turn, Law and Order Heats Up L.A. Mayor’s Race**\
 `Two Democratic candidates choose opposite tacks on public safety and policing, seeking to corral undecided voters.`\
 https://www.nytimes.com/2026/10/11/us/los-angeles-mayor-policing-election.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-lan
 **4 Killed as a Weakened Isaias Pushes Through the Southeast**\
 `Hundreds of thousands of people lost power, but towns near the landfall site in Florida were relieved that the hurricane damage was not worse.`\
 https://www.nytimes.com/2026/10/10/us/hurricane-isaias-florida-damage-four-killed.html
-
-**Why Ketamine Immobilizes Some Users**\
-`Potent powders can produce a nearly catatonic state, particularly in those who have not tried the drug before.`\
-https://www.nytimes.com/2026/10/10/science/ketamine-cornell-anesthesia.html
-
-**Trump Says He Should Have Won ‘8 Nobel Peace Prizes’ After Being Snubbed**\
-`The president took to social media on Friday and Saturday to criticize the choice of Navi Pillay and disparage the Norwegian Nobel Committee.`\
-https://www.nytimes.com/2026/10/10/us/politics/trump-nobel-peace-prize-norway-navi-pillay.html
-
-**Were Isaias Forecasts Accurate?**\
-`Many people in the storm’s path escaped the worst, but 4 people were killed and there was plenty of damage.`\
-https://www.nytimes.com/2026/10/10/us/isaias-hurricane-forecasts-accurate.html
-
-**Trump Blames Zelensky for Stalled Peace Talks After Russian Attack Kills at Least 20**\
-`On Saturday, less than a day after President Trump announced a deal to buy Russian diesel, a Russian attack in Zaporizhzhia, Ukraine, killed at least 20 people, including children, officials said.`\
-https://www.nytimes.com/video/world/europe/100000011207329/ukraine-russia-trump-diesel-talks.html
 
