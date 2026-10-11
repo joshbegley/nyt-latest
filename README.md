@@ -1,3 +1,7 @@
+**Saudi Arabia Hosts Energy Summit as It Trades Strikes With Houthis**\
+`Foreign officials and industry leaders were in Riyadh on Sunday for the International Energy Forum. Also on Sunday, Saudi officials and a spokesman for the Iran-backed Houthi militia said that airports in the Saudi and Yemeni capitals had been hit.`\
+https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-hosts-energy-summit-as-it-trades-strikes-with-houthis.html
+
 **NYT Crossword Answers for Oct. 12, 2026**\
 `Zhouqin Burnikel grants us an extension.`\
 https://www.nytimes.com/2026/10/11/crosswords/daily-puzzle-2026-10-12.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/us/politics/in-the-senate-collins-often-defie
 **After Many Threats, an Arizona Lawmaker Asks: ‘Is It Really Worth It?’**\
 `Threats have altered the lives of State Representative Alma Hernandez, her family, friends and neighbors. They have even transformed her policymaking.`\
 https://www.nytimes.com/2026/10/11/us/arizona-alma-hernandez-threats-violence.html
-
-**Book Review: ‘The Havana Syndrome,’ by Michael Rey and Oriana Zill de Granados**\
-`In “The Havana Syndrome,” Michael Rey and Oriana Zill de Granados make the case that a mysterious Russian weapon has been used to target American intelligence agents.`\
-https://www.nytimes.com/2026/10/11/books/review/the-havana-syndrome-michael-rey-oriana-zill-de-granados.html
 
