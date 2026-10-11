@@ -1,3 +1,7 @@
+**At Least 12 Killed in Houthi Attack on Saudi Airport**\
+`The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
+https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
+
 **New York City’s Latest Famous Family Is a Hoot. Yes, They’re Barn Owls.**\
 `The city’s latest feathered extraordinaires are captivating the Upper West Side with their screeches.`\
 https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/opinion/abolish-fraternity-cornell-american.h
 **How Democrats Beat the Republican Money Machine**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
 https://www.nytimes.com/2026/10/10/opinion/republicans-money-democrats-midterms.html
-
-**What This 1959 Novel Can Teach Us About A.I.**\
-`How will we be able to tell whether A.I. is conscious? On “The Opinions,” the columnist Carlos Lozada draws on the 1959 novel “A Canticle for Leibowitz” to explore the line between intelligence and consciousness — and whether we’re asking the right questions about A.I.`\
-https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-teach-us-about-ai.html
 

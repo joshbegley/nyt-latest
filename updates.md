@@ -1,3 +1,7 @@
+**At Least 12 Killed in Houthi Attack on Saudi Airport**\
+`The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
+https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
+
 **New York City’s Latest Famous Family Is a Hoot. Yes, They’re Barn Owls.**\
 `The city’s latest feathered extraordinaires are captivating the Upper West Side with their screeches.`\
 https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.html
