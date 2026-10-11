@@ -1,3 +1,23 @@
+**New York City’s Latest Famous Family Is a Hoot. Yes, They’re Barn Owls.**\
+`The city’s latest feathered extraordinaires are captivating the Upper West Side with their screeches.`\
+https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.html
+
+**NJ Transit Riders Brace for 5 Weeks of Portal Bridge Disruptions**\
+`New Jersey commuters who rely on the century-old bridge can expect five weeks of service cuts beginning on Oct. 11, as transit officials complete its replacement.`\
+https://www.nytimes.com/2026/10/11/nyregion/portal-bridge-nj-transit.html
+
+**‘He Went Inside, and We Waited as People Started to Stream Out’**\
+`Losing a precious item on a night out, recalling a big Knicks spring and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/11/nyregion/metropolitan-diary.html
+
+**Lower East Side Parishioners Mourn Loss of ‘Spiritual Home’**\
+`As the temporary closure of Most Holy Redeemer Church stretches on, congregants fear it will suffer the same fate as other shuttered houses of worship.`\
+https://www.nytimes.com/2026/10/11/nyregion/lower-east-side-parishioners-mourn-loss-of-spiritual-home.html
+
+**NYT Spelling Bee Answers for October 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/11/crosswords/spelling-bee-forum.html
+
 **India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
 `The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police on Saturday before they could lead protests over voting rights.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/10/opinion/republicans-money-democrats-midterms.
 **What This 1959 Novel Can Teach Us About A.I.**\
 `How will we be able to tell whether A.I. is conscious? On “The Opinions,” the columnist Carlos Lozada draws on the 1959 novel “A Canticle for Leibowitz” to explore the line between intelligence and consciousness — and whether we’re asking the right questions about A.I.`\
 https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-teach-us-about-ai.html
-
-**Why Joseph Gordon-Levitt Is Speaking Up About A.I.**\
-`The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
-https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
-
-**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
-
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
-**How Is Child Marriage Still Legal in the U.S.?**\
-`Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
-https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
-
-**Boomers Didn’t Always Have It So Easy**\
-`All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
-https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
