@@ -1,3 +1,7 @@
+**The Watchtower**\
+`We take a look at escalating surveillance in China.`\
+https://www.nytimes.com/2026/10/11/briefing/chinese-surveillance.html
+
 **Four Hours and Three Minutes at Cornell**\
 `On the most traumatic night in a young woman’s life, a good man could not be found.`\
 https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
