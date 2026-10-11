@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/10/10/us/hurricane-isaias-what-to-know.html
 https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
 
 **Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
-`Major TV networks were notified on Friday that the department was looking into whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
+`Major TV networks were notified on Friday that the department was examining whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
 https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
 
 **Pentagon Again Increases Number of U.S. Casualties in Iran War**\

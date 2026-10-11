@@ -1,3 +1,7 @@
+**Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
+`Major TV networks were notified on Friday that the department was examining whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
+https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
+
 **‘Not Pleasant’ but ‘Necessary’: Support at Trump Rally for Public Execution**\
 `A sample of people at the president’s midterm stump speech in Tennessee defended the Pentagon’s announcement that it would livestream the execution of a mass shooter.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-execution.html
