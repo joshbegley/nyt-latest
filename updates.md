@@ -1,3 +1,7 @@
+**Hurricane Isaias’s Aftermath in Video and Pictures**\
+`It was the first Atlantic hurricane of the season, and the first to hit the mainland United States in two years.`\
+https://www.nytimes.com/2026/10/11/us/hurricane-isaias-damage-photos-video.html
+
 **An Israeli Election Like No Other**\
 `Many say a vote in two weeks may be the most consequential in Israel’s history.`\
 https://www.nytimes.com/2026/10/11/world/israel-election-india-protests-riyadh.html

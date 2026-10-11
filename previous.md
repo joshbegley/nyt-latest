@@ -1,3 +1,7 @@
+**Hurricane Isaias’s Aftermath in Video and Pictures**\
+`It was the first Atlantic hurricane of the season, and the first to hit the mainland United States in two years.`\
+https://www.nytimes.com/2026/10/11/us/hurricane-isaias-damage-photos-video.html
+
 **An Israeli Election Like No Other**\
 `Many say a vote in two weeks may be the most consequential in Israel’s history.`\
 https://www.nytimes.com/2026/10/11/world/israel-election-india-protests-riyadh.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/books/review/the-havana-syndrome-michael-rey-
 **Threats of Political Violence Have America’s Elected Officials Living in Fear**\
 `A Times investigation has found that violent threats have become a new normal among public officials, reshaped private lives, cost millions in security and pushed people out of office.`\
 https://www.nytimes.com/2026/10/11/us/politics/elections-political-violence-harassment.html
-
-**Living Under Threat of Political Violence**\
-`Our reporter Nick Corasaniti interviewed elected officials from across the political spectrum on what it’s like to live and work with threats of political violence.`\
-https://www.nytimes.com/video/us/politics/100000011159238/living-under-threat-of-political-violence.html
 
