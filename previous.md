@@ -1,3 +1,11 @@
+**Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
+`President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
+https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
+
+**Saudi Arabia Has Few Options as Houthis Aim at Heart of Its Ambitions**\
+`Three deadly attacks by the Iran-backed Houthis in Yemen on an airport in the Saudi capital underscored the asymmetrical nature of their conflict with the kingdom.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/saudi-arabia-options-houthis.html
+
 **The Watchtower**\
 `We take a look at escalating surveillance in China.`\
 https://www.nytimes.com/2026/10/11/briefing/chinese-surveillance.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-exec
 **What to Know About Isaias, the First Atlantic Hurricane of the Season**\
 `After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
 https://www.nytimes.com/2026/10/10/us/hurricane-isaias-path-damage-deaths-florida.html
-
-**Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
-`The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
-https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
-
-**Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
-`Major TV networks were notified on Friday that the department was examining whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
-https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
 

@@ -1,3 +1,11 @@
+**Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
+`President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
+https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
+
+**Saudi Arabia Has Few Options as Houthis Aim at Heart of Its Ambitions**\
+`Three deadly attacks by the Iran-backed Houthis in Yemen on an airport in the Saudi capital underscored the asymmetrical nature of their conflict with the kingdom.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/saudi-arabia-options-houthis.html
+
 **Four Hours and Three Minutes in Ithaca**\
 `On the most traumatic night in a young woman’s life, a good man could not be found.`\
 https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
