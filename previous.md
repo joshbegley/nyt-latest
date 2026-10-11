@@ -182,8 +182,8 @@ https://www.nytimes.com/2026/10/11/nyregion/lower-east-side-parishioners-mourn-l
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/11/crosswords/spelling-bee-forum.html
 
-**India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
-`The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police before they could lead protests over voting rights.`\
+**India’s ‘Cockroach’ Leaders Released as Small Protests Go On in Delhi**\
+`The leaders of the Cockroach Janta Party, an Indian youth movement, had been detained by the police on Saturday before they could lead protests over voting rights.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
 
 **Neuroscience Can Make Decluttering Easier**\

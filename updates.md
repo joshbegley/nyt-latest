@@ -1,3 +1,7 @@
+**India’s ‘Cockroach’ Leaders Released as Small Protests Go On in Delhi**\
+`The leaders of the Cockroach Janta Party, an Indian youth movement, had been detained by the police on Saturday before they could lead protests over voting rights.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
+
 **Supply Shocks Are Here to Stay. Is the Fed Ready to Face That Fact?**\
 `Supply shocks have become endemic to the global economy. Are we ready to face that fact?`\
 https://www.nytimes.com/2026/10/11/opinion/economy-supply-shocks-groceries-gas.html
