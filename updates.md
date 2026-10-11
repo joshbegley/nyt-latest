@@ -1,3 +1,91 @@
+**In Unlikely Turn, Law and Order Heats Up L.A. Mayor’s Race**\
+`Two Democratic candidates choose opposite tacks on public safety and policing, seeking to corral undecided voters.`\
+https://www.nytimes.com/2026/10/11/us/los-angeles-mayor-policing-election.html
+
+**Corrections: Oct. 11, 2026**\
+`Corrections that appeared in print on Sunday, Oct. 11, 2026.`\
+https://www.nytimes.com/2026/10/11/pageoneplus/corrections-oct-11-2026.html
+
+**Alex Gibney on ‘Musk’ and Why a 4-Hour Film Was Necessary**\
+`The documentarian also talks about trying to interview the trillionaire and the roadblocks the film has run into.`\
+https://www.nytimes.com/2026/10/11/movies/alex-gibney-musk-documentary.html
+
+**A Contagious Aversion to Overhead Lights**\
+`Plus: How far to go for a colleague, and now your chance to give someone advice.`\
+https://www.nytimes.com/2026/10/11/business/office-lighting-work-advice.html
+
+**How the White House Manufactured a Narrative About a Trump Aide’s Call Logs**\
+`A release of selected records from the classified documents inquiry is a case study in how omitting context can create political ammunition.`\
+https://www.nytimes.com/2026/10/11/us/politics/white-house-manufactured-narrative-solomon.html
+
+**Wringing Hope From the Rubble of Gaza**\
+`The cease-fire last October ostensibly brought an end to Israel’s war in Gaza after the Hamas-led attacks on Oct. 7, 2023. A year later, however, Israeli strikes, though less frequent, haven’t stopped.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/wringing-hope-from-the-rubble-of-gaza.html
+
+**The Many Mark Zuckerbergs**\
+`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive Mark Zuckerberg are all playing parts. Our movie critic Alissa Wilkinson breaks down how each man relates to the others.`\
+https://www.nytimes.com/video/movies/100000011190982/the-many-mark-zuckerbergs.html
+
+**Three Mark Zuckerbergs, Three Surprisingly Different Men**\
+`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive are all playing parts. But only one has changed his approach.`\
+https://www.nytimes.com/2026/10/11/movies/mark-zuckerberg-social-network-reckoning.html
+
+**Republicans Held Onto the Great Plains for Years. Now They’re Nervous.**\
+`Republicans have dominated the center of the country for a quarter-century. Now they face several tough races for Senate and governor.`\
+https://www.nytimes.com/2026/10/11/us/great-plains-elections-nebraska-kansas-governor.html
+
+**Thrifting Guarantees ‘Something Old’ in Weddings**\
+`As Gen Z, a generation that has embraced thrifting, begins to get married, it’s no surprise that they’re incorporating secondhand swag.`\
+https://www.nytimes.com/2026/10/11/style/weddings-thrifting-second.html
+
+**In the Senate, Collins Often Defies Trump but Rarely Stops Him**\
+`A New York Times analysis of Senator Susan Collins’s voting record shows that she frequently breaks with Republicans but more seldom changes an outcome.`\
+https://www.nytimes.com/2026/10/11/us/politics/in-the-senate-collins-often-defies-trump-but-rarely-stops-him.html
+
+**After Many Threats, an Arizona Lawmaker Asks: ‘Is It Really Worth It?’**\
+`Threats have altered the lives of State Representative Alma Hernandez, her family, friends and neighbors. They have even transformed her policymaking.`\
+https://www.nytimes.com/2026/10/11/us/arizona-alma-hernandez-threats-violence.html
+
+**Book Review: ‘The Havana Syndrome,’ by Michael Rey and Oriana Zill de Granados**\
+`In “The Havana Syndrome,” Michael Rey and Oriana Zill de Granados make the case that a mysterious Russian weapon has been used to target American intelligence agents.`\
+https://www.nytimes.com/2026/10/11/books/review/the-havana-syndrome-michael-rey-oriana-zill-de-granados.html
+
+**Threats of Political Violence Have America’s Elected Officials Living in Fear**\
+`A Times investigation has found that violent threats have become a new normal among public officials, reshaped private lives, cost millions in security and pushed people out of office.`\
+https://www.nytimes.com/2026/10/11/us/politics/elections-political-violence-harassment.html
+
+**Living Under Threat of Political Violence**\
+`Our reporter Nick Corasaniti interviewed elected officials from across the political spectrum on what it’s like to live and work with threats of political violence.`\
+https://www.nytimes.com/video/us/politics/100000011159238/living-under-threat-of-political-violence.html
+
+**Who Were the Vikings? 21 Graves Weave a Tale of Hunters, Nomads and Sorceresses.**\
+`“The Sea-King and the Sorceress” examines the lives and deaths of the diverse people who called themselves Vikings.`\
+https://www.nytimes.com/2026/10/11/science/vikings-archaeology-history-sea-king-sorceress.html
+
+**In Canada’s Arctic, a New Generation of Inuit Creatives Are Using Identity to Fuel Their Art**\
+`In Iqaluit, the only city in Canada’s Arctic, a new generation of Inuit writers and artists is turning questions of language, land and identity into books, films and even tattoos.`\
+https://www.nytimes.com/2026/10/11/world/canada/inuit-inuk-indigenous-people-identity-iqaluit.html
+
+**A Russian Spy’s Lone Regret: ‘I Got Caught’**\
+`Though born in Ukraine, Alexsander supports the Russian cause. He wishes he had deleted one photo from his phone.`\
+https://www.nytimes.com/2026/10/11/world/europe/russia-spy-ukraine.html
+
+**Book Review: ‘The Case of the Autographed Corpse,’ by Jack El-Hai**\
+`In “The Case of the Autographed Corpse,” Jack El-Hai reveals how the relationship between a celebrity author and a captive healer reopened a closed case.`\
+https://www.nytimes.com/2026/10/11/books/review/case-of-the-autographed-corpse-jack-el-hai.html
+
+**San Francisco Is Still Pushing to Turn Offices Into Homes**\
+`The city has not completed a single office-to-housing conversion, despite hopes to meet housing demand and inject life into empty downtowns.`\
+https://www.nytimes.com/2026/10/11/business/san-francisco-housing-conversions.html
+
+**A Reporter Returns to China to Find it Richer, but Also Highly Paranoid.**\
+`Returning to China after decades away, a correspondent finds bullet trains, dazzling skylines — and a surveillance state more paranoid and pervasive than ever.`\
+https://www.nytimes.com/2026/10/11/world/asia/china-essay-higgins-surveillance.html
+
+**50 Years Later, ‘The Hite Report’ Still Matters**\
+`Its author became a pop culture celebrity, and sometimes punchline, but “The Hite Report” helped make way for frank discussions about pleasure.`\
+https://www.nytimes.com/2026/10/11/books/review/shere-hite-report-biography.html
+
 **At Least 12 Killed in Houthi Attack on Saudi Airport**\
 `The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
 https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
