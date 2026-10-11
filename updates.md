@@ -1,3 +1,7 @@
+**A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
+`Senator Roger Marshall, a Kansas Republican in a difficult race, paid an old campaign debt for cookies, muffins and brownies after a baker’s story went viral online.`\
+https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate-midterms.html
+
 **What to Know About Isaias, the First Atlantic Hurricane of the Season**\
 `After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
 https://www.nytimes.com/2026/10/10/us/hurricane-isaias-path-damage-deaths-florida.html
