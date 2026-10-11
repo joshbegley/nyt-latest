@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-exec
 
 **What to Know About Isaias, the First Atlantic Hurricane of the Season**\
 `After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
-https://www.nytimes.com/2026/10/10/us/hurricane-isaias-what-to-know.html
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-path-damage-deaths-florida.html
 
 **Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
 `The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
@@ -170,13 +170,13 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
-**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
-`A.I. giants must operate under our laws.`\
-https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
-
 **Why Should Students Write? Let Us Count the Ways.**\
 `Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
 https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
+
+**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
+`A.I. giants must operate under our laws.`\
+https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
 
 **Republicans Have the Money. Democrats Have the Momentum.**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
