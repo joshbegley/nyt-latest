@@ -1,3 +1,7 @@
+**Flash Floods Hit Northern Nepal**\
+`Flash floods hit northern Nepal on Sunday, sweeping away buildings and at least one bridge along the Budhi Gandaki River. The torrent comes just weeks after a devastating flood on the border with Tibet that killed more than a thousand people.`\
+https://www.nytimes.com/video/world/asia/100000011208010/nepal-flash-floods-budhi-gandaki-river.html
+
 **2 Storms Bring Flood Risks to Mexico and the Southwest**\
 `Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
