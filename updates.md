@@ -1,3 +1,7 @@
+**Why Should Students Write? Let Us Count the Ways.**\
+`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
+https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
+
 **Neuroscience Can Make Decluttering Easier**\
 `Decluttering is a challenge for many Americans, but neuroscience indicates we can make the process easier on ourselves and our loved ones.`\
 https://www.nytimes.com/2026/10/11/opinion/clutter-spring-cleaning-psychology.html
