@@ -1,3 +1,7 @@
+**Pakistan Seizes Control of an Opposition-Led Province**\
+`The federal government, speaking of “a severe breakdown in law and order” in Khyber Pakhtunkhwa amid militant violence, named a politically allied official as in charge.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/pakistan-federal-control-khyber-pakhtunkhwa.html
+
 **Flash Floods Hit Northern Nepal**\
 `Flash floods hit northern Nepal on Sunday, sweeping away buildings and at least one bridge along the Budhi Gandaki River. The torrent comes just weeks after a devastating flood on the border with Tibet that killed more than a thousand people.`\
 https://www.nytimes.com/video/world/asia/100000011208010/nepal-flash-floods-budhi-gandaki-river.html
