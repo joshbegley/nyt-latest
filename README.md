@@ -1,3 +1,27 @@
+**Four Hours and Three Minutes at Cornell**\
+`On the most traumatic night in a young woman’s life, a good man could not be found.`\
+https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
+
+**A Long Island Democrat’s Bondage Photos Leaked. Why Don’t More People Care?**\
+`It’s hard to work up outrage when someone else’s adult exploits wind up in the tabloids.`\
+https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
+
+**The Racist Tinge to These A.I. Literary Scandals**\
+`The recent scandals around A.I. in fiction seem less driven by questions of literary merit than by the workings of anti-woke vigilante activists.`\
+https://www.nytimes.com/2026/10/11/opinion/ai-books-fiction-black-writers-racism.html
+
+**Samuel Alito and New Jersey’s Fallen Columbus Statue**\
+`Justice Alito has a history of nudging the boundaries of judicial rectitude.`\
+https://www.nytimes.com/2026/10/11/opinion/justice-alito-columbus-statue-trenton.html
+
+**Meet Sanyi, the Rooster That United a Hungarian Town**\
+`A Hungarian town, an escaped rooster and the universal longing for freedom.`\
+https://www.nytimes.com/2026/10/11/opinion/hungary-sanyi-rooster-bekescsaba-mayor.html
+
+**Sanyi Kakas (Sanyi the Rooster)**\
+`In the small Hungarian city of Bekescsaba, an unexpected hero has stirred the universal longing for freedom. (He’s a chicken.)`\
+https://www.nytimes.com/video/opinion/100000010887229/sanyi-kakas-sanyi-the-rooster.html
+
 **Celine Dion’s Triumphant Return to the Stage**\
 `After a devastating diagnosis, the superstar makes a thrilling comeback.`\
 https://www.nytimes.com/2026/10/11/podcasts/the-daily/celine-dions-triumphant-return-to-the-stage.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-ne
 **Pentagon Again Increases Number of U.S. Casualties in Iran War**\
 `In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
 https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
-
-**Conor Kennedy and Giulia Be Married in Rio**\
-`The couple’s three-day wedding celebration in Rio de Janeiro brought together two families with political ties as rising tensions surround Brazil’s presidential election.`\
-https://www.nytimes.com/2026/10/10/style/conor-kennedy-and-giulia-be-married-rio-brazil.html
-
-**Some Republicans Reject Trump’s Move to Import Diesel Fuel From Russia**\
-`High diesel costs have posed a problem for Republicans in the midterms, but President Trump’s decision did not satisfy some candidates in key Senate races.`\
-https://www.nytimes.com/2026/10/10/us/politics/republicans-midterms-trump-diesel-russia.html
-
-**Heart Transplants**\
-`Prepare to be duped by Michael Lieberman’s spirited Sunday grid.`\
-https://www.nytimes.com/2026/10/10/crosswords/daily-puzzle-2026-10-11.html
-
-**5 Killed in Murder-Suicide at a Home in Georgia**\
-`Officials said the shooting in the city of Douglas was related to domestic violence. The victims lived together in the same house.`\
-https://www.nytimes.com/2026/10/10/us/5-killed-murder-suicide-georgia.html
-
-**Hurricane Isaias Lashes Gulf Coast Before Weakening**\
-`Isaias made landfall as a Category 2 hurricane along the Gulf Coast on Friday. The hurricane weakened to a post-tropical cyclone on Saturday, but officials warned there was still a risk of flash flooding.`\
-https://www.nytimes.com/video/weather/100000011207347/hurricane-isaias-storm-landfall-damage.html
-
-**4 Killed as a Weakened Isaias Pushes Through the Southeast**\
-`Hundreds of thousands of people lost power, but towns near the landfall site in Florida were relieved that the hurricane damage was not worse.`\
-https://www.nytimes.com/2026/10/10/us/hurricane-isaias-florida-damage-four-killed.html
 

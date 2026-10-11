@@ -1,3 +1,7 @@
+**India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
+`The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police before they could lead protests over voting rights.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
+
 **Celine Dion’s Triumphant Return to the Stage**\
 `After a devastating diagnosis, the superstar makes a thrilling comeback.`\
 https://www.nytimes.com/2026/10/11/podcasts/the-daily/celine-dions-triumphant-return-to-the-stage.html
