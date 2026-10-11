@@ -1,3 +1,7 @@
+**The Sex Scandal That Wasn’t**\
+`It’s hard to work up outrage when someone else’s adult exploits wind up in the tabloids.`\
+https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
+
 **Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
 `President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
 https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
