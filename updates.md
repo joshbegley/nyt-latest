@@ -1,3 +1,7 @@
+**The Times’s New Space Editor Has Her Eye on the Cosmos**\
+`On the Science desk, Victoria Jaggard spends her days pondering the universe’s most pressing mysteries.`\
+https://www.nytimes.com/2026/10/11/insider/new-york-times-space-editor-victoria-jaggard.html
+
 **India’s Youth Protests Challenge Narendra Modi**\
 `Prime Minister Narendra Modi of India has long succeeded in isolating and undermining opponents. The Gen Z protests pose a challenge unlike any he has faced before.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-crackdown-narendra-modi.html
