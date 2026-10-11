@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/11/briefing/chinese-surveillance.html
 `On the most traumatic night in a young woman’s life, a good man could not be found.`\
 https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
 
-**A Long Island Democrat’s Bondage Photos Leaked. Why Don’t More People Care?**\
+**The Sex Scandal That Wasn’t**\
 `It’s hard to work up outrage when someone else’s adult exploits wind up in the tabloids.`\
 https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
 
