@@ -1,3 +1,7 @@
+**Pope Leo Will Have Surgery to Remove Growth on Lung**\
+`A recent medical examination found a small nodule, he announced, adding that doctors would remove it this week.`\
+https://www.nytimes.com/2026/10/11/world/europe/pope-leo-lung-surgery.html
+
 **Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
 `President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
 https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate
 **‘Not Pleasant’ but ‘Necessary’: Support at Trump Rally for Public Execution**\
 `A sample of people at the president’s midterm stump speech in Tennessee defended the Pentagon’s announcement that it would livestream the execution of a mass shooter.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-execution.html
-
-**What to Know About Isaias, the First Atlantic Hurricane of the Season**\
-`After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
-https://www.nytimes.com/2026/10/10/us/hurricane-isaias-path-damage-deaths-florida.html
 
