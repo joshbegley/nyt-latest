@@ -1,3 +1,15 @@
+**Powerful Storm Surge Pounds Beach Homes in Southern California**\
+`Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
+https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
+
+**Quentin Tarantino Play ‘The Popinjay Cavalier’ to Open in London in February**\
+`“The Popinjay Cavalier,” directed by Tarantino, is scheduled to open for previews in London’s West End in February.￥`\
+https://www.nytimes.com/2026/10/11/theater/quentin-tarantino-sacha-baron-cohen-popinjay-cavalier.html
+
+**Saudi and Yemeni Airports Hit in New Round of Strikes**\
+`At least one person was killed in the Saudi capital, Riyadh, kingdom authorities said. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/saudi-yemen-airports-houthis.html
+
 **Saudi Arabia Hosts Energy Summit as It Trades Strikes With Houthis**\
 `Foreign officials and industry leaders were in Riyadh on Sunday for the International Energy Forum. Also on Sunday, Saudi officials and a spokesman for the Iran-backed Houthi militia said that airports in the Saudi and Yemeni capitals had been hit.`\
 https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-strikes-energy-summit-houthis.html
