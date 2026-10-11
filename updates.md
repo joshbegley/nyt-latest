@@ -1,3 +1,7 @@
+**Hurricane Simon and Post-Tropical Storm Rachel Bring Flood Risks to Mexico and Southwestern U.S.**\
+`Hurricane Simon was hugging the west coast of Mexico on Sunday, while the remnants of Post-Tropical Storm Rachel churned inland, bringing heavy rain and high winds.`\
+https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
+
 **NYT Crossword Answers for Oct. 12, 2026**\
 `Zhouqin Burnikel grants us an extension.`\
 https://www.nytimes.com/2026/10/11/crosswords/daily-puzzle-2026-10-12.html
