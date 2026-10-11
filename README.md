@@ -158,13 +158,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
-`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
-https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
-
 **We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
+
+**John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
+`A New Hampshire insider-outsider candidate is executing a complex political dance.`\
+https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
-**Why Should Students Write? Let Us Count the Ways.**\
-`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
-https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
-
 **A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
 `A.I. giants must operate under our laws.`\
 https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
+
+**Why Should Students Write? Let Us Count the Ways.**\
+`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
+https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
 
 **Republicans Have the Money. Democrats Have the Momentum.**\
 `This week in politics: Which Democrats? And whose A.I. morals?`\
