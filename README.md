@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
 
-**Why Should Students Write? Let Us Count the Ways.**\
-`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
-https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
-
 **A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
 `A.I. giants must operate under our laws.`\
 https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
+
+**Why Should Students Write? Let Us Count the Ways.**\
+`Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
+https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
 
