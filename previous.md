@@ -1,3 +1,7 @@
+**In Maine Senate Race, Anxious Democrats Turn to Bernie Sanders for a Jolt**\
+`Three months after a jarring summer candidate switch, some Democrats in the state are worried about the enthusiasm for their nominee, Troy Jackson, who is in a close race`\
+https://www.nytimes.com/2026/10/11/us/politics/maine-bernie-sanders-troy-jackson-seante-democrats.html
+
 **‘Da Bears’ and the ‘SNL’ Sketch That Immortalized Mike Ditka**\
 `After a “Saturday Night Live” sketch, Ditka, the former Chicago Bears coach who died last week, became known far and wide as an indomitable leader of men.`\
 https://www.nytimes.com/2026/10/11/arts/television/mike-ditka-snl-da-bears.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011159238/living-under-threat-of
 **Who Were the Vikings? 21 Graves Weave a Tale of Hunters, Nomads and Sorceresses.**\
 `“The Sea-King and the Sorceress” examines the lives and deaths of the diverse people who called themselves Vikings.`\
 https://www.nytimes.com/2026/10/11/science/vikings-archaeology-history-sea-king-sorceress.html
-
-**In Canada’s Arctic, a New Generation of Inuit Creatives Are Using Identity to Fuel Their Art**\
-`In Iqaluit, the only city in Canada’s Arctic, a new generation of Inuit writers and artists is turning questions of language, land and identity into books, films and even tattoos.`\
-https://www.nytimes.com/2026/10/11/world/canada/inuit-inuk-indigenous-people-identity-iqaluit.html
 
