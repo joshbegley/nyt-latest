@@ -1,3 +1,7 @@
+**Saudi and Yemeni Airports Hit in New Round of Strikes**\
+`The airport in the Saudi capital, Riyadh, was struck a day after suffering a devastating attack. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/saudi-yemen-airports-houthis.html
+
 **The Times’s New Space Editor Has Her Eye on the Cosmos**\
 `On the Science desk, Victoria Jaggard spends her days pondering the universe’s most pressing mysteries.`\
 https://www.nytimes.com/2026/10/11/insider/new-york-times-space-editor-victoria-jaggard.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-de
 `A new letter from 74 lawmakers suggests that civilian casualties will become a focus of investigation if Democrats take control of Congress.`\
 https://www.nytimes.com/2026/10/11/us/politics/democrats-press-pentagon-on-iran-civilian-deaths.html
 
-**2 Storms Bring Flood Risks to Mexico and the Southwest**\
+**Hurricane Simon and Post-Tropical Storm Rachel Bring Flood Risks to Mexico and Southwestern U.S.**\
 `Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/books/review/case-of-the-autographed-corpse-j
 **San Francisco Is Still Pushing to Turn Offices Into Homes**\
 `The city has not completed a single office-to-housing conversion, despite hopes to meet housing demand and inject life into empty downtowns.`\
 https://www.nytimes.com/2026/10/11/business/san-francisco-housing-conversions.html
-
-**A Reporter Returns to China to Find it Richer, but Also Highly Paranoid.**\
-`Returning to China after decades away, a correspondent finds bullet trains, dazzling skylines — and a surveillance state more paranoid and pervasive than ever.`\
-https://www.nytimes.com/2026/10/11/world/asia/china-essay-higgins-surveillance.html
 

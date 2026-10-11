@@ -1,3 +1,11 @@
+**Saudi and Yemeni Airports Hit in New Round of Strikes**\
+`The airport in the Saudi capital, Riyadh, was struck a day after suffering a devastating attack. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/saudi-yemen-airports-houthis.html
+
+**Hurricane Simon and Post-Tropical Storm Rachel Bring Flood Risks to Mexico and Southwestern U.S.**\
+`Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
+https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
+
 **The Times’s New Space Editor Has Her Eye on the Cosmos**\
 `On the Science desk, Victoria Jaggard spends her days pondering the universe’s most pressing mysteries.`\
 https://www.nytimes.com/2026/10/11/insider/new-york-times-space-editor-victoria-jaggard.html
