@@ -1,3 +1,7 @@
+**2 Storms Bring Flood Risks to Mexico and the Southwest**\
+`Hurricane Simon was hugging the west coast of Mexico early Sunday, while Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
+https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
+
 **The Trump Administration’s Cosmic Battle**\
 `Top government officials describe their work as a fight against unseen evil. The idea has ancient Christian roots — but it has become politicized in recent years.`\
 https://www.nytimes.com/2026/10/11/briefing/the-trump-administrations-cosmic-battle.html
