@@ -1,3 +1,7 @@
+**What to Know About Isaias, the First Atlantic Hurricane of the Season**\
+`After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-what-to-know.html
+
 **Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
 `The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
 https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/crosswords/connections-companion-1218.html
 **Quebec Independence Is Unlikely, but Some Will Still Dream**\
 `The idea of independence remains deeply unpopular in Quebec, yet the separatist Parti Québécois was re-elected to a minority government this week.`\
 https://www.nytimes.com/2026/10/10/world/canada/quebec-election-parti-quebecois-separatism.html
-
-**Today’s Wordle Hints for October 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
-https://www.nytimes.com/2026/10/10/crosswords/wordle-review-1940.html
 

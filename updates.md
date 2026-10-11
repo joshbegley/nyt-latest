@@ -1,3 +1,7 @@
+**What to Know About Isaias, the First Atlantic Hurricane of the Season**\
+`After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-what-to-know.html
+
 **Man Dies in Tiger Attack at Yorkshire Wildlife Park in England**\
 `The man came face to face with an Amur tiger inside the animal’s habitat at Yorkshire Wildlife Park in England. The park was evacuated and closed to the public.`\
 https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-dead.html
