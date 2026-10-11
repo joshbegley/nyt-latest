@@ -1,3 +1,11 @@
+**Powerful Storm Surge Pounds Beach Homes in Southern California**\
+`Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
+https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
+
+**Quentin Tarantino Play ‘The Popinjay Cavalier’ to Open in London in February**\
+`“The Popinjay Cavalier,” directed by Tarantino, is scheduled to open for previews in London’s West End in February.￥`\
+https://www.nytimes.com/2026/10/11/theater/quentin-tarantino-sacha-baron-cohen-popinjay-cavalier.html
+
 **Saudi Arabia Hosts Energy Summit as It Trades Strikes With Houthis**\
 `Foreign officials and industry leaders were in Riyadh on Sunday for the International Energy Forum. Also on Sunday, Saudi officials and a spokesman for the Iran-backed Houthi militia said that airports in the Saudi and Yemeni capitals had been hit.`\
 https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-strikes-energy-summit-houthis.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/video/world/africa/100000011208167/djibouti-boat-capsize
 https://www.nytimes.com/2026/10/11/us/flamingos-isaias-zoo-bathroom-hurricane-florida.html
 
 **Saudi and Yemeni Airports Hit in New Round of Strikes**\
-`The airport in the Saudi capital, Riyadh, was struck a day after suffering a devastating attack. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
+`At least one person was killed in the Saudi capital, Riyadh, kingdom authorities said. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
 https://www.nytimes.com/2026/10/11/world/middleeast/saudi-yemen-airports-houthis.html
 
 **The Times’s New Space Editor Has Her Eye on the Cosmos**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/11/us/great-plains-elections-nebraska-kansas-gov
 **Thrifting Guarantees ‘Something Old’ in Weddings**\
 `As Gen Z, a generation that has embraced thrifting, begins to get married, it’s no surprise that they’re incorporating secondhand swag.`\
 https://www.nytimes.com/2026/10/11/style/weddings-thrifting-second.html
-
-**In the Senate, Collins Often Defies Trump but Rarely Stops Him**\
-`A New York Times analysis of Senator Susan Collins’s voting record shows that she frequently breaks with Republicans but more seldom changes an outcome.`\
-https://www.nytimes.com/2026/10/11/us/politics/in-the-senate-collins-often-defies-trump-but-rarely-stops-him.html
-
-**After Many Threats, an Arizona Lawmaker Asks: ‘Is It Really Worth It?’**\
-`Threats have altered the lives of State Representative Alma Hernandez, her family, friends and neighbors. They have even transformed her policymaking.`\
-https://www.nytimes.com/2026/10/11/us/arizona-alma-hernandez-threats-violence.html
 
