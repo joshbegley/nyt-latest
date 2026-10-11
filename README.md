@@ -1,6 +1,6 @@
 **Saudi Arabia Hosts Energy Summit as It Trades Strikes With Houthis**\
 `Foreign officials and industry leaders were in Riyadh on Sunday for the International Energy Forum. Also on Sunday, Saudi officials and a spokesman for the Iran-backed Houthi militia said that airports in the Saudi and Yemeni capitals had been hit.`\
-https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-hosts-energy-summit-as-it-trades-strikes-with-houthis.html
+https://www.nytimes.com/video/world/middleeast/100000011208512/saudi-arabia-strikes-energy-summit-houthis.html
 
 **NYT Crossword Answers for Oct. 12, 2026**\
 `Zhouqin Burnikel grants us an extension.`\
