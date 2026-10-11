@@ -1,3 +1,7 @@
+**Flash Floods Hit Northern Nepal**\
+`Flash floods hit northern Nepal on Sunday, sweeping away buildings and at least one bridge along the Budhi Gandaki River. The torrent comes just weeks after a devastating flood on the border with Tibet that killed more than a thousand people.`\
+https://www.nytimes.com/video/world/asia/100000011208010/nepal-flash-floods-budhi-gandaki-river.html
+
 **Genevieve Ko’s Perfect Mac and Cheese**\
 `Think: silky sauced macaroni beneath crackling, salty crumbs.`\
 https://www.nytimes.com/2026/10/11/dining/genevieve-kos-perfect-mac-and-cheese.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/nyregion/portal-bridge-nj-transit.html
 **‘He Went Inside, and We Waited as People Started to Stream Out’**\
 `Losing a precious item on a night out, recalling a big Knicks spring and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/10/11/nyregion/metropolitan-diary.html
-
-**Lower East Side Parishioners Mourn Loss of ‘Spiritual Home’**\
-`As the temporary closure of Most Holy Redeemer Church stretches on, congregants fear it will suffer the same fate as other shuttered houses of worship.`\
-https://www.nytimes.com/2026/10/11/nyregion/lower-east-side-parishioners-mourn-loss-of-spiritual-home.html
 

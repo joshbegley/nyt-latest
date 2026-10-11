@@ -1,3 +1,7 @@
+**2 Storms Bring Flood Risks to Mexico and the Southwest**\
+`Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
+https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
+
 **Genevieve Ko’s Perfect Mac and Cheese**\
 `Think: silky sauced macaroni beneath crackling, salty crumbs.`\
 https://www.nytimes.com/2026/10/11/dining/genevieve-kos-perfect-mac-and-cheese.html
