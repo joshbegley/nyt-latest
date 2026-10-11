@@ -1,3 +1,7 @@
+**Genevieve Ko’s Perfect Mac and Cheese**\
+`Think: silky sauced macaroni beneath crackling, salty crumbs.`\
+https://www.nytimes.com/2026/10/11/dining/genevieve-kos-perfect-mac-and-cheese.html
+
 **Over 100 Migrants Are Dead After Boat Capsizes Near Djibouti**\
 `The shipwreck is among the deadliest ever recorded on the route to Yemen, the International Organization for Migration said. Dozens remain missing, and the bodies of 15 children were recovered.`\
 https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-dead-yemen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/nyregion/metropolitan-diary.html
 **Lower East Side Parishioners Mourn Loss of ‘Spiritual Home’**\
 `As the temporary closure of Most Holy Redeemer Church stretches on, congregants fear it will suffer the same fate as other shuttered houses of worship.`\
 https://www.nytimes.com/2026/10/11/nyregion/lower-east-side-parishioners-mourn-loss-of-spiritual-home.html
-
-**NYT Spelling Bee Answers for October 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/11/crosswords/spelling-bee-forum.html
 
