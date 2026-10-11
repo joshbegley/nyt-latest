@@ -1,3 +1,7 @@
+**The Watchtower**\
+`We take a look at escalating surveillance in China.`\
+https://www.nytimes.com/2026/10/11/briefing/chinese-surveillance.html
+
 **Four Hours and Three Minutes at Cornell**\
 `On the most traumatic night in a young woman’s life, a good man could not be found.`\
 https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/world/europe/tiger-attack-wildlife-park-man-d
 **Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
 `Major TV networks were notified on Friday that the department was examining whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
 https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
-
-**Pentagon Again Increases Number of U.S. Casualties in Iran War**\
-`In an unannounced change, the Defense Department is now acknowledging troops who died or were wounded in support roles.`\
-https://www.nytimes.com/2026/10/10/us/politics/pentagon-casualties-iran-war.html
 
