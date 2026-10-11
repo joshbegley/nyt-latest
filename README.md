@@ -1,3 +1,19 @@
+**Supply Shocks Are Here to Stay. Is the Fed Ready to Face That Fact?**\
+`Supply shocks have become endemic to the global economy. Are we ready to face that fact?`\
+https://www.nytimes.com/2026/10/11/opinion/economy-supply-shocks-groceries-gas.html
+
+**Come for the Big Croutons, Stay for the Oregano-Garlic Chicken**\
+`This Christian Reynoso recipe is very Zuni Café-chicken-coded (complimentary).`\
+https://www.nytimes.com/2026/10/11/dining/come-for-the-big-croutons-stay-for-the-oregano-garlic-chicken.html
+
+**Examining the Doctor-A.I. Relationship**\
+`Readers respond to “A.I. Has Made Me a Better Physician,” an essay by Dr. Rachael Bedard. Also: Our mental health; a comparison to China.`\
+https://www.nytimes.com/2026/10/11/opinion/doctor-ai.html
+
+**Bad Boys Mean Bad Words When Shane Gillis Hosts ‘S.N.L.’**\
+`Colin Jost returned as Pete Hegseth in a “Saturday Night Live” broadcast that was overshadowed by Gillis’s use of an obscene word in a Dr. Seuss sketch.`\
+https://www.nytimes.com/2026/10/11/arts/television/bad-boys-mean-bad-words-when-shane-gillis-hosts-snl.html
+
 **Pope Leo Will Have Surgery to Remove Growth on Lung**\
 `A recent medical examination found a small nodule, he announced, adding that doctors would remove it this week.`\
 https://www.nytimes.com/2026/10/11/world/europe/pope-leo-lung-surgery.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/11/travel/piero-della-francesca-artworks-tuscany
 **Quote of the Day: Mathematics Is Reeling After OpenAI’s New Release**\
 `Quotation of the Day for Sunday, October 11, 2026.`\
 https://www.nytimes.com/2026/10/11/pageoneplus/quote-of-the-day-mathematics-is-reeling-after-openais-new-release.html
-
-**On This Day, Oct. 11: In 1962, Pope John XXIII Opened the Second Vatican Council**\
-`In 1962, Pope John XXIII opened the Second Vatican Council, a gathering that reshaped the Roman Catholic Church.`\
-https://www.nytimes.com/2026/10/11/learning/on-this-day-oct-11.html
-
-**5 Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
-`The five victims in Richmond, Utah, included four minors whose ages ranged from 5 to 16, the police said. The causes of their deaths were not immediately clear.`\
-https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
-
-**A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
-`Senator Roger Marshall, a Kansas Republican in a difficult race, paid an old campaign debt for cookies, muffins and brownies after a baker’s story went viral online.`\
-https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate-midterms.html
-
-**‘Not Pleasant’ but ‘Necessary’: Support at Trump Rally for Public Execution**\
-`A sample of people at the president’s midterm stump speech in Tennessee defended the Pentagon’s announcement that it would livestream the execution of a mass shooter.`\
-https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-execution.html
 
