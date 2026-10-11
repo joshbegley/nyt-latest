@@ -1,3 +1,27 @@
+**Four Hours and Three Minutes at Cornell**\
+`On the most traumatic night in a young woman’s life, a good man could not be found.`\
+https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
+
+**A Long Island Democrat’s Bondage Photos Leaked. Why Don’t More People Care?**\
+`It’s hard to work up outrage when someone else’s adult exploits wind up in the tabloids.`\
+https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
+
+**The Racist Tinge to These A.I. Literary Scandals**\
+`The recent scandals around A.I. in fiction seem less driven by questions of literary merit than by the workings of anti-woke vigilante activists.`\
+https://www.nytimes.com/2026/10/11/opinion/ai-books-fiction-black-writers-racism.html
+
+**Samuel Alito and New Jersey’s Fallen Columbus Statue**\
+`Justice Alito has a history of nudging the boundaries of judicial rectitude.`\
+https://www.nytimes.com/2026/10/11/opinion/justice-alito-columbus-statue-trenton.html
+
+**Meet Sanyi, the Rooster That United a Hungarian Town**\
+`A Hungarian town, an escaped rooster and the universal longing for freedom.`\
+https://www.nytimes.com/2026/10/11/opinion/hungary-sanyi-rooster-bekescsaba-mayor.html
+
+**Sanyi Kakas (Sanyi the Rooster)**\
+`In the small Hungarian city of Bekescsaba, an unexpected hero has stirred the universal longing for freedom. (He’s a chicken.)`\
+https://www.nytimes.com/video/opinion/100000010887229/sanyi-kakas-sanyi-the-rooster.html
+
 **India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
 `The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police before they could lead protests over voting rights.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
