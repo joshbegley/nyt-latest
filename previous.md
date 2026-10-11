@@ -1,3 +1,7 @@
+**President Trump Suggests Renaming an Ocean**\
+`After signing executive orders renaming the Gulf of Mexico as the Gulf of America and, later, Lake Ontario as Lake America, President Trump said Saturday at a rally in Clarksville, Tenn., that he had his sights set on even larger bodies of water.`\
+https://www.nytimes.com/video/world/americas/100000011208209/president-trump-suggests-renaming-an-ocean.html
+
 **Pope Leo XIV Will Have Surgery to Remove a Growth on His Lung**\
 `Pope Leo XIV said he would undergo surgery to remove a small growth on his lung in the coming days. The pontiff, who is 71, said doctors detected the growth at a “very early stage.”`\
 https://www.nytimes.com/video/world/europe/100000011208173/pope-leo-lung-growth-surgery.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/books/review/shere-hite-report-biography.html
 **At Least 12 Killed in Houthi Attack on Saudi Airport**\
 `The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
 https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
-
-**New York City’s Latest Famous Family Is a Hoot. Yes, They’re Barn Owls.**\
-`The city’s latest feathered extraordinaires are captivating the Upper West Side with their screeches.`\
-https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.html
 
