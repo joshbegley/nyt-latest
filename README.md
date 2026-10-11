@@ -1,3 +1,7 @@
+**Pakistan Seizes Control of an Opposition-Led Province**\
+`The federal government, speaking of “a severe breakdown in law and order” in Khyber Pakhtunkhwa amid militant violence, named a politically allied official as in charge.`\
+https://www.nytimes.com/2026/10/11/world/middleeast/pakistan-federal-control-khyber-pakhtunkhwa.html
+
 **Flash Floods Hit Northern Nepal**\
 `Flash floods hit northern Nepal on Sunday, sweeping away buildings and at least one bridge along the Budhi Gandaki River. The torrent comes just weeks after a devastating flood on the border with Tibet that killed more than a thousand people.`\
 https://www.nytimes.com/video/world/asia/100000011208010/nepal-flash-floods-budhi-gandaki-river.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.h
 **NJ Transit Riders Brace for 5 Weeks of Portal Bridge Disruptions**\
 `New Jersey commuters who rely on the century-old bridge can expect five weeks of service cuts beginning on Oct. 11, as transit officials complete its replacement.`\
 https://www.nytimes.com/2026/10/11/nyregion/portal-bridge-nj-transit.html
-
-**‘He Went Inside, and We Waited as People Started to Stream Out’**\
-`Losing a precious item on a night out, recalling a big Knicks spring and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/10/11/nyregion/metropolitan-diary.html
 
