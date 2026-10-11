@@ -1,3 +1,7 @@
+**‘Da Bears’ and the ‘S.N.L.’ Sketch That Immortalized Mike Ditka**\
+`After a “Saturday Night Live” sketch, Ditka, the former Chicago Bears coach who died last week, became known far and wide as an indomitable leader of men.`\
+https://www.nytimes.com/2026/10/11/arts/television/mike-ditka-snl-da-bears.html
+
 **Over 130 Migrants Dead After Boat Capsizes Near Djibouti**\
 `More than 130 people are dead and dozens are still missing after a boat capsized near Djibouti between Thursday night and Friday morning.`\
 https://www.nytimes.com/video/world/africa/100000011208167/djibouti-boat-capsizes-deaths-migrants.html
