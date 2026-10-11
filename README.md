@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/11/arts/television/bad-boys-mean-bad-words-when-
 `A recent medical examination found a small nodule, he announced, adding that doctors would remove it this week.`\
 https://www.nytimes.com/2026/10/11/world/europe/pope-leo-lung-surgery.html
 
-**Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
+**Ukraine Shrugs Off Trump Call to Ditch Zelensky for Energy Strikes**\
 `President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
 https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
 
