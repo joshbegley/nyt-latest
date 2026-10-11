@@ -1,3 +1,7 @@
+**A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
+`Senator Roger Marshall, a Kansas Republican in a difficult race, paid an old campaign debt for cookies, muffins and brownies after a baker’s story went viral online.`\
+https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate-midterms.html
+
 **‘Not Pleasant’ but ‘Necessary’: Support at Trump Rally for Public Execution**\
 `A sample of people at the president’s midterm stump speech in Tennessee defended the Pentagon’s announcement that it would livestream the execution of a mass shooter.`\
 https://www.nytimes.com/2026/10/10/us/politics/trump-rally-tennessee-public-execution.html
@@ -154,13 +158,13 @@ https://www.nytimes.com/video/opinion/100000011200170/what-this-1959-novel-can-t
 `The actor Joseph Gordon-Levitt believes storytelling is humanity’s defining technology. But will that continue to be true as A.I. gets more and more powerful? In this video, he takes Times Opinion inside the U.N. General Assembly to explore what’s at stake with the technology and tackle five pressing questions about how A.I. could change what it means to be human.`\
 https://www.nytimes.com/video/opinion/100000011196196/why-joseph-gordon-levitt-is-speaking-up-about-ai.html
 
-**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
-
 **John E. Sununu Is Running a Model Campaign. He Might Still Lose.**\
 `A New Hampshire insider-outsider candidate is executing a complex political dance.`\
 https://www.nytimes.com/2026/10/10/opinion/john-sununu-new-hampshire-republican-trump.html
+
+**We Had Questions About A.I. Joseph Gordon-Levitt Had Answers.**\
+`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
+https://www.nytimes.com/2026/10/10/opinion/joseph-gordon-levitt-united-nations-ai.html
 
 **How Is Child Marriage Still Legal in the U.S.?**\
 `Children are still allowed to marry here in the United States because of zealots on the left and right alike.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/briefing/screen-time.html
 **My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
 `I worry that the child is not receiving the care he needs and that my sister is in danger.`\
 https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
-
-**NYT Connections Answers for October 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 11, 2026.`\
-https://www.nytimes.com/2026/10/10/crosswords/connections-companion-1218.html
 
