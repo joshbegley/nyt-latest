@@ -1,5 +1,9 @@
+**An Israeli Election Like No Other**\
+`Many say a vote in two weeks may be the most consequential in Israel’s history.`\
+https://www.nytimes.com/2026/10/11/world/israel-election-india-protests-riyadh.html
+
 **In Maine Senate Race, Anxious Democrats Turn to Bernie Sanders for a Jolt**\
-`Three months after a jarring summer candidate switch, some Democrats in the state are worried about the enthusiasm for their nominee, Troy Jackson, who is in a close race`\
+`Three months after a jarring summer candidate switch, some Democrats in the state are worried about the enthusiasm for their nominee, Troy Jackson, who is in a close race.`\
 https://www.nytimes.com/2026/10/11/us/politics/maine-bernie-sanders-troy-jackson-seante-democrats.html
 
 **‘Da Bears’ and the ‘SNL’ Sketch That Immortalized Mike Ditka**\
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/10/11/opinion/cornell-jane-doe-vietnam-my-lai.html
 https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
 
 **The Racist Tinge to These A.I. Literary Scandals**\
-`The recent scandals around A.I. in fiction seem less driven by questions of literary merit than by the workings of anti-woke vigilante activists.`\
+`The recent scandals around A.I. in fiction seem driven less by questions of literary merit than by the workings of anti-woke vigilante activists.`\
 https://www.nytimes.com/2026/10/11/opinion/ai-books-fiction-black-writers-racism.html
 
 **Samuel Alito and New Jersey’s Fallen Columbus Statue**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/us/politics/elections-political-violence-hara
 **Living Under Threat of Political Violence**\
 `Our reporter Nick Corasaniti interviewed elected officials from across the political spectrum on what it’s like to live and work with threats of political violence.`\
 https://www.nytimes.com/video/us/politics/100000011159238/living-under-threat-of-political-violence.html
-
-**Who Were the Vikings? 21 Graves Weave a Tale of Hunters, Nomads and Sorceresses.**\
-`“The Sea-King and the Sorceress” examines the lives and deaths of the diverse people who called themselves Vikings.`\
-https://www.nytimes.com/2026/10/11/science/vikings-archaeology-history-sea-king-sorceress.html
 

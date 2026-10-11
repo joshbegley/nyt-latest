@@ -1,3 +1,15 @@
+**An Israeli Election Like No Other**\
+`Many say a vote in two weeks may be the most consequential in Israel’s history.`\
+https://www.nytimes.com/2026/10/11/world/israel-election-india-protests-riyadh.html
+
+**In Maine Senate Race, Anxious Democrats Turn to Bernie Sanders for a Jolt**\
+`Three months after a jarring summer candidate switch, some Democrats in the state are worried about the enthusiasm for their nominee, Troy Jackson, who is in a close race.`\
+https://www.nytimes.com/2026/10/11/us/politics/maine-bernie-sanders-troy-jackson-seante-democrats.html
+
+**The Racist Tinge to These A.I. Literary Scandals**\
+`The recent scandals around A.I. in fiction seem driven less by questions of literary merit than by the workings of anti-woke vigilante activists.`\
+https://www.nytimes.com/2026/10/11/opinion/ai-books-fiction-black-writers-racism.html
+
 **In Maine Senate Race, Anxious Democrats Turn to Bernie Sanders for a Jolt**\
 `Three months after a jarring summer candidate switch, some Democrats in the state are worried about the enthusiasm for their nominee, Troy Jackson, who is in a close race`\
 https://www.nytimes.com/2026/10/11/us/politics/maine-bernie-sanders-troy-jackson-seante-democrats.html
