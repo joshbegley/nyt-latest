@@ -1,3 +1,11 @@
+**The Trump Administration’s Cosmic Battle**\
+`Top government officials describe their work as a fight against unseen evil. The idea has ancient Christian roots — but it has become politicized in recent years.`\
+https://www.nytimes.com/2026/10/11/briefing/the-trump-administrations-cosmic-battle.html
+
+**Ukraine Shrugs Off Trump Call to Ditch Zelensky for Energy Strikes**\
+`President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
+https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
+
 **India’s ‘Cockroach’ Leaders Released as Small Protests Go On in Delhi**\
 `The leaders of the Cockroach Janta Party, an Indian youth movement, had been detained by the police on Saturday before they could lead protests over voting rights.`\
 https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html

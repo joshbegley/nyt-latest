@@ -1,3 +1,7 @@
+**The Trump Administration’s Cosmic Battle**\
+`Top government officials describe their work as a fight against unseen evil. The idea has ancient Christian roots — but it has become politicized in recent years.`\
+https://www.nytimes.com/2026/10/11/briefing/the-trump-administrations-cosmic-battle.html
+
 **Supply Shocks Are Here to Stay. Is the Fed Ready to Face That Fact?**\
 `Supply shocks have become endemic to the global economy. Are we ready to face that fact?`\
 https://www.nytimes.com/2026/10/11/opinion/economy-supply-shocks-groceries-gas.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/11/arts/television/bad-boys-mean-bad-words-when-
 `A recent medical examination found a small nodule, he announced, adding that doctors would remove it this week.`\
 https://www.nytimes.com/2026/10/11/world/europe/pope-leo-lung-surgery.html
 
-**Ukraine shrugs off Trump call to ditch Zelensky for energy strikes**\
+**Ukraine Shrugs Off Trump Call to Ditch Zelensky for Energy Strikes**\
 `President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he‘ll stop — if Russia does too.`\
 https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/opinion/clutter-spring-cleaning-psychology.ht
 **Touring Tuscany for Piero della Francesca’s Most Resplendent Artworks**\
 `A writer’s road trip in search of the early Renaissance master’s most resplendent works takes her to towns beyond Florence, the birthplace of the Italian Renaissance.`\
 https://www.nytimes.com/2026/10/11/travel/piero-della-francesca-artworks-tuscany.html
-
-**Quote of the Day: Mathematics Is Reeling After OpenAI’s New Release**\
-`Quotation of the Day for Sunday, October 11, 2026.`\
-https://www.nytimes.com/2026/10/11/pageoneplus/quote-of-the-day-mathematics-is-reeling-after-openais-new-release.html
 
