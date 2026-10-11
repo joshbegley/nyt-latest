@@ -1,3 +1,11 @@
+**Touring Tuscany for Piero della Francesca’s Most Resplendent Artworks**\
+`A writer’s road trip in search of the early Renaissance master’s most resplendent works takes her to towns beyond Florence, the birthplace of the Italian Renaissance.`\
+https://www.nytimes.com/2026/10/11/travel/piero-della-francesca-artworks-tuscany.html
+
+**Quote of the Day: Mathematics Is Reeling After OpenAI’s New Release**\
+`Quotation of the Day for Sunday, October 11, 2026.`\
+https://www.nytimes.com/2026/10/11/pageoneplus/quote-of-the-day-mathematics-is-reeling-after-openais-new-release.html
+
 **On This Day, Oct. 11: In 1962, Pope John XXIII Opened the Second Vatican Council**\
 `In 1962, Pope John XXIII opened the Second Vatican Council, a gathering that reshaped the Roman Catholic Church.`\
 https://www.nytimes.com/2026/10/11/learning/on-this-day-oct-11.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
 **Why Should Students Write? Let Us Count the Ways.**\
 `Readers respond to a philosophy professor’s essay that argued for less emphasis on writing in the college classroom.`\
 https://www.nytimes.com/2026/10/10/opinion/writing-thinking-students.html
-
-**Republicans Have the Money. Democrats Have the Momentum.**\
-`This week in politics: Which Democrats? And whose A.I. morals?`\
-https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money-democrats-have-the-momentum.html
-
-**Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
-`The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
-https://www.nytimes.com/video/opinion/100000011196190/joseph-gordon-levitt-has-some-things-to-say-about-ai.html
 

@@ -1,3 +1,7 @@
+**On This Day, Oct. 11: In 1962, Pope John XXIII Opened the Second Vatican Council**\
+`In 1962, Pope John XXIII opened the Second Vatican Council, a gathering that reshaped the Roman Catholic Church.`\
+https://www.nytimes.com/2026/10/11/learning/on-this-day-oct-11.html
+
 **4 Minors Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
 `The minors, whose ages ranged from 5 to 16, were among five people found dead in Richmond, Utah, the police said. The cause of death was not immediately clear.`\
 https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011200166/republicans-have-the-money
 **Joseph Gordon-Levitt Has Some Things to Say About A.I.**\
 `The actor takes Times Opinion to the United Nations to explore what’s at stake with A.I.`\
 https://www.nytimes.com/video/opinion/100000011196190/joseph-gordon-levitt-has-some-things-to-say-about-ai.html
-
-**Screen Time**\
-`It’s fall. Which means a deluge of films ahead of awards season. When you leave the theater, notice the change in the light outside.`\
-https://www.nytimes.com/2026/10/10/briefing/screen-time.html
 
