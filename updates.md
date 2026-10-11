@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 12, 2026**\
+`Zhouqin Burnikel grants us an extension.`\
+https://www.nytimes.com/2026/10/11/crosswords/daily-puzzle-2026-10-12.html
+
 **Hurricane Isaias’s Aftermath in Video and Pictures**\
 `It was the first Atlantic hurricane of the season, and the first to hit the mainland United States in two years.`\
 https://www.nytimes.com/2026/10/11/us/hurricane-isaias-damage-photos-video.html
