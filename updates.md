@@ -1,3 +1,23 @@
+**Supply Shocks Are Here to Stay. Is the Fed Ready to Face That Fact?**\
+`Supply shocks have become endemic to the global economy. Are we ready to face that fact?`\
+https://www.nytimes.com/2026/10/11/opinion/economy-supply-shocks-groceries-gas.html
+
+**Come for the Big Croutons, Stay for the Oregano-Garlic Chicken**\
+`This Christian Reynoso recipe is very Zuni Café-chicken-coded (complimentary).`\
+https://www.nytimes.com/2026/10/11/dining/come-for-the-big-croutons-stay-for-the-oregano-garlic-chicken.html
+
+**Examining the Doctor-A.I. Relationship**\
+`Readers respond to “A.I. Has Made Me a Better Physician,” an essay by Dr. Rachael Bedard. Also: Our mental health; a comparison to China.`\
+https://www.nytimes.com/2026/10/11/opinion/doctor-ai.html
+
+**Bad Boys Mean Bad Words When Shane Gillis Hosts ‘S.N.L.’**\
+`Colin Jost returned as Pete Hegseth in a “Saturday Night Live” broadcast that was overshadowed by Gillis’s use of an obscene word in a Dr. Seuss sketch.`\
+https://www.nytimes.com/2026/10/11/arts/television/bad-boys-mean-bad-words-when-shane-gillis-hosts-snl.html
+
+**Pope Leo Will Have Surgery to Remove Growth on Lung**\
+`A recent medical examination found a small nodule, he announced, adding that doctors would remove it this week.`\
+https://www.nytimes.com/2026/10/11/world/europe/pope-leo-lung-surgery.html
+
 **The Sex Scandal That Wasn’t**\
 `It’s hard to work up outrage when someone else’s adult exploits wind up in the tabloids.`\
 https://www.nytimes.com/2026/10/11/opinion/chris-gallant-campaign-photos.html
