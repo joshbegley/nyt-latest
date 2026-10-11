@@ -1,3 +1,7 @@
+**4 Minors Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
+`The minors, whose ages ranged from 5 to 16, were among five people found dead in Richmond, Utah, the police said. The cause of death was not immediately clear.`\
+https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
+
 **A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
 `Senator Roger Marshall, a Kansas Republican in a difficult race, paid an old campaign debt for cookies, muffins and brownies after a baker’s story went viral online.`\
 https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011196190/joseph-gordon-levitt-has-s
 **Screen Time**\
 `It’s fall. Which means a deluge of films ahead of awards season. When you leave the theater, notice the change in the light outside.`\
 https://www.nytimes.com/2026/10/10/briefing/screen-time.html
-
-**My Sister’s Young Foster Child Is Becoming Violent. Should I Intervene?**\
-`I worry that the child is not receiving the care he needs and that my sister is in danger.`\
-https://www.nytimes.com/2026/10/10/magazine/foster-child-violent-ethics.html
 
