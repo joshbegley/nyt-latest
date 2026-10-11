@@ -1,3 +1,7 @@
+**Over 130 Migrants Dead After Boat Capsizes Near Djibouti**\
+`More than 130 people are dead and dozens are still missing after a boat capsized near Djibouti between Thursday night and Friday morning.`\
+https://www.nytimes.com/video/world/africa/100000011208167/djibouti-boat-capsizes-deaths-migrants.html
+
 **Flamingos at a Florida Zoo Rode Out Hurricane Isaias in the Bathroom**\
 `ZooWorld in Panama City Beach, Fla. squeezed a group of 30 flamingos into a bathroom to shelter them from Hurricane Isaias, which hit the Gulf Coast.`\
 https://www.nytimes.com/2026/10/11/us/flamingos-isaias-zoo-bathroom-hurricane-florida.html
