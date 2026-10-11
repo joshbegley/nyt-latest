@@ -1,3 +1,7 @@
+**India’s ‘Cockroach’ Leaders Released as New Delhi Braces for More Protests**\
+`The leaders of the Cockroach Janta Party, an Indian youth movement, were detained by the police on Saturday before they could lead protests over voting rights.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-cockroach-dipke-new-delhi-protests.html
+
 **Neuroscience Can Make Decluttering Easier**\
 `Decluttering is a challenge for many Americans, but neuroscience indicates we can make the process easier on ourselves and our loved ones.`\
 https://www.nytimes.com/2026/10/11/opinion/clutter-spring-cleaning-psychology.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/10/11/pageoneplus/quote-of-the-day-mathematics-is-r
 `In 1962, Pope John XXIII opened the Second Vatican Council, a gathering that reshaped the Roman Catholic Church.`\
 https://www.nytimes.com/2026/10/11/learning/on-this-day-oct-11.html
 
-**4 Minors Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
-`The minors, whose ages ranged from 5 to 16, were among five people found dead in Richmond, Utah, the police said. The cause of death was not immediately clear.`\
+**5 Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
+`The five victims in Richmond, Utah, included four minors whose ages ranged from 5 to 16, the police said. The causes of their deaths were not immediately clear.`\
 https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
 
 **A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/10/opinion/child-marriage-legal-us.html
 **Boomers Didn’t Always Have It So Easy**\
 `All generations think they drew the short straw; they’ve really shared the same challenges, just in different eras.`\
 https://www.nytimes.com/2026/10/10/opinion/millennial-boomer-young-adult.html
-
-**A.I. Companies Say They Aren’t Responsible for Their Unpredictable Products. Don’t Believe Them.**\
-`A.I. giants must operate under our laws.`\
-https://www.nytimes.com/2026/10/10/opinion/ai-companies-liability-laws.html
 
