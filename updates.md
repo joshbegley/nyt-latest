@@ -1,3 +1,7 @@
+**4 Minors Found Dead in Utah Apartment That Had High Carbon Monoxide Levels**\
+`The minors, whose ages ranged from 5 to 16, were among five people found dead in Richmond, Utah, the police said. The cause of death was not immediately clear.`\
+https://www.nytimes.com/2026/10/10/us/utah-carbon-monoxide-deaths.html
+
 **A Senator Facing Re-Election Settles a Bakery Bill, 6 Years Later**\
 `Senator Roger Marshall, a Kansas Republican in a difficult race, paid an old campaign debt for cookies, muffins and brownies after a baker’s story went viral online.`\
 https://www.nytimes.com/2026/10/10/us/politics/marshall-kansas-baker-bill-senate-midterms.html
