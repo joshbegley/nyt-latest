@@ -1,3 +1,7 @@
+**Mamdani to Skip Columbus Day Parade. Some Italian Americans Are Glad.**\
+`City Hall confirmed that the mayor would not join Monday’s procession up Fifth Avenue, but would host an Italian American heritage reception soon.`\
+https://www.nytimes.com/2026/10/11/nyregion/mamdani-columbus-day-parade-nyc.html
+
 **Waves From Powerful Storm Pound Beach Homes in Southern California**\
 `Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
 https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/movies/mark-zuckerberg-social-network-reckoni
 **Republicans Held Onto the Great Plains for Years. Now They’re Nervous.**\
 `Republicans have dominated the center of the country for a quarter-century. Now they face several tough races for Senate and governor.`\
 https://www.nytimes.com/2026/10/11/us/great-plains-elections-nebraska-kansas-governor.html
-
-**Thrifting Guarantees ‘Something Old’ in Weddings**\
-`As Gen Z, a generation that has embraced thrifting, begins to get married, it’s no surprise that they’re incorporating secondhand swag.`\
-https://www.nytimes.com/2026/10/11/style/weddings-thrifting-second.html
 
