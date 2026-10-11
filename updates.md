@@ -1,3 +1,19 @@
+**Celine Dion’s Triumphant Return to the Stage**\
+`After a devastating diagnosis, the superstar makes a thrilling comeback.`\
+https://www.nytimes.com/2026/10/11/podcasts/the-daily/celine-dions-triumphant-return-to-the-stage.html
+
+**NYT Connections Answers for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/connections-companion-1219.html
+
+**NYT Strands Hints for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/strands-sidekick-953.html
+
+**Today’s Wordle Hints for October 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
+https://www.nytimes.com/2026/10/11/crosswords/wordle-review-1941.html
+
 **In Unlikely Turn, Law and Order Heats Up L.A. Mayor’s Race**\
 `Two Democratic candidates choose opposite tacks on public safety and policing, seeking to corral undecided voters.`\
 https://www.nytimes.com/2026/10/11/us/los-angeles-mayor-policing-election.html
