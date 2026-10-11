@@ -1,3 +1,7 @@
+**India’s Youth Protests Challenge Narendra Modi**\
+`Prime Minister Narendra Modi of India has long succeeded in isolating and undermining opponents. The Gen Z protests pose a challenge unlike any he has faced before.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-crackdown-narendra-modi.html
+
 **Trump Suggests Renaming an Ocean**\
 `After signing executive orders renaming the Gulf of Mexico as the Gulf of America and, later, Lake Ontario as Lake America, President Trump said Saturday at a rally in Clarksville, Tenn., that he had his sights set on even larger bodies of water.`\
 https://www.nytimes.com/video/world/americas/100000011208209/president-trump-suggests-renaming-an-ocean.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/world/asia/china-essay-higgins-surveillance.h
 **50 Years Later, ‘The Hite Report’ Still Matters**\
 `Its author became a pop culture celebrity, and sometimes punchline, but “The Hite Report” helped make way for frank discussions about pleasure.`\
 https://www.nytimes.com/2026/10/11/books/review/shere-hite-report-biography.html
-
-**At Least 12 Killed in Houthi Attack on Saudi Airport**\
-`The Iran-backed Houthi militia launched a deadly attack on an international airport in Saudi Arabia’s capital on Saturday that Saudi officials said killed at least 12 people and injured more than 300 others.`\
-https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-attack.html
 

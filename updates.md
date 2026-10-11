@@ -1,3 +1,7 @@
+**India’s Youth Protests Challenge Narendra Modi**\
+`Prime Minister Narendra Modi of India has long succeeded in isolating and undermining opponents. The Gen Z protests pose a challenge unlike any he has faced before.`\
+https://www.nytimes.com/2026/10/11/world/asia/india-crackdown-narendra-modi.html
+
 **Trump Suggests Renaming an Ocean**\
 `After signing executive orders renaming the Gulf of Mexico as the Gulf of America and, later, Lake Ontario as Lake America, President Trump said Saturday at a rally in Clarksville, Tenn., that he had his sights set on even larger bodies of water.`\
 https://www.nytimes.com/video/world/americas/100000011208209/president-trump-suggests-renaming-an-ocean.html
