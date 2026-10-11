@@ -1,3 +1,7 @@
+**What to Know About Isaias, the First Atlantic Hurricane of the Season**\
+`After making landfall in the Florida Panhandle as a Category 2 hurricane, Isaias weakened considerably and headed north. Now, parts of the Southeast are at risk of flash floods.`\
+https://www.nytimes.com/2026/10/10/us/hurricane-isaias-path-damage-deaths-florida.html
+
 **Justice Dept. Is Investigating TV Networks Over Trump Pool Coverage**\
 `Major TV networks were notified on Friday that the department was examining whether they violated antitrust laws when they suspended pool coverage of President Trump.`\
 https://www.nytimes.com/2026/10/10/business/media/trump-justice-department-tv-networks.html
