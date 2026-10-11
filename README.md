@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-de
 `A new letter from 74 lawmakers suggests that civilian casualties will become a focus of investigation if Democrats take control of Congress.`\
 https://www.nytimes.com/2026/10/11/us/politics/democrats-press-pentagon-on-iran-civilian-deaths.html
 
-**2 Storms Bring Flood Risks to Mexico and the Southwest**\
+**Hurricane Simon and Post-Tropical Storm Rachel Bring Flood Risks to Mexico and Southwestern U.S.**\
 `Hurricane Simon was hugging the west coast of Mexico early Sunday, while the remnants of Post-Tropical Storm Rachel moved inland late Saturday, bringing heavy rain and high winds.`\
 https://www.nytimes.com/2026/10/11/weather/hurricane-simon-rachel-california.html
 
