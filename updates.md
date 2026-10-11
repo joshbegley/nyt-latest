@@ -1,3 +1,7 @@
+**Neuroscience Can Make Decluttering Easier**\
+`Decluttering is a challenge for many Americans, but neuroscience indicates we can make the process easier on ourselves and our loved ones.`\
+https://www.nytimes.com/2026/10/11/opinion/clutter-spring-cleaning-psychology.html
+
 **Touring Tuscany for Piero della Francesca’s Most Resplendent Artworks**\
 `A writer’s road trip in search of the early Renaissance master’s most resplendent works takes her to towns beyond Florence, the birthplace of the Italian Renaissance.`\
 https://www.nytimes.com/2026/10/11/travel/piero-della-francesca-artworks-tuscany.html
