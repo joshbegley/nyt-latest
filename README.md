@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 12, 2026**\
+`Zhouqin Burnikel grants us an extension.`\
+https://www.nytimes.com/2026/10/11/crosswords/daily-puzzle-2026-10-12.html
+
 **Hurricane Isaias’s Aftermath in Video and Pictures**\
 `It was the first Atlantic hurricane of the season, and the first to hit the mainland United States in two years.`\
 https://www.nytimes.com/2026/10/11/us/hurricane-isaias-damage-photos-video.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/us/arizona-alma-hernandez-threats-violence.ht
 **Book Review: ‘The Havana Syndrome,’ by Michael Rey and Oriana Zill de Granados**\
 `In “The Havana Syndrome,” Michael Rey and Oriana Zill de Granados make the case that a mysterious Russian weapon has been used to target American intelligence agents.`\
 https://www.nytimes.com/2026/10/11/books/review/the-havana-syndrome-michael-rey-oriana-zill-de-granados.html
-
-**Threats of Political Violence Have America’s Elected Officials Living in Fear**\
-`A Times investigation has found that violent threats have become a new normal among public officials, reshaped private lives, cost millions in security and pushed people out of office.`\
-https://www.nytimes.com/2026/10/11/us/politics/elections-political-violence-harassment.html
 
