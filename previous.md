@@ -1,3 +1,7 @@
+**Flamingos at a Florida Zoo Rode Out Hurricane Isaias in the Bathroom**\
+`ZooWorld in Panama City Beach, Fla. squeezed a group of 30 flamingos into a bathroom to shelter them from Hurricane Isaias, which hit the Gulf Coast.`\
+https://www.nytimes.com/2026/10/11/us/flamingos-isaias-zoo-bathroom-hurricane-florida.html
+
 **Saudi and Yemeni Airports Hit in New Round of Strikes**\
 `The airport in the Saudi capital, Riyadh, was struck a day after suffering a devastating attack. The Houthis said Saudi aircraft hit the Yemeni capital’s airport.`\
 https://www.nytimes.com/2026/10/11/world/middleeast/saudi-yemen-airports-houthis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/world/europe/russia-spy-ukraine.html
 **Book Review: ‘The Case of the Autographed Corpse,’ by Jack El-Hai**\
 `In “The Case of the Autographed Corpse,” Jack El-Hai reveals how the relationship between a celebrity author and a captive healer reopened a closed case.`\
 https://www.nytimes.com/2026/10/11/books/review/case-of-the-autographed-corpse-jack-el-hai.html
-
-**San Francisco Is Still Pushing to Turn Offices Into Homes**\
-`The city has not completed a single office-to-housing conversion, despite hopes to meet housing demand and inject life into empty downtowns.`\
-https://www.nytimes.com/2026/10/11/business/san-francisco-housing-conversions.html
 
