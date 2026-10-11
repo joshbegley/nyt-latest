@@ -1,3 +1,7 @@
+**‘Da Bears’ and the ‘SNL’ Sketch That Immortalized Mike Ditka**\
+`After a “Saturday Night Live” sketch, Ditka, the former Chicago Bears coach who died last week, became known far and wide as an indomitable leader of men.`\
+https://www.nytimes.com/2026/10/11/arts/television/mike-ditka-snl-da-bears.html
+
 **‘Da Bears’ and the ‘S.N.L.’ Sketch That Immortalized Mike Ditka**\
 `After a “Saturday Night Live” sketch, Ditka, the former Chicago Bears coach who died last week, became known far and wide as an indomitable leader of men.`\
 https://www.nytimes.com/2026/10/11/arts/television/mike-ditka-snl-da-bears.html
