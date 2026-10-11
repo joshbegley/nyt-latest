@@ -1,3 +1,7 @@
+**Pope Leo XIV Will Have Surgery to Remove a Growth on His Lung**\
+`Pope Leo XIV said he would undergo surgery to remove a small growth on his lung in the coming days. The pontiff, who is 71, said doctors detected the growth at a “very early stage.”`\
+https://www.nytimes.com/video/world/europe/100000011208173/pope-leo-lung-growth-surgery.html
+
 **Pakistan Seizes Control of an Opposition-Led Province**\
 `The federal government, speaking of “a severe breakdown in law and order” in Khyber Pakhtunkhwa amid militant violence, named a politically allied official as in charge.`\
 https://www.nytimes.com/2026/10/11/world/middleeast/pakistan-federal-control-khyber-pakhtunkhwa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011207908/riyadh-airport-at
 **New York City’s Latest Famous Family Is a Hoot. Yes, They’re Barn Owls.**\
 `The city’s latest feathered extraordinaires are captivating the Upper West Side with their screeches.`\
 https://www.nytimes.com/2026/10/11/nyregion/owls-upper-west-side-new-york-city.html
-
-**NJ Transit Riders Brace for 5 Weeks of Portal Bridge Disruptions**\
-`New Jersey commuters who rely on the century-old bridge can expect five weeks of service cuts beginning on Oct. 11, as transit officials complete its replacement.`\
-https://www.nytimes.com/2026/10/11/nyregion/portal-bridge-nj-transit.html
 
