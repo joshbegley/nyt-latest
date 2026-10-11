@@ -1,3 +1,11 @@
+**Over 100 Migrants Are Dead After Boat Capsizes Near Djibouti**\
+`The shipwreck is among the deadliest ever recorded on the route to Yemen, the International Organization for Migration said. Dozens remain missing, and the bodies of 15 children were recovered.`\
+https://www.nytimes.com/2026/10/11/world/africa/migrant-boat-capsize-djibouti-dead-yemen.html
+
+**Democrats Press Pentagon on Iran Civilian Deaths**\
+`A new letter from 74 lawmakers suggests that civilian casualties will become a focus of investigation if Democrats take control of Congress.`\
+https://www.nytimes.com/2026/10/11/us/politics/democrats-press-pentagon-on-iran-civilian-deaths.html
+
 **Ukraine Shrugs Off Trump Call to Ditch Zelensky for Energy Strikes**\
 `President Trump lashed out at President Volodymyr Zelensky for striking Russian oil refineries. Mr. Zelensky said he’ll stop — if Russia does too.`\
 https://www.nytimes.com/2026/10/11/world/europe/trump-zelensky-diesel-energy-russia-.html
