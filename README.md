@@ -1,3 +1,7 @@
+**Over 130 Migrants Dead After Boat Capsizes Near Djibouti**\
+`More than 130 people are dead and dozens are still missing after a boat capsized near Djibouti between Thursday night and Friday morning.`\
+https://www.nytimes.com/video/world/africa/100000011208167/djibouti-boat-capsizes-deaths-migrants.html
+
 **Flamingos at a Florida Zoo Rode Out Hurricane Isaias in the Bathroom**\
 `ZooWorld in Panama City Beach, Fla. squeezed a group of 30 flamingos into a bathroom to shelter them from Hurricane Isaias, which hit the Gulf Coast.`\
 https://www.nytimes.com/2026/10/11/us/flamingos-isaias-zoo-bathroom-hurricane-florida.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/world/canada/inuit-inuk-indigenous-people-ide
 **A Russian Spy’s Lone Regret: ‘I Got Caught’**\
 `Though born in Ukraine, Alexsander supports the Russian cause. He wishes he had deleted one photo from his phone.`\
 https://www.nytimes.com/2026/10/11/world/europe/russia-spy-ukraine.html
-
-**Book Review: ‘The Case of the Autographed Corpse,’ by Jack El-Hai**\
-`In “The Case of the Autographed Corpse,” Jack El-Hai reveals how the relationship between a celebrity author and a captive healer reopened a closed case.`\
-https://www.nytimes.com/2026/10/11/books/review/case-of-the-autographed-corpse-jack-el-hai.html
 
