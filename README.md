@@ -1,3 +1,15 @@
+**What Kim Jones Did Next**\
+`For his next act, Kim Jones, formerly of Louis Vuitton, Fendi and Dior, is starting a namesake collection. It’s a trend.`\
+https://www.nytimes.com/2026/10/12/style/kim-jones-phoebe-philo-tom-ford-new-brand.html
+
+**‘It’s the Identity, Stupid!’: 3 Writers on Europe’s Rising Far Right**\
+`A discussion on the roots of the far-right’s success, its plans for power and what President Trump has to do with it all.`\
+https://www.nytimes.com/2026/10/12/opinion/europe-far-right-trump.html
+
+**‘Below Deck’ and 6 More Shows to Watch on TV This Week**\
+`The reality TV show following the crew on a charter yacht returns for a 13th season. And a new season of “The Diplomat” airs.`\
+https://www.nytimes.com/2026/10/12/arts/television/below-deck-what-to-watch-on-tv-this-week.html
+
 **Fugitive in Venezuela Money Laundering Cases to Appear in U.S. Court**\
 `Álvaro Pulido Vargas faces federal charges in Florida related to what prosecutors described as money laundering and bribery schemes. It is not clear when or where he was arrested.`\
 https://www.nytimes.com/2026/10/12/us/venezeula-money-laundering-arrest.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/11/crosswords/strands-sidekick-953.html
 **Today’s Wordle Hints for October 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
 https://www.nytimes.com/2026/10/11/crosswords/wordle-review-1941.html
-
-**In Unlikely Turn, Law and Order Heats Up L.A. Mayor’s Race**\
-`Two Democratic candidates choose opposite tacks on public safety and policing, seeking to corral undecided voters.`\
-https://www.nytimes.com/2026/10/11/us/los-angeles-mayor-policing-election.html
-
-**Corrections: Oct. 11, 2026**\
-`Corrections that appeared in print on Sunday, Oct. 11, 2026.`\
-https://www.nytimes.com/2026/10/11/pageoneplus/corrections-oct-11-2026.html
-
-**Alex Gibney on ‘Musk’ and Why a 4-Hour Film Was Necessary**\
-`The documentarian also talks about trying to interview the trillionaire and the roadblocks the film has run into.`\
-https://www.nytimes.com/2026/10/11/movies/alex-gibney-musk-documentary.html
 
