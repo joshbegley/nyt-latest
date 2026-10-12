@@ -1,3 +1,7 @@
+**Fire in Paris Devastates City’s Oldest Covered Food Market**\
+`A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
+https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
+
 **Iran Offers to Mediate Between Its Houthi Allies and Saudi Arabia**\
 `Iran has long backed the Houthis, a Yemeni militia, and it made the offer as Saudi Arabia contends with increasingly deadly attacks from them.`\
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/well/eat/seaweed-health-benefits-recipes.html
 **To Flip a G.O.P. House Seat, Cait Conley Leans on Her Military Résumé**\
 `Cait Conley, a Democrat trying to unseat the Republican incumbent Mike Lawler, is hoping that New York voters’ distaste for President Trump will carry her to victory.`\
 https://www.nytimes.com/2026/10/12/nyregion/cait-conley-mike-lawler.html
-
-**NYT Spelling Bee Answers for October 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/12/crosswords/spelling-bee-forum.html
 
