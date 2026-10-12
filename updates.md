@@ -1,3 +1,19 @@
+**What Kim Jones Did Next**\
+`For his next act, Kim Jones, formerly of Louis Vuitton, Fendi and Dior, is starting a namesake collection. It’s a trend.`\
+https://www.nytimes.com/2026/10/12/style/kim-jones-phoebe-philo-tom-ford-new-brand.html
+
+**‘It’s the Identity, Stupid!’: 3 Writers on Europe’s Rising Far Right**\
+`A discussion on the roots of the far-right’s success, its plans for power and what President Trump has to do with it all.`\
+https://www.nytimes.com/2026/10/12/opinion/europe-far-right-trump.html
+
+**‘Below Deck’ and 6 More Shows to Watch on TV This Week**\
+`The reality TV show following the crew on a charter yacht returns for a 13th season. And a new season of “The Diplomat” airs.`\
+https://www.nytimes.com/2026/10/12/arts/television/below-deck-what-to-watch-on-tv-this-week.html
+
+**Fugitive in Venezuela Money Laundering Cases to Appear in U.S. Court**\
+`Álvaro Pulido Vargas faces federal charges in Florida related to what prosecutors described as money laundering and bribery schemes. It is not clear when or where he was arrested.`\
+https://www.nytimes.com/2026/10/12/us/venezeula-money-laundering-arrest.html
+
 **The Taliban Are Using Europe’s Fear of Migrants to Their Advantage**\
 `European nations that condemn the Taliban government for its human rights record are seeking its help to deport refugees back to Afghanistan.`\
 https://www.nytimes.com/2026/10/12/world/asia/europe-taliban-deportations-migrants.html
