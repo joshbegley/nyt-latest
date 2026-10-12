@@ -1,3 +1,7 @@
+**How American Retirees at Different Incomes Rely on Social Security**\
+`Social Security funds are on track to run short by 2032, which would mean a reduction in benefits. Here’s how four hypothetical households rely on the program in retirement.`\
+https://www.nytimes.com/2026/10/12/business/social-security-income-retirement-benefits.html
+
 **Federal Agents Search Home of Rep. Ilhan Omar**\
 `The search takes place within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
 https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
