@@ -1,3 +1,7 @@
+**Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
+`The police responded to a call about a “physically abusive passenger” aboard a flight that landed at Kennedy Airport on Sunday night, officials said.`\
+https://www.nytimes.com/2026/10/12/us/selma-blair-arrested.html
+
 **Federal Agents Search Ilhan Omar’s Home**\
 `On Monday, homeland security officials executed a search warrant at the Washington-area home of Representative Ilhan Omar, Democrat of Minnesota, according to three people briefed on the matter.`\
 https://www.nytimes.com/video/us/politics/100000011209163/ilhan-omar-home-search-homeland-security.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/us/grieving-mother-seattle-mariners-tickets.h
 **Inside Elon Musk’s $276 Million Midterm Rescue Mission for Republicans**\
 `The world’s richest person has quietly become by far the biggest known midterm donor, trying to save Republicans’ Senate majority with some of the largest donations in American political history.`\
 https://www.nytimes.com/2026/10/12/us/politics/elon-musk-midterms.html
-
-**In Italy, a Townhouse Where Polished Gives Way to Ragged and Raw**\
-`An architect laid bare the imperfections of his home renovation to fully reveal the building, and leave room for later inspiration.`\
-https://www.nytimes.com/2026/10/12/realestate/in-italy-a-townhouse-where-polished-gives-way-to-ragged-and-raw.html
 
