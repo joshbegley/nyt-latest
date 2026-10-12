@@ -1,3 +1,7 @@
+**Surveillance Footage Shows Moment of Attack on Saudi Airport**\
+`Footage released by Saudi state media showed the moment of a deadly attack on Saturday at an airport in Riyadh, the Saudi capital. The Iran-backed Houthi militia claimed responsibility for the strike.`\
+https://www.nytimes.com/video/world/middleeast/100000011208716/saudi-arabia-houthi-riyadh-airport-attack.html
+
 **World’s Energy Order Tested Again as Iran War’s Reach Extends Further**\
 `“We are entering an age of prolonged insecurity,” one former U.S. energy official said of what have become chronic threats on the Middle East’s energy core.`\
 https://www.nytimes.com/2026/10/12/business/middle-east-oil-exports-houthi-saudi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.htm
 **Can a Democrat Beat Darline Graham? 5 Takeaways From the South Carolina Senate Debate**\
 `Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
 https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
-
-**Mamdani to Skip Columbus Day Parade. Some Italian Americans Are Glad.**\
-`City Hall confirmed that the mayor would not join Monday’s procession up Fifth Avenue, but would host an Italian American heritage reception soon.`\
-https://www.nytimes.com/2026/10/11/nyregion/mamdani-columbus-day-parade-nyc.html
 
