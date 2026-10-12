@@ -1,3 +1,7 @@
+**Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
+`The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
+https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
+
 **A Skillet Dinner That Checks All the Boxes**\
 `This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
 https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
