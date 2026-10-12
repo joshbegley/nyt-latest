@@ -1,3 +1,7 @@
+**The Flawed Search for a Chatbot’s Soul**\
+`Readers discuss a front-page article about assertions that A.I. models could display human behavior and consciousness.`\
+https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
+
 **Strikes Put Saudi Arabia’s Economy Under Pressure**\
 `Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
 https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/books/review/john-berger-verso-ways-of-seeing
 **Is Universal Basic Income the Answer to A.I.-Fueled Job Losses?**\
 `For more than a year, The New York Times followed recipients of universal basic income programs, which Elon Musk and other tech leaders have promoted as a solution to A.I.-fueled job losses.`\
 https://www.nytimes.com/2026/10/12/technology/universal-basic-income-silicon-valley.html
-
-**How Healthy Is Seaweed?**\
-`The sushi staple is uniquely nutritious, fresh or dried.`\
-https://www.nytimes.com/2026/10/12/well/eat/seaweed-health-benefits-recipes.html
 
