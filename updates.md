@@ -1,3 +1,11 @@
+**Protesters in India Call for Resignation of Election Commissioner**\
+`Thousands of protesters took to the streets of central New Delhi to demand an investigation into the proceedings of the election commission.`\
+https://www.nytimes.com/video/world/asia/100000011209220/india-protests-elections-narendra-modi.html
+
+**Dozens Killed in Airstrikes Near Sudan-Egypt Border**\
+`The attacks occurred at a remote gold mine hundreds of miles from the front lines of Sudan’s devastating civil war. Videos showed what appeared to be Egyptian munitions.`\
+https://www.nytimes.com/2026/10/12/world/africa/egypt-sudan-goldmine-strike.html
+
 **After Russian Diesel Deal, Trump Faces New Crisis Over Ukraine**\
 `President Trump’s surprise decision to suspend sanctions on Russian diesel fuel stunned Ukrainian and European officials, who were meeting with U.S. envoys at an exclusive golf club near Miami.`\
 https://www.nytimes.com/2026/10/12/world/europe/russia-ukraine-war-us-diesel-deal-negotiations.html

@@ -1,3 +1,11 @@
+**Protesters in India Call for Resignation of Election Commissioner**\
+`Thousands of protesters took to the streets of central New Delhi to demand an investigation into the proceedings of the election commission.`\
+https://www.nytimes.com/video/world/asia/100000011209220/india-protests-elections-narendra-modi.html
+
+**Dozens Killed in Airstrikes Near Sudan-Egypt Border**\
+`The attacks occurred at a remote gold mine hundreds of miles from the front lines of Sudan’s devastating civil war. Videos showed what appeared to be Egyptian munitions.`\
+https://www.nytimes.com/2026/10/12/world/africa/egypt-sudan-goldmine-strike.html
+
 **After Russian Diesel Deal, Trump Faces New Crisis Over Ukraine**\
 `President Trump’s surprise decision to suspend sanctions on Russian diesel fuel stunned Ukrainian and European officials, who were meeting with U.S. envoys at an exclusive golf club near Miami.`\
 https://www.nytimes.com/2026/10/12/world/europe/russia-ukraine-war-us-diesel-deal-negotiations.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/t-magazine/truman-capote-possessions-auction.
 **He Helped Discover Ebola 50 Years Ago. He’s Still Worried.**\
 `In an interview, Dr. Peter Piot recalled when he first saw the spindly virus under a microscope and reflected on a five-decade career spent fighting two deadly pathogens.`\
 https://www.nytimes.com/2026/10/12/us/politics/peter-piot-ebola-hiv.html
-
-**We Need an Operation Warp Speed for New Biological Threats**\
-`This is a hair-on-fire moment for the biosecurity community.`\
-https://www.nytimes.com/2026/10/12/opinion/ai-biosecurity.html
-
-**Valentino’s Alessandro Michele Shares His Influences and Inspirations**\
-`Alessandro Michele, the creative director of Valentino, invites T into his creative world.`\
-https://www.nytimes.com/2026/10/12/t-magazine/alessandro-michele-valentino.html
 
