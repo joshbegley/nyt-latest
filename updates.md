@@ -1,3 +1,15 @@
+**To Flip a G.O.P. House Seat, Cait Conley Leans on Her Military Résumé**\
+`Cait Conley, a Democrat trying to unseat the Republican incumbent Mike Lawler, is hoping that New York voters’ distaste for President Trump will carry her to victory.`\
+https://www.nytimes.com/2026/10/12/nyregion/cait-conley-mike-lawler.html
+
+**NYT Spelling Bee Answers for October 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/12/crosswords/spelling-bee-forum.html
+
+**Investigation into FlyDubai Attacker Puts Spotlight on a Melbourne Mosque**\
+`Emirati investigators said the co-pilot accused of attacking a captain on a flight to Israel drifted toward extremism during his time as a student in Australia.`\
+https://www.nytimes.com/2026/10/12/world/asia/investigation-into-flydubai-attacker-puts-spotlight-on-a-melbourne-mosque.html
+
 **Russell Brand’s Rape and Sexual Assault Trial: What to Know**\
 `The YouTuber, comedian and actor’s trial begins on Monday. He has pleaded not guilty to all of the charges.`\
 https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
