@@ -1,3 +1,7 @@
+**Republicans Promoted a False Rumor That James Talarico Was in Ohio**\
+`The Democratic nominee for Senate in Texas spent nine days off the trail with what he and his campaign said was a bad case of the flu. His opponents fueled rumors, including one that spread widely before it was debunked.`\
+https://www.nytimes.com/2026/10/12/us/politics/james-talarico-ohio-texas-senate-race.html
+
 **Wildfires Are Unfightable Now**\
 `This year’s fast moving, virtually irrepressible wildfire events are not the seasonal burns of decades past.`\
 https://www.nytimes.com/2026/10/12/opinion/wildfires-firefighters-climate-change.html

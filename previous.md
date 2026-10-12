@@ -1,3 +1,7 @@
+**Republicans Promoted a False Rumor That James Talarico Was in Ohio**\
+`The Democratic nominee for Senate in Texas spent nine days off the trail with what he and his campaign said was a bad case of the flu. His opponents fueled rumors, including one that spread widely before it was debunked.`\
+https://www.nytimes.com/2026/10/12/us/politics/james-talarico-ohio-texas-senate-race.html
+
 **RJ Mitte, Who Played Walter White’s Son on ‘Breaking Bad,’ Dies at 34**\
 `Mr. Mitte was born with cerebral palsy and brought his own experience of living with the disability to the role of Walter White Jr. on the Emmy-winning show.`\
 https://www.nytimes.com/2026/10/12/arts/television/rj-mitte-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/crosswords/crossplay-tips-and-tricks.html
 **With My Father’s Alzheimer’s Progressing, I Learned to See Beyond the Loss**\
 `Making a book of my dad’s train photos shifted my gaze away from all that he was losing.`\
 https://www.nytimes.com/2026/10/12/opinion/alzheimers-elderly-parent.html
-
-**Lethality and Testosterone Will Get Us Only So Far**\
-`Backing down on Ukraine while failing in Iran is an invitation to our enemies.`\
-https://www.nytimes.com/2026/10/12/opinion/lethality-and-testosterone-will-get-us-only-so-far.html
 
