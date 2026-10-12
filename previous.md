@@ -1,3 +1,7 @@
+**Blakeman Launches Graphic Attack on Mamdani in Meeting With Hasidic Jews**\
+`While seeking support from Hasidic leaders, the Republican candidate for governor, Bruce Blakeman, said Mayor Zohran Mamdani would not act if riots hit their community.`\
+https://www.nytimes.com/2026/10/12/nyregion/blakeman-mamdani-hasidic-jews.html
+
 **Meta Debuts New A.I. Models to Compete With Rivals**\
 `On Monday, Meta released two new A.I. models as it tries to catch up with rivals like Anthropic and OpenAI.`\
 https://www.nytimes.com/video/technology/100000011209491/meta-new-ai-models-muse-wonder.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/opinion/lethality-and-testosterone-will-get-u
 **Should I Break Up With Thrifting?**\
 `A reader wonders if it’s time for her love affair with clothing resale to come to an end.`\
 https://www.nytimes.com/2026/10/12/style/thrifting-vintage-clothing.html
-
-**Who’s Winning the Race for Congress?**\
-`It’s Oct. 12 — 22 days away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/10/12/us/politics/whos-winning-the-race-for-congress.html
 
