@@ -1,3 +1,7 @@
+**Dan Levy Condemns Shane Gillis’s ‘S.N.L.’ Monologue**\
+`“I’m speechless that something like that can exist on live national television,” the actor Dan Levy said on Instagram in a reaction to the comic’s jokes about women.`\
+https://www.nytimes.com/2026/10/12/arts/television/dan-levy-shane-gillis-snl-monologue.html
+
 **Judge Orders Trump Administration to Answer for Tree Removals at D.C. Golf Course**\
 `During a four-hour hearing, a federal judge demanded answers from the Trump administration about who authorized the removal of hundreds of trees at the East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/12/us/politics/judge-trees-golf-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/realestate/in-italy-a-townhouse-where-polishe
 **Is Cameron Winter Serious?**\
 `A new live solo album and concert film by Paul Thomas Anderson document the droll, and divisive, charms of the singer-songwriter and frontman of the band Geese.`\
 https://www.nytimes.com/2026/10/12/arts/music/cameron-winter-live-at-carnegie-hall.html
-
-**A Trove of Truman Capote’s Possessions Is Up for Auction**\
-`Four decades after his death, a revealing trove of the author’s possessions is up for auction.`\
-https://www.nytimes.com/2026/10/12/t-magazine/truman-capote-possessions-auction.html
 
