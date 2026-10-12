@@ -1,6 +1,6 @@
-**Homeland Security Agents Search Home of Rep. Ilhan Omar**\
+**Federal Agents Search Home of Rep. Ilhan Omar**\
 `The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
-https://www.nytimes.com/2026/10/12/us/politics/homeland-security-agents-search-home-of-rep-ilhan-omar.html
+https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
 
 **Kelly Clarkson’s Feud With Art of Play: What to Know**\
 `In an episode involving a famous singer and a purveyor of esoteric toys, everyone has an opinion about who made the big mistake. Big. Huge!`\
