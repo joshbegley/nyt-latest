@@ -1,3 +1,7 @@
+**Trump Gives Putin a Hand in Russia’s Economic War With Ukraine**\
+`President Trump is moving to buy Russian diesel while also pressuring Ukraine to halt attacks on refineries, a lifeblood of Moscow’s war machine.`\
+https://www.nytimes.com/2026/10/12/world/europe/russia-diesel-trump.html
+
 **After Lockdown, Sea of Protesters Flows Through India’s Capital**\
 `The raucous demonstrations by opposition groups on Monday followed days of an effective lockdown and mass detentions of young protesters by security forces.`\
 https://www.nytimes.com/2026/10/12/world/asia/india-protests-congress-rahul-gandhi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/travel/horror-movie-locations-visit-halloween
 **I Never Saw Myself as a ‘Cancer Patient’ — Until I Went Fishing With 10 of Them**\
 `As fly fishing became less like a hobby and more like a lifeline, could a retreat help ease my emotional burden?`\
 https://www.nytimes.com/2026/10/12/magazine/cancer-fly-fishing.html
-
-**Book Review: ‘The Best Kind of American,’ by Kim Ghattas**\
-`In “The Best Kind of American,” Kim Ghattas shows what an American’s assassination in Lebanon four decades ago reveals about chaos in the Middle East.`\
-https://www.nytimes.com/2026/10/12/books/review/the-best-kind-of-american-christopher-de-bellaigue.html
 
