@@ -1,3 +1,7 @@
+**Iran Offers to Mediate Between Its Houthi Allies and Saudi Arabia**\
+`Iran has long backed the Houthis, a Yemeni militia, and it made the offer as Saudi Arabia contends with increasingly deadly attacks from them.`\
+https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
+
 **5 Horror Movie Locations to Get You in the Halloween Spirit**\
 `Here’s one fan’s guide to visiting some of the genre’s fabled filming locations, from “The Shining” to “Friday the 13th.”`\
 https://www.nytimes.com/2026/10/12/travel/horror-movie-locations-visit-halloween.html

@@ -1,3 +1,7 @@
+**Iran Offers to Mediate Between Its Houthi Allies and Saudi Arabia**\
+`Iran has long backed the Houthis, a Yemeni militia, and it made the offer as Saudi Arabia contends with increasingly deadly attacks from them.`\
+https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
+
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
 `Le Marché des Enfants Rouges, which opened in 1615 as a vibrant produce hall, was a fixture for chefs, cooks and tourists.`\
 https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/nyregion/cait-conley-mike-lawler.html
 **NYT Spelling Bee Answers for October 12, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/12/crosswords/spelling-bee-forum.html
-
-**Investigation Into FlyDubai Attacker Puts Spotlight on an Australian Mosque**\
-`Emirati investigators said the co-pilot accused of attacking a captain on a flight to Israel drifted toward extremism during his time as a student in Australia.`\
-https://www.nytimes.com/2026/10/12/world/asia/flydubai-attack-suspect-melbourne-mosque.html
 
