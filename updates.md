@@ -1,3 +1,7 @@
+**Russell Brand’s Rape and Sexual Assault Trial: What to Know**\
+`The YouTuber, comedian and actor’s trial began on Monday. He has pleaded not guilty to all of the charges.`\
+https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
+
 **Investigation Into FlyDubai Attacker Puts Spotlight on an Australian Mosque**\
 `Emirati investigators said the co-pilot accused of attacking a captain on a flight to Israel drifted toward extremism during his time as a student in Australia.`\
 https://www.nytimes.com/2026/10/12/world/asia/flydubai-attack-suspect-melbourne-mosque.html
