@@ -1,3 +1,7 @@
+**Homeland Security Agents Search Home of Rep. Ilhan Omar**\
+`The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
+https://www.nytimes.com/2026/10/12/us/politics/homeland-security-agents-search-home-of-rep-ilhan-omar.html
+
 **Kelly Clarkson’s Feud With Art of Play: What to Know**\
 `In an episode involving a famous singer and a purveyor of esoteric toys, everyone has an opinion about who made the big mistake. Big. Huge!`\
 https://www.nytimes.com/2026/10/12/style/kelly-clarkson-brooklyn-store-art-of-play.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/well/mind/kier-gaines-therapy-black-men.html
 **Firefighters Install Cameras to Monitor Wildfire Activity Across California**\
 `A roving crew of California firefighters is installing cameras in some of the highest, craggiest sites in the state — all to get an early warning of a potentially deadly blaze.`\
 https://www.nytimes.com/2026/10/12/us/california-wildfire-cameras-firefighters.html
-
-**Adrian Danchig-Waring Bids Farewell to City Ballet After Remarkable Recovery**\
-`Adrian Danchig-Waring wasn’t sure he would walk again after a harrowing illness, but he returned to dance, better than ever. Now the City Ballet principal bids farewell.`\
-https://www.nytimes.com/2026/10/12/arts/dance/adrian-danchig-waring-nyc-ballet.html
 
