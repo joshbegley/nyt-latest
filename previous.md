@@ -1,3 +1,7 @@
+**RJ Mitte, Who Played Walter White’s Son on ‘Breaking Bad,’ Dies at 34**\
+`Mr. Mitte was born with cerebral palsy and brought his own experience of living with the disability to the role of Walter White Jr. on the Emmy-winning show.`\
+https://www.nytimes.com/2026/10/12/arts/television/rj-mitte-dead.html
+
 **Blakeman Launches Graphic Attack on Mamdani in Meeting With Hasidic Jews**\
 `While seeking support from Hasidic leaders, the Republican candidate for governor, Bruce Blakeman, said Mayor Zohran Mamdani would not act if riots hit their community.`\
 https://www.nytimes.com/2026/10/12/nyregion/blakeman-mamdani-hasidic-jews.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/opinion/alzheimers-elderly-parent.html
 **Lethality and Testosterone Will Get Us Only So Far**\
 `Backing down on Ukraine while failing in Iran is an invitation to our enemies.`\
 https://www.nytimes.com/2026/10/12/opinion/lethality-and-testosterone-will-get-us-only-so-far.html
-
-**Should I Break Up With Thrifting?**\
-`A reader wonders if it’s time for her love affair with clothing resale to come to an end.`\
-https://www.nytimes.com/2026/10/12/style/thrifting-vintage-clothing.html
 
