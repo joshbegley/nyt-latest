@@ -1,3 +1,11 @@
+**Post-Tropical Storm Rachel Floods Parts of Las Vegas Strip**\
+`Heavy rain from Post-Tropical Storm Rachel flooded parts of the Las Vegas Strip on Sunday.`\
+https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-rachel.html
+
+**Berlin Philharmonic Opens Carnegie Hall Season**\
+`At Carnegie Hall, this orchestra gave gobsmacking performances of the classics. If only it could show some of the creativity it has at home.`\
+https://www.nytimes.com/2026/10/12/arts/music/berlin-philharmonic-carnegie-hall.html
+
 **Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
 `The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
