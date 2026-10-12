@@ -82,8 +82,8 @@ https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-r
 `At Carnegie Hall, this orchestra gave gobsmacking performances of the classics. If only it could show some of the creativity it has at home.`\
 https://www.nytimes.com/2026/10/12/arts/music/berlin-philharmonic-carnegie-hall.html
 
-**What Happens When You Can No Longer Fight a Wildfire?**\
-`This year’s fast moving, virtually irrepressible events are not the seasonal burns of decades past.`\
+**Wildfires Are Unfightable Now**\
+`This year’s fast moving, virtually irrepressible wildfire events are not the seasonal burns of decades past.`\
 https://www.nytimes.com/2026/10/12/opinion/wildfires-firefighters-climate-change.html
 
 **A Skillet Dinner That Checks All the Boxes**\
