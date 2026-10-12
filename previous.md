@@ -1,3 +1,7 @@
+**After Russian Diesel Deal, Trump Faces New Crisis Over Ukraine**\
+`President Trump’s surprise decision to suspend sanctions on Russian diesel fuel stunned Ukrainian and European officials, who were meeting with U.S. envoys at an exclusive golf club near Miami.`\
+https://www.nytimes.com/2026/10/12/world/europe/russia-ukraine-war-us-diesel-deal-negotiations.html
+
 **A Trump Loyalist, a Turkish Investor and a Battle for Wealth and Influence**\
 `A Turkish businessman once allied with the Maduro regime has tied the knot with President Trump’s former personal lawyer, Alina Habba, at the same time he is seeking to retain a big contract in Venezuela.`\
 https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-investor-and-a-battle-for-wealth-and-influence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/opinion/ai-biosecurity.html
 **Valentino’s Alessandro Michele Shares His Influences and Inspirations**\
 `Alessandro Michele, the creative director of Valentino, invites T into his creative world.`\
 https://www.nytimes.com/2026/10/12/t-magazine/alessandro-michele-valentino.html
-
-**America’s Favorite Fruit Is Being Bruised by the Iran War**\
-`The journey of one banana from farm to store shows how the war’s economic effects have cascaded into some surprising industries.`\
-https://www.nytimes.com/2026/10/12/business/economy/bananas-iran-war.html
 

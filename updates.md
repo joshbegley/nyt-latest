@@ -1,3 +1,7 @@
+**After Russian Diesel Deal, Trump Faces New Crisis Over Ukraine**\
+`President Trump’s surprise decision to suspend sanctions on Russian diesel fuel stunned Ukrainian and European officials, who were meeting with U.S. envoys at an exclusive golf club near Miami.`\
+https://www.nytimes.com/2026/10/12/world/europe/russia-ukraine-war-us-diesel-deal-negotiations.html
+
 **A Trump Loyalist, a Turkish Investor and a Battle for Wealth and Influence**\
 `A Turkish businessman once allied with the Maduro regime has tied the knot with President Trump’s former personal lawyer, Alina Habba, at the same time he is seeking to retain a big contract in Venezuela.`\
 https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-investor-and-a-battle-for-wealth-and-influence.html
