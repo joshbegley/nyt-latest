@@ -62,13 +62,13 @@ https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
 `The changes follow the retirement of an officer who was facing a disciplinary trial for the death of 19-year-old Win Rozario in 2024.`\
 https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html
 
-**‘NAZA’ Directors on Why They Won’t Go Back to Israel For Now**\
-`The directors of “NAZA” join Rachel Abrams on “The Daily” to discuss their new documentary on Israeli military conduct in Gaza, which was based on anonymous testimonies from intelligence officers and soldiers. The filmmakers also share the reactions to the film in Israel and why they won’t go back home for now.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011205815/naza-directors-on-why-they-wont-go-back-to-israel-for-now.html
-
 **Growing Threats Against Public Officials, and Trump’s Diesel Deal With Putin**\
 `Plus, how much will holiday travel cost this year?`\
 https://www.nytimes.com/2026/10/12/podcasts/the-headlines/threats-public-officials-trump-putin-diesel.html
+
+**‘NAZA’ Directors on Why They Won’t Go Back to Israel For Now**\
+`The directors of “NAZA” join Rachel Abrams on “The Daily” to discuss their new documentary on Israeli military conduct in Gaza, which was based on anonymous testimonies from intelligence officers and soldiers. The filmmakers also share the reactions to the film in Israel and why they won’t go back home for now.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011205815/naza-directors-on-why-they-wont-go-back-to-israel-for-now.html
 
 **The Israeli Film Directors Pushing for a Reckoning in Their Home Country**\
 `Our interview with the directors of “NAZA.”`\
