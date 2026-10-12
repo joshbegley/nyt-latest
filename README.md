@@ -1,3 +1,7 @@
+**Cornell and Toxic Frat Culture**\
+`A U.S. campus lawsuit points to a global pattern: how male impunity, silence and institutional failure enable sexual violence.`\
+https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
+
 **This Actress Made Complicated Women Compelling**\
 `Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
 https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/us/politics/whos-winning-the-race-for-congres
 **Book Review: ‘Brother of the More Famous Jack,’ by Barbara Trapido**\
 `Her 1982 novel “Brother of the More Famous Jack” is a pocket classic about a young woman who falls in with a raucous family.`\
 https://www.nytimes.com/2026/10/12/books/review/barbara-trapido-brother-of-the-more-famous-jack.html
-
-**Democrats Tie Corruption to High Costs in Final Midterms Push**\
-`Party leaders are working to connect Washington profiteering and the influence of billionaires and corporate America to affordability, in what they hope will be a potent closing message.`\
-https://www.nytimes.com/2026/10/12/us/democrats-midterms-corruption-affordability.html
 
