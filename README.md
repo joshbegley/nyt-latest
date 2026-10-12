@@ -1,3 +1,7 @@
+**‘Breaking Bad’ Actor RJ Mitte Dies at 34**\
+`The actor RJ Mitte, who played Walter White’s son on “Breaking Bad,” died on Monday in Texas at age 34.`\
+https://www.nytimes.com/video/obituaries/100000011209837/breaking-bad-actor-rj-mitte-dies.html
+
 **Republicans Promoted a False Rumor That James Talarico Was in Ohio**\
 `The Democratic nominee for Senate in Texas spent nine days off the trail with what he and his campaign said was a bad case of the flu. His opponents fueled rumors, including one that spread widely before it was debunked.`\
 https://www.nytimes.com/2026/10/12/us/politics/james-talarico-ohio-texas-senate-race.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/12/nyregion/nyc-budgeting-affordabil
 **Crossplay Tips and Tricks to Use Against Your Friends**\
 `Top players share tips and tricks that you can use in your next game.`\
 https://www.nytimes.com/2026/10/12/crosswords/crossplay-tips-and-tricks.html
-
-**With My Father’s Alzheimer’s Progressing, I Learned to See Beyond the Loss**\
-`Making a book of my dad’s train photos shifted my gaze away from all that he was losing.`\
-https://www.nytimes.com/2026/10/12/opinion/alzheimers-elderly-parent.html
 
