@@ -14,13 +14,13 @@ https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-r
 `At Carnegie Hall, this orchestra gave gobsmacking performances of the classics. If only it could show some of the creativity it has at home.`\
 https://www.nytimes.com/2026/10/12/arts/music/berlin-philharmonic-carnegie-hall.html
 
-**A Skillet Dinner That Checks All the Boxes**\
-`This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
-https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
-
 **What Happens When You Can No Longer Fight a Wildfire?**\
 `This year’s fast moving, virtually irrepressible events are not the seasonal burns of decades past.`\
 https://www.nytimes.com/2026/10/12/opinion/wildfires-firefighters-climate-change.html
+
+**A Skillet Dinner That Checks All the Boxes**\
+`This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
+https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
 
 **How American Retirees at Different Incomes Rely on Social Security**\
 `Social Security funds are on track to run short by 2032, which would mean a reduction in benefits. Here’s how four hypothetical households rely on the program in retirement.`\
