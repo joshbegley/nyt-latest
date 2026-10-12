@@ -1,3 +1,7 @@
+**After Lockdown, Sea of Protesters Flows Through India’s Capital**\
+`The raucous demonstrations by opposition groups on Monday followed days of an effective lockdown and mass detentions of young protesters by security forces.`\
+https://www.nytimes.com/2026/10/12/world/asia/india-protests-congress-rahul-gandhi.html
+
 **Post-Tropical Storm Rachel Floods Parts of Las Vegas Strip**\
 `Heavy rain from Post-Tropical Storm Rachel flooded parts of the Las Vegas Strip on Sunday.`\
 https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-rachel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/magazine/cancer-fly-fishing.html
 **Book Review: ‘The Best Kind of American,’ by Kim Ghattas**\
 `In “The Best Kind of American,” Kim Ghattas shows what an American’s assassination in Lebanon four decades ago reveals about chaos in the Middle East.`\
 https://www.nytimes.com/2026/10/12/books/review/the-best-kind-of-american-christopher-de-bellaigue.html
-
-**The Women Most at Risk of A.I. Job Displacement**\
-`At an administrative professionals conference in Nashville, women workers are facing a future where many of their core job functions could be replaced by A.I. The industry is ranked among the most vulnerable to A.I. job loss, and many are racing to adapt to the technology before it can displace them.`\
-https://www.nytimes.com/video/jobs/100000011158704/ai-job-loss-women.html
 
