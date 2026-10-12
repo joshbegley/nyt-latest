@@ -1,4 +1,4 @@
-**Can a Democrat Beat Darline Graham? 5 Takeaways from the South Carolina Senate Debate**\
+**Can a Democrat Beat Darline Graham? 5 Takeaways From the South Carolina Senate Debate**\
 `Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
 https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
 
