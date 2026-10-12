@@ -2,7 +2,7 @@
 `A U.S. campus lawsuit points to a global pattern: how male impunity, silence and institutional failure enable sexual violence.`\
 https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
 
-**This Actress Made Complicated Women Compelling**\
+**Marina Vlady, French Cinema Star of ‘Princesse de Clèves,’ Dies at 88**\
 `Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
 https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
 
