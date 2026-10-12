@@ -1,3 +1,7 @@
+**NATO Details Plan to Shield Ukraine’s European Allies from Russia**\
+`With the Russians intensifying sabotage, arson and cyberattacks against European nations supporting Ukraine, NATO divulged a blueprint, in case of war, to deter the Kremlin.`\
+https://www.nytimes.com/2026/10/12/world/europe/nato-strategy-russia-europe.html
+
 **Meta Unveils New Series of Advanced A.I. Models**\
 `The new models, Muse Wonder and Muse Wonder Full, are meant to compete with cutting-edge A.I. models from rivals like Anthropic and OpenAI.`\
 https://www.nytimes.com/2026/10/12/technology/meta-muse-wonder-full-models.html
