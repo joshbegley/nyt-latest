@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy
 `A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
 https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
 
-**Iran Offers to Mediate Between Its Houthi Allies and Saudi Arabia**\
-`Iran has long backed the Houthis, a Yemeni militia, and it made the offer as Saudi Arabia contends with increasingly deadly attacks from them.`\
+**Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
+`The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
 
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
