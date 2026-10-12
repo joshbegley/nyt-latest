@@ -1,3 +1,7 @@
+**Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
+`Robert E. Hall and Michael Woodford were awarded the prize for insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
+https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
+
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
 `Le Marché des Enfants Rouges, which opened in 1615 as a vibrant produce hall, was a fixture for chefs, cooks and tourists.`\
 https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
