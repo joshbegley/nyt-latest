@@ -1,3 +1,7 @@
+**Israel’s Destruction of Southern Lebanon Intensified After the Cease-Fire**\
+`Much of Israeli-occupied southern Lebanon has been leveled, according to a Times analysis. The majority has been destroyed by Israel since the April truce.`\
+https://www.nytimes.com/interactive/2026/10/12/world/middleeast/israel-lebanon-destruction.html
+
 **Surveillance Footage Shows Moment of Attack on Saudi Airport**\
 `Footage released by Saudi state media showed the moment of a deadly attack on Saturday at an airport in Riyadh, the Saudi capital. The Iran-backed Houthi militia claimed responsibility for the strike.`\
 https://www.nytimes.com/video/world/middleeast/100000011208716/saudi-arabia-houthi-riyadh-airport-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/learning/on-this-day-oct-12.html
 **Federal Judge Bars Trump Administration From Airing Publicly Funded Ads**\
 `A group of liberal organizations sued last week over the ads that praised the administration.`\
 https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.html
-
-**Can a Democrat Beat Darline Graham? 5 Takeaways From the South Carolina Senate Debate**\
-`Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
-https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
 
