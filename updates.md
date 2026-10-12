@@ -1,3 +1,7 @@
+**Executive Action**\
+`We look at a few governors’ races worth watching.`\
+https://www.nytimes.com/2026/10/12/briefing/governors-races.html
+
 **Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
 `Robert E. Hall and Michael Woodford were awarded the prize for their insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
 https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html

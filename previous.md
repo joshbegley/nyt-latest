@@ -1,3 +1,7 @@
+**Executive Action**\
+`We look at a few governors’ races worth watching.`\
+https://www.nytimes.com/2026/10/12/briefing/governors-races.html
+
 **Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
 `Robert E. Hall and Michael Woodford were awarded the prize for their insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
 https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/world/asia/flydubai-attack-suspect-melbourne-
 **Russell Brand’s Rape and Sexual Assault Trial: What to Know**\
 `The YouTuber, comedian and actor’s trial began on Monday. He has pleaded not guilty to all of the charges.`\
 https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
-
-**Large Waves Pound Beachfront Houses in California**\
-`Residents were forced to evacuate over the weekend as large waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif.`\
-https://www.nytimes.com/video/us/100000011208702/ca-long-beach-rachel.html
 
