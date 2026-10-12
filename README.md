@@ -1,3 +1,7 @@
+**NATO Details Plan to Shield Ukraine’s European Allies from Russia**\
+`With the Russians intensifying sabotage, arson and cyberattacks against European nations supporting Ukraine, NATO divulged a blueprint, in case of war, to deter the Kremlin.`\
+https://www.nytimes.com/2026/10/12/world/europe/nato-strategy-russia-europe.html
+
 **Meta Unveils New Series of Advanced A.I. Models**\
 `The new models, Muse Wonder and Muse Wonder Full, are meant to compete with cutting-edge A.I. models from rivals like Anthropic and OpenAI.`\
 https://www.nytimes.com/2026/10/12/technology/meta-muse-wonder-full-models.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/opinion/letters-nyt-175.html
 **Joey Arias and Basil Twist Resurrect Their Trippy ‘Arias With a Twist’**\
 `Joey Arias and Basil Twist have resurrected their trippy 2008 hit, “Arias With a Twist.” Just don’t call it drag.`\
 https://www.nytimes.com/2026/10/12/theater/joey-arias-basil-twist-arias-with-a-twist.html
-
-**5 Horror Movie Locations to Get You in the Halloween Spirit**\
-`Here’s one fan’s guide to visiting some of the genre’s fabled filming locations, from “The Shining” to “Friday the 13th.”`\
-https://www.nytimes.com/2026/10/12/travel/horror-movie-locations-visit-halloween.html
 

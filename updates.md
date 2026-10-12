@@ -1,3 +1,7 @@
+**Meta Unveils New Series of Advanced A.I. Models**\
+`The new models, Muse Wonder and Muse Wonder Full, are meant to compete with cutting-edge A.I. models from rivals like Anthropic and OpenAI.`\
+https://www.nytimes.com/2026/10/12/technology/meta-muse-wonder-full-models.html
+
 **Trump Gives Putin a Hand in Russia’s Economic War With Ukraine**\
 `President Trump is moving to buy Russian diesel while also pressuring Ukraine to halt attacks on refineries, a lifeblood of Moscow’s war machine.`\
 https://www.nytimes.com/2026/10/12/world/europe/russia-diesel-trump.html
