@@ -1,3 +1,7 @@
+**Amsterdam’s Van Gogh Museum Says It Reached Funding Deal and Won’t Have to Close**\
+`In a yearslong dispute, the Amsterdam institution pressed the Dutch government for an increased annual subsidy to pay for what the museum said were vital renovations.`\
+https://www.nytimes.com/2026/10/12/arts/van-gogh-museum-amsterdam-funding.html
+
 **Russell Brand’s Rape and Sexual Assault Trial Begins in London**\
 `Russell Brand, the YouTuber, comedian and actor, appeared in a London court on Monday for the start of a weekslong trial on charges of rape, sexual assault and indecent assault.`\
 https://www.nytimes.com/video/world/europe/100000011209016/russell-brand-trial-london-rape-sexual-assault.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/arts/dance/adrian-danchig-waring-nyc-ballet.h
 **The Crews Harnessing A.I. to Fight Wildfires**\
 `Our reporter, John Branch, joined a team installing cameras in the Sierra Nevada for detecting wildfires. Artificial intelligence is used to sift through images from the network, helping firefighters identify and respond to early to signs of wildfires.`\
 https://www.nytimes.com/video/us/100000011038595/the-crews-harnessing-ai-to-fight-wildfires.html
-
-**John Berger Is Back in Focus Thanks to Reissues, New Biography**\
-`A new biography and a flurry of reissues underline how the prolific author of “Ways of Seeing” continues to be read and embraced.`\
-https://www.nytimes.com/2026/10/12/books/review/john-berger-verso-ways-of-seeing.html
 
