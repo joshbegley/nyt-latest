@@ -1,3 +1,11 @@
+**Meta Debuts New A.I. Models to Compete With Rivals**\
+`On Monday, Meta released two new A.I. models as it tries to catch up with rivals like Anthropic and OpenAI.`\
+https://www.nytimes.com/video/technology/100000011209491/meta-new-ai-models-muse-wonder.html
+
+**An Ad Targeting Susan Collins’s Opponent, Troy Jackson, Airs in the Wrong Portland**\
+`An executive with the Republican super PAC that paid for the ad attacking Mr. Jackson, the Democratic Senate candidate in Maine, blamed its vendor for running the ad in Oregon.`\
+https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
+
 **In Response to Fatal Shooting, Mamdani Unveils N.Y.P.D. Changes**\
 `The accountability measures follow the retirement of an officer who was facing a disciplinary trial for excessive force in the death of 19-year-old Win Rozario in 2024.`\
 https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html

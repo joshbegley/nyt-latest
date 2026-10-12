@@ -1,3 +1,7 @@
+**Meta Debuts New A.I. Models to Compete With Rivals**\
+`On Monday, Meta released two new A.I. models as it tries to catch up with rivals like Anthropic and OpenAI.`\
+https://www.nytimes.com/video/technology/100000011209491/meta-new-ai-models-muse-wonder.html
+
 **Cornell and Toxic Frat Culture**\
 `A U.S. campus lawsuit points to a global pattern: how male impunity, silence and institutional failure enable sexual violence.`\
 https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
 `Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
 https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
 
-**Anti-Troy Jackson Ad Runs in Oregon, Not Maine**\
-`An executive with the Republican super PAC that paid for the ad attacking Mr. Jackson, the Democratic Senate candidate in Maine, blamed its vendor for the mistake.`\
+**An Ad Targeting Susan Collins’s Opponent, Troy Jackson, Airs in the Wrong Portland**\
+`An executive with the Republican super PAC that paid for the ad attacking Mr. Jackson, the Democratic Senate candidate in Maine, blamed its vendor for running the ad in Oregon.`\
 https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
 
 **Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/style/thrifting-vintage-clothing.html
 **Who’s Winning the Race for Congress?**\
 `It’s Oct. 12 — 22 days away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/10/12/us/politics/whos-winning-the-race-for-congress.html
-
-**Book Review: ‘Brother of the More Famous Jack,’ by Barbara Trapido**\
-`Her 1982 novel “Brother of the More Famous Jack” is a pocket classic about a young woman who falls in with a raucous family.`\
-https://www.nytimes.com/2026/10/12/books/review/barbara-trapido-brother-of-the-more-famous-jack.html
 
