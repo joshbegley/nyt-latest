@@ -1,3 +1,7 @@
+**Fugitive in Venezuela Money Laundering Cases to Appear in U.S. Court**\
+`Álvaro Pulido Vargas faces federal charges in Florida related to what prosecutors described as money laundering and bribery schemes. It is not clear when or where he was arrested.`\
+https://www.nytimes.com/2026/10/12/us/venezeula-money-laundering-arrest.html
+
 **The Taliban Are Using Europe’s Fear of Migrants to Their Advantage**\
 `European nations that condemn the Taliban government for its human rights record are seeking its help to deport refugees back to Afghanistan.`\
 https://www.nytimes.com/2026/10/12/world/asia/europe-taliban-deportations-migrants.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/pageoneplus/corrections-oct-11-2026.html
 **Alex Gibney on ‘Musk’ and Why a 4-Hour Film Was Necessary**\
 `The documentarian also talks about trying to interview the trillionaire and the roadblocks the film has run into.`\
 https://www.nytimes.com/2026/10/11/movies/alex-gibney-musk-documentary.html
-
-**A Contagious Aversion to Overhead Lights**\
-`Plus: How far to go for a colleague, and now your chance to give someone advice.`\
-https://www.nytimes.com/2026/10/11/business/office-lighting-work-advice.html
 
