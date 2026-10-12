@@ -1,3 +1,7 @@
+**After Lockdown, Sea of Protesters Flows Through India’s Capital**\
+`The raucous demonstrations by opposition groups on Monday followed days of an effective lockdown and mass detentions of young protesters by security forces.`\
+https://www.nytimes.com/2026/10/12/world/asia/india-protests-congress-rahul-gandhi.html
+
 **Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
 `The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia.html
