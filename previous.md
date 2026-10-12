@@ -52,7 +52,7 @@ https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-marke
 
 **Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
 `The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
-https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
+https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia.html
 
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
 `Le Marché des Enfants Rouges, which opened in 1615 as a vibrant food hall, was a fixture for chefs, cooks and tourists.`\
