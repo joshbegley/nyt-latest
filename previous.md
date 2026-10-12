@@ -1,3 +1,7 @@
+**Kelly Clarkson’s Feud With Art of Play: What to Know**\
+`In an episode involving a famous singer and a purveyor of esoteric toys, everyone has an opinion about who made the big mistake. Big. Huge!`\
+https://www.nytimes.com/2026/10/12/style/kelly-clarkson-brooklyn-store-art-of-play.html
+
 **Amsterdam’s Van Gogh Museum Says It Reached Funding Deal and Won’t Have to Close**\
 `In a yearslong dispute, the Amsterdam institution pressed the Dutch government for an increased annual subsidy to pay for what the museum said were vital renovations.`\
 https://www.nytimes.com/2026/10/12/arts/van-gogh-museum-amsterdam-funding.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/us/california-wildfire-cameras-firefighters.h
 **Adrian Danchig-Waring Bids Farewell to City Ballet After Remarkable Recovery**\
 `Adrian Danchig-Waring wasn’t sure he would walk again after a harrowing illness, but he returned to dance, better than ever. Now the City Ballet principal bids farewell.`\
 https://www.nytimes.com/2026/10/12/arts/dance/adrian-danchig-waring-nyc-ballet.html
-
-**The Crews Harnessing A.I. to Fight Wildfires**\
-`Our reporter, John Branch, joined a team installing cameras in the Sierra Nevada for detecting wildfires. Artificial intelligence is used to sift through images from the network, helping firefighters identify and respond to early to signs of wildfires.`\
-https://www.nytimes.com/video/us/100000011038595/the-crews-harnessing-ai-to-fight-wildfires.html
 

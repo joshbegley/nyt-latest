@@ -1,3 +1,7 @@
+**Kelly Clarkson’s Feud With Art of Play: What to Know**\
+`In an episode involving a famous singer and a purveyor of esoteric toys, everyone has an opinion about who made the big mistake. Big. Huge!`\
+https://www.nytimes.com/2026/10/12/style/kelly-clarkson-brooklyn-store-art-of-play.html
+
 **Amsterdam’s Van Gogh Museum Says It Reached Funding Deal and Won’t Have to Close**\
 `In a yearslong dispute, the Amsterdam institution pressed the Dutch government for an increased annual subsidy to pay for what the museum said were vital renovations.`\
 https://www.nytimes.com/2026/10/12/arts/van-gogh-museum-amsterdam-funding.html
