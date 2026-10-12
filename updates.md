@@ -1,3 +1,7 @@
+**A TikTok Tarot Card Reader Accused Me of Murder. My Life Turned Upside Down.**\
+`If my face and name were not my own, who was I?`\
+https://www.nytimes.com/2026/10/12/opinion/tiktok-tarot-card-murder.html
+
 **Iran Offers to Mediate Between Its Houthi Allies and Saudi Arabia**\
 `Iran has long backed the Houthis, a Yemeni militia, and it made the offer as Saudi Arabia contends with increasingly deadly attacks from them.`\
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html

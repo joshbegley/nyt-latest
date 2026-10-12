@@ -150,7 +150,7 @@ https://www.nytimes.com/video/jobs/100000011158704/ai-job-loss-women.html
 `A documentary claims that Ukraine, not Russia, attacked the drama theater in Mariupol, where hundreds of civilians died.`\
 https://www.nytimes.com/2026/10/12/world/europe/mariupol-theater-russian-documentary-witnesses.html
 
-**A TikTok Tarot Reader Accused Me of Murder. My Reality Unraveled.**\
+**A TikTok Tarot Card Reader Accused Me of Murder. My Life Turned Upside Down.**\
 `If my face and name were not my own, who was I?`\
 https://www.nytimes.com/2026/10/12/opinion/tiktok-tarot-card-murder.html
 
