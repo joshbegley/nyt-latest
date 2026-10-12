@@ -1,3 +1,11 @@
+**This Actress Made Complicated Women Compelling**\
+`Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
+https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
+
+**Anti-Troy Jackson Ad Runs in Oregon, Not Maine**\
+`An executive with the Republican super PAC that paid for the ad attacking Mr. Jackson, the Democratic Senate candidate in Maine, blamed its vendor for the mistake.`\
+https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
+
 **Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
 `The police responded to a call about a “physically abusive passenger” aboard a flight that landed at Kennedy Airport on Sunday night, officials said.`\
 https://www.nytimes.com/2026/10/12/us/selma-blair-arrested.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/books/review/barbara-trapido-brother-of-the-m
 **Democrats Tie Corruption to High Costs in Final Midterms Push**\
 `Party leaders are working to connect Washington profiteering and the influence of billionaires and corporate America to affordability, in what they hope will be a potent closing message.`\
 https://www.nytimes.com/2026/10/12/us/democrats-midterms-corruption-affordability.html
-
-**One Grieving Mother, Two Mariners Tickets and a Season of New Friends**\
-`Rhenda Strub invited strangers to accompany her to Seattle Mariners games this season to help overcome the loneliness of grieving for her son’s death.`\
-https://www.nytimes.com/2026/10/12/us/grieving-mother-seattle-mariners-tickets.html
-
-**Inside Elon Musk’s $276 Million Midterm Rescue Mission for Republicans**\
-`The world’s richest person has quietly become by far the biggest known midterm donor, trying to save Republicans’ Senate majority with some of the largest donations in American political history.`\
-https://www.nytimes.com/2026/10/12/us/politics/elon-musk-midterms.html
 
