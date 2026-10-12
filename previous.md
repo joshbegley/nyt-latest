@@ -1,3 +1,7 @@
+**Large Waves Pound Beachfront Houses in California**\
+`Residents were forced to evacuate over the weekend as large waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif.`\
+https://www.nytimes.com/video/us/100000011208702/ca-long-beach-rachel.html
+
 **What Kim Jones Did Next**\
 `For his next act, Kim Jones, formerly of Louis Vuitton, Fendi and Dior, is starting a namesake collection. It’s a trend.`\
 https://www.nytimes.com/2026/10/12/style/kim-jones-phoebe-philo-tom-ford-new-brand.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/crosswords/connections-companion-1219.html
 **NYT Strands Hints for October 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
 https://www.nytimes.com/2026/10/11/crosswords/strands-sidekick-953.html
-
-**Today’s Wordle Hints for October 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
-https://www.nytimes.com/2026/10/11/crosswords/wordle-review-1941.html
 
