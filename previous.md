@@ -1,3 +1,7 @@
+**Can a Democrat Beat Darline Graham? 5 Takeaways from the South Carolina Senate Debate**\
+`Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
+https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
+
 **Mamdani to Skip Columbus Day Parade. Some Italian Americans Are Glad.**\
 `City Hall confirmed that the mayor would not join Monday’s procession up Fifth Avenue, but would host an Italian American heritage reception soon.`\
 https://www.nytimes.com/2026/10/11/nyregion/mamdani-columbus-day-parade-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000011190982/the-many-mark-zuckerbergs.h
 **Three Mark Zuckerbergs, Three Surprisingly Different Men**\
 `Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive are all playing parts. But only one has changed his approach.`\
 https://www.nytimes.com/2026/10/11/movies/mark-zuckerberg-social-network-reckoning.html
-
-**Republicans Held Onto the Great Plains for Years. Now They’re Nervous.**\
-`Republicans have dominated the center of the country for a quarter-century. Now they face several tough races for Senate and governor.`\
-https://www.nytimes.com/2026/10/11/us/great-plains-elections-nebraska-kansas-governor.html
 

@@ -1,3 +1,7 @@
+**Can a Democrat Beat Darline Graham? 5 Takeaways from the South Carolina Senate Debate**\
+`Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
+https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
+
 **Mamdani to Skip Columbus Day Parade. Some Italian Americans Are Glad.**\
 `City Hall confirmed that the mayor would not join Monday’s procession up Fifth Avenue, but would host an Italian American heritage reception soon.`\
 https://www.nytimes.com/2026/10/11/nyregion/mamdani-columbus-day-parade-nyc.html
