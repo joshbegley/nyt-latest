@@ -1,3 +1,35 @@
+**Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
+`Robert E. Hall and Michael Woodford were awarded the prize for their insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
+https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
+
+**Mamdani Rolls Out Police Reforms Related to Use of Force**\
+`The changes follow the retirement of an officer who was facing a disciplinary trial for the death of 19-year-old Win Rozario in 2024.`\
+https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html
+
+**‘NAZA’ Directors on Why They Won’t Go Back to Israel For Now**\
+`The directors of “NAZA” join Rachel Abrams on “The Daily” to discuss their new documentary on Israeli military conduct in Gaza, which was based on anonymous testimonies from intelligence officers and soldiers. The filmmakers also share the reactions to the film in Israel and why they won’t go back home for now.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011205815/naza-directors-on-why-they-wont-go-back-to-israel-for-now.html
+
+**Growing Threats Against Public Officials, and Trump’s Diesel Deal With Putin**\
+`Plus, how much will holiday travel cost this year?`\
+https://www.nytimes.com/2026/10/12/podcasts/the-headlines/threats-public-officials-trump-putin-diesel.html
+
+**The Israeli Film Directors Pushing for a Reckoning in Their Home Country**\
+`Our interview with the directors of “NAZA.”`\
+https://www.nytimes.com/2026/10/12/podcasts/the-daily/naza-directors-interview.html
+
+**NYT Connections Answers for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/connections-companion-1220.html
+
+**Today’s Wordle Hints for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/wordle-review-1942.html
+
+**NYT Strands Hints for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/strands-sidekick-954.html
+
 **Israel’s Destruction of Southern Lebanon Intensified After the Cease-Fire**\
 `Much of Israeli-occupied southern Lebanon has been leveled, according to a Times analysis. The majority has been destroyed by Israel since the April truce.`\
 https://www.nytimes.com/interactive/2026/10/12/world/middleeast/israel-lebanon-destruction.html

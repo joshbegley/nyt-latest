@@ -1,3 +1,35 @@
+**Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
+`Robert E. Hall and Michael Woodford were awarded the prize for their insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
+https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
+
+**Mamdani Rolls Out Police Reforms Related to Use of Force**\
+`The changes follow the retirement of an officer who was facing a disciplinary trial for the death of 19-year-old Win Rozario in 2024.`\
+https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html
+
+**‘NAZA’ Directors on Why They Won’t Go Back to Israel For Now**\
+`The directors of “NAZA” join Rachel Abrams on “The Daily” to discuss their new documentary on Israeli military conduct in Gaza, which was based on anonymous testimonies from intelligence officers and soldiers. The filmmakers also share the reactions to the film in Israel and why they won’t go back home for now.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011205815/naza-directors-on-why-they-wont-go-back-to-israel-for-now.html
+
+**Growing Threats Against Public Officials, and Trump’s Diesel Deal With Putin**\
+`Plus, how much will holiday travel cost this year?`\
+https://www.nytimes.com/2026/10/12/podcasts/the-headlines/threats-public-officials-trump-putin-diesel.html
+
+**The Israeli Film Directors Pushing for a Reckoning in Their Home Country**\
+`Our interview with the directors of “NAZA.”`\
+https://www.nytimes.com/2026/10/12/podcasts/the-daily/naza-directors-interview.html
+
+**NYT Connections Answers for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/connections-companion-1220.html
+
+**Today’s Wordle Hints for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/wordle-review-1942.html
+
+**NYT Strands Hints for October 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
+https://www.nytimes.com/2026/10/12/crosswords/strands-sidekick-954.html
+
 **Israel’s Destruction of Southern Lebanon Intensified After the Cease-Fire**\
 `Much of Israeli-occupied southern Lebanon has been leveled, according to a Times analysis. The majority has been destroyed by Israel since the April truce.`\
 https://www.nytimes.com/interactive/2026/10/12/world/middleeast/israel-lebanon-destruction.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
 **Large Waves Pound Beachfront Houses in California**\
 `Residents were forced to evacuate over the weekend as large waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif.`\
 https://www.nytimes.com/video/us/100000011208702/ca-long-beach-rachel.html
-
-**What Kim Jones Did Next**\
-`For his next act, Kim Jones, formerly of Louis Vuitton, Fendi and Dior, is starting a namesake collection. It’s a trend.`\
-https://www.nytimes.com/2026/10/12/style/kim-jones-phoebe-philo-tom-ford-new-brand.html
-
-**‘It’s the Identity, Stupid!’: 3 Writers on Europe’s Rising Far Right**\
-`A discussion on the roots of the far-right’s success, its plans for power and what President Trump has to do with it all.`\
-https://www.nytimes.com/2026/10/12/opinion/europe-far-right-trump.html
-
-**‘Below Deck’ and 6 More Shows to Watch on TV This Week**\
-`The reality TV show following the crew on a charter yacht returns for a 13th season. And a new season of “The Diplomat” airs.`\
-https://www.nytimes.com/2026/10/12/arts/television/below-deck-what-to-watch-on-tv-this-week.html
-
-**Fugitive in Venezuela Money Laundering Cases to Appear in U.S. Court**\
-`Álvaro Pulido Vargas faces federal charges in Florida related to what prosecutors described as money laundering and bribery schemes. It is not clear when or where he was arrested.`\
-https://www.nytimes.com/2026/10/12/us/venezeula-money-laundering-arrest.html
-
-**The Taliban Are Using Europe’s Fear of Migrants to Their Advantage**\
-`European nations that condemn the Taliban government for its human rights record are seeking its help to deport refugees back to Afghanistan.`\
-https://www.nytimes.com/2026/10/12/world/asia/europe-taliban-deportations-migrants.html
-
-**Quote of the Day: Young Bass Fishers Seek Out a Big Haul: Money for Tuition**\
-`Quotation of the Day for Monday, October 12, 2026.`\
-https://www.nytimes.com/2026/10/12/pageoneplus/quote-of-the-day-young-bass-fishers-seek-out-a-big-haul-money-for-tuition.html
-
-**On This Day, Oct. 12: In 2000, al-Qaeda Suicide Bombers Attacked the USS Cole**\
-`In 2000, Qaeda suicide bombers attacked the U.S. Navy destroyer Cole while it was refueling in Yemen, killing 17 sailors and wounding 39. The attack foreshadowed 9/11 and exposed U.S. military vulnerability before terrorism became a central American concern.`\
-https://www.nytimes.com/2026/10/12/learning/on-this-day-oct-12.html
-
-**Federal Judge Bars Trump Administration From Airing Publicly Funded Ads**\
-`A group of liberal organizations sued last week over the ads that praised the administration.`\
-https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.html
 
