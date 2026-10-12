@@ -1,3 +1,11 @@
+**Post-Tropical Storm Rachel Floods Parts of Las Vegas Strip**\
+`Heavy rain from Post-Tropical Storm Rachel flooded parts of the Las Vegas Strip on Sunday.`\
+https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-rachel.html
+
+**Berlin Philharmonic Opens Carnegie Hall Season**\
+`At Carnegie Hall, this orchestra gave gobsmacking performances of the classics. If only it could show some of the creativity it has at home.`\
+https://www.nytimes.com/2026/10/12/arts/music/berlin-philharmonic-carnegie-hall.html
+
 **A Skillet Dinner That Checks All the Boxes**\
 `This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
 https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/books/review/the-best-kind-of-american-christ
 **The Women Most at Risk of A.I. Job Displacement**\
 `At an administrative professionals conference in Nashville, women workers are facing a future where many of their core job functions could be replaced by A.I. The industry is ranked among the most vulnerable to A.I. job loss, and many are racing to adapt to the technology before it can displace them.`\
 https://www.nytimes.com/video/jobs/100000011158704/ai-job-loss-women.html
-
-**Russian Film Aims to Rewrite History of Deadly Theater Bombing in Ukraine**\
-`A documentary claims that Ukraine, not Russia, attacked the drama theater in Mariupol, where hundreds of civilians died.`\
-https://www.nytimes.com/2026/10/12/world/europe/mariupol-theater-russian-documentary-witnesses.html
-
-**A TikTok Tarot Card Reader Accused Me of Murder. My Life Turned Upside Down.**\
-`If my face and name were not my own, who was I?`\
-https://www.nytimes.com/2026/10/12/opinion/tiktok-tarot-card-murder.html
 
