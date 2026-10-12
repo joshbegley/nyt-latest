@@ -1,3 +1,7 @@
+**Russell Brand’s Rape and Sexual Assault Trial Begins in London**\
+`Russell Brand, the YouTuber, comedian and actor, appeared in a London court on Monday for the start of a weekslong trial on charges of rape, sexual assault and indecent assault.`\
+https://www.nytimes.com/video/world/europe/100000011209016/russell-brand-trial-london-rape-sexual-assault.html
+
 **The Flawed Search for a Chatbot’s Soul**\
 `Readers discuss a front-page article about assertions that A.I. models could display human behavior and consciousness.`\
 https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011038595/the-crews-harnessing-ai-to-figh
 **John Berger Is Back in Focus Thanks to Reissues, New Biography**\
 `A new biography and a flurry of reissues underline how the prolific author of “Ways of Seeing” continues to be read and embraced.`\
 https://www.nytimes.com/2026/10/12/books/review/john-berger-verso-ways-of-seeing.html
-
-**Is Universal Basic Income the Answer to A.I.-Fueled Job Losses?**\
-`For more than a year, The New York Times followed recipients of universal basic income programs, which Elon Musk and other tech leaders have promoted as a solution to A.I.-fueled job losses.`\
-https://www.nytimes.com/2026/10/12/technology/universal-basic-income-silicon-valley.html
 

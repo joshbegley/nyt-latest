@@ -1,3 +1,7 @@
+**Russell Brand’s Rape and Sexual Assault Trial Begins in London**\
+`Russell Brand, the YouTuber, comedian and actor, appeared in a London court on Monday for the start of a weekslong trial on charges of rape, sexual assault and indecent assault.`\
+https://www.nytimes.com/video/world/europe/100000011209016/russell-brand-trial-london-rape-sexual-assault.html
+
 **The Flawed Search for a Chatbot’s Soul**\
 `Readers discuss a front-page article about assertions that A.I. models could display human behavior and consciousness.`\
 https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
