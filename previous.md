@@ -1,3 +1,7 @@
+**World’s Energy Order Tested Again as Iran War’s Reach Extends Further**\
+`“We are entering an age of prolonged insecurity,” one former U.S. energy official said of what have become chronic threats on the Middle East’s energy core.`\
+https://www.nytimes.com/2026/10/12/business/middle-east-oil-exports-houthi-saudi.html
+
 **How a Book Editor Lives on $74,000 in Carroll Gardens, Brooklyn**\
 `Mo Crist has three family goals, but financing them is a tricky proposition in an expensive city like New York.`\
 https://www.nytimes.com/interactive/2026/10/12/nyregion/nyc-budgeting-affordability-crist.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
 **Mamdani to Skip Columbus Day Parade. Some Italian Americans Are Glad.**\
 `City Hall confirmed that the mayor would not join Monday’s procession up Fifth Avenue, but would host an Italian American heritage reception soon.`\
 https://www.nytimes.com/2026/10/11/nyregion/mamdani-columbus-day-parade-nyc.html
-
-**Waves From Powerful Storm Pound Beach Homes in Southern California**\
-`Waves from Post-Tropical Storm Rachel crashed into beachfront homes in Long Beach, Calif. over the weekend, prompting evacuations.`\
-https://www.nytimes.com/2026/10/11/us/longbeach-homes-storm-surge-rachel.html
 
