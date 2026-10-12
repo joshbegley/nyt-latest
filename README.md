@@ -1,5 +1,5 @@
 **RJ Mitte, Who Played Walter White’s Son on ‘Breaking Bad,’ Dies at 34**\
-`Mitte was born with cerebral palsy and brought his own experience of living with the disability to the role of Walter White Jr. on the Emmy-winning show.`\
+`Mr. Mitte was born with cerebral palsy and brought his own experience of living with the disability to the role of Walter White Jr. on the Emmy-winning show.`\
 https://www.nytimes.com/2026/10/12/arts/television/rj-mitte-dead.html
 
 **Blakeman Launches Graphic Attack on Mamdani in Meeting With Hasidic Jews**\
