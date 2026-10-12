@@ -1,3 +1,7 @@
+**Amsterdam’s Van Gogh Museum Says It Reached Funding Deal and Won’t Have to Close**\
+`In a yearslong dispute, the Amsterdam institution pressed the Dutch government for an increased annual subsidy to pay for what the museum said were vital renovations.`\
+https://www.nytimes.com/2026/10/12/arts/van-gogh-museum-amsterdam-funding.html
+
 **Russell Brand’s Rape and Sexual Assault Trial Begins in London**\
 `Russell Brand, the YouTuber, comedian and actor, appeared in a London court on Monday for the start of a weekslong trial on charges of rape, sexual assault and indecent assault.`\
 https://www.nytimes.com/video/world/europe/100000011209016/russell-brand-trial-london-rape-sexual-assault.html
