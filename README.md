@@ -1,3 +1,7 @@
+**Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
+`Le Marché des Enfants Rouges, which opened in 1615 as a vibrant produce hall, was a fixture for chefs, cooks and tourists.`\
+https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
+
 **Executive Action**\
 `We look at a few governors’ races worth watching.`\
 https://www.nytimes.com/2026/10/12/briefing/governors-races.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/crosswords/spelling-bee-forum.html
 **Investigation Into FlyDubai Attacker Puts Spotlight on an Australian Mosque**\
 `Emirati investigators said the co-pilot accused of attacking a captain on a flight to Israel drifted toward extremism during his time as a student in Australia.`\
 https://www.nytimes.com/2026/10/12/world/asia/flydubai-attack-suspect-melbourne-mosque.html
-
-**Russell Brand’s Rape and Sexual Assault Trial: What to Know**\
-`The YouTuber, comedian and actor’s trial began on Monday. He has pleaded not guilty to all of the charges.`\
-https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
 
