@@ -1,3 +1,15 @@
+**To Flip a G.O.P. House Seat, Cait Conley Leans on Her Military Résumé**\
+`Cait Conley, a Democrat trying to unseat the Republican incumbent Mike Lawler, is hoping that New York voters’ distaste for President Trump will carry her to victory.`\
+https://www.nytimes.com/2026/10/12/nyregion/cait-conley-mike-lawler.html
+
+**NYT Spelling Bee Answers for October 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/12/crosswords/spelling-bee-forum.html
+
+**Investigation into FlyDubai Attacker Puts Spotlight on a Melbourne Mosque**\
+`Emirati investigators said the co-pilot accused of attacking a captain on a flight to Israel drifted toward extremism during his time as a student in Australia.`\
+https://www.nytimes.com/2026/10/12/world/asia/investigation-into-flydubai-attacker-puts-spotlight-on-a-melbourne-mosque.html
+
 **Russell Brand’s Rape and Sexual Assault Trial: What to Know**\
 `The YouTuber, comedian and actor’s trial begins on Monday. He has pleaded not guilty to all of the charges.`\
 https://www.nytimes.com/2026/10/12/arts/russell-brand-trial-what-to-know.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/11/opinion/justice-alito-columbus-statue-trenton
 **Meet Sanyi, the Rooster That United a Hungarian Town**\
 `A Hungarian town, an escaped rooster and the universal longing for freedom.`\
 https://www.nytimes.com/2026/10/11/opinion/hungary-sanyi-rooster-bekescsaba-mayor.html
-
-**Sanyi Kakas (Sanyi the Rooster)**\
-`In the small Hungarian city of Bekescsaba, an unexpected hero has stirred the universal longing for freedom. (He’s a chicken.)`\
-https://www.nytimes.com/video/opinion/100000010887229/sanyi-kakas-sanyi-the-rooster.html
-
-**Celine Dion’s Triumphant Return to the Stage**\
-`After a devastating diagnosis, the superstar makes a thrilling comeback.`\
-https://www.nytimes.com/2026/10/11/podcasts/the-daily/celine-dions-triumphant-return-to-the-stage.html
-
-**NYT Connections Answers for October 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 12, 2026.`\
-https://www.nytimes.com/2026/10/11/crosswords/connections-companion-1219.html
 
