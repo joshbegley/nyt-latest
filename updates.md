@@ -1,3 +1,15 @@
+**Cornell and Toxic Frat Culture**\
+`A U.S. campus lawsuit points to a global pattern: how male impunity, silence and institutional failure enable sexual violence.`\
+https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
+
+**This Actress Made Complicated Women Compelling**\
+`Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
+https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
+
+**Anti-Troy Jackson Ad Runs in Oregon, Not Maine**\
+`An executive with the Republican super PAC that paid for the ad attacking Mr. Jackson, the Democratic Senate candidate in Maine, blamed its vendor for the mistake.`\
+https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
+
 **Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
 `The police responded to a call about a “physically abusive passenger” aboard a flight that landed at Kennedy Airport on Sunday night, officials said.`\
 https://www.nytimes.com/2026/10/12/us/selma-blair-arrested.html
