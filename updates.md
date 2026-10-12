@@ -1,3 +1,7 @@
+**Europeans Have a Love-Hate Relationship With Chinese Cars**\
+`Consumers across the continent increasingly want to buy low-cost Chinese vehicles. Policymakers are seeking to slow them down.`\
+https://www.nytimes.com/2026/10/12/business/europe-china-evs-hybrids.html
+
 **Federal Agents Search Home of Rep. Ilhan Omar**\
 `The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
 https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
