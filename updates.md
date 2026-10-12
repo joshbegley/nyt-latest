@@ -1,3 +1,7 @@
+**Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
+`Le Marché des Enfants Rouges, which opened in 1615 as a vibrant produce hall, was a fixture for chefs, cooks and tourists.`\
+https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
+
 **Executive Action**\
 `We look at a few governors’ races worth watching.`\
 https://www.nytimes.com/2026/10/12/briefing/governors-races.html
