@@ -122,13 +122,13 @@ https://www.nytimes.com/2026/10/12/business/economy/bananas-iran-war.html
 `Letters from our readers: Giving editors an earful for 175 years.`\
 https://www.nytimes.com/2026/10/12/opinion/letters-nyt-175.html
 
-**5 Horror Movie Locations to Get You in the Halloween Spirit**\
-`Here’s one fan’s guide to visiting some of the genre’s fabled filming locations, from “The Shining” to “Friday the 13th.”`\
-https://www.nytimes.com/2026/10/12/travel/5-horror-movie-locations-to-get-you-in-the-halloween-spirit.html
-
 **Joey Arias and Basil Twist Resurrect Their Trippy ‘Arias With a Twist’**\
 `Joey Arias and Basil Twist have resurrected their trippy 2008 hit, “Arias With a Twist.” Just don’t call it drag.`\
 https://www.nytimes.com/2026/10/12/theater/joey-arias-basil-twist-arias-with-a-twist.html
+
+**5 Horror Movie Locations to Get You in the Halloween Spirit**\
+`Here’s one fan’s guide to visiting some of the genre’s fabled filming locations, from “The Shining” to “Friday the 13th.”`\
+https://www.nytimes.com/2026/10/12/travel/horror-movie-locations-visit-halloween.html
 
 **I Never Saw Myself as a ‘Cancer Patient’ — Until I Went Fishing With 10 of Them**\
 `As fly fishing became less like a hobby and more like a lifeline, could a retreat help ease my emotional burden?`\
