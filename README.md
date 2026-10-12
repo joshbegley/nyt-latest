@@ -1,3 +1,7 @@
+**Europeans Have a Love-Hate Relationship With Chinese Cars**\
+`Consumers across the continent increasingly want to buy low-cost Chinese vehicles. Policymakers are seeking to slow them down.`\
+https://www.nytimes.com/2026/10/12/business/europe-china-evs-hybrids.html
+
 **Federal Agents Search Home of Rep. Ilhan Omar**\
 `The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
 https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/science/cuttlefish-brain-camouflage.html
 **Kier Gaines Isn’t Your Textbook Therapist. He Likes It That Way.**\
 `He’s pushing his millions of online followers to be more vulnerable, using himself as an example.`\
 https://www.nytimes.com/2026/10/12/well/mind/kier-gaines-therapy-black-men.html
-
-**Firefighters Install Cameras to Monitor Wildfire Activity Across California**\
-`A roving crew of California firefighters is installing cameras in some of the highest, craggiest sites in the state — all to get an early warning of a potentially deadly blaze.`\
-https://www.nytimes.com/2026/10/12/us/california-wildfire-cameras-firefighters.html
 

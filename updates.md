@@ -1,3 +1,7 @@
+**Federal Agents Search Home of Rep. Ilhan Omar**\
+`The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
+https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
+
 **Homeland Security Agents Search Home of Rep. Ilhan Omar**\
 `The search takes places within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
 https://www.nytimes.com/2026/10/12/us/politics/homeland-security-agents-search-home-of-rep-ilhan-omar.html
