@@ -1,3 +1,7 @@
+**The Softest, Most Stylish Men’s Flannel Shirts**\
+`Versatile, colorful and great for layering when temperatures cool, these are the shirts you’ll reach for all season.`\
+https://www.nytimes.com/2026/10/12/t-magazine/best-mens-flannel-shirts.html
+
 **NATO Details Plan to Shield Ukraine’s European Allies from Russia**\
 `With the Russians intensifying sabotage, arson and cyberattacks against European nations supporting Ukraine, NATO divulged a blueprint, in case of war, to deter the Kremlin.`\
 https://www.nytimes.com/2026/10/12/world/europe/nato-strategy-russia-europe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/business/economy/bananas-iran-war.html
 **Since 1851, the Art of the Complaint**\
 `Letters from our readers: Giving editors an earful for 175 years.`\
 https://www.nytimes.com/2026/10/12/opinion/letters-nyt-175.html
-
-**Joey Arias and Basil Twist Resurrect Their Trippy ‘Arias With a Twist’**\
-`Joey Arias and Basil Twist have resurrected their trippy 2008 hit, “Arias With a Twist.” Just don’t call it drag.`\
-https://www.nytimes.com/2026/10/12/theater/joey-arias-basil-twist-arias-with-a-twist.html
 
