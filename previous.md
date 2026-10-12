@@ -1,3 +1,7 @@
+**Strikes Put Saudi Arabia’s Economy Under Pressure**\
+`Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
+https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
+
 **Fire in Paris Devastates City’s Oldest Covered Food Market**\
 `A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
 https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/technology/universal-basic-income-silicon-val
 **How Healthy Is Seaweed?**\
 `The sushi staple is uniquely nutritious, fresh or dried.`\
 https://www.nytimes.com/2026/10/12/well/eat/seaweed-health-benefits-recipes.html
-
-**To Flip a G.O.P. House Seat, Cait Conley Leans on Her Military Résumé**\
-`Cait Conley, a Democrat trying to unseat the Republican incumbent Mike Lawler, is hoping that New York voters’ distaste for President Trump will carry her to victory.`\
-https://www.nytimes.com/2026/10/12/nyregion/cait-conley-mike-lawler.html
 

@@ -1,3 +1,7 @@
+**Strikes Put Saudi Arabia’s Economy Under Pressure**\
+`Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
+https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
+
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
 `Le Marché des Enfants Rouges, which opened in 1615 as a vibrant food hall, was a fixture for chefs, cooks and tourists.`\
 https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
