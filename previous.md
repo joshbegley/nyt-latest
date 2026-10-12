@@ -1,3 +1,15 @@
+**The Taliban Are Using Europe’s Fear of Migrants to Their Advantage**\
+`European nations that condemn the Taliban government for its human rights record are seeking its help to deport refugees back to Afghanistan.`\
+https://www.nytimes.com/2026/10/12/world/asia/europe-taliban-deportations-migrants.html
+
+**Quote of the Day: Young Bass Fishers Seek Out a Big Haul: Money for Tuition**\
+`Quotation of the Day for Monday, October 12, 2026.`\
+https://www.nytimes.com/2026/10/12/pageoneplus/quote-of-the-day-young-bass-fishers-seek-out-a-big-haul-money-for-tuition.html
+
+**On This Day, Oct. 12: In 2000, al-Qaeda Suicide Bombers Attacked the USS Cole**\
+`In 2000, Qaeda suicide bombers attacked the U.S. Navy destroyer Cole while it was refueling in Yemen, killing 17 sailors and wounding 39. The attack foreshadowed 9/11 and exposed U.S. military vulnerability before terrorism became a central American concern.`\
+https://www.nytimes.com/2026/10/12/learning/on-this-day-oct-12.html
+
 **Federal Judge Bars Trump Administration From Airing Publicly Funded Ads**\
 `A group of liberal organizations sued last week over the ads that praised the administration.`\
 https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/11/movies/alex-gibney-musk-documentary.html
 **A Contagious Aversion to Overhead Lights**\
 `Plus: How far to go for a colleague, and now your chance to give someone advice.`\
 https://www.nytimes.com/2026/10/11/business/office-lighting-work-advice.html
-
-**How the White House Manufactured a Narrative About a Trump Aide’s Call Logs**\
-`A release of selected records from the classified documents inquiry is a case study in how omitting context can create political ammunition.`\
-https://www.nytimes.com/2026/10/11/us/politics/white-house-manufactured-narrative-solomon.html
-
-**Wringing Hope From the Rubble of Gaza**\
-`The cease-fire last October ostensibly brought an end to Israel’s war in Gaza after the Hamas-led attacks on Oct. 7, 2023. A year later, however, Israeli strikes, though less frequent, haven’t stopped.`\
-https://www.nytimes.com/2026/10/11/world/middleeast/wringing-hope-from-the-rubble-of-gaza.html
-
-**The Many Mark Zuckerbergs**\
-`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive Mark Zuckerberg are all playing parts. Our movie critic Alissa Wilkinson breaks down how each man relates to the others.`\
-https://www.nytimes.com/video/movies/100000011190982/the-many-mark-zuckerbergs.html
 

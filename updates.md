@@ -1,3 +1,15 @@
+**The Taliban Are Using Europe’s Fear of Migrants to Their Advantage**\
+`European nations that condemn the Taliban government for its human rights record are seeking its help to deport refugees back to Afghanistan.`\
+https://www.nytimes.com/2026/10/12/world/asia/europe-taliban-deportations-migrants.html
+
+**Quote of the Day: Young Bass Fishers Seek Out a Big Haul: Money for Tuition**\
+`Quotation of the Day for Monday, October 12, 2026.`\
+https://www.nytimes.com/2026/10/12/pageoneplus/quote-of-the-day-young-bass-fishers-seek-out-a-big-haul-money-for-tuition.html
+
+**On This Day, Oct. 12: In 2000, al-Qaeda Suicide Bombers Attacked the USS Cole**\
+`In 2000, Qaeda suicide bombers attacked the U.S. Navy destroyer Cole while it was refueling in Yemen, killing 17 sailors and wounding 39. The attack foreshadowed 9/11 and exposed U.S. military vulnerability before terrorism became a central American concern.`\
+https://www.nytimes.com/2026/10/12/learning/on-this-day-oct-12.html
+
 **Federal Judge Bars Trump Administration From Airing Publicly Funded Ads**\
 `A group of liberal organizations sued last week over the ads that praised the administration.`\
 https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.html
