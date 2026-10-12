@@ -1,3 +1,7 @@
+**The Flawed Search for a Chatbot’s Soul**\
+`Readers discuss a front-page article about assertions that A.I. models could display human behavior and consciousness.`\
+https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
+
 **Strikes Put Saudi Arabia’s Economy Under Pressure**\
 `Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
 https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
