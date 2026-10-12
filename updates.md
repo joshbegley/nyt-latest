@@ -1,3 +1,7 @@
+**Trump Gives Putin a Hand in Russia’s Economic War With Ukraine**\
+`President Trump is moving to buy Russian diesel while also pressuring Ukraine to halt attacks on refineries, a lifeblood of Moscow’s war machine.`\
+https://www.nytimes.com/2026/10/12/world/europe/russia-diesel-trump.html
+
 **After Lockdown, Sea of Protesters Flows Through India’s Capital**\
 `The raucous demonstrations by opposition groups on Monday followed days of an effective lockdown and mass detentions of young protesters by security forces.`\
 https://www.nytimes.com/2026/10/12/world/asia/india-protests-congress-rahul-gandhi.html
