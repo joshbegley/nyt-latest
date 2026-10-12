@@ -1,3 +1,11 @@
+**Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
+`The police responded to a call about a “physically abusive passenger” aboard a flight that landed at Kennedy Airport on Sunday night, officials said.`\
+https://www.nytimes.com/2026/10/12/us/selma-blair-arrested.html
+
+**Federal Agents Search Ilhan Omar’s Home**\
+`On Monday, homeland security officials executed a search warrant at the Washington-area home of Representative Ilhan Omar, Democrat of Minnesota, according to three people briefed on the matter.`\
+https://www.nytimes.com/video/us/politics/100000011209163/ilhan-omar-home-search-homeland-security.html
+
 **Dan Levy Condemns Shane Gillis’s ‘S.N.L.’ Monologue**\
 `“I’m speechless that something like that can exist on live national television,” the actor Dan Levy said on Instagram in a reaction to the comic’s jokes about women.`\
 https://www.nytimes.com/2026/10/12/arts/television/dan-levy-shane-gillis-snl-monologue.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-invest
 `Versatile, colorful and great for layering when temperatures cool, these are the shirts you’ll reach for all season.`\
 https://www.nytimes.com/2026/10/12/t-magazine/best-mens-flannel-shirts.html
 
-**NATO Details Plan to Shield Ukraine’s European Allies from Russia**\
+**NATO Details Plan to Shield Ukraine’s European Allies From Russia**\
 `With the Russians intensifying sabotage, arson and cyberattacks against European nations supporting Ukraine, NATO divulged a blueprint, in case of war, to deter the Kremlin.`\
 https://www.nytimes.com/2026/10/12/world/europe/nato-strategy-russia-europe.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/us/grieving-mother-seattle-mariners-tickets.h
 **Inside Elon Musk’s $276 Million Midterm Rescue Mission for Republicans**\
 `The world’s richest person has quietly become by far the biggest known midterm donor, trying to save Republicans’ Senate majority with some of the largest donations in American political history.`\
 https://www.nytimes.com/2026/10/12/us/politics/elon-musk-midterms.html
-
-**In Italy, a Townhouse Where Polished Gives Way to Ragged and Raw**\
-`An architect laid bare the imperfections of his home renovation to fully reveal the building, and leave room for later inspiration.`\
-https://www.nytimes.com/2026/10/12/realestate/in-italy-a-townhouse-where-polished-gives-way-to-ragged-and-raw.html
-
-**Is Cameron Winter Serious?**\
-`A new live solo album and concert film by Paul Thomas Anderson document the droll, and divisive, charms of the singer-songwriter and frontman of the band Geese.`\
-https://www.nytimes.com/2026/10/12/arts/music/cameron-winter-live-at-carnegie-hall.html
 
