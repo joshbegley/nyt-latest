@@ -1,3 +1,7 @@
+**Federal Judge Bars Trump Administration From Airing Publicly Funded Ads**\
+`A group of liberal organizations sued last week over the ads that praised the administration.`\
+https://www.nytimes.com/2026/10/11/us/politics/judge-bars-trump-taxpayer-ads.html
+
 **Can a Democrat Beat Darline Graham? 5 Takeaways From the South Carolina Senate Debate**\
 `Dr. Annie Andrews, the Democratic challenger, accused Senator Darline Graham of taking her cues from President Trump. Ms. Graham said Dr. Andrews wouldn’t say no to socialists.`\
 https://www.nytimes.com/2026/10/11/us/south-carolina-senate-debate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/11/world/middleeast/wringing-hope-from-the-rubbl
 **The Many Mark Zuckerbergs**\
 `Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive Mark Zuckerberg are all playing parts. Our movie critic Alissa Wilkinson breaks down how each man relates to the others.`\
 https://www.nytimes.com/video/movies/100000011190982/the-many-mark-zuckerbergs.html
-
-**Three Mark Zuckerbergs, Three Surprisingly Different Men**\
-`Jeremy Strong in “The Social Reckoning,” Jesse Eisenberg in “The Social Network” and the real Meta executive are all playing parts. But only one has changed his approach.`\
-https://www.nytimes.com/2026/10/11/movies/mark-zuckerberg-social-network-reckoning.html
 
