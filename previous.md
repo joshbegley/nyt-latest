@@ -1,3 +1,7 @@
+**A Trump Loyalist, a Turkish Investor and a Battle for Wealth and Influence**\
+`A Turkish businessman once allied with the Maduro regime has tied the knot with President Trump’s former personal lawyer, Alina Habba, at the same time he is seeking to retain a big contract in Venezuela.`\
+https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-investor-and-a-battle-for-wealth-and-influence.html
+
 **The Softest, Most Stylish Men’s Flannel Shirts**\
 `Versatile, colorful and great for layering when temperatures cool, these are the shirts you’ll reach for all season.`\
 https://www.nytimes.com/2026/10/12/t-magazine/best-mens-flannel-shirts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/t-magazine/alessandro-michele-valentino.html
 **America’s Favorite Fruit Is Being Bruised by the Iran War**\
 `The journey of one banana from farm to store shows how the war’s economic effects have cascaded into some surprising industries.`\
 https://www.nytimes.com/2026/10/12/business/economy/bananas-iran-war.html
-
-**Since 1851, the Art of the Complaint**\
-`Letters from our readers: Giving editors an earful for 175 years.`\
-https://www.nytimes.com/2026/10/12/opinion/letters-nyt-175.html
 

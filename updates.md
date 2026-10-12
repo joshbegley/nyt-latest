@@ -1,3 +1,7 @@
+**A Trump Loyalist, a Turkish Investor and a Battle for Wealth and Influence**\
+`A Turkish businessman once allied with the Maduro regime has tied the knot with President Trump’s former personal lawyer, Alina Habba, at the same time he is seeking to retain a big contract in Venezuela.`\
+https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-investor-and-a-battle-for-wealth-and-influence.html
+
 **The Softest, Most Stylish Men’s Flannel Shirts**\
 `Versatile, colorful and great for layering when temperatures cool, these are the shirts you’ll reach for all season.`\
 https://www.nytimes.com/2026/10/12/t-magazine/best-mens-flannel-shirts.html
