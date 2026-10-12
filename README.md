@@ -7,7 +7,7 @@ https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-marke
 https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia-mediate.html
 
 **Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
-`Le Marché des Enfants Rouges, which opened in 1615 as a vibrant produce hall, was a fixture for chefs, cooks and tourists.`\
+`Le Marché des Enfants Rouges, which opened in 1615 as a vibrant food hall, was a fixture for chefs, cooks and tourists.`\
 https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
 
 **Executive Action**\
