@@ -1,3 +1,7 @@
+**Fire in Paris Devastates City’s Oldest Covered Food Market**\
+`A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
+https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
+
 **A TikTok Tarot Card Reader Accused Me of Murder. My Life Turned Upside Down.**\
 `If my face and name were not my own, who was I?`\
 https://www.nytimes.com/2026/10/12/opinion/tiktok-tarot-card-murder.html
