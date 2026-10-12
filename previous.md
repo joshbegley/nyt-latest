@@ -1,3 +1,11 @@
+**A Skillet Dinner That Checks All the Boxes**\
+`This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
+https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
+
+**What Happens When You Can No Longer Fight a Wildfire?**\
+`This year’s fast moving, virtually irrepressible events are not the seasonal burns of decades past.`\
+https://www.nytimes.com/2026/10/12/opinion/wildfires-firefighters-climate-change.html
+
 **How American Retirees at Different Incomes Rely on Social Security**\
 `Social Security funds are on track to run short by 2032, which would mean a reduction in benefits. Here’s how four hypothetical households rely on the program in retirement.`\
 https://www.nytimes.com/2026/10/12/business/social-security-income-retirement-benefits.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/world/europe/mariupol-theater-russian-documen
 **A TikTok Tarot Card Reader Accused Me of Murder. My Life Turned Upside Down.**\
 `If my face and name were not my own, who was I?`\
 https://www.nytimes.com/2026/10/12/opinion/tiktok-tarot-card-murder.html
-
-**Book Review: ‘Luna, Phoenix, Queen,’ by Julie Orringer**\
-`In Julie Orringer’s novel “Luna, Phoenix, Queen,” a husband discovers his ailing wife’s secret, steamy manuscript — and co-opts it as his own.`\
-https://www.nytimes.com/2026/10/12/books/review/luna-phoenix-queen-julie-orringer.html
-
-**How Do Cuttlefish Hide? Scientists Search for the Secret to Camouflage.**\
-`Cephalopods are masters of camouflage. Scientists want to decipher how the process works in the brain.`\
-https://www.nytimes.com/2026/10/12/science/cuttlefish-brain-camouflage.html
 
