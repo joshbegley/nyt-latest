@@ -1,3 +1,7 @@
+**Judge Orders Trump Administration to Answer for Tree Removals at D.C. Golf Course**\
+`During a four-hour hearing, a federal judge demanded answers from the Trump administration about who authorized the removal of hundreds of trees at the East Potomac Golf Links.`\
+https://www.nytimes.com/2026/10/12/us/politics/judge-trees-golf-trump.html
+
 **Protesters in India Call for Resignation of Election Commissioner**\
 `Thousands of protesters took to the streets of central New Delhi to demand an investigation into the proceedings of the election commission.`\
 https://www.nytimes.com/video/world/asia/100000011209220/india-protests-elections-narendra-modi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/arts/music/cameron-winter-live-at-carnegie-ha
 **A Trove of Truman Capote’s Possessions Is Up for Auction**\
 `Four decades after his death, a revealing trove of the author’s possessions is up for auction.`\
 https://www.nytimes.com/2026/10/12/t-magazine/truman-capote-possessions-auction.html
-
-**He Helped Discover Ebola 50 Years Ago. He’s Still Worried.**\
-`In an interview, Dr. Peter Piot recalled when he first saw the spindly virus under a microscope and reflected on a five-decade career spent fighting two deadly pathogens.`\
-https://www.nytimes.com/2026/10/12/us/politics/peter-piot-ebola-hiv.html
 
