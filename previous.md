@@ -130,8 +130,8 @@ https://www.nytimes.com/2026/10/12/briefing/governors-races.html
 `Robert E. Hall and Michael Woodford were awarded the prize for insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
 https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
 
-**Mamdani Rolls Out Police Reforms Related to Use of Force**\
-`The changes follow the retirement of an officer who was facing a disciplinary trial for the death of 19-year-old Win Rozario in 2024.`\
+**In Response to Fatal Shooting, Mamdani Unveils N.Y.P.D. Changes**\
+`The accountability measures follow the retirement of an officer who was facing a disciplinary trial for excessive force in the death of 19-year-old Win Rozario in 2024.`\
 https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html
 
 **Growing Threats Against Public Officials, and Trump’s Diesel Deal With Putin**\
