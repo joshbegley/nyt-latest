@@ -1,3 +1,23 @@
+**This Copper Mine Led to a Civil War. Can Reopening It Fund a New Nation?**\
+`Rising demand for copper has fueled interest in Bougainville’s Panguna mine, which has been shut for four decades. Yet some fear a rush to reopen risks return to violence.`\
+https://www.nytimes.com/2026/10/13/world/asia/bougainville-island-panguna-mine-pollution-reopening.html
+
+**Quote of the Day: NATO Details Plan to Shield Ukraine’s European Allies From Russia**\
+`Quotation of the Day for Tuesday, October 13, 2026.`\
+https://www.nytimes.com/2026/10/13/pageoneplus/quote-of-the-day-nato-details-plan-to-shield-ukraines-european-allies-from-russia.html
+
+**Macron Dreamed of Reviving France, but His Term Is Ending in Crisis**\
+`Nearly a decade after his first election as president, Emmanuel Macron is presiding over a tense country sliding toward the fiscal brink.`\
+https://www.nytimes.com/2026/10/13/world/europe/macron-france-protests.html
+
+**FIFA Pays Millions for Trump Tower Office Said to Be Rarely Used**\
+`The deal is another sign of how Gianni Infantino, the leader of soccer’s global governing body, has sought closer ties to President Trump.`\
+https://www.nytimes.com/2026/10/13/world/europe/fifa-trump-tower-infantino.html
+
+**On This Day, Oct. 13: In 2010, 33 Chilean miners were rescued.**\
+`In 2010, 33 Chilean miners trapped in a San José mine were rescued after spending 69 days underground. The dramatic, globally televised rescue turned the miners’ survival into a worldwide symbol of hope.`\
+https://www.nytimes.com/2026/10/13/learning/on-this-day-oct-13.html
+
 **Why Chinese College Grads Are Becoming Farmers**\
 `Facing a competitive job market, college graduates in China are trading corporate jobs for farming, equipped with smartphones and tech skills.`\
 https://www.nytimes.com/video/world/asia/100000011189303/china-young-people-new-farmer.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants
 **Executive Action**\
 `We look at a few governors’ races worth watching.`\
 https://www.nytimes.com/2026/10/12/briefing/governors-races.html
-
-**Robert E. Hall and Michael Woodford Awarded Nobel for Economics**\
-`Robert E. Hall and Michael Woodford were awarded the prize for insights that helped policymakers become “better equipped to deal with shocks in the economy,” the committee said.`\
-https://www.nytimes.com/2026/10/12/business/nobel-prize-economics.html
-
-**In Response to Fatal Shooting, Mamdani Unveils N.Y.P.D. Changes**\
-`The accountability measures follow the retirement of an officer who was facing a disciplinary trial for excessive force in the death of 19-year-old Win Rozario in 2024.`\
-https://www.nytimes.com/2026/10/12/nyregion/mamdani-nypd-reforms-force.html
-
-**Growing Threats Against Public Officials, and Trump’s Diesel Deal With Putin**\
-`Plus, how much will holiday travel cost this year?`\
-https://www.nytimes.com/2026/10/12/podcasts/the-headlines/threats-public-officials-trump-putin-diesel.html
-
-**‘NAZA’ Directors on Why They Won’t Go Back to Israel For Now**\
-`The directors of “NAZA” join Rachel Abrams on “The Daily” to discuss their new documentary on Israeli military conduct in Gaza, which was based on anonymous testimonies from intelligence officers and soldiers. The filmmakers also share the reactions to the film in Israel and why they won’t go back home for now.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011205815/naza-directors-on-why-they-wont-go-back-to-israel-for-now.html
-
-**The Israeli Film Directors Pushing for a Reckoning in Their Home Country**\
-`Our interview with the directors of “NAZA.”`\
-https://www.nytimes.com/2026/10/12/podcasts/the-daily/naza-directors-interview.html
 
