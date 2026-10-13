@@ -1,3 +1,7 @@
+**Higher Interest Rates Take Bite Out of JPMorgan’s Profits**\
+`After banner stretch, the bank released surprisingly spotty earnings results for the third quarter. Its rival Goldman Sachs posted better-than-expected results.`\
+https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
+
 **Zelensky Comment Raises Fear That U.S. Is Cutting Intelligence Sharing**\
 `The Ukrainian leader said Kyiv had no early warning from its Western partners before a Russian ballistic missile attack. But some such attacks do go undetected.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/realestate/hb-studio-to-say-goodbye-to-its-lo
 **Bunion Pain? How to Find Relief and When to Consider Surgery**\
 `We asked experts what you can do to manage the discomfort and when to consider surgery.`\
 https://www.nytimes.com/2026/10/13/well/move/bunions-pain-treatment-surgery.html
-
-**They Came to Russia for Work. Now They Are Under Fire.**\
-`Ukrainian strikes on oil refineries and warehouses have led to casualties among the foreigners easing Russia’s labor shortage.`\
-https://www.nytimes.com/2026/10/13/world/europe/russia-migrant-workers-killed.html
 
