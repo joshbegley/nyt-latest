@@ -1,3 +1,7 @@
+**Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
+`The Iran-backed militia threatened to attack the Saudi energy giant Aramco, which it has done before, after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
+https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
+
 **Hackers Target Supermarket Refrigerators in France**\
 `Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
 https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
