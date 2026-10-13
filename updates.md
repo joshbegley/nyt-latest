@@ -1,3 +1,11 @@
+**Pope Leo Prepares for Surgery to Remove Lung Nodule**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
+**Bulgaria Summons Russian Ambassador After More Black Sea Drone Strikes**\
+`Drones struck two ships off Bulgaria’s Black Sea coast, according to the country’s prime minister.`\
+https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
+
 **Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
 `It was not immediately clear what had prompted the alert, which halted flights at the Albrecht Dürer Airport.`\
 https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
