@@ -1,3 +1,11 @@
+**Pope Leo Prepares for Surgery to Remove Lung Nodule**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
+**Bulgaria Summons Russian Ambassador After More Black Sea Drone Strikes**\
+`Drones struck two ships off Bulgaria’s Black Sea coast, according to the country’s prime minister.`\
+https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
+
 **Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
 `It was not immediately clear what had prompted the alert, which halted flights at the Albrecht Dürer Airport.`\
 https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/13/opinion/homelessness-unhoused-denver-shelters
 **How Two Crypto Billionaires Are Making British Politics More American**\
 `A pair of low-profile entrepreneurs gave $100 million to Nigel Farage’s Reform U.K. Party. The system may never be the same.`\
 https://www.nytimes.com/2026/10/13/business/nigel-farage-crypto-uk-politics.html
-
-**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
-`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
-https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
-
-**There’s Worlds Out There More Habitable Than Earth**\
-`Scientists believe there are planets outside our solar system where life is even more abundant and sustainable.`\
-https://www.nytimes.com/2026/10/13/science/inhabitable-planets-solar-system.html
 
