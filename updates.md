@@ -1,3 +1,7 @@
+**Tupac Shakur Murder Conviction Lands Man 40 Years to Life in Prison**\
+`Duane Keith Davis was convicted by a jury of obtaining a gun and pursuing the rapper in a violent act of revenge in 1996.`\
+https://www.nytimes.com/2026/10/13/arts/music/tupac-shakur-murder-duane-keith-davis-sentenced.html
+
 **Cabagges World’s Favorite New York City Restaurants**\
 `Anna Archibald and Kevin Serai, the couple behind the popular home cooking and lifestyle account, tackle our restaurant questionnaire.`\
 https://www.nytimes.com/2026/10/13/dining/cabagges-world.html
