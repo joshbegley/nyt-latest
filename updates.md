@@ -1,3 +1,7 @@
+**Trump Aids Putin, Feuds With Ukraine**\
+`Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
+
 **Maps: Tracking Tropical Storm Trudy**\
 `See the likely path and wind arrival times for Trudy`\
 https://www.nytimes.com/interactive/2026/10/13/weather/trudy-map-path-tracker.html

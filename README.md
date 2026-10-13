@@ -1,3 +1,11 @@
+**How Elon Musk’s Money Is Shaping Republicans’ Midterms Strategy**\
+`A quarter-billion dollars to help Republicans hold Congress.`\
+https://www.nytimes.com/2026/10/13/us/politics/elon-musk-republicans-spending.html
+
+**Justice Dept. Issues Subpoenas in Ilhan Omar Investigation**\
+`After years of investigation, the Justice Department appears to be intensifying a criminal inquiry into the immigration history of Ilhan Omar, a Minnesota Democrat, and her family.`\
+https://www.nytimes.com/2026/10/13/us/politics/justice-dept-ilhan-omar-subpoenas.html
+
 **Maps: Tracking Tropical Storm Trudy**\
 `See the likely path and wind arrival times for Trudy`\
 https://www.nytimes.com/interactive/2026/10/13/weather/trudy-map-path-tracker.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/13/nyregion/nj-transit-path-disruption-portal-br
 **Free Money**\
 `We look at an experimental program.`\
 https://www.nytimes.com/2026/10/13/briefing/free-money.html
-
-**You have politics questions. We answer them.**\
-`(No description)`\
-https://www.nytimes.com/2026/10/13/us/you-have-politics-questions-we-answer-them.html
-
-**Trump Hands Victories to Putin, Who Offers More War in Return**\
-`Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
-https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
 
