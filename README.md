@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 `JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
 
-**Zelensky Comment Raises Fears Over U.S. Intelligence Sharing**\
-`The Ukrainian leader said Kyiv received no early warning before a Russian ballistic missile attack. President Trump said the U.S. continued to share intelligence.`\
+**U.S. Still Shares Intelligence With Ukraine, Both Say, Amid Fears It Could Stop**\
+`President Volodymyr Zelensky said Kyiv had received no early warning of a Russian missile attack, after an apparent U.S. threat to halt intelligence sharing, but officials say the sharing continues.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
 
 **MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
