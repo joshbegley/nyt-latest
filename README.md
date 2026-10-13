@@ -1,3 +1,7 @@
+**Cabagges World’s Favorite New York City Restaurants**\
+`Anna Archibald and Kevin Serai, the couple behind the popular home cooking and lifestyle account, tackle our restaurant questionnaire.`\
+https://www.nytimes.com/2026/10/13/dining/cabagges-world.html
+
 **F.B.I. Disrupts Pyongyang Revenue Stream: North Koreans in U.S. Tech Jobs**\
 `F.B.I. investigators worked with the cybersecurity firm CrowdStrike to dismantle so-called laptop farms that steal American identities to earn cash for Pyongyang.`\
 https://www.nytimes.com/2026/10/13/us/politics/north-korea-it-workers-fbi.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -178,13 +182,9 @@ https://www.nytimes.com/2026/10/13/business/dealbook/dealbook-summit-lineup.html
 `One rider died and several others were injured on Monday at the Six Flags Over Georgia amusement park, the police said. Details about the death were not immediately available.`\
 https://www.nytimes.com/video/us/100000011210286/six-flags-georgia-death-goliath-roller-coaster.html
 
-**Pope Leo Undergoes SuccessfulSurgery to Remove Lung Nodule, Vatican Says**\
+**Pope Leo Undergoes Successful Surgery to Remove Lung Nodule, Vatican Says**\
 `The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
-
-**Bulgaria Summons Russian Ambassador After More Black Sea Drone Strikes**\
-`Drones struck two ships off Bulgaria’s Black Sea coast, according to the country’s prime minister.`\
-https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

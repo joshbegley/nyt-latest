@@ -1,3 +1,7 @@
+**Pope Leo Undergoes SuccessfulSurgery to Remove Lung Nodule, Vatican Says**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
 **F.B.I. Disrupts Pyongyang Revenue Stream: North Koreans in U.S. Tech Jobs**\
 `F.B.I. investigators worked with the cybersecurity firm CrowdStrike to dismantle so-called laptop farms that steal American identities to earn cash for Pyongyang.`\
 https://www.nytimes.com/2026/10/13/us/politics/north-korea-it-workers-fbi.html
