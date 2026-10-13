@@ -1,3 +1,23 @@
+**White Paint. It’s Everywhere. She Hates It.**\
+`In her latest book, “A Dead White,” Wendy S. Walters considers the seemingly neutral background of daily life.`\
+https://www.nytimes.com/2026/10/13/style/white-paint-book-wendy-walters.html
+
+**Book Review: ‘Passengers,’ by Alexander Maksik**\
+`Alexander Maksik’s new novel explores the bonds and strains of a father-daughter relationship amid a developing crisis.`\
+https://www.nytimes.com/2026/10/13/books/review/alexander-maksik-passengers.html
+
+**John Berendt Honed His Voice for ‘Midnight in the Garden of Good and Evil’ in the Unlikeliest Place**\
+`Before John Berendt wrote his classic “Midnight in the Garden of Good and Evil,” he trained his keen eye on men’s wear and manners in a long-running Esquire column.`\
+https://www.nytimes.com/2026/10/13/style/john-berendt-midnight-in-the-garden-of-good-and-evil-esquire.html
+
+**The New Affordability Fight in the Midterms: Home Insurance Prices**\
+`Extreme weather is driving up insurance rates, impacting races from California to the nation’s central Tornado Alley.`\
+https://www.nytimes.com/2026/10/13/us/politics/home-insurance-extreme-weather-elections.html
+
+**Composer Steve Reich, at 90, Returns With ‘In All Your Ways’**\
+`Reich, whose music will be featured in birthday celebrations this month, said his latest work was “one of the best things I’ve done in a long time.”`\
+https://www.nytimes.com/2026/10/13/arts/music/steve-reich-composer-90.html
+
 **Six Flags Closes Multiple Rides After Death on Georgia Roller Coaster**\
 `One rider died and several others were injured at Six Flags Over Georgia, the police said. The company said it was temporarily closing nine rides in the U.S. and Canada as a precaution.`\
 https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html

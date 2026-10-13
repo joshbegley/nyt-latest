@@ -1,3 +1,159 @@
+**U.K. and Europe Recoil From Trump’s Diesel Deal With Putin**\
+`Shocked by the U.S. agreement with Russia, which Ukraine has called “a gift” to President Putin, officials in Europe have coalesced around a cautious diplomatic message.`\
+https://www.nytimes.com/2026/10/13/world/europe/trump-putin-diesel-uk-europe-gift.html
+
+**What if Political Polarization Is Not the Disease but the Cure?**\
+`A debate in the rarefied atmosphere of elite academia is virtually certain to have real-world consequences.`\
+https://www.nytimes.com/2026/10/13/opinion/trump-democracy-political-polarization.html
+
+**Western Civ Lessons for Team Trump**\
+`Can humility, decency and honesty be taught?`\
+https://www.nytimes.com/2026/10/13/opinion/western-civilization-trump.html
+
+**The Oct. 7 Attack Changed Israel, but Not Its Politics**\
+`As Israelis prepare to vote for the first time since the Hamas-led assault, they remain divided over whether to hold Prime Minister Benjamin Netanyahu responsible for negligence or fault the “treason” of his generals.`\
+https://www.nytimes.com/2026/10/13/world/middleeast/israel-october-7-attacks-elections.html
+
+**Chef Daniel Boulud’s 5 Favorite Places in Lyon, France**\
+`The world-famous chef, who just opened his latest outpost in Manhattan, shares some places he loves in the French city he says “will always be home.”`\
+https://www.nytimes.com/2026/10/13/travel/daniel-boulud-lyon-france.html
+
+**One Debate, Two Realities**\
+`The Senate candidates in Michigan held a fiery debate. On social media, two vastly different impressions took hold.`\
+https://www.nytimes.com/interactive/2026/10/13/us/politics/midterm-election-michigan-el-sayed-rogers-debate.html
+
+**Secrets to Cheap Travel (Encore)**\
+`Learn smart, practical tips for stretching your travel budget year-round.`\
+https://www.nytimes.com/2026/10/13/podcasts/secrets-to-cheap-travel-encore.html
+
+**Hillary Clinton Steps to the Podcast Mic as Midterms Approach**\
+`With “High Stakes,” Mrs. Clinton is teaming up with “Pivot” co-host Kara Swisher to break down the consequential battle for the House and the Senate.`\
+https://www.nytimes.com/2026/10/13/business/media/hillary-clinton-kara-swisher-podcast.html
+
+**How Climate Change Is Causing ‘the Gentrification of Seafood’**\
+`As environmental forces make fishing and harvesting more costly, the price of once-everyday fish has ballooned.`\
+https://www.nytimes.com/2026/10/13/dining/seafood-prices-shellfish-climate-change.html
+
+**The Forces Driving Up Bond Yields Take a Troubling Turn**\
+`Some analysts say investors are demanding a higher “term premium” to buy government debt, reflecting growing worries about debt levels and deficits.`\
+https://www.nytimes.com/2026/10/13/business/term-premium-bond-yields.html
+
+**Are the Midterm Elections Safe? 8 Experts Weigh In on the Threats.**\
+`Eight election experts weigh in on Trump’s midterm threats.`\
+https://www.nytimes.com/interactive/2026/10/13/opinion/midterm-elections-trump-integrity.html
+
+**In Atlanta, an A.D.U. Built With Salvaged Materials for $50,000**\
+`Evan Levy realized he could build an accessory dwelling unit within his budget if he did much of the work himself.`\
+https://www.nytimes.com/2026/10/13/realestate/in-atlanta-an-adu-built-with-salvaged-materials-for-50000.html
+
+**Democrats Need a Plan for Supreme Court Reform. Here’s a Start.**\
+`Why Democrats must prioritize court reform.`\
+https://www.nytimes.com/2026/10/13/opinion/supreme-court-reform-democrats.html
+
+**Making Rules for A.I. Is Hard. Tell Us How You’d Do It.**\
+`It can feel as if we’re getting dragged into the future by a dangerous technology. But humans are still in charge.`\
+https://www.nytimes.com/interactive/2026/10/13/opinion/ai-rules-regulations.html
+
+**Book Review: ‘The End of Everything,’ by M. John Harrison**\
+`Very little is clear in M. John Harrison’s Booker-nominated novel “The End of Everything,” except that nothing is as it seems.`\
+https://www.nytimes.com/2026/10/13/books/review/m-john-harrison-end-of-everything.html
+
+**‘Slam Frank’ Review: Razzing the Wokerati**\
+`After a hot-ticket comedy club run last fall, Andrew Fox and Joel Sinensky’s satirical musical, spurred by a tweet about Anne Frank, resurfaces Off Broadway.`\
+https://www.nytimes.com/2026/10/13/theater/slam-frank-review.html
+
+**I Thought Life Coaching Would Be Like Therapy but It’s Actually More Like … Football?**\
+`It turns out that what my life was missing was someone keeping score.`\
+https://www.nytimes.com/2026/10/13/magazine/life-coaching-sports.html
+
+**Preparing for His Final Bow at the Irish Arts Center**\
+`After 20 years, Aidan Connolly will step down as executive director of the center, which is undergoing a top-to-bottom renovation.`\
+https://www.nytimes.com/2026/10/13/nyregion/irish-arts-center-aidan-connolly.html
+
+**How a Logging Industry Downturn Fuels Wildfires**\
+`Loggers are finding it impossible to profitably harvest some federal forests. That leaves more fuel for fires to accumulate.`\
+https://www.nytimes.com/2026/10/13/climate/timber-industry-wildfire-risk.html
+
+**What Can Four-Winged Dinosaurs Teach Us About Birds?**\
+`Flight was probably more widespread in dinosaurs than previously thought. A newly identified species sheds light on how some achieved liftoff.`\
+https://www.nytimes.com/2026/10/13/science/four-winged-dinosaur-early-birds-flight.html
+
+**Steve Buscemi Can’t Be Typecast**\
+`Over 40 years in Hollywood, the actor has remained uncompromisingly himself.`\
+https://www.nytimes.com/2026/10/13/t-magazine/steve-buscemi-wild-horse-nine-wednesday.html
+
+**Book Review: ‘Music Against the Night,’ by Yiyun Li**\
+`In Yiyun Li’s new historical novel, two pianists on opposite sides of the world are brought inexorably together, by music.`\
+https://www.nytimes.com/2026/10/13/books/review/music-against-the-night-yiyun-li.html
+
+**My Greats | Steve Buscemi**\
+`The actor discusses everything from the greatest concert he’s ever seen to his favorite sweet treat.`\
+https://www.nytimes.com/video/t-magazine/100000011209604/my-greats-steve-buscemi.html
+
+**HB Studio to Say Goodbye to Its Longtime Village Playground**\
+`The studio, founded by the legendary acting teacher Herbert Berghof in 1945, has serious financial woes and is in disrepair.`\
+https://www.nytimes.com/2026/10/13/realestate/hb-studio-to-say-goodbye-to-its-longtime-village-playground.html
+
+**Bunion Pain? How to Find Relief and When to Consider Surgery**\
+`We asked experts what you can do to manage the discomfort and when to consider surgery.`\
+https://www.nytimes.com/2026/10/13/well/move/bunions-pain-treatment-surgery.html
+
+**They Came to Russia for Work. Now They Are Under Fire.**\
+`Ukrainian strikes on oil refineries and warehouses have led to casualties among the foreigners easing Russia’s labor shortage.`\
+https://www.nytimes.com/2026/10/13/world/europe/russia-migrant-workers-killed.html
+
+**Word of the Day: aegis**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/13/learning/word-of-the-day-aegis.html
+
+**Sterlin Harjo’s Oklahoma is a ‘Land of Secrets.’ He’s Revealing Them One by One.**\
+`How the creator of “The Lowdown” and “Reservation Dogs” is telling the stories of America with a little help from his friends, family and heroes.`\
+https://www.nytimes.com/2026/10/13/magazine/sterlin-harjo-lowdown-reservation-dogs-oklahoma.html
+
+**Austin Abrams, the Star of “Whalefall” and “Resident Evil,” Is Pretty Chill**\
+`In “Resident Evil” and “Whalefall,” the actor navigates worst-case survival scenarios. In real life, things seem to be going just fine.`\
+https://www.nytimes.com/2026/10/13/movies/austin-abrams-resident-evil-whalefall-euphoria.html
+
+**Miss America? Regan Hutsell Is a Dancer. The ‘Joy Bomb’ Kind.**\
+`Regan Hutsell has been a Rockette, a ballet dancer and now Miss America. “Dance taught me how to be adaptable without changing the essence of who I am,” she said.`\
+https://www.nytimes.com/2026/10/13/arts/dance/miss-america-regan-hutsell-dancer.html
+
+**Book Review: ‘Freedom’s Gate,’ by Soyica Diggs Colbert**\
+`A new book traces the careers of five talented Black women artists and activists who converged at a venue where performance and politics collided.`\
+https://www.nytimes.com/2026/10/13/books/review/freedoms-gate-soyica-diggs-colbert.html
+
+**We Know How to Fix Homelessness. Why Don’t More Cities Do It?**\
+`It takes doing things conservatives and progressives both dislike.`\
+https://www.nytimes.com/2026/10/13/opinion/homelessness-unhoused-denver-shelters.html
+
+**How Two Crypto Billionaires Are Making British Politics More American**\
+`A pair of low-profile entrepreneurs gave $100 million to Nigel Farage’s Reform U.K. Party. The system may never be the same.`\
+https://www.nytimes.com/2026/10/13/business/nigel-farage-crypto-uk-politics.html
+
+**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
+`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
+https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
+
+**There’s Worlds Out There More Habitable Than Earth**\
+`Scientists believe there are planets outside our solar system where life is even more abundant and sustainable.`\
+https://www.nytimes.com/2026/10/13/science/inhabitable-planets-solar-system.html
+
+**6 Things Longevity Experts Wish People Would Stop Saying**\
+`Living longer and healthier is important. But don’t believe everything you hear.`\
+https://www.nytimes.com/2026/10/13/well/longevity-experts-advice.html
+
+**Would You Like to Learn a Trade?**\
+`Gen Z is increasingly turning to trade schools in hopes of future-proofing their careers against A.I. How do you feel about working with your hands?`\
+https://www.nytimes.com/2026/10/13/learning/would-you-like-to-learn-a-trade.html
+
+**These California Boat Dwellers Fear the Worst: Life on Land**\
+`For decades, dozens of people lived rent-free on a bay just north of San Francisco. A few holdouts remained as a deadline loomed to leave the water.`\
+https://www.nytimes.com/2026/10/13/us/california-anchor-outs-boats.html
+
+**He Would Be Florida’s First Black Governor. Can He Sway Black Voters?**\
+`Byron Donalds, the Republican nominee for governor, is working to win over Black voters who usually support Democrats as his party girds for the possibility of low turnout.`\
+https://www.nytimes.com/2026/10/13/us/byron-donalds-florida-governor-black-voters.html
+
 **White Paint. It’s Everywhere. She Hates It.**\
 `In her latest book, “A Dead White,” Wendy S. Walters considers the seemingly neutral background of daily life.`\
 https://www.nytimes.com/2026/10/13/style/white-paint-book-wendy-walters.html
@@ -41,160 +197,4 @@ https://www.nytimes.com/2026/10/13/world/asia/bougainville-island-panguna-mine-p
 **Quote of the Day: NATO Details Plan to Shield Ukraine’s European Allies From Russia**\
 `Quotation of the Day for Tuesday, October 13, 2026.`\
 https://www.nytimes.com/2026/10/13/pageoneplus/quote-of-the-day-nato-details-plan-to-shield-ukraines-european-allies-from-russia.html
-
-**Macron Dreamed of Reviving France, but His Term Is Ending in Crisis**\
-`Nearly a decade after his first election as president, Emmanuel Macron is presiding over a tense country sliding toward the fiscal brink.`\
-https://www.nytimes.com/2026/10/13/world/europe/macron-france-protests.html
-
-**FIFA Pays Millions for Trump Tower Office Said to Be Rarely Used**\
-`The deal is another sign of how Gianni Infantino, the leader of soccer’s global governing body, has sought closer ties to President Trump.`\
-https://www.nytimes.com/2026/10/13/world/europe/fifa-trump-tower-infantino.html
-
-**On This Day, Oct. 13: In 2010, 33 Chilean miners were rescued.**\
-`In 2010, 33 Chilean miners trapped in a San José mine were rescued after spending 69 days underground. The dramatic, globally televised rescue turned the miners’ survival into a worldwide symbol of hope.`\
-https://www.nytimes.com/2026/10/13/learning/on-this-day-oct-13.html
-
-**Why Chinese College Grads Are Becoming Farmers**\
-`Facing a competitive job market, college graduates in China are trading corporate jobs for farming, equipped with smartphones and tech skills.`\
-https://www.nytimes.com/video/world/asia/100000011189303/china-young-people-new-farmer.html
-
-**Trump Says He Is ‘Looking at’ Firing Kimberly Guilfoyle**\
-`President Trump made the remark in response to a question about the U.S. ambassador to Greece, who faces accusations that she asked a G.O.P. donor to pay off her credit card.`\
-https://www.nytimes.com/2026/10/12/us/politics/trump-kimberly-guilfoyle-greece.html
-
-**I.M.F. Warns Mideast War Will Widen Gap Between Rich and Poor Countries**\
-`Persistent conflicts, high energy costs and technological upheavals will slow global growth and raise prices, the organization forecast.`\
-https://www.nytimes.com/2026/10/12/business/economy/imf-global-economic-outlook.html
-
-**NYT Crossword Answers for Oct. 13, 2026**\
-`It’s an all-around celebration in Gia Bosko’s crossword.`\
-https://www.nytimes.com/2026/10/12/crosswords/daily-puzzle-2026-10-13.html
-
-**Trump, Playing Defense in Ohio, Tries to Shore Up Republicans in Tough Races**\
-`The president rallied in Youngstown for Senator Jon Husted and Vivek Ramaswamy, who are in competitive contests against Democratic opponents.`\
-https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
-
-**NASA’s Perseverance Rover Sets a Mars Driving Record**\
-`Advances in self-driving technology have made it easier to traverse distant worlds.`\
-https://www.nytimes.com/2026/10/12/science/mars-rover-sets-record.html
-
-**Six Flags Closes Multiple Rides After Death on Georgia Roller Coaster**\
-`One rider died and several others were injured at Six Flags Over Georgia, the police said. The company said it was temporarily closing nine rides in the U.S. and Canada as a precaution.`\
-https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html
-
-**Calls Show How Confusion Delayed Emergency Response for Christa Pike**\
-`The first 911 call from inside the prison was made at 8:40 p.m. It took about 30 minutes to verify its authenticity.`\
-https://www.nytimes.com/2026/10/12/us/christa-pike-medical-care-delay.html
-
-**‘Breaking Bad’ Actor RJ Mitte Dies at 34**\
-`The actor RJ Mitte, who played Walter White’s son on “Breaking Bad,” died on Monday in Texas at age 34.`\
-https://www.nytimes.com/video/obituaries/100000011209837/breaking-bad-actor-rj-mitte-dies.html
-
-**Republicans Promoted a False Rumor That James Talarico Was in Ohio**\
-`The Democratic nominee for Senate in Texas spent nine days off the trail with what he and his campaign said was a bad case of the flu. His opponents fueled rumors, including one that spread widely before it was debunked.`\
-https://www.nytimes.com/2026/10/12/us/politics/james-talarico-ohio-texas-senate-race.html
-
-**RJ Mitte, Who Played Walter White’s Son on ‘Breaking Bad,’ Dies at 34**\
-`Mr. Mitte was born with cerebral palsy and brought his own experience of living with the disability to the role of Walter White Jr. on the Emmy-winning show.`\
-https://www.nytimes.com/2026/10/12/arts/television/rj-mitte-dead.html
-
-**Blakeman Launches Graphic Attack on Mamdani in Meeting With Hasidic Jews**\
-`While seeking support from Hasidic leaders, the Republican candidate for governor, Bruce Blakeman, said Mayor Zohran Mamdani would not act if riots hit their community.`\
-https://www.nytimes.com/2026/10/12/nyregion/blakeman-mamdani-hasidic-jews.html
-
-**Meta Debuts New A.I. Models to Compete With Rivals**\
-`On Monday, Meta released two new A.I. models as it tries to catch up with rivals like Anthropic and OpenAI.`\
-https://www.nytimes.com/video/technology/100000011209491/meta-new-ai-models-muse-wonder.html
-
-**Cornell and Toxic Frat Culture**\
-`A U.S. campus lawsuit points to a global pattern: how male impunity, silence and institutional failure enable sexual violence.`\
-https://www.nytimes.com/2026/10/12/world/cornell-assault-frat-israel.html
-
-**Marina Vlady, French Cinema Star of ‘Princesse de Clèves,’ Dies at 88**\
-`Marina Vlady, a French film star, played women who resisted easy categorization, including in films by Orson Welles and Jean-Luc Godard.`\
-https://www.nytimes.com/2026/10/12/movies/marina-vlady-dead.html
-
-**An Ad Targeting Susan Collins’s Opponent, Troy Jackson, Airs in the Wrong Portland**\
-`An executive with the Republican super PAC that paid for the ad attacking Troy Jackson, the Democratic Senate candidate in Maine, blamed its vendor for running the ad in Oregon.`\
-https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
-
-**Actress Selma Blair Is Arrested in Assault on Flight Attendants**\
-`The police responded to a call about a “physically abusive passenger” aboard a flight that landed at Kennedy Airport on Sunday night, officials said.`\
-https://www.nytimes.com/2026/10/12/us/selma-blair-arrested.html
-
-**Federal Agents Search Ilhan Omar’s Home**\
-`On Monday, homeland security officials executed a search warrant at the Washington-area home of Representative Ilhan Omar, Democrat of Minnesota, according to three people briefed on the matter.`\
-https://www.nytimes.com/video/us/politics/100000011209163/ilhan-omar-home-search-homeland-security.html
-
-**Dan Levy Condemns Shane Gillis’s ‘S.N.L.’ Monologue**\
-`“I’m speechless that something like that can exist on live national television,” the actor Dan Levy said on Instagram in a reaction to the comic’s jokes about women.`\
-https://www.nytimes.com/2026/10/12/arts/television/dan-levy-shane-gillis-snl-monologue.html
-
-**Judge Orders Trump Administration to Answer for Tree Removals at D.C. Golf Course**\
-`During a four-hour hearing, a federal judge demanded answers from the Trump administration about who authorized the removal of hundreds of trees at the East Potomac Golf Links.`\
-https://www.nytimes.com/2026/10/12/us/politics/judge-trees-golf-trump.html
-
-**Protesters in India Call for Resignation of Election Commissioner**\
-`Thousands of protesters took to the streets of central New Delhi to demand an investigation into the proceedings of the election commission.`\
-https://www.nytimes.com/video/world/asia/100000011209220/india-protests-elections-narendra-modi.html
-
-**Dozens Killed in Airstrikes Near Sudan-Egypt Border**\
-`The attacks occurred at a remote gold mine hundreds of miles from the front lines of Sudan’s devastating civil war. Videos showed what appeared to be Egyptian munitions.`\
-https://www.nytimes.com/2026/10/12/world/africa/egypt-sudan-goldmine-strike.html
-
-**After Russian Diesel Deal, Trump Faces New Crisis Over Ukraine**\
-`President Trump’s surprise decision to suspend sanctions on Russian diesel fuel stunned Ukrainian and European officials, who were meeting with U.S. envoys at an exclusive golf club near Miami.`\
-https://www.nytimes.com/2026/10/12/world/europe/russia-ukraine-war-us-diesel-deal-negotiations.html
-
-**A Trump Loyalist, a Turkish Investor and a Battle for Wealth and Influence**\
-`A Turkish businessman once allied with the Maduro regime has tied the knot with President Trump’s former personal lawyer, Alina Habba, at the same time he is seeking to retain a big contract in Venezuela.`\
-https://www.nytimes.com/2026/10/12/us/politics/a-trump-loyalist-a-turkish-investor-and-a-battle-for-wealth-and-influence.html
-
-**The Softest, Most Stylish Men’s Flannel Shirts**\
-`Versatile, colorful and great for layering when temperatures cool, these are the shirts you’ll reach for all season.`\
-https://www.nytimes.com/2026/10/12/t-magazine/best-mens-flannel-shirts.html
-
-**NATO Details Plan to Shield Ukraine’s European Allies From Russia**\
-`With the Russians intensifying sabotage, arson and cyberattacks against European nations supporting Ukraine, NATO divulged a blueprint, in case of war, to deter the Kremlin.`\
-https://www.nytimes.com/2026/10/12/world/europe/nato-strategy-russia-europe.html
-
-**Meta Unveils New Series of Advanced A.I. Models**\
-`The new models, Muse Wonder and Muse Wonder Full, are meant to compete with cutting-edge A.I. models from rivals like Anthropic and OpenAI.`\
-https://www.nytimes.com/2026/10/12/technology/meta-muse-wonder-full-models.html
-
-**Trump Gives Putin a Hand in Russia’s Economic War With Ukraine**\
-`President Trump is moving to buy Russian diesel while also pressuring Ukraine to halt attacks on refineries, a lifeblood of Moscow’s war machine.`\
-https://www.nytimes.com/2026/10/12/world/europe/russia-diesel-trump.html
-
-**After Lockdown, Sea of Protesters Flows Through India’s Capital**\
-`The raucous demonstrations by opposition groups on Monday followed days of an effective lockdown and mass detentions of young protesters by security forces.`\
-https://www.nytimes.com/2026/10/12/world/asia/india-protests-congress-rahul-gandhi.html
-
-**Post-Tropical Storm Rachel Floods Parts of Las Vegas Strip**\
-`Heavy rain from Post-Tropical Storm Rachel flooded parts of the Las Vegas Strip on Sunday.`\
-https://www.nytimes.com/video/weather/100000011209301/las-vegas-flooding-storm-rachel.html
-
-**Berlin Philharmonic Opens Carnegie Hall Season**\
-`At Carnegie Hall, this orchestra gave gobsmacking performances of the classics. If only it could show some of the creativity it has at home.`\
-https://www.nytimes.com/2026/10/12/arts/music/berlin-philharmonic-carnegie-hall.html
-
-**Wildfires Are Unfightable Now**\
-`This year’s fast moving, virtually irrepressible wildfire events are not the seasonal burns of decades past.`\
-https://www.nytimes.com/2026/10/12/opinion/wildfires-firefighters-climate-change.html
-
-**A Skillet Dinner That Checks All the Boxes**\
-`This fragrant coconut chicken and sweet potato recipe features protein, green veggies, bright lime, luscious coconut milk and, yes, sweet potato.`\
-https://www.nytimes.com/2026/10/12/dining/a-skillet-dinner-that-checks-all-the-boxes.html
-
-**How American Retirees at Different Incomes Rely on Social Security**\
-`Social Security funds are on track to run short by 2032, which would mean a reduction in benefits. Here’s how four hypothetical households rely on the program in retirement.`\
-https://www.nytimes.com/2026/10/12/business/social-security-income-retirement-benefits.html
-
-**Europeans Have a Love-Hate Relationship With Chinese Cars**\
-`Consumers across the continent increasingly want to buy low-cost Chinese vehicles. Policymakers are seeking to slow them down.`\
-https://www.nytimes.com/2026/10/12/business/europe-china-evs-hybrids.html
-
-**Federal Agents Search Home of Rep. Ilhan Omar**\
-`The search takes place within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
-https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
 
