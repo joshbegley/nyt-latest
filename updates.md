@@ -1,3 +1,7 @@
+**U.S. Still Shares Intelligence With Ukraine, Both Say, Amid Fears It Could Stop**\
+`President Volodymyr Zelensky said Kyiv had received no early warning of a Russian missile attack, after an apparent U.S. threat to halt intelligence sharing, but officials say the sharing continues.`\
+https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
+
 **Why A.I. Has This Mathematician in Tears**\
 `Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
