@@ -1,3 +1,7 @@
+**NASA’s Perseverance Rover Sets a Mars Driving Record**\
+`Advances in self-driving technology have made it easier to traverse distant worlds.`\
+https://www.nytimes.com/2026/10/12/science/mars-rover-sets-record.html
+
 **Rider on Georgia Roller Coaster Dies and Several Others Are Injured**\
 `The episode happened Monday afternoon at the Six Flags Over Georgia amusement park, the police said. It was not immediately clear what led up to the rider’s death.`\
 https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html
