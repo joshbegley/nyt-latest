@@ -1,3 +1,15 @@
+**Katie Zacharia Stepped to the Lectern for the First Time. It Was a Bumpy Ride.**\
+`Ms. Zacharia spent eight minutes reading from a script, called on only three reporters and made an awkward slip-up.`\
+https://www.nytimes.com/2026/10/13/us/politics/katie-zacharia-white-house-first-briefing.html
+
+**A Look at California's Billionaires vs. the Rest of the World**\
+`See how America's billionaires can accumulate so much wealth without drawing a significant salary.`\
+https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
+
+**You have politics questions. We answer them.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/13/us/you-have-politics-questions-we-answer-them.html
+
 **UAW’s Shawn Fain Wins Second Term as President**\
 `The United Auto Workers has grown under Mr. Fain, who has also drawn scrutiny from federal prosecutors.`\
 https://www.nytimes.com/2026/10/13/us/politics/uaw-shawn-fain.html
