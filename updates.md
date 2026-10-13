@@ -1,3 +1,23 @@
+**Trump Hands Victories to Putin, Who Offers More War in Return**\
+`Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
+https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
+
+**Judy Markey, Frank and Funny Voice on Chicago Radio, Dies at 82**\
+`She and Kathy O’Malley — known as “the Girlfriends” — were the rare female hosts in a major market. Their freewheeling segments included “Sex Thursday.”`\
+https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
+
+**A Miso Fish Chowder That Really Satisfies**\
+`A light, umami-ful twist on New England clam chowder.`\
+https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
+
+**It’s Past Time to Admit the Watergate Prosecutions Were Fatally Flawed**\
+`Nixon got a great deal. All the president’s men, not so much.`\
+https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
 **Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
 https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
