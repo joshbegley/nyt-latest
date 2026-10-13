@@ -1,3 +1,7 @@
+**James Dolan, a Former Hochul Supporter, Goes All In on Her G.O.P. Rival**\
+`The Knicks owner is urging New York’s business elite to abandon Gov. Kathy Hochul, highlighting her support of Mayor Zohran Mamdani. Mr. Dolan has spent millions to back her opponent, Bruce Blakeman.`\
+https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-hochul.html
+
 **Miami Tugboat Captain Gets 18 Months in Crash That Killed 3 Children**\
 `Five girls and a camp counselor were thrown into the water off Miami Beach in July last year when a barge pushed by a tugboat struck their stalled sailboat.`\
 https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 **Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
-
-**Rising Interest Rates Bite Some Wall St. Banks**\
-`JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
-https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
