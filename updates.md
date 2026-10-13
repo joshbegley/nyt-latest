@@ -1,3 +1,11 @@
+**What to Know About Pope Leo’s Lung Cancer Diagnosis**\
+`The cancer has a high survival rate if caught in the early stages.`\
+https://www.nytimes.com/2026/10/13/well/pope-leo-lung-cancer-adenocarcinoma.html
+
+**Pete Hegseth’s Bloodlust Doesn’t Hide His Military Failures**\
+`The secretary of defense is banking on a sadistic public.`\
+https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
+
 **Min Jin Lee on “Parachute Kids”**\
 `Min Jin Lee, the author of the new novel “American Hagwon,” breaks down the phenomenon of young children living far from home that inspired one of the characters in the book.`\
 https://www.nytimes.com/video/books/review/100000011212243/min-jin-lee-on-parachute-kids.html

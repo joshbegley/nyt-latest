@@ -1,3 +1,7 @@
+**The Evening: Trump Aids Putin, Feuds With Ukraine**\
+`Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
+
 **What to Know About Pope Leo’s Lung Cancer Diagnosis**\
 `The cancer has a high survival rate if caught in the early stages.`\
 https://www.nytimes.com/2026/10/13/well/pope-leo-lung-cancer-adenocarcinoma.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 **A Miso Fish Chowder That Really Satisfies**\
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
-
-**What if All the President’s Men Were, in Fact, Railroaded?**\
-`Nixon got a great deal. All the president’s men, not so much.`\
-https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 

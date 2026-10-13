@@ -1,3 +1,7 @@
+**What to Know About Pope Leo’s Lung Cancer Diagnosis**\
+`The cancer has a high survival rate if caught in the early stages.`\
+https://www.nytimes.com/2026/10/13/well/pope-leo-lung-cancer-adenocarcinoma.html
+
 **Min Jin Lee on “Parachute Kids”**\
 `Min Jin Lee, the author of the new novel “American Hagwon,” breaks down the phenomenon of young children living far from home that inspired one of the characters in the book.`\
 https://www.nytimes.com/video/books/review/100000011212243/min-jin-lee-on-parachute-kids.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/13/us/houston-ice-ramming-man-suv.html
 `Critical infrastructure has been targeted in a wave of cyberattacks, which experts say are rising because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intelligence.html
 
-**A Public Execution Won’t Distract From Pete Hegseth’s Failures**\
+**Pete Hegseth’s Bloodlust Doesn’t Hide His Military Failures**\
 `The secretary of defense is banking on a sadistic public.`\
 https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisf
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
-
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
