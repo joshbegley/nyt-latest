@@ -1,3 +1,7 @@
+**Min Jin Lee on “Parachute Kids”**\
+`Min Jin Lee, the author of the new novel “American Hagwon,” breaks down the phenomenon of young children living far from home that inspired one of the characters in the book.`\
+https://www.nytimes.com/video/books/review/100000011212243/min-jin-lee-on-parachute-kids.html
+
 **F.B.I. Arrests OpenAI Employee Accused of Planting Bug in Office**\
 `OpenAI said that the employee had placed a device built to evade detection and that he had planned to secretly record meetings in other sensitive spaces.`\
 https://www.nytimes.com/2026/10/13/technology/openai-worker-arrested-bugging.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 **The Surfer’s Guide to Living a Longer, More Active Life**\
 `Some of the best lessons for remaining active in later years can be found on a surfboard.`\
 https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
-**They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
-`A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
-https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
 
