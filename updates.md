@@ -1,3 +1,7 @@
+**Russia Detains Japanese Journalist for Alleged Espionage**\
+`The main security service said it had detained a reporter for the Hokkaido Shimbun newspaper in Russia’s far east, where he had been reporting on military recruitment.`\
+https://www.nytimes.com/2026/10/13/world/europe/russia-detains-japanese-journalist.html
+
 **Saudi Arabia and Yemen’s Houthis Trade Threats To Hit Oil Facilities**\
 `The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
