@@ -1,3 +1,7 @@
+**Martin Shkreli Violated Lifetime Ban From Drug Industry, U.S. Says**\
+`The attorneys general of New York and six other states joined the Federal Trade Commission in accusing the disgraced former pharmaceutical executive of repeatedly violating the ban.`\
+https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-daraprim.html
+
 **Why A.I. Has This Mathematician in Tears**\
 `Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
 **Here’s How to Navigate the Portal Bridge Disruptions**\
 `NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
 https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
-
-**Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
-`The attack targeted a Danish software system in more than 400 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
-https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

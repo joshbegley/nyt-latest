@@ -1,3 +1,7 @@
+**Martin Shkreli Violated Lifetime Ban From Drug Industry, U.S. Says**\
+`The attorneys general of New York and six other states joined the Federal Trade Commission in accusing the disgraced former pharmaceutical executive of repeatedly violating the ban.`\
+https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-daraprim.html
+
 **Midterm Spending Highlights G.O.P. Anxiety and Democratic Optimism**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
