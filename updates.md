@@ -1,3 +1,7 @@
+**Midterm Spending Highlights G.O.P. Anxiety and Democratic Optimism**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
 **Rising Interest Rates Bite Some Wall St. Banks**\
 `JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
