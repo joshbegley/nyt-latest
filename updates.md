@@ -1,3 +1,11 @@
+**Trump Has Asked Kimberly Guilfoyle to Resign, White House Says**\
+`Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports including asking a Republican donor to pay off a credit card.`\
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
+
+**MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
+`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns in the U.K., and called Iran-led attacks on Jewish communities “sickening.”`\
+https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
+
 **The Complicated Puzzle of the Formula 1 Schedule**\
 `It can take years to create, and then weather and wars can upend all the planning.`\
 https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
