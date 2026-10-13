@@ -1,3 +1,11 @@
+**I.M.F. Warns Mideast War Will Widen Gap Between Rich and Poor Countries**\
+`Persistent conflicts, high energy costs and technological upheavals will slow global growth and raise prices, the organization forecast.`\
+https://www.nytimes.com/2026/10/12/business/economy/imf-global-economic-outlook.html
+
+**NYT Crossword Answers for Oct. 13, 2026**\
+`It’s an all-around celebration in Gia Bosko’s crossword.`\
+https://www.nytimes.com/2026/10/12/crosswords/daily-puzzle-2026-10-13.html
+
 **Trump, Playing Defense in Ohio, Tries to Shore Up Republicans in Tough Races**\
 `The president rallied in Youngstown for Senator Jon Husted and Vivek Ramaswamy, who are in competitive contests against Democratic opponents.`\
 https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/crosswords/connections-companion-1220.html
 **Today’s Wordle Hints for October 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
 https://www.nytimes.com/2026/10/12/crosswords/wordle-review-1942.html
-
-**NYT Strands Hints for October 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
-https://www.nytimes.com/2026/10/12/crosswords/strands-sidekick-954.html
-
-**Israel’s Destruction of Southern Lebanon Intensified After the Cease-Fire**\
-`Much of Israeli-occupied southern Lebanon has been leveled, according to a Times analysis. The majority has been destroyed by Israel since the April truce.`\
-https://www.nytimes.com/interactive/2026/10/12/world/middleeast/israel-lebanon-destruction.html
 

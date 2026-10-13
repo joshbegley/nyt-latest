@@ -1,3 +1,7 @@
+**Trump, Playing Defense in Ohio, Tries to Shore Up Republicans in Tough Races**\
+`The president rallied in Youngstown for Senator Jon Husted and Vivek Ramaswamy, who are in competitive contests against Democratic opponents.`\
+https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
+
 **NASA’s Perseverance Rover Sets a Mars Driving Record**\
 `Advances in self-driving technology have made it easier to traverse distant worlds.`\
 https://www.nytimes.com/2026/10/12/science/mars-rover-sets-record.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/crosswords/strands-sidekick-954.html
 **Israel’s Destruction of Southern Lebanon Intensified After the Cease-Fire**\
 `Much of Israeli-occupied southern Lebanon has been leveled, according to a Times analysis. The majority has been destroyed by Israel since the April truce.`\
 https://www.nytimes.com/interactive/2026/10/12/world/middleeast/israel-lebanon-destruction.html
-
-**Surveillance Footage Shows Moment of Attack on Saudi Airport**\
-`Footage released by Saudi state media showed the moment of a deadly attack on Saturday at an airport in Riyadh, the Saudi capital. The Iran-backed Houthi militia claimed responsibility for the strike.`\
-https://www.nytimes.com/video/world/middleeast/100000011208716/saudi-arabia-houthi-riyadh-airport-attack.html
 

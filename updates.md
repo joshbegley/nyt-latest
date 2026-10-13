@@ -1,3 +1,7 @@
+**Trump, Playing Defense in Ohio, Tries to Shore Up Republicans in Tough Races**\
+`The president rallied in Youngstown for Senator Jon Husted and Vivek Ramaswamy, who are in competitive contests against Democratic opponents.`\
+https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
+
 **NASA’s Perseverance Rover Sets a Mars Driving Record**\
 `Advances in self-driving technology have made it easier to traverse distant worlds.`\
 https://www.nytimes.com/2026/10/12/science/mars-rover-sets-record.html
