@@ -138,7 +138,7 @@ https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 
-**Rising Interest Rates Bite Some Wall Street Banks**\
+**Rising Interest Rates Bite Some Wall St. Banks**\
 `JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
 
