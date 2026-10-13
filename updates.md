@@ -1,3 +1,7 @@
+**Saudi Arabia and Yemen’s Houthis Trade Threats to Hit Oil Facilities**\
+`The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice for an oil facility in the Yemeni capital.`\
+https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
+
 **The Path to a ‘Good Death’ Starts With a Plan**\
 `Readers respond to an I.C.U. doctor’s essay about how we as a society need a new definition of what qualifies as a good death.`\
 https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
