@@ -1,3 +1,7 @@
+**Min Jin Lee on “Parachute Kids”**\
+`Min Jin Lee, the author of the new novel “American Hagwon,” breaks down the phenomenon of young children living far from home that inspired one of the characters in the book.`\
+https://www.nytimes.com/video/books/review/100000011212243/min-jin-lee-on-parachute-kids.html
+
 **F.B.I. Arrests OpenAI Employee Accused of Planting Bug in Office**\
 `OpenAI said that the employee had placed a device built to evade detection and that he had planned to secretly record meetings in other sensitive spaces.`\
 https://www.nytimes.com/2026/10/13/technology/openai-worker-arrested-bugging.html
