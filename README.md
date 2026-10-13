@@ -1,3 +1,7 @@
+**Duane Keith Davis Sentenced to 40 Years to Life for Tupac Shakur Murder**\
+`Duane Keith Davis on Tuesday was sentenced to 40 years to life in prison for orchestrating the 1996 drive-by shooting that killed Tupac Shakur.`\
+https://www.nytimes.com/video/us/100000011211647/duane-davis-sentencing-tupac-shakur-murder.html
+
 **U.S. to Drop Charges Against Ex-C.I.A. Analyst Over Aid to South Korea**\
 `Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
 https://www.nytimes.com/2026/10/13/nyregion/us-to-drop-charges-against-ex-cia-analyst-over-aid-to-south-korea.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-p
 `The president’s proposed fuel deal with Russia and a one-sided cease-fire plan are putting Kyiv in a tough spot as winter approaches.`\
 https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
 
-**The Steep Rise and Spectacular Fall of Kimberly Guilfoyle**\
+**‘Honey Please’: The Steep Rise and Sudden Fall of Kimberly Guilfoyle.**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
 **Bills Prevail After Back-and-Forth Contest With Rams**\
 `The Buffalo Bills needed every ounce of energy to amend their Week 4 loss. On Monday night, they edged the Los Angeles Rams 37-34 in overtime.`\
 https://www.nytimes.com/video/the-athletic/100000011210894/bills-prevail-after-back-and-forth-contest-with-rams.html
-
-**NJ Transit Commuters Gird for 5 Weeks of Delays During Portal Bridge Work**\
-`NJ Transit and Amtrak began the final phase of a project to replace the Portal Bridge that will cause detours and delays for riders heading to and from Manhattan.`\
-https://www.nytimes.com/2026/10/13/nyregion/nj-transit-path-disruption-portal-bridge.html
 

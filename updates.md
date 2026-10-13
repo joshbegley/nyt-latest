@@ -1,3 +1,7 @@
+**U.S. to Drop Charges Against Ex-C.I.A. Analyst Over Aid to South Korea**\
+`Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
+https://www.nytimes.com/2026/10/13/nyregion/us-to-drop-charges-against-ex-cia-analyst-over-aid-to-south-korea.html
+
 **Bank of America Pays $1.8 Billion Fine for Lax Money-Laundering Oversight**\
 `Federal regulators said the bank had waved through suspicious transactions without proper care.`\
 https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
