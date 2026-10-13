@@ -1,3 +1,7 @@
+**Live Updates: Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
+`NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
+https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
+
 **They Lived Rent-Free on Boats Near San Francisco. Until Now.**\
 `For decades, dozens of boat dwellers lived rent free on a bay just north of San Francisco. After a yearslong fight, just a few holdouts remained, with a deadline to leave by Oct. 15.`\
 https://www.nytimes.com/video/us/100000011152176/san-francisco-bay-boat-dwellers-deadline.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
 **NYT Spelling Bee Answers for October 13, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/13/crosswords/spelling-bee-forum.html
-
-**Jimmy Kimmel Teases Trump Over Not Getting the Nobel Prize**\
-`“Thanks a lot, Norway. I hope you’re happy — you made our baby cry,” Kimmel said after the president blamed Norway.`\
-https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peace-prize.html
 
