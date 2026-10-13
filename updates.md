@@ -1,3 +1,15 @@
+**Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
+`A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
+https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
+
+**Supreme Court Will Review Dispute Over Records From Elon Musk’s DOGE**\
+`A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
+https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
+
+**Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
+`The attack targeted a Danish software system in more than 400 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
+https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
+
 **Supreme Court to Review Dispute Over Access to DOGE Records**\
 `A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
 https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
