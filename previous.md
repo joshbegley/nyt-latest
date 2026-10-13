@@ -1,3 +1,15 @@
+**Restaurant Review: So Fox in Atlanta**\
+`The chef Myles Moody returns home to bring his worldly take on the classics.`\
+https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
+
+**Bills Prevail After Back-and-Forth Contest With Rams**\
+`The Buffalo Bills needed every ounce of energy to amend their Week 4 loss. On Monday night, they edged the Los Angeles Rams 37-34 in overtime.`\
+https://www.nytimes.com/video/the-athletic/100000011210894/bills-prevail-after-back-and-forth-contest-with-rams.html
+
+**NJ Transit Commuters Gird for 5 Weeks of Delays During Portal Bridge Work**\
+`NJ Transit and Amtrak began the final phase of a project to replace the Portal Bridge that will cause detours and delays for riders heading to and from Manhattan.`\
+https://www.nytimes.com/2026/10/13/nyregion/nj-transit-path-disruption-portal-bridge.html
+
 **Free Money**\
 `We look at an experimental program.`\
 https://www.nytimes.com/2026/10/13/briefing/free-money.html
@@ -39,7 +51,7 @@ https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniv
 https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
 
 **Kimberly Guilfoyle Resigns as Ambassador to Greece**\
-`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports including that she had asked a Republican donor to pay off a credit card.`\
+`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
 
 **Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
@@ -82,8 +94,8 @@ https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 `After banner stretch, the bank released surprisingly spotty earnings results for the third quarter. Its rival Goldman Sachs posted better-than-expected results.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
 
-**Zelensky Comment Raises Fear That U.S. Is Cutting Intelligence Sharing**\
-`The Ukrainian leader said Kyiv had no early warning from its Western partners before a Russian ballistic missile attack. But some such attacks do go undetected.`\
+**Zelensky Comment Raises Fears Over U.S. Intelligence Sharing**\
+`The Ukrainian leader said Kyiv received no early warning before a Russian ballistic missile attack. President Trump said the U.S. continued to share intelligence.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
 
 **MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
@@ -162,7 +174,7 @@ https://www.nytimes.com/2026/10/13/crosswords/wordle-review-1943.html
 `South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
 https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html
 
-**Live Updates: Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
+**Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
 https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
 
@@ -173,16 +185,4 @@ https://www.nytimes.com/video/us/100000011152176/san-francisco-bay-boat-dwellers
 **4,200 Miles From Graceland, This Town Is Crazy About Elvis**\
 `Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
 https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html
-
-**U.K. and Europe Recoil From Trump’s Diesel Deal With Putin**\
-`Shocked by the U.S. agreement with Russia, which Ukraine has called “a gift” to President Putin, officials in Europe have coalesced around a cautious diplomatic message.`\
-https://www.nytimes.com/2026/10/13/world/europe/trump-putin-diesel-uk-europe-gift.html
-
-**What if Political Polarization Is Not the Disease but the Cure?**\
-`A debate in the rarefied atmosphere of elite academia is virtually certain to have real-world consequences.`\
-https://www.nytimes.com/2026/10/13/opinion/trump-democracy-political-polarization.html
-
-**Western Civ Lessons for Team Trump**\
-`Can humility, decency and honesty be taught?`\
-https://www.nytimes.com/2026/10/13/opinion/western-civilization-trump.html
 

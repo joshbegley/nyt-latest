@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisf
 `Some of the best lessons for remaining active in later years can be found on a surfboard.`\
 https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
-**It’s Past Time to Admit the Watergate Prosecutions Were Fatally Flawed**\
+**What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 

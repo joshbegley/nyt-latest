@@ -1,3 +1,27 @@
+**Restaurant Review: So Fox in Atlanta**\
+`The chef Myles Moody returns home to bring his worldly take on the classics.`\
+https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
+
+**Bills Prevail After Back-and-Forth Contest With Rams**\
+`The Buffalo Bills needed every ounce of energy to amend their Week 4 loss. On Monday night, they edged the Los Angeles Rams 37-34 in overtime.`\
+https://www.nytimes.com/video/the-athletic/100000011210894/bills-prevail-after-back-and-forth-contest-with-rams.html
+
+**NJ Transit Commuters Gird for 5 Weeks of Delays During Portal Bridge Work**\
+`NJ Transit and Amtrak began the final phase of a project to replace the Portal Bridge that will cause detours and delays for riders heading to and from Manhattan.`\
+https://www.nytimes.com/2026/10/13/nyregion/nj-transit-path-disruption-portal-bridge.html
+
+**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
+`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
+
+**Zelensky Comment Raises Fears Over U.S. Intelligence Sharing**\
+`The Ukrainian leader said Kyiv received no early warning before a Russian ballistic missile attack. President Trump said the U.S. continued to share intelligence.`\
+https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
+
+**Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
+`NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
+https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
+
 **Free Money**\
 `We look at an experimental program.`\
 https://www.nytimes.com/2026/10/13/briefing/free-money.html
