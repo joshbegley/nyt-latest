@@ -138,13 +138,13 @@ https://www.nytimes.com/2026/10/13/opinion/homelessness-unhoused-denver-shelters
 `A pair of low-profile entrepreneurs gave $100 million to Nigel Farage’s Reform U.K. Party. The system may never be the same.`\
 https://www.nytimes.com/2026/10/13/business/nigel-farage-crypto-uk-politics.html
 
-**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
-`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
-https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
-
 **There’s Worlds Out There More Habitable Than Earth**\
 `Scientists believe there are planets outside our solar system where life is even more abundant and sustainable.`\
 https://www.nytimes.com/2026/10/13/science/inhabitable-planets-solar-system.html
+
+**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
+`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
+https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
 
 **6 Things Longevity Experts Wish People Would Stop Saying**\
 `Living longer and healthier is important. But don’t believe everything you hear.`\
