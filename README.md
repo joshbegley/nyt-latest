@@ -1,3 +1,7 @@
+**The Path to a ‘Good Death’ Starts With a Plan**\
+`Readers respond to an I.C.U. doctor’s essay about how we as a society need a new definition of what qualifies as a good death.`\
+https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
+
 **Acclaimed Author Denies Using A.I. but Admits Plagiarism**\
 `Breaking a weekslong silence, Thélyson Orélien, a Haitian-Canadian writer, still rejected accusations about his new novel, ‘It Was Either That or Die.’`\
 https://www.nytimes.com/2026/10/13/world/europe/author-ai-plagiarism-france-haiti.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
 **When A.I. Comes for Your Purpose in Life**\
 `In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
 https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
-
-**NYT Connections Answers for October 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
-https://www.nytimes.com/2026/10/13/crosswords/connections-companion-1221.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
