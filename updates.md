@@ -1,3 +1,7 @@
+**Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
+`It was not immediately clear what had prompted the alert, which halted flights at the Albrecht Dürer Airport.`\
+https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
+
 **Here’s How to Navigate the Portal Bridge Disruptions**\
 `NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
 https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
