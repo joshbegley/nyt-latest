@@ -1,3 +1,7 @@
+**Your Politics Questions**\
+`We answer reader queries about the midterms.`\
+https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html
+
 **After Christa Pike’s Failed Execution, Confusion Delayed Emergency Help**\
 `New audio reveals how confusion among emergency dispatchers delayed medical care after Christa Pike’s botched execution.`\
 https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call-emergency-care.html
