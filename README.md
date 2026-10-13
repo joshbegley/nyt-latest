@@ -1,3 +1,7 @@
+**Your Politics Questions**\
+`We answer reader queries about the midterms.`\
+https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html
+
 **After Christa Pike’s Failed Execution, Confusion Delayed Emergency Help**\
 `New audio reveals how confusion among emergency dispatchers delayed medical care after Christa Pike’s botched execution.`\
 https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call-emergency-care.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/learning/would-you-like-to-learn-a-trade.html
 **These California Boat Dwellers Fear the Worst: Life on Land**\
 `For decades, dozens of people lived rent-free on a bay just north of San Francisco. A few holdouts remained as a deadline loomed to leave the water.`\
 https://www.nytimes.com/2026/10/13/us/california-anchor-outs-boats.html
-
-**He Would Be Florida’s First Black Governor. Can He Sway Black Voters?**\
-`Byron Donalds, the Republican nominee for governor, is working to win over Black voters who usually support Democrats as his party girds for the possibility of low turnout.`\
-https://www.nytimes.com/2026/10/13/us/byron-donalds-florida-governor-black-voters.html
 
