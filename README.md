@@ -1,3 +1,23 @@
+**White Paint. It’s Everywhere. She Hates It.**\
+`In her latest book, “A Dead White,” Wendy S. Walters considers the seemingly neutral background of daily life.`\
+https://www.nytimes.com/2026/10/13/style/white-paint-book-wendy-walters.html
+
+**Book Review: ‘Passengers,’ by Alexander Maksik**\
+`Alexander Maksik’s new novel explores the bonds and strains of a father-daughter relationship amid a developing crisis.`\
+https://www.nytimes.com/2026/10/13/books/review/alexander-maksik-passengers.html
+
+**John Berendt Honed His Voice for ‘Midnight in the Garden of Good and Evil’ in the Unlikeliest Place**\
+`Before John Berendt wrote his classic “Midnight in the Garden of Good and Evil,” he trained his keen eye on men’s wear and manners in a long-running Esquire column.`\
+https://www.nytimes.com/2026/10/13/style/john-berendt-midnight-in-the-garden-of-good-and-evil-esquire.html
+
+**The New Affordability Fight in the Midterms: Home Insurance Prices**\
+`Extreme weather is driving up insurance rates, impacting races from California to the nation’s central Tornado Alley.`\
+https://www.nytimes.com/2026/10/13/us/politics/home-insurance-extreme-weather-elections.html
+
+**Composer Steve Reich, at 90, Returns With ‘In All Your Ways’**\
+`Reich, whose music will be featured in birthday celebrations this month, said his latest work was “one of the best things I’ve done in a long time.”`\
+https://www.nytimes.com/2026/10/13/arts/music/steve-reich-composer-90.html
+
 **At Least 6 Injured in Stabbing in South Korea**\
 `The police in the city of Incheon said they had arrested one man and were investigating his motive.`\
 https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/12/business/europe-china-evs-hybrids.html
 **Federal Agents Search Home of Rep. Ilhan Omar**\
 `The search takes place within the 60-day window of the midterm elections, when the Justice Department has historically avoided such investigative steps related to political candidates.`\
 https://www.nytimes.com/2026/10/12/us/politics/ilhan-omar-home-searched.html
-
-**Kelly Clarkson’s Feud With Art of Play: What to Know**\
-`In an episode involving a famous singer and a purveyor of esoteric toys, everyone has an opinion about who made the big mistake. Big. Huge!`\
-https://www.nytimes.com/2026/10/12/style/kelly-clarkson-brooklyn-store-art-of-play.html
-
-**Amsterdam’s Van Gogh Museum Says It Reached Funding Deal and Won’t Have to Close**\
-`In a yearslong dispute, the Amsterdam institution pressed the Dutch government for an increased annual subsidy to pay for what the museum said were vital renovations.`\
-https://www.nytimes.com/2026/10/12/arts/van-gogh-museum-amsterdam-funding.html
-
-**Russell Brand’s Rape and Sexual Assault Trial Begins in London**\
-`Russell Brand, the YouTuber, comedian and actor, appeared in a London court on Monday for the start of a weekslong trial on charges of rape, sexual assault and indecent assault.`\
-https://www.nytimes.com/video/world/europe/100000011209016/russell-brand-trial-london-rape-sexual-assault.html
-
-**The Flawed Search for a Chatbot’s Soul**\
-`Readers discuss a front-page article about assertions that A.I. models could display human behavior and consciousness.`\
-https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
-
-**Strikes Put Saudi Arabia’s Economy Under Pressure**\
-`Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
-https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
 
