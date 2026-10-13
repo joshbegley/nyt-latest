@@ -1,3 +1,15 @@
+**Great Live Albums From Carnegie Hall**\
+`Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
+https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
+
+**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
+`The White House asked Kimberly Guilfoyle to resign from her post after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
+https://www.nytimes.com/video/us/politics/100000011210717/dc-trump-kimberly-guilfoyle-ambassador.html
+
+**Frances Stonor Saunders, Who Detailed C.I.A. Propaganda, Dies at 60**\
+`In a 1999 book, she chronicled the spy agency’s secret backing of Cold War culture projects to manipulate public opinion against Communism in Western Europe.`\
+https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
+
 **Florida Executes First Prisoner Since Botched Injection in Tennessee**\
 `The execution of James Robertson, who said he deliberately killed another inmate to get on death row, occurred without complications, state officials said.`\
 https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-injection.html
