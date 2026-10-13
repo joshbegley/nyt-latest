@@ -1,3 +1,7 @@
+**Restaurant Review: Soccería in New York**\
+`From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
+https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
+
 **Who Is Ahead in Georgia's 3rd Congressional District?**\
 `Track the latest polls in Georgia's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
