@@ -1,3 +1,7 @@
+**Calls Show How Confusion Delayed Emergency Response for Christa Pike**\
+`The first 911 call from inside the prison was made at 8:40 p.m. It took about 30 minutes to verify its authenticity.`\
+https://www.nytimes.com/2026/10/12/us/christa-pike-medical-care-delay.html
+
 **An Ad Targeting Susan Collins’s Opponent, Troy Jackson, Airs in the Wrong Portland**\
 `An executive with the Republican super PAC that paid for the ad attacking Troy Jackson, the Democratic Senate candidate in Maine, blamed its vendor for running the ad in Oregon.`\
 https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
