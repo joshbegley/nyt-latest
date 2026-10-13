@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-i
 https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-construction.html
 
 **Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
-`The expansive changes to campus life come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
+`The expansive changes to campus life, including working closely with the state police, come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-sexual-assault-fraternity-party-ban.html
 
 **Russia Detains Japanese Journalist for Alleged Espionage**\
