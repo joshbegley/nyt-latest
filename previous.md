@@ -1,3 +1,11 @@
+**A Father’s Mission Is to Show the World ‘What Russia Did to My Family’**\
+`After a glide bomb killed his wife and younger daughter, Yevhen Ovcharov was determined to prevent other Ukrainians from dying the same way.`\
+https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.html
+
+**Corrections: Oct. 13, 2026**\
+`Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
+https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
+
 **Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call
 `Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
 https://www.nytimes.com/2026/10/13/us/el-sayed-releasing-his-platform-on-ai-calls-it-an-existential-crisis.html
 
-**Mathematicians’ Latest Problem: What if A.I. Can Do Our Job?**\
+**When A.I. Comes for Your Purpose in Life**\
 `In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
 https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
 
@@ -181,16 +189,4 @@ https://www.nytimes.com/2026/10/13/science/four-winged-dinosaur-early-birds-flig
 **Steve Buscemi Can’t Be Typecast**\
 `Over 40 years in Hollywood, the actor has remained uncompromisingly himself.`\
 https://www.nytimes.com/2026/10/13/t-magazine/steve-buscemi-wild-horse-nine-wednesday.html
-
-**Book Review: ‘Music Against the Night,’ by Yiyun Li**\
-`In Yiyun Li’s new historical novel, two pianists on opposite sides of the world are brought inexorably together, by music.`\
-https://www.nytimes.com/2026/10/13/books/review/music-against-the-night-yiyun-li.html
-
-**My Greats | Steve Buscemi**\
-`The actor discusses everything from the greatest concert he’s ever seen to his favorite sweet treat.`\
-https://www.nytimes.com/video/t-magazine/100000011209604/my-greats-steve-buscemi.html
-
-**HB Studio to Say Goodbye to Its Longtime Village Playground**\
-`The studio, founded by the legendary acting teacher Herbert Berghof in 1945, has serious financial woes and is in disrepair.`\
-https://www.nytimes.com/2026/10/13/realestate/hb-studio-to-say-goodbye-to-its-longtime-village-playground.html
 

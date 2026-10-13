@@ -1,3 +1,15 @@
+**A Father’s Mission Is to Show the World ‘What Russia Did to My Family’**\
+`After a glide bomb killed his wife and younger daughter, Yevhen Ovcharov was determined to prevent other Ukrainians from dying the same way.`\
+https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.html
+
+**Corrections: Oct. 13, 2026**\
+`Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
+https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
+
+**When A.I. Comes for Your Purpose in Life**\
+`In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
+https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
+
 **Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
