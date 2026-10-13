@@ -1,3 +1,7 @@
+**Who Is Ahead in Georgia's 3rd Congressional District?**\
+`Track the latest polls in Georgia's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
+
 **Tupac Shakur Murder Conviction Lands Man 40 Years to Life in Prison**\
 `Duane Keith Davis was convicted by a jury of obtaining a gun and pursuing the rapper in a violent act of revenge in 1996.`\
 https://www.nytimes.com/2026/10/13/arts/music/tupac-shakur-murder-duane-keith-davis-sentenced.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/us/politics/top-gop-groups-pull-support-from-
 **Vance, Altman, Musk, Mamdani, Bieber and More at the DealBook Summit**\
 `The conference on Nov. 18 will bring together the biggest names in business, politics, culture and more`\
 https://www.nytimes.com/2026/10/13/business/dealbook/dealbook-summit-lineup.html
-
-**Six Flags Roller Coaster Leaves 1 Dead and Several Injured in Georgia**\
-`One rider died and several others were injured on Monday at the Six Flags Over Georgia amusement park, the police said. Details about the death were not immediately available.`\
-https://www.nytimes.com/video/us/100000011210286/six-flags-georgia-death-goliath-roller-coaster.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
