@@ -1,3 +1,15 @@
+**What if All the President’s Men Were, in Fact, Railroaded?**\
+`Nixon got a great deal. All the president’s men, not so much.`\
+https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**Shifting Midterm Spending Shows Where Parties Are Confident, or Not**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
+**Rising Interest Rates Bite Some Wall Street Banks**\
+`JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
+https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
+
 **Restaurant Review: So Fox in Atlanta**\
 `The chef Myles Moody returns home to bring his worldly take on the classics.`\
 https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
