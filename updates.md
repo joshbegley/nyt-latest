@@ -1,3 +1,31 @@
+**After Christa Pike’s Failed Execution, Confusion Delayed Emergency Help**\
+`New audio reveals how confusion among emergency dispatchers delayed medical care after Christa Pike’s botched execution.`\
+https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call-emergency-care.html
+
+**El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
+`Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
+https://www.nytimes.com/2026/10/13/us/el-sayed-releasing-his-platform-on-ai-calls-it-an-existential-crisis.html
+
+**Mathematicians’ Latest Problem: What if A.I. Can Do Our Job?**\
+`In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
+https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
+
+**NYT Connections Answers for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/connections-companion-1221.html
+
+**Musk Pours $276 Million Into the Midterms, and Federal Agents Raid Home of Rep. Ilhan Omar**\
+`Plus, setting a record on Mars.`\
+https://www.nytimes.com/2026/10/13/podcasts/the-headlines/musk-pours-276-million-into-the-midterms-and-federal-agents-raid-home-of-rep-ilhan-omar.html
+
+**NYT Strands Hints for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/strands-sidekick-955.html
+
+**Today’s Wordle Hints for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for day, Date, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/wordle-review-1943.html
+
 **Chip Stocks Tumble on A.I. Spending Fears and Rising Chinese Competition**\
 `South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
 https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html

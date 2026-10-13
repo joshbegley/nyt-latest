@@ -1,3 +1,31 @@
+**After Christa Pike’s Failed Execution, Confusion Delayed Emergency Help**\
+`New audio reveals how confusion among emergency dispatchers delayed medical care after Christa Pike’s botched execution.`\
+https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call-emergency-care.html
+
+**El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
+`Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
+https://www.nytimes.com/2026/10/13/us/el-sayed-releasing-his-platform-on-ai-calls-it-an-existential-crisis.html
+
+**Mathematicians’ Latest Problem: What if A.I. Can Do Our Job?**\
+`In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
+https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
+
+**NYT Connections Answers for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/connections-companion-1221.html
+
+**Musk Pours $276 Million Into the Midterms, and Federal Agents Raid Home of Rep. Ilhan Omar**\
+`Plus, setting a record on Mars.`\
+https://www.nytimes.com/2026/10/13/podcasts/the-headlines/musk-pours-276-million-into-the-midterms-and-federal-agents-raid-home-of-rep-ilhan-omar.html
+
+**NYT Strands Hints for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/strands-sidekick-955.html
+
+**Today’s Wordle Hints for October 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for day, Date, 2026.`\
+https://www.nytimes.com/2026/10/13/crosswords/wordle-review-1943.html
+
 **Chip Stocks Tumble on A.I. Spending Fears and Rising Chinese Competition**\
 `South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
 https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/13/us/california-anchor-outs-boats.html
 **He Would Be Florida’s First Black Governor. Can He Sway Black Voters?**\
 `Byron Donalds, the Republican nominee for governor, is working to win over Black voters who usually support Democrats as his party girds for the possibility of low turnout.`\
 https://www.nytimes.com/2026/10/13/us/byron-donalds-florida-governor-black-voters.html
-
-**White Paint. It’s Everywhere. She Hates It.**\
-`In her latest book, “A Dead White,” Wendy S. Walters considers the seemingly neutral background of daily life.`\
-https://www.nytimes.com/2026/10/13/style/white-paint-book-wendy-walters.html
-
-**Book Review: ‘Passengers,’ by Alexander Maksik**\
-`Alexander Maksik’s new novel explores the bonds and strains of a father-daughter relationship amid a developing crisis.`\
-https://www.nytimes.com/2026/10/13/books/review/alexander-maksik-passengers.html
-
-**John Berendt Honed His Voice for ‘Midnight in the Garden of Good and Evil’ in the Unlikeliest Place**\
-`Before John Berendt wrote his classic “Midnight in the Garden of Good and Evil,” he trained his keen eye on men’s wear and manners in a long-running Esquire column.`\
-https://www.nytimes.com/2026/10/13/style/john-berendt-midnight-in-the-garden-of-good-and-evil-esquire.html
-
-**The New Affordability Fight in the Midterms: Home Insurance Prices**\
-`Extreme weather is driving up insurance rates, impacting races from California to the nation’s central Tornado Alley.`\
-https://www.nytimes.com/2026/10/13/us/politics/home-insurance-extreme-weather-elections.html
-
-**Composer Steve Reich, at 90, Returns With ‘In All Your Ways’**\
-`Reich, whose music will be featured in birthday celebrations this month, said his latest work was “one of the best things I’ve done in a long time.”`\
-https://www.nytimes.com/2026/10/13/arts/music/steve-reich-composer-90.html
-
-**At Least 6 Injured in Stabbing in South Korea**\
-`The police in the city of Incheon said they had arrested one man and were investigating his motive.`\
-https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
-
-**American Woman Who Is Accused of Joining ISIS Goes on Trial**\
-`Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
-https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
 
