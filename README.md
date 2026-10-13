@@ -1,3 +1,7 @@
+**Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
+`A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
+https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
+
 **Supreme Court Will Review Dispute Over Records From Elon Musk’s DOGE**\
 `A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
 https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
 https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
 
 **Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
-`The attack targeted a Danish software system in at least 380 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
+`The attack targeted a Danish software system in more than 400 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
 https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
 
 **Your Politics Questions**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/13/business/term-premium-bond-yields.html
 **Are the Midterm Elections Safe? 8 Experts Weigh In on the Threats.**\
 `Eight election experts weigh in on Trump’s midterm threats.`\
 https://www.nytimes.com/interactive/2026/10/13/opinion/midterm-elections-trump-integrity.html
-
-**In Atlanta, an A.D.U. Built With Salvaged Materials for $50,000**\
-`Evan Levy realized he could build an accessory dwelling unit within his budget if he did much of the work himself.`\
-https://www.nytimes.com/2026/10/13/realestate/in-atlanta-an-adu-built-with-salvaged-materials-for-50000.html
 
