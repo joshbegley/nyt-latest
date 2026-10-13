@@ -1,3 +1,7 @@
+**F.B.I. Disrupts Pyongyang Revenue Stream: North Koreans in U.S. Tech Jobs**\
+`F.B.I. investigators worked with the cybersecurity firm CrowdStrike to dismantle so-called laptop farms that steal American identities to earn cash for Pyongyang.`\
+https://www.nytimes.com/2026/10/13/us/politics/north-korea-it-workers-fbi.html
+
 **Judge Prohibits Further Tree Cutting at East Potomac Golf Course for Two Weeks**\
 `The ruling barred major modifications at the D.C. course while a federal judge seeks testimony from Interior Department officials about whether they ignored a court order.`\
 https://www.nytimes.com/2026/10/13/us/politics/trump-potomac-tree-cutting-golf-course.html
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**What if All the President’s Men Were, in Fact, Railroaded?**\
-`Nixon got a great deal. All the president’s men, not so much.`\
-https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
-
 **The Surfer’s Guide to Living a Longer, More Active Life**\
 `Some of the best lessons for remaining active in later years can be found on a surfboard.`\
 https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
+
+**What if All the President’s Men Were, in Fact, Railroaded?**\
+`Nixon got a great deal. All the president’s men, not so much.`\
+https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
 **Bulgaria Summons Russian Ambassador After More Black Sea Drone Strikes**\
 `Drones struck two ships off Bulgaria’s Black Sea coast, according to the country’s prime minister.`\
 https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
-
-**Nuremberg Airport in Germany Is Briefly Shut by False Alarm of Hijacking**\
-`German police said they had determined there was “no danger” after a plane mistakenly transmitted a code suggesting a possible hijacking onboard.`\
-https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
