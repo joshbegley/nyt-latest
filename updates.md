@@ -1,3 +1,7 @@
+**Jimmy Kimmel Teases Trump Over Not Getting the Nobel Prize**\
+`“Thanks a lot, Norway. I hope you’re happy — you made our baby cry,” Kimmel said after the president blamed Norway.`\
+https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peace-prize.html
+
 **This Copper Mine Led to a Civil War. Can Reopening It Fund a New Nation?**\
 `Rising demand for copper has fueled interest in Bougainville’s Panguna mine, which has been shut for four decades. Yet some fear a rush to reopen risks return to violence.`\
 https://www.nytimes.com/2026/10/13/world/asia/bougainville-island-panguna-mine-pollution-reopening.html
