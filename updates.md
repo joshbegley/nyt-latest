@@ -1,3 +1,7 @@
+**Apple Introduces HomeView, a $299 Tablet for the Home**\
+`Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
+https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
+
 **A Father’s Mission Is to Show the World ‘What Russia Did to My Family’**\
 `After a glide bomb killed his wife and younger daughter, Yevhen Ovcharov was determined to prevent other Ukrainians from dying the same way.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.html
