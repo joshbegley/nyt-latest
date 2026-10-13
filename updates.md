@@ -1,3 +1,11 @@
+**Here’s How to Navigate the Portal Bridge Disruptions**\
+`NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
+https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
+
+**Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
+`The attack targeted a Danish software system in at least 380 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
+https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
+
 **Your Politics Questions**\
 `We answer reader queries about the midterms.`\
 https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html

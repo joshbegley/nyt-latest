@@ -1,3 +1,11 @@
+**Here’s How to Navigate the Portal Bridge Disruptions**\
+`NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
+https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
+
+**Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
+`The attack targeted a Danish software system in at least 380 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
+https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
+
 **Your Politics Questions**\
 `We answer reader queries about the midterms.`\
 https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html
@@ -178,23 +186,15 @@ https://www.nytimes.com/2026/10/13/opinion/homelessness-unhoused-denver-shelters
 `A pair of low-profile entrepreneurs gave $100 million to Nigel Farage’s Reform U.K. Party. The system may never be the same.`\
 https://www.nytimes.com/2026/10/13/business/nigel-farage-crypto-uk-politics.html
 
-**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
-`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
-https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
-
 **There’s Worlds Out There More Habitable Than Earth**\
 `Scientists believe there are planets outside our solar system where life is even more abundant and sustainable.`\
 https://www.nytimes.com/2026/10/13/science/inhabitable-planets-solar-system.html
 
+**States Now Have to Decide How to Spend Meta’s Settlement Billions**\
+`Previous agreements with the tobacco and opioid industries show the difficulty of putting the money in the right hands.`\
+https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opioids.html
+
 **6 Things Longevity Experts Wish People Would Stop Saying**\
 `Living longer and healthier is important. But don’t believe everything you hear.`\
 https://www.nytimes.com/2026/10/13/well/longevity-experts-advice.html
-
-**Would You Like to Learn a Trade?**\
-`Gen Z is increasingly turning to trade schools in hopes of future-proofing their careers against A.I. How do you feel about working with your hands?`\
-https://www.nytimes.com/2026/10/13/learning/would-you-like-to-learn-a-trade.html
-
-**These California Boat Dwellers Fear the Worst: Life on Land**\
-`For decades, dozens of people lived rent-free on a bay just north of San Francisco. A few holdouts remained as a deadline loomed to leave the water.`\
-https://www.nytimes.com/2026/10/13/us/california-anchor-outs-boats.html
 
