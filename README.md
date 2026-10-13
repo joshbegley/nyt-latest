@@ -1,3 +1,7 @@
+**‘Girls’ to Return for a Limited Run**\
+`HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
+https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
+
 **James Dolan, a Former Hochul Supporter, Goes All In on Her G.O.P. Rival**\
 `The Knicks owner is urging New York’s business elite to abandon Gov. Kathy Hochul, highlighting her support of Mayor Zohran Mamdani. Mr. Dolan has spent millions to back her opponent, Bruce Blakeman.`\
 https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-hochul.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
 **Midterm Spending Highlights G.O.P. Anxiety and Democratic Optimism**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
-
-**Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
-`Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
-https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

@@ -1,3 +1,19 @@
+**James Dolan, a Former Hochul Supporter, Goes All In on Her G.O.P. Rival**\
+`The Knicks owner is urging New York’s business elite to abandon Gov. Kathy Hochul, highlighting her support of Mayor Zohran Mamdani. Mr. Dolan has spent millions to back her opponent, Bruce Blakeman.`\
+https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-hochul.html
+
+**Miami Tugboat Captain Gets 18 Months in Crash That Killed 3 Children**\
+`Five girls and a camp counselor were thrown into the water off Miami Beach in July last year when a barge pushed by a tugboat struck their stalled sailboat.`\
+https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
+
+**President Obama’s Climate Legacy**\
+`The Obama Presidential Center’s exhibits on climate change was like going back in time to a seemingly more harmonious world.`\
+https://www.nytimes.com/2026/10/13/climate/obama-presidential-center-climate.html
+
+**We Want Your Original Cartoon**\
+`The cartoonist P.C. Vey died recently. We’re inviting readers to share original cartoons of their own that, like Mr. Vey’s, find humor in the absurdities of everyday life.`\
+https://www.nytimes.com/2026/10/13/obituaries/cartoons-new-yorker-pc-vey.html
+
 **The New Yorker Cartoonist P.C. Vey Has Died**\
 `His work for The New Yorker savaged the absurdities of everyday life. He has died at 70.`\
 https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.html
