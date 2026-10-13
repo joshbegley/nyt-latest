@@ -1,3 +1,7 @@
+**Judge Prohibits Further Tree Cutting at East Potomac Golf Course for Two Weeks**\
+`The ruling barred major modifications at the D.C. course while a federal judge seeks testimony from Interior Department officials about whether they ignored a court order.`\
+https://www.nytimes.com/2026/10/13/us/politics/trump-potomac-tree-cutting-golf-course.html
+
 **Martin Shkreli Violated Lifetime Ban From Drug Industry, U.S. Says**\
 `The attorneys general of New York and six other states joined the Federal Trade Commission in accusing the disgraced former pharmaceutical executive of repeatedly violating the ban.`\
 https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-daraprim.html

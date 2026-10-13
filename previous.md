@@ -1,3 +1,7 @@
+**Judge Prohibits Further Tree Cutting at East Potomac Golf Course for Two Weeks**\
+`The ruling barred major modifications at the D.C. course while a federal judge seeks testimony from Interior Department officials about whether they ignored a court order.`\
+https://www.nytimes.com/2026/10/13/us/politics/trump-potomac-tree-cutting-golf-course.html
+
 **Martin Shkreli Violated Lifetime Ban From Drug Industry, U.S. Says**\
 `The attorneys general of New York and six other states joined the Federal Trade Commission in accusing the disgraced former pharmaceutical executive of repeatedly violating the ban.`\
 https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-daraprim.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria
 **Nuremberg Airport in Germany Is Briefly Shut by False Alarm of Hijacking**\
 `German police said they had determined there was “no danger” after a plane mistakenly transmitted a code suggesting a possible hijacking onboard.`\
 https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
-
-**Here’s How to Navigate the Portal Bridge Disruptions**\
-`NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
-https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
