@@ -1,3 +1,11 @@
+**I.M.F. Warns Mideast War Will Widen Gap Between Rich and Poor Countries**\
+`Persistent conflicts, high energy costs and technological upheavals will slow global growth and raise prices, the organization forecast.`\
+https://www.nytimes.com/2026/10/12/business/economy/imf-global-economic-outlook.html
+
+**NYT Crossword Answers for Oct. 13, 2026**\
+`It’s an all-around celebration in Gia Bosko’s crossword.`\
+https://www.nytimes.com/2026/10/12/crosswords/daily-puzzle-2026-10-13.html
+
 **Trump, Playing Defense in Ohio, Tries to Shore Up Republicans in Tough Races**\
 `The president rallied in Youngstown for Senator Jon Husted and Vivek Ramaswamy, who are in competitive contests against Democratic opponents.`\
 https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
