@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.
 `Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
 https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
 
-**As A.I. Becomes Midterm Flashpoint, El-Sayed Calls For Pause on Development**\
+**Shifting Midterm Spending Shows Where Parties Are Confident, or Not**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 
@@ -90,8 +90,8 @@ https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 
-**Higher Interest Rates Take Bite Out of JPMorgan’s Profits**\
-`After banner stretch, the bank released surprisingly spotty earnings results for the third quarter. Its rival Goldman Sachs posted better-than-expected results.`\
+**Rising Interest Rates Bite Some Wall Street Banks**\
+`JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
 
 **Zelensky Comment Raises Fears Over U.S. Intelligence Sharing**\
