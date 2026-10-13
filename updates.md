@@ -1,3 +1,11 @@
+**The Complicated Puzzle of the Formula 1 Schedule**\
+`It can take years to create, and then weather and wars can upend all the planning.`\
+https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
+
+**Trump Has Asked Kimberly Guilfoyle to Resign, White House Says**\
+`Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports.`\
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
+
 **Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
 `The Iran-backed militia threatened to attack the Saudi energy giant Aramco, which it has done before, after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html

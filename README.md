@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
 
 **Trump Has Asked Kimberly Guilfoyle to Resign, White House Says**\
-`Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports.`\
+`Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports including asking a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
 
 **Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
@@ -46,8 +46,8 @@ https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interes
 `The Ukrainian leader said Kyiv had no early warning from its Western partners before a Russian ballistic missile attack. But some such attacks do go undetected.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
 
-**MI5 Chief Warns of Growing Iranian and Russian Threats to U.K.**\
-`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns on British soil. He called Iran-led attacks on Jewish communities “sickening.”`\
+**MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
+`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns in the U.K., and called Iran-led attacks on Jewish communities “sickening.”`\
 https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
 
 **Do You Recall the Spooky Locations in These Horror Books?**\
