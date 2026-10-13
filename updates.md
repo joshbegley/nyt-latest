@@ -1,3 +1,7 @@
+**They Lived Rent-Free on Boats Near San Francisco. Until Now.**\
+`For decades, dozens of boat dwellers lived rent free on a bay just north of San Francisco. After a yearslong fight, just a few holdouts remained, with a deadline to leave by Oct. 15.`\
+https://www.nytimes.com/video/us/100000011152176/san-francisco-bay-boat-dwellers-deadline.html
+
 **This Town Is Crazy About Elvis**\
 `Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
 https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html

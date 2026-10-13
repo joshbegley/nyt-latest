@@ -1,3 +1,7 @@
+**They Lived Rent-Free on Boats Near San Francisco. Until Now.**\
+`For decades, dozens of boat dwellers lived rent free on a bay just north of San Francisco. After a yearslong fight, just a few holdouts remained, with a deadline to leave by Oct. 15.`\
+https://www.nytimes.com/video/us/100000011152176/san-francisco-bay-boat-dwellers-deadline.html
+
 **This Town Is Crazy About Elvis**\
 `Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
 https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/crosswords/spelling-bee-forum.html
 **Jimmy Kimmel Teases Trump Over Not Getting the Nobel Prize**\
 `“Thanks a lot, Norway. I hope you’re happy — you made our baby cry,” Kimmel said after the president blamed Norway.`\
 https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peace-prize.html
-
-**This Copper Mine Led to a Civil War. Can Reopening It Fund a New Nation?**\
-`Rising demand for copper has fueled interest in Bougainville’s Panguna mine, which has been shut for four decades. Yet some fear a rush to reopen risks return to violence.`\
-https://www.nytimes.com/2026/10/13/world/asia/bougainville-island-panguna-mine-pollution-reopening.html
 
