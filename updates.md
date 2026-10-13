@@ -1,3 +1,7 @@
+**An Ad Targeting Susan Collins’s Opponent, Troy Jackson, Airs in the Wrong Portland**\
+`An executive with the Republican super PAC that paid for the ad attacking Troy Jackson, the Democratic Senate candidate in Maine, blamed its vendor for running the ad in Oregon.`\
+https://www.nytimes.com/2026/10/12/us/politics/maine-troy-jackson-ad-portland-oregon.html
+
 **‘Breaking Bad’ Actor RJ Mitte Dies at 34**\
 `The actor RJ Mitte, who played Walter White’s son on “Breaking Bad,” died on Monday in Texas at age 34.`\
 https://www.nytimes.com/video/obituaries/100000011209837/breaking-bad-actor-rj-mitte-dies.html
