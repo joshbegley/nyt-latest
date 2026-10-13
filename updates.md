@@ -1,3 +1,11 @@
+**F.B.I. Disrupts Pyongyang Revenue Stream: North Koreans in U.S. Tech Jobs**\
+`F.B.I. investigators worked with the cybersecurity firm CrowdStrike to dismantle so-called laptop farms that steal American identities to earn cash for Pyongyang.`\
+https://www.nytimes.com/2026/10/13/us/politics/north-korea-it-workers-fbi.html
+
+**Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
+`The expansive changes to campus life, including working closely with the state police, come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-sexual-assault-fraternity-party-ban.html
+
 **Judge Prohibits Further Tree Cutting at East Potomac Golf Course for Two Weeks**\
 `The ruling barred major modifications at the D.C. course while a federal judge seeks testimony from Interior Department officials about whether they ignored a court order.`\
 https://www.nytimes.com/2026/10/13/us/politics/trump-potomac-tree-cutting-golf-course.html
