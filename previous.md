@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
+`Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
+https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
+
 **Higher Interest Rates Take Bite Out of JPMorgan’s Profits**\
 `After banner stretch, the bank released surprisingly spotty earnings results for the third quarter. Its rival Goldman Sachs posted better-than-expected results.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
 `Drones struck two ships off Bulgaria’s Black Sea coast, according to the country’s prime minister.`\
 https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
 
-**Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
-`It was not immediately clear what had prompted the alert, but the German police said it had determined there was “no danger.”`\
+**Nuremberg Airport in Germany Is Briefly Shut by False Alarm of Hijacking**\
+`German police said they had determined there was “no danger” after a plane mistakenly transmitted a code suggesting a possible hijacking onboard.`\
 https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
 
 **Here’s How to Navigate the Portal Bridge Disruptions**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/t-magazine/100000011209604/my-greats-steve-buscemi
 **HB Studio to Say Goodbye to Its Longtime Village Playground**\
 `The studio, founded by the legendary acting teacher Herbert Berghof in 1945, has serious financial woes and is in disrepair.`\
 https://www.nytimes.com/2026/10/13/realestate/hb-studio-to-say-goodbye-to-its-longtime-village-playground.html
-
-**Bunion Pain? How to Find Relief and When to Consider Surgery**\
-`We asked experts what you can do to manage the discomfort and when to consider surgery.`\
-https://www.nytimes.com/2026/10/13/well/move/bunions-pain-treatment-surgery.html
 

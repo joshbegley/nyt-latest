@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
+`Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
+https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
+
+**Nuremberg Airport in Germany Is Briefly Shut by False Alarm of Hijacking**\
+`German police said they had determined there was “no danger” after a plane mistakenly transmitted a code suggesting a possible hijacking onboard.`\
+https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
+
 **Higher Interest Rates Take Bite Out of JPMorgan’s Profits**\
 `After banner stretch, the bank released surprisingly spotty earnings results for the third quarter. Its rival Goldman Sachs posted better-than-expected results.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
