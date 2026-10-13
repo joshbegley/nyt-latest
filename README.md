@@ -1,3 +1,7 @@
+**This Town Is Crazy About Elvis**\
+`Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
+https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html
+
 **U.K. and Europe Recoil From Trump’s Diesel Deal With Putin**\
 `Shocked by the U.S. agreement with Russia, which Ukraine has called “a gift” to President Putin, officials in Europe have coalesced around a cautious diplomatic message.`\
 https://www.nytimes.com/2026/10/13/world/europe/trump-putin-diesel-uk-europe-gift.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peac
 **This Copper Mine Led to a Civil War. Can Reopening It Fund a New Nation?**\
 `Rising demand for copper has fueled interest in Bougainville’s Panguna mine, which has been shut for four decades. Yet some fear a rush to reopen risks return to violence.`\
 https://www.nytimes.com/2026/10/13/world/asia/bougainville-island-panguna-mine-pollution-reopening.html
-
-**Quote of the Day: NATO Details Plan to Shield Ukraine’s European Allies From Russia**\
-`Quotation of the Day for Tuesday, October 13, 2026.`\
-https://www.nytimes.com/2026/10/13/pageoneplus/quote-of-the-day-nato-details-plan-to-shield-ukraines-european-allies-from-russia.html
 
