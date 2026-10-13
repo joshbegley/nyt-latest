@@ -1,3 +1,7 @@
+**Why Chinese College Grads Are Becoming Farmers**\
+`Facing a competitive job market, college graduates in China are trading corporate jobs for farming, equipped with smartphones and tech skills.`\
+https://www.nytimes.com/video/world/asia/100000011189303/china-young-people-new-farmer.html
+
 **Trump Says He Is ‘Looking at’ Firing Kimberly Guilfoyle**\
 `President Trump made the remark in response to a question about the U.S. ambassador to Greece, who faces accusations that she asked a G.O.P. donor to pay off her credit card.`\
 https://www.nytimes.com/2026/10/12/us/politics/trump-kimberly-guilfoyle-greece.html
