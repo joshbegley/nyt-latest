@@ -1,3 +1,7 @@
+**The New White House Press Secretary Has Awkward Debut**\
+`President Trump’s new press secretary, Katie Zacharia, held her first press briefing on Tuesday morning at the White House lectern. She read from a script for eight minutes, called on only three reporters and made an awkward slip-up.`\
+https://www.nytimes.com/video/us/politics/100000011212093/katie-zacharia-white-house-press-secretary.html
+
 **The Evening: Trump Aids Putin, Feuds With Ukraine**\
 `Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukrain
 **Judy Markey, Frank and Funny Voice on Chicago Radio, Dies at 82**\
 `She and Kathy O’Malley — known as “the Girlfriends” — were the rare female hosts in a major market. Their freewheeling segments included “Sex Thursday.”`\
 https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
-
-**A Miso Fish Chowder That Really Satisfies**\
-`A light, umami-ful twist on New England clam chowder.`\
-https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
