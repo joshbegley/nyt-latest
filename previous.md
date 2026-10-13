@@ -1,3 +1,7 @@
+**Chip Stocks Tumble on A.I. Spending Fears and Rising Chinese Competition**\
+`South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
+https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html
+
 **Live Updates: Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
 https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
 **American Woman Who Is Accused of Joining ISIS Goes on Trial**\
 `Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
 https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
-
-**NYT Spelling Bee Answers for October 13, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/13/crosswords/spelling-bee-forum.html
 

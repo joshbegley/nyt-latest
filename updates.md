@@ -1,3 +1,7 @@
+**Chip Stocks Tumble on A.I. Spending Fears and Rising Chinese Competition**\
+`South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
+https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html
+
 **Live Updates: Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
 https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
