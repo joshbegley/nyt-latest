@@ -70,7 +70,7 @@ https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call
 `Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
 https://www.nytimes.com/2026/10/13/us/el-sayed-releasing-his-platform-on-ai-calls-it-an-existential-crisis.html
 
-**Mathematicians’ Latest Problem: What if A.I. Can Do Our Job?**\
+**When A.I. Comes for Your Purpose in Life**\
 `In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
 https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
 
