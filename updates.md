@@ -1,3 +1,7 @@
+**Six Flags Closes Multiple Rides After Death on Georgia Roller Coaster**\
+`One rider died and several others were injured at Six Flags Over Georgia, the police said. The company said it was temporarily closing nine rides in the U.S. and Canada as a precaution.`\
+https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html
+
 **At Least 6 Injured in Stabbing in South Korea**\
 `The police in the city of Incheon said they had arrested one man and were investigating his motive.`\
 https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
