@@ -1,3 +1,19 @@
+**Ransomware Attacks Have Swept Japan. A.I. May Be Making Them Easier.**\
+`Critical infrastructure has been targeted in a wave of cyberattacks, which experts say are rising because of artificial intelligence.`\
+https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intelligence.html
+
+**A Public Execution Won’t Distract From Pete Hegseth’s Failures**\
+`The secretary of defense is banking on a sadistic public.`\
+https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
+
+**A Look at California's Billionaires vs. the Rest of the World**\
+`Next month, California residents will vote on Proposition 40. Here's what at stake.`\
+https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
+
+**Trump Squeezes Ukraine, Again**\
+`The president’s proposed fuel deal with Russia and a one-sided cease-fire plan are putting Kyiv in a tough spot as winter approaches.`\
+https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
+
 **The Rise and Fall of Ambassador Kimberly Guilfoyle**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
@@ -174,23 +190,7 @@ https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-a
 `Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
 https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
 
-**War Collides With Saudi Ambition at a Gathering of Oil Powers**\
-`The tone of the WPC Energy Congress in Riyadh this week was defiant even as delegates were forced to redirect travel or address the audience from afar.`\
-https://www.nytimes.com/2026/10/13/business/saudi-arabia-houthi-oil.html
-
-**Allan McNish: From Top Driver to Racing Director of Audi**\
-`He won Le Mans three times, twice with Audi. Now he’s back in Formula 1.`\
-https://www.nytimes.com/2026/10/13/sports/f1-allan-mcnish-audi.html
-
-**Apple Introduces HomeView, a $299 Tablet for the Home**\
-`Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
-https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
-
 **Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
-
-**Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
-`NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
-https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
 

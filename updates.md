@@ -1,3 +1,19 @@
+**Ransomware Attacks Have Swept Japan. A.I. May Be Making Them Easier.**\
+`Critical infrastructure has been targeted in a wave of cyberattacks, which experts say are rising because of artificial intelligence.`\
+https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intelligence.html
+
+**A Public Execution Won’t Distract From Pete Hegseth’s Failures**\
+`The secretary of defense is banking on a sadistic public.`\
+https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
+
+**A Look at California's Billionaires vs. the Rest of the World**\
+`Next month, California residents will vote on Proposition 40. Here's what at stake.`\
+https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
+
+**Trump Squeezes Ukraine, Again**\
+`The president’s proposed fuel deal with Russia and a one-sided cease-fire plan are putting Kyiv in a tough spot as winter approaches.`\
+https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
+
 **The Rise and Fall of Ambassador Kimberly Guilfoyle**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
