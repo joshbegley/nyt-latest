@@ -86,8 +86,8 @@ https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
 `Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
 
-**Saudi Arabia and Yemen’s Houthis Trade Threats To Hit Oil Facilities**\
-`The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
+**Saudi Arabia and Yemen’s Houthis Trade Threats to Hit Oil Facilities**\
+`The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice for an oil facility in the Yemeni capital.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
 
 **Hackers Target Supermarket Refrigerators in France**\
