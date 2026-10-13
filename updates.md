@@ -1,3 +1,7 @@
+**Pope Leo Undergoes ‘Successful’ Surgery to Remove Lung Nodule, Vatican Says**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
 **Pope Leo Undergoes ‘Successful’ Surgery to Remove Lung Nodule**\
 `The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
