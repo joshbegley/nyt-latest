@@ -1,3 +1,15 @@
+**Duane Keith Davis Sentenced to 40 Years to Life for Tupac Shakur Murder**\
+`Duane Keith Davis on Tuesday was sentenced to 40 years to life in prison for orchestrating the 1996 drive-by shooting that killed Tupac Shakur.`\
+https://www.nytimes.com/video/us/100000011211647/duane-davis-sentencing-tupac-shakur-murder.html
+
+**U.S. to Drop Charges Against Ex-C.I.A. Analyst Over Aid to South Korea**\
+`Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
+https://www.nytimes.com/2026/10/13/nyregion/cia-analyst-south-korea-charges.html
+
+**‘Honey Please’: The Steep Rise and Sudden Fall of Kimberly Guilfoyle.**\
+`President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
+https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
+
 **U.S. to Drop Charges Against Ex-C.I.A. Analyst Over Aid to South Korea**\
 `Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
 https://www.nytimes.com/2026/10/13/nyregion/us-to-drop-charges-against-ex-cia-analyst-over-aid-to-south-korea.html
