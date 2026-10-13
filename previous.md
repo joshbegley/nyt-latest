@@ -1,3 +1,7 @@
+**Six Flags Roller Coaster Leaves 1 Dead and Several Injured in Georgia**\
+`One rider died and several others were injured on Monday at the Six Flags Over Georgia amusement park, the police said. Details about the death were not immediately available.`\
+https://www.nytimes.com/video/us/100000011210286/six-flags-georgia-death-goliath-roller-coaster.html
+
 **Pope Leo Prepares for Surgery to Remove Lung Nodule**\
 `The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
 https://www.nytimes.com/2026/10/13/world/europe/black-sea-drones-russia-bulgaria-nato.html
 
 **Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
-`It was not immediately clear what had prompted the alert, which halted flights at the Albrecht Dürer Airport.`\
+`It was not immediately clear what had prompted the alert, but the German police said it had determined there was “no danger.”`\
 https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
 
 **Here’s How to Navigate the Portal Bridge Disruptions**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/books/review/freedoms-gate-soyica-diggs-colbe
 **We Know How to Fix Homelessness. Why Don’t More Cities Do It?**\
 `It takes doing things conservatives and progressives both dislike.`\
 https://www.nytimes.com/2026/10/13/opinion/homelessness-unhoused-denver-shelters.html
-
-**How Two Crypto Billionaires Are Making British Politics More American**\
-`A pair of low-profile entrepreneurs gave $100 million to Nigel Farage’s Reform U.K. Party. The system may never be the same.`\
-https://www.nytimes.com/2026/10/13/business/nigel-farage-crypto-uk-politics.html
 

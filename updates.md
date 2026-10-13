@@ -1,3 +1,11 @@
+**Six Flags Roller Coaster Leaves 1 Dead and Several Injured in Georgia**\
+`One rider died and several others were injured on Monday at the Six Flags Over Georgia amusement park, the police said. Details about the death were not immediately available.`\
+https://www.nytimes.com/video/us/100000011210286/six-flags-georgia-death-goliath-roller-coaster.html
+
+**Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
+`It was not immediately clear what had prompted the alert, but the German police said it had determined there was “no danger.”`\
+https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
+
 **Pope Leo Prepares for Surgery to Remove Lung Nodule**\
 `The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
