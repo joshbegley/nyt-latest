@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/10/12/us/trump-youngstown-ohio-rally.html
 `Advances in self-driving technology have made it easier to traverse distant worlds.`\
 https://www.nytimes.com/2026/10/12/science/mars-rover-sets-record.html
 
-**Rider on Georgia Roller Coaster Dies and Several Others Are Injured**\
-`The episode happened Monday afternoon at the Six Flags Over Georgia amusement park, the police said. It was not immediately clear what led up to the rider’s death.`\
+**Six Flags Closes Multiple Rides After Death on Georgia Roller Coaster**\
+`One rider died and several others were injured at Six Flags Over Georgia, the police said. The company said it was temporarily closing nine rides in the U.S. and Canada as a precaution.`\
 https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html
 
 **Calls Show How Confusion Delayed Emergency Response for Christa Pike**\
