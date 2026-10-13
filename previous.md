@@ -1,3 +1,7 @@
+**Why A.I. Has This Mathematician in Tears**\
+`Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
+
 **Great Live Albums From Carnegie Hall**\
 `Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
 https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
@@ -126,7 +130,7 @@ https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.
 `Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
 https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
 
-**Shifting Midterm Spending Shows Where Parties Are Confident, or Not**\
+**Shifting Midterm Spending Shows Democratic Confidence and Republican Concern**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
 **Cyberattack Hits Hundreds of Supermarket Refrigeration Systems in France**\
 `The attack targeted a Danish software system in more than 400 supermarkets, forcing some shops to throw out frozen produce. The attackers have not been identified.`\
 https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-refrigeration.html
-
-**Your Politics Questions**\
-`We answer reader queries about the midterms.`\
-https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

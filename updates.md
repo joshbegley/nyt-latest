@@ -1,3 +1,11 @@
+**Why A.I. Has This Mathematician in Tears**\
+`Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
+
+**Shifting Midterm Spending Shows Democratic Confidence and Republican Concern**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
 **Great Live Albums From Carnegie Hall**\
 `Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
 https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
