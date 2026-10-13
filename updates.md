@@ -1,3 +1,11 @@
+**El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
+`Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
+https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
+
+**4,200 Miles From Graceland, This Town Is Crazy About Elvis**\
+`Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
+https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html
+
 **Trump Hands Victories to Putin, Who Offers More War in Return**\
 `Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
