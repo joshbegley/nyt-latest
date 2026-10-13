@@ -46,13 +46,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**What if All the President’s Men Were, in Fact, Railroaded?**\
-`Nixon got a great deal. All the president’s men, not so much.`\
-https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
-
 **The Surfer’s Guide to Living a Longer, More Active Life**\
 `Some of the best lessons for remaining active in later years can be found on a surfboard.`\
 https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
+
+**What if All the President’s Men Were, in Fact, Railroaded?**\
+`Nixon got a great deal. All the president’s men, not so much.`\
+https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
