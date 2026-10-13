@@ -1,3 +1,7 @@
+**Apple Introduces HomeView, a $299 Tablet for the Home**\
+`Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
+https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
+
 **A Father’s Mission Is to Show the World ‘What Russia Did to My Family’**\
 `After a glide bomb killed his wife and younger daughter, Yevhen Ovcharov was determined to prevent other Ukrainians from dying the same way.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/13/climate/timber-industry-wildfire-risk.html
 **What Can Four-Winged Dinosaurs Teach Us About Birds?**\
 `Flight was probably more widespread in dinosaurs than previously thought. A newly identified species sheds light on how some achieved liftoff.`\
 https://www.nytimes.com/2026/10/13/science/four-winged-dinosaur-early-birds-flight.html
-
-**Steve Buscemi Can’t Be Typecast**\
-`Over 40 years in Hollywood, the actor has remained uncompromisingly himself.`\
-https://www.nytimes.com/2026/10/13/t-magazine/steve-buscemi-wild-horse-nine-wednesday.html
 
