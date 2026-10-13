@@ -1,3 +1,7 @@
+**UAW’s Shawn Fain Wins Second Term as President**\
+`The United Auto Workers has grown under Mr. Fain, who has also drawn scrutiny from federal prosecutors.`\
+https://www.nytimes.com/2026/10/13/us/politics/uaw-shawn-fain.html
+
 **Lawyer for Fed Governor Cook Denounces Trump’s New Investigation**\
 `A lawyer for Lisa Cook raised “significant concerns” over the “objectivity and fitness of the committee” assembled by President Trump as a way to remove her as a governor at the Federal Reserve.`\
 https://www.nytimes.com/2026/10/13/business/fed-governor-lisa-cook-trump-investigation.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
 `During an acrimonious trial, she barred the mayor’s lover from Gracie Mansion and ruled that his income and clients were open to scrutiny.`\
 https://www.nytimes.com/2026/10/13/nyregion/judith-j-gische-dead.html
 
-**‘Girls’ to Return for a Limited Run**\
+**Lena Dunham’s ‘Girls’ to Return to HBO for 5 New Episodes**\
 `HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
 https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-re
 **New York Comic Con Celebrates 20 Years**\
 `More anime, fewer superheroes. More nostalgia, less heavy promo. The annual convention continued on its path as a fan-driven event and not an industry hype machine.`\
 https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniversary.html
-
-**The Complicated Puzzle of the Formula 1 Schedule**\
-`It can take years to create, and then weather and wars can upend all the planning.`\
-https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
 
 **Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
 `(No description)`\
