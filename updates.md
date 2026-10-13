@@ -1,3 +1,7 @@
+**Who Is Ahead in Georgia's 3rd Congressional District?**\
+`Track the latest polls in Georgia's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
+
 **Tupac Shakur Murder Conviction Lands Man 40 Years to Life in Prison**\
 `Duane Keith Davis was convicted by a jury of obtaining a gun and pursuing the rapper in a violent act of revenge in 1996.`\
 https://www.nytimes.com/2026/10/13/arts/music/tupac-shakur-murder-duane-keith-davis-sentenced.html
