@@ -1,3 +1,7 @@
+**Is Anyone Really Wearing a Bra as a Shirt?**\
+`A trend that points nowhere.`\
+https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
+
 **Restaurant Review: So Fox in Atlanta**\
 `The chef Myles Moody returns home to bring his worldly take on the classics.`\
 https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
@@ -26,13 +30,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
 **Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -181,8 +185,4 @@ https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
 **They Lived Rent-Free on Boats Near San Francisco. Until Now.**\
 `For decades, dozens of boat dwellers lived rent free on a bay just north of San Francisco. After a yearslong fight, just a few holdouts remained, with a deadline to leave by Oct. 15.`\
 https://www.nytimes.com/video/us/100000011152176/san-francisco-bay-boat-dwellers-deadline.html
-
-**4,200 Miles From Graceland, This Town Is Crazy About Elvis**\
-`Each September, tribute acts and fans flock to the seaside town of Porthcawl, Wales, to celebrate Elvis’s life and music, and to party.`\
-https://www.nytimes.com/2026/10/13/arts/porthcawl-elvis-festival-wales.html
 

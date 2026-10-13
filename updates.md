@@ -1,3 +1,7 @@
+**Is Anyone Really Wearing a Bra as a Shirt?**\
+`A trend that points nowhere.`\
+https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
+
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
