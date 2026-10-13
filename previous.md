@@ -1,3 +1,7 @@
+**Bank of America Pays $1.8 Billion Fine for Lax Money-Laundering Oversight**\
+`Federal regulators said the bank had waved through suspicious transactions without proper care.`\
+https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
+
 **How Elon Musk’s Money Is Shaping Republicans’ Midterms Strategy**\
 `A quarter-billion dollars to help Republicans hold Congress.`\
 https://www.nytimes.com/2026/10/13/us/politics/elon-musk-republicans-spending.html

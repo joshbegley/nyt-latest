@@ -1,3 +1,7 @@
+**Bank of America Pays $1.8 Billion Fine for Lax Money-Laundering Oversight**\
+`Federal regulators said the bank had waved through suspicious transactions without proper care.`\
+https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
+
 **The Steep Rise and Spectacular Fall of Kimberly Guilfoyle**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
