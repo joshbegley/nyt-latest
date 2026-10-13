@@ -128,7 +128,7 @@ https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call
 
 **El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
 `Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
-https://www.nytimes.com/2026/10/13/us/el-sayed-releasing-his-platform-on-ai-calls-it-an-existential-crisis.html
+https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
 
 **When A.I. Comes for Your Purpose in Life**\
 `In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
