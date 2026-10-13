@@ -1,3 +1,7 @@
+**The Steep Rise and Spectacular Fall of Kimberly Guilfoyle**\
+`President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
+https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
+
 **How Elon Musk’s Money Is Shaping Republicans’ Midterms Strategy**\
 `A quarter-billion dollars to help Republicans hold Congress.`\
 https://www.nytimes.com/2026/10/13/us/politics/elon-musk-republicans-spending.html

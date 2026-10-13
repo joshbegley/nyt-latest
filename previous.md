@@ -66,7 +66,7 @@ https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-p
 `The president’s proposed fuel deal with Russia and a one-sided cease-fire plan are putting Kyiv in a tough spot as winter approaches.`\
 https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
 
-**The Rise and Fall of Ambassador Kimberly Guilfoyle**\
+**The Steep Rise and Spectacular Fall of Kimberly Guilfoyle**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
 
