@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.
 `Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
 https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
 
-**Shifting Midterm Spending Shows Democratic Confidence and Republican Concern**\
+**Midterm Spending Highlights G.O.P. Anxiety and Democratic Optimism**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 
