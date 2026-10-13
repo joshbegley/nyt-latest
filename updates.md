@@ -1,3 +1,7 @@
+**At Least 6 Injured in Stabbing in South Korea**\
+`The police in the city of Incheon said they had arrested one man and were investigating his motive.`\
+https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
+
 **American Woman Who Is Accused of Joining ISIS Goes on Trial**\
 `Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
 https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
