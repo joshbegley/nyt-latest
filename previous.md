@@ -66,6 +66,10 @@ https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.
 `Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
 https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
 
+**As A.I. Becomes Midterm Flashpoint, El-Sayed Calls For Pause on Development**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
 **Street Style Look of the Week: Perfectly at Home in a Travel Outfit**\
 `Giovanna Ciampitti, 58, has loved fashion since she was a girl. On a trip to London to visit her son, she brought along some favorite designers as travel companions.`\
 https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/13/opinion/western-civilization-trump.html
 **The Oct. 7 Attack Changed Israel, but Not Its Politics**\
 `As Israelis prepare to vote for the first time since the Hamas-led assault, they remain divided over whether to hold Prime Minister Benjamin Netanyahu responsible for negligence or fault the “treason” of his generals.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/israel-october-7-attacks-elections.html
-
-**Chef Daniel Boulud’s 5 Favorite Places in Lyon, France**\
-`The world-famous chef, who just opened his latest outpost in Manhattan, shares some places he loves in the French city he says “will always be home.”`\
-https://www.nytimes.com/2026/10/13/travel/daniel-boulud-lyon-france.html
-
-**One Debate, Two Realities**\
-`The Senate candidates in Michigan held a fiery debate. On social media, two vastly different impressions took hold.`\
-https://www.nytimes.com/interactive/2026/10/13/us/politics/midterm-election-michigan-el-sayed-rogers-debate.html
 

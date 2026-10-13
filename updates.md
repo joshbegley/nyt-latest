@@ -1,3 +1,7 @@
+**As A.I. Becomes Midterm Flashpoint, El-Sayed Calls For Pause on Development**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
 **El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
 `Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
 https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
