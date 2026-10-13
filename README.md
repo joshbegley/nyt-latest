@@ -1,3 +1,23 @@
+**Trump Hands Victories to Putin, Who Offers More War in Return**\
+`Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
+https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
+
+**Judy Markey, Frank and Funny Voice on Chicago Radio, Dies at 82**\
+`She and Kathy O’Malley — known as “the Girlfriends” — were the rare female hosts in a major market. Their freewheeling segments included “Sex Thursday.”`\
+https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
+
+**A Miso Fish Chowder That Really Satisfies**\
+`A light, umami-ful twist on New England clam chowder.`\
+https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
+
+**It’s Past Time to Admit the Watergate Prosecutions Were Fatally Flawed**\
+`Nixon got a great deal. All the president’s men, not so much.`\
+https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
 **Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
 https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/10/13/travel/daniel-boulud-lyon-france.html
 **One Debate, Two Realities**\
 `The Senate candidates in Michigan held a fiery debate. On social media, two vastly different impressions took hold.`\
 https://www.nytimes.com/interactive/2026/10/13/us/politics/midterm-election-michigan-el-sayed-rogers-debate.html
-
-**Secrets to Cheap Travel (Encore)**\
-`Learn smart, practical tips for stretching your travel budget year-round.`\
-https://www.nytimes.com/2026/10/13/podcasts/secrets-to-cheap-travel-encore.html
-
-**Hillary Clinton Steps to the Podcast Mic as Midterms Approach**\
-`With “High Stakes,” Mrs. Clinton is teaming up with “Pivot” co-host Kara Swisher to break down the consequential battle for the House and the Senate.`\
-https://www.nytimes.com/2026/10/13/business/media/hillary-clinton-kara-swisher-podcast.html
-
-**How Climate Change Is Causing ‘the Gentrification of Seafood’**\
-`As environmental forces make fishing and harvesting more costly, the price of once-everyday fish has ballooned.`\
-https://www.nytimes.com/2026/10/13/dining/seafood-prices-shellfish-climate-change.html
-
-**The Forces Driving Up Bond Yields Take a Troubling Turn**\
-`Some analysts say investors are demanding a higher “term premium” to buy government debt, reflecting growing worries about debt levels and deficits.`\
-https://www.nytimes.com/2026/10/13/business/term-premium-bond-yields.html
-
-**Are the Midterm Elections Safe? 8 Experts Weigh In on the Threats.**\
-`Eight election experts weigh in on Trump’s midterm threats.`\
-https://www.nytimes.com/interactive/2026/10/13/opinion/midterm-elections-trump-integrity.html
 
