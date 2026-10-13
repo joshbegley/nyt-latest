@@ -1,3 +1,11 @@
+**The Rise and Fall of Ambassador Kimberly Guilfoyle**\
+`President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
+https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
+
+**Judith J. Gische, Judge in Giuliani Divorce Case, Dies at 70**\
+`During an acrimonious trial, she barred the mayor’s lover from Gracie Mansion and ruled that his income and clients were open to scrutiny.`\
+https://www.nytimes.com/2026/10/13/nyregion/judith-j-gische-dead.html
+
 **‘Girls’ to Return for a Limited Run**\
 `HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
 https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/10/13/sports/f1-allan-mcnish-audi.html
 `Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
 https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
 
-**A Father’s Mission Is to Show the World ‘What Russia Did to My Family’**\
-`After a glide bomb killed his wife and younger daughter, Yevhen Ovcharov was determined to prevent other Ukrainians from dying the same way.`\
-https://www.nytimes.com/2026/10/13/world/europe/ukraine-war-soldier-sumy-family.html
-
-**Corrections: Oct. 13, 2026**\
-`Corrections that appeared in print on Tuesday, Oct 13., 2026.`\
-https://www.nytimes.com/2026/10/13/pageoneplus/corrections-oct-13-2026.html
-
-**Midterm Spending Highlights G.O.P. Anxiety and Democratic Optimism**\
+**Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 

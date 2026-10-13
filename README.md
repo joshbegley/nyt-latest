@@ -1,3 +1,11 @@
+**A Look at California's Billionaires vs. the Rest of the World**\
+`Next month, California residents will vote on Proposition 40. Here's what at stake.`\
+https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
+
+**Trump Squeezes Ukraine, Again**\
+`The president’s proposed fuel deal with Russia and a one-sided cease-fire plan are putting Kyiv in a tough spot as winter approaches.`\
+https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
+
 **The Rise and Fall of Ambassador Kimberly Guilfoyle**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/10/13/business/saudi-arabia-houthi-oil.html
 `He won Le Mans three times, twice with Audi. Now he’s back in Formula 1.`\
 https://www.nytimes.com/2026/10/13/sports/f1-allan-mcnish-audi.html
 
-**Apple Introduces HomeView, a $299 Tablet for the Home**\
-`Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
-https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
-
 **Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections
-
-**Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
-`NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
-https://www.nytimes.com/live/2026/10/13/nyregion/nj-transit-amtrak-path-train
 

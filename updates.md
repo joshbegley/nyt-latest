@@ -1,3 +1,15 @@
+**The Rise and Fall of Ambassador Kimberly Guilfoyle**\
+`President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
+https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
+
+**Judith J. Gische, Judge in Giuliani Divorce Case, Dies at 70**\
+`During an acrimonious trial, she barred the mayor’s lover from Gracie Mansion and ruled that his income and clients were open to scrutiny.`\
+https://www.nytimes.com/2026/10/13/nyregion/judith-j-gische-dead.html
+
+**Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/13/us/midterms-elections
+
 **‘Girls’ to Return for a Limited Run**\
 `HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
 https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
