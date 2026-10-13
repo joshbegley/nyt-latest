@@ -1,3 +1,7 @@
+**Rider on Georgia Roller Coaster Dies and Several Others Are Injured**\
+`The episode happened Monday afternoon at the Six Flags Over Georgia amusement park, the police said. It was not immediately clear what led up to the rider’s death.`\
+https://www.nytimes.com/2026/10/12/us/roller-coaster-georgia-six-flags-rider-death.html
+
 **Calls Show How Confusion Delayed Emergency Response for Christa Pike**\
 `The first 911 call from inside the prison was made at 8:40 p.m. It took about 30 minutes to verify its authenticity.`\
 https://www.nytimes.com/2026/10/12/us/christa-pike-medical-care-delay.html
