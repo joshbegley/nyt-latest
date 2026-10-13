@@ -1,3 +1,7 @@
+**Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
+`The Iran-backed militia threatened to attack the Saudi energy giant Aramco, which it has done before, after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
+https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
+
 **Hackers Target Supermarket Refrigerators in France**\
 `Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
 https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/13/books/review/m-john-harrison-end-of-everythin
 **‘Slam Frank’ Review: Razzing the Wokerati**\
 `After a hot-ticket comedy club run last fall, Andrew Fox and Joel Sinensky’s satirical musical, spurred by a tweet about Anne Frank, resurfaces Off Broadway.`\
 https://www.nytimes.com/2026/10/13/theater/slam-frank-review.html
-
-**I Thought Life Coaching Would Be Like Therapy but It’s Actually More Like … Football?**\
-`It turns out that what my life was missing was someone keeping score.`\
-https://www.nytimes.com/2026/10/13/magazine/life-coaching-sports.html
 
