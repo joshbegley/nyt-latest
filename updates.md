@@ -1,3 +1,7 @@
+**Saudi Arabia and Yemen’s Houthis Trade Threats To Hit Oil Facilities**\
+`The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice to an oil facility in the Yemeni capital.`\
+https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
+
 **Is Anyone Really Wearing a Bra as a Shirt?**\
 `A trend that points nowhere.`\
 https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
