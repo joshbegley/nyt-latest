@@ -1,3 +1,15 @@
+**MI5 Chief Warns of Growing Iranian and Russian Threats to U.K.**\
+`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns on British soil. He called Iran-led attacks on Jewish communities “sickening.”`\
+https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
+
+**Do You Recall the Spooky Locations in These Horror Books?**\
+`These spine-tingling stories were inspired by real places that still exist. Try this quiz to see how many you know — and may want to visit.`\
+https://www.nytimes.com/quiz/2026/10/13/bookreview/spooky-book-locations.html
+
+**Top G.O.P. Groups Pull Support From First House Incumbents**\
+`Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
+https://www.nytimes.com/2026/10/13/sports/top-gop-groups-pull-support-from-first-house-incumbents.html
+
 **Vance, Altman, Musk, Mamdani, Bieber and More at the DealBook Summit**\
 `The conference on Nov. 18 will bring together the biggest names in business, politics, culture and more`\
 https://www.nytimes.com/2026/10/13/business/dealbook/dealbook-summit-lineup.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/13/learning/word-of-the-day-aegis.html
 **Sterlin Harjo’s Oklahoma is a ‘Land of Secrets.’ He’s Revealing Them One by One.**\
 `How the creator of “The Lowdown” and “Reservation Dogs” is telling the stories of America with a little help from his friends, family and heroes.`\
 https://www.nytimes.com/2026/10/13/magazine/sterlin-harjo-lowdown-reservation-dogs-oklahoma.html
-
-**Austin Abrams, the Star of “Whalefall” and “Resident Evil,” Is Pretty Chill**\
-`In “Resident Evil” and “Whalefall,” the actor navigates worst-case survival scenarios. In real life, things seem to be going just fine.`\
-https://www.nytimes.com/2026/10/13/movies/austin-abrams-resident-evil-whalefall-euphoria.html
-
-**Miss America? Regan Hutsell Is a Dancer. The ‘Joy Bomb’ Kind.**\
-`Regan Hutsell has been a Rockette, a ballet dancer and now Miss America. “Dance taught me how to be adaptable without changing the essence of who I am,” she said.`\
-https://www.nytimes.com/2026/10/13/arts/dance/miss-america-regan-hutsell-dancer.html
-
-**Book Review: ‘Freedom’s Gate,’ by Soyica Diggs Colbert**\
-`A new book traces the careers of five talented Black women artists and activists who converged at a venue where performance and politics collided.`\
-https://www.nytimes.com/2026/10/13/books/review/freedoms-gate-soyica-diggs-colbert.html
 

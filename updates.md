@@ -1,3 +1,15 @@
+**MI5 Chief Warns of Growing Iranian and Russian Threats to U.K.**\
+`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns on British soil. He called Iran-led attacks on Jewish communities “sickening.”`\
+https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
+
+**Do You Recall the Spooky Locations in These Horror Books?**\
+`These spine-tingling stories were inspired by real places that still exist. Try this quiz to see how many you know — and may want to visit.`\
+https://www.nytimes.com/quiz/2026/10/13/bookreview/spooky-book-locations.html
+
+**Top G.O.P. Groups Pull Support From First House Incumbents**\
+`Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
+https://www.nytimes.com/2026/10/13/sports/top-gop-groups-pull-support-from-first-house-incumbents.html
+
 **Vance, Altman, Musk, Mamdani, Bieber and More at the DealBook Summit**\
 `The conference on Nov. 18 will bring together the biggest names in business, politics, culture and more`\
 https://www.nytimes.com/2026/10/13/business/dealbook/dealbook-summit-lineup.html

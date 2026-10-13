@@ -8,7 +8,7 @@ https://www.nytimes.com/quiz/2026/10/13/bookreview/spooky-book-locations.html
 
 **Top G.O.P. Groups Pull Support From First House Incumbents**\
 `Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
-https://www.nytimes.com/2026/10/13/sports/top-gop-groups-pull-support-from-first-house-incumbents.html
+https://www.nytimes.com/2026/10/13/us/politics/top-gop-groups-pull-support-from-first-house-incumbents.html
 
 **Vance, Altman, Musk, Mamdani, Bieber and More at the DealBook Summit**\
 `The conference on Nov. 18 will bring together the biggest names in business, politics, culture and more`\
