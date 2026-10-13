@@ -1,3 +1,11 @@
+**Great Live Albums From Carnegie Hall**\
+`Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
+https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
+
+**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
+`The White House asked Kimberly Guilfoyle to resign from her post after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
+https://www.nytimes.com/video/us/politics/100000011210717/dc-trump-kimberly-guilfoyle-ambassador.html
+
 **Frances Stonor Saunders, Who Detailed C.I.A. Propaganda, Dies at 60**\
 `In a 1999 book, she chronicled the spy agency’s secret backing of Cold War culture projects to manipulate public opinion against Communism in Western Europe.`\
 https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/13/world/europe/france-cyberattack-supermarkets-
 **Your Politics Questions**\
 `We answer reader queries about the midterms.`\
 https://www.nytimes.com/2026/10/13/briefing/your-politics-questions.html
-
-**After Christa Pike’s Failed Execution, Confusion Delayed Emergency Help**\
-`New audio reveals how confusion among emergency dispatchers delayed medical care after Christa Pike’s botched execution.`\
-https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call-emergency-care.html
-
-**El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
-`Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
-https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
