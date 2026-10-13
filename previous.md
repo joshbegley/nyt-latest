@@ -1,3 +1,11 @@
+**American Woman Who Is Accused of Joining ISIS Goes on Trial**\
+`Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
+https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
+
+**NYT Spelling Bee Answers for October 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/13/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Teases Trump Over Not Getting the Nobel Prize**\
 `“Thanks a lot, Norway. I hope you’re happy — you made our baby cry,” Kimmel said after the president blamed Norway.`\
 https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peace-prize.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy
 **Fire in Paris Devastates City’s Oldest Covered Food Market**\
 `A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
 https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
-
-**Saudi Arabia Faces More Attacks as It Reels From Airport Strikes**\
-`The Saudi authorities said they were fending off drone and missile attacks after a weekend of confrontation with the Houthi militia in Yemen, whose patrons Iran offered to mediate.`\
-https://www.nytimes.com/2026/10/12/world/middleeast/iran-houthis-saudi-arabia.html
-
-**Fire Devastates Paris’s Oldest Covered Food Market, Le Marché des Enfants Rouges**\
-`Le Marché des Enfants Rouges, which opened in 1615 as a vibrant food hall, was a fixture for chefs, cooks and tourists.`\
-https://www.nytimes.com/2026/10/12/world/europe/france-paris-fire-market-enfants-rouges-marais.html
 

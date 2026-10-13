@@ -1,3 +1,11 @@
+**American Woman Who Is Accused of Joining ISIS Goes on Trial**\
+`Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
+https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
+
+**NYT Spelling Bee Answers for October 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/13/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Teases Trump Over Not Getting the Nobel Prize**\
 `“Thanks a lot, Norway. I hope you’re happy — you made our baby cry,” Kimmel said after the president blamed Norway.`\
 https://www.nytimes.com/2026/10/13/arts/television/jimmy-kimmel-trump-nobel-peace-prize.html
