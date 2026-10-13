@@ -1,3 +1,7 @@
+**Frances Stonor Saunders, Who Detailed C.I.A. Propaganda, Dies at 60**\
+`In a 1999 book, she chronicled the spy agency’s secret backing of Cold War culture projects to manipulate public opinion against Communism in Western Europe.`\
+https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
+
 **The Path to a ‘Good Death’ Starts With a Plan**\
 `Readers respond to an I.C.U. doctor’s essay about how we as a society need a new definition of what qualifies as a good death.`\
 https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
@@ -58,13 +62,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/us/100000011210047/christa-pike-execution-911-call
 **El-Sayed, Releasing His Platform on A.I., Calls It an ‘Existential Crisis’**\
 `Dr. Abdul El-Sayed of Michigan is the first Democrat running in a battleground Senate race to publicly call for a pause on artificial intelligence development.`\
 https://www.nytimes.com/2026/10/13/us/abdul-el-sayed-ai.html
-
-**When A.I. Comes for Your Purpose in Life**\
-`In the span of just a few months, A.I. systems have solved some of the biggest outstanding problems in math — adding mathematicians to the list of those terrified of losing their job to the technology.`\
-https://www.nytimes.com/2026/10/13/podcasts/the-daily/mathematicians-problem-ai-jobs.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
