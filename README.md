@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/10/13/opinion/western-civilization-trump.html
 `As Israelis prepare to vote for the first time since the Hamas-led assault, they remain divided over whether to hold Prime Minister Benjamin Netanyahu responsible for negligence or fault the “treason” of his generals.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/israel-october-7-attacks-elections.html
 
-**Chef Daniel Boulud’s 5 Favorite Places in Lyon, France**\
-`The world-famous chef, who just opened his latest outpost in Manhattan, shares some places he loves in the French city he says “will always be home.”`\
-https://www.nytimes.com/2026/10/13/travel/daniel-boulud-lyon-france.html
-
