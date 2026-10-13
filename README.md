@@ -1,3 +1,7 @@
+**Trump Says He Is ‘Looking at’ Firing Kimberly Guilfoyle**\
+`President Trump made the remark in response to a question about the U.S. ambassador to Greece, who faces accusations that she asked a G.O.P. donor to pay off her credit card.`\
+https://www.nytimes.com/2026/10/12/us/politics/trump-kimberly-guilfoyle-greece.html
+
 **I.M.F. Warns Mideast War Will Widen Gap Between Rich and Poor Countries**\
 `Persistent conflicts, high energy costs and technological upheavals will slow global growth and raise prices, the organization forecast.`\
 https://www.nytimes.com/2026/10/12/business/economy/imf-global-economic-outlook.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/podcasts/the-daily/naza-directors-interview.h
 **NYT Connections Answers for October 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
 https://www.nytimes.com/2026/10/12/crosswords/connections-companion-1220.html
-
-**Today’s Wordle Hints for October 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 13, 2026.`\
-https://www.nytimes.com/2026/10/12/crosswords/wordle-review-1942.html
 
