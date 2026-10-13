@@ -1,3 +1,7 @@
+**Nuremberg Airport in Germany Suspends Flights Over ‘Aviation Emergency’**\
+`It was not immediately clear what had prompted the alert, which halted flights at the Albrecht Dürer Airport.`\
+https://www.nytimes.com/2026/10/13/world/europe/germany-flight-nuremberg.html
+
 **Here’s How to Navigate the Portal Bridge Disruptions**\
 `NJ Transit passengers can expect delays, detours and cancellations, especially to Manhattan, for the next five weeks. Here are some alternative ways to get around.`\
 https://www.nytimes.com/2026/10/13/nyregion/nj-transit-alternative-routes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/business/meta-settlement-children-tobacco-opi
 **There’s Worlds Out There More Habitable Than Earth**\
 `Scientists believe there are planets outside our solar system where life is even more abundant and sustainable.`\
 https://www.nytimes.com/2026/10/13/science/inhabitable-planets-solar-system.html
-
-**6 Things Longevity Experts Wish People Would Stop Saying**\
-`Living longer and healthier is important. But don’t believe everything you hear.`\
-https://www.nytimes.com/2026/10/13/well/longevity-experts-advice.html
 
