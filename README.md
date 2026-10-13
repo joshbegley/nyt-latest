@@ -1,3 +1,7 @@
+**NJ Transit Riders Face Delays Amid Portal North Bridge Construction**\
+`NJ Transit commuters experienced delays on Tuesday as the Portal North Bridge entered its final phase of construction.`\
+https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-construction.html
+
 **Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
 `The expansive changes to campus life come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-bans-fraternity-parties-and-adds-sexual-assault-investigators.html
@@ -38,13 +42,13 @@ https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 `A light, umami-ful twist on New England clam chowder.`\
 https://www.nytimes.com/2026/10/13/dining/a-miso-fish-chowder-that-really-satisfies.html
 
-**The Surfer’s Guide to Living a Longer, More Active Life**\
-`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
-https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
-
 **What if All the President’s Men Were, in Fact, Railroaded?**\
 `Nixon got a great deal. All the president’s men, not so much.`\
 https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
+
+**The Surfer’s Guide to Living a Longer, More Active Life**\
+`Some of the best lessons for remaining active in later years can be found on a surfboard.`\
+https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
 **Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/crosswords/strands-sidekick-955.html
 **Today’s Wordle Hints for October 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for day, Date, 2026.`\
 https://www.nytimes.com/2026/10/13/crosswords/wordle-review-1943.html
-
-**Chip Stocks Tumble on A.I. Spending Fears and Rising Chinese Competition**\
-`South Korean stocks tumbled in particular, as reports of a breakthrough by a Chinese chip rival heightened concerns about competition.`\
-https://www.nytimes.com/2026/10/13/business/technology-stocks-ai-nasdaq.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

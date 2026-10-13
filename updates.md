@@ -1,3 +1,7 @@
+**Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
+`The expansive changes to campus life come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-bans-fraternity-parties-and-adds-sexual-assault-investigators.html
+
 **Russia Detains Japanese Journalist for Alleged Espionage**\
 `The main security service said it had detained a reporter for the Hokkaido Shimbun newspaper in Russia’s far east, where he had been reporting on military recruitment.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-detains-japanese-journalist.html
