@@ -1,3 +1,15 @@
+**Hackers Target Supermarket Refrigerators in France**\
+`Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
+https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
+
+**War Collides With Saudi Ambition at a Gathering of Oil Powers**\
+`The tone of the WPC Energy Congress in Riyadh this week was defiant even as delegates were forced to redirect travel or address the audience from afar.`\
+https://www.nytimes.com/2026/10/13/business/saudi-arabia-houthi-oil.html
+
+**Allan McNish: From Top Driver to Racing Director of Audi**\
+`He won Le Mans three times, twice with Audi. Now he’s back in Formula 1.`\
+https://www.nytimes.com/2026/10/13/sports/f1-allan-mcnish-audi.html
+
 **Apple Introduces HomeView, a $299 Tablet for the Home**\
 `Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
 https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html

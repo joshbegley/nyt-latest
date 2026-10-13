@@ -1,3 +1,15 @@
+**Hackers Target Supermarket Refrigerators in France**\
+`Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
+https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
+
+**War Collides With Saudi Ambition at a Gathering of Oil Powers**\
+`The tone of the WPC Energy Congress in Riyadh this week was defiant even as delegates were forced to redirect travel or address the audience from afar.`\
+https://www.nytimes.com/2026/10/13/business/saudi-arabia-houthi-oil.html
+
+**Allan McNish: From Top Driver to Racing Director of Audi**\
+`He won Le Mans three times, twice with Audi. Now he’s back in Formula 1.`\
+https://www.nytimes.com/2026/10/13/sports/f1-allan-mcnish-audi.html
+
 **Apple Introduces HomeView, a $299 Tablet for the Home**\
 `Apple unveiled the device as it continues its foray into artificial intelligence and tries to prove it can still innovate.`\
 https://www.nytimes.com/2026/10/13/technology/apple-homeview-tablet.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/13/theater/slam-frank-review.html
 **I Thought Life Coaching Would Be Like Therapy but It’s Actually More Like … Football?**\
 `It turns out that what my life was missing was someone keeping score.`\
 https://www.nytimes.com/2026/10/13/magazine/life-coaching-sports.html
-
-**Preparing for His Final Bow at the Irish Arts Center**\
-`After 20 years, Aidan Connolly will step down as executive director of the center, which is undergoing a top-to-bottom renovation.`\
-https://www.nytimes.com/2026/10/13/nyregion/irish-arts-center-aidan-connolly.html
-
-**How a Logging Industry Downturn Fuels Wildfires**\
-`Loggers are finding it impossible to profitably harvest some federal forests. That leaves more fuel for fires to accumulate.`\
-https://www.nytimes.com/2026/10/13/climate/timber-industry-wildfire-risk.html
-
-**What Can Four-Winged Dinosaurs Teach Us About Birds?**\
-`Flight was probably more widespread in dinosaurs than previously thought. A newly identified species sheds light on how some achieved liftoff.`\
-https://www.nytimes.com/2026/10/13/science/four-winged-dinosaur-early-birds-flight.html
 
