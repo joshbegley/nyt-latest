@@ -1,3 +1,11 @@
+**Free Money**\
+`We look at an experimental program.`\
+https://www.nytimes.com/2026/10/13/briefing/free-money.html
+
+**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
+`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports including that she had asked a Republican donor to pay off a credit card.`\
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
+
 **As A.I. Becomes Midterm Flashpoint, El-Sayed Calls For Pause on Development**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/13/us/midterms-elections

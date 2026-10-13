@@ -1,3 +1,7 @@
+**Free Money**\
+`We look at an experimental program.`\
+https://www.nytimes.com/2026/10/13/briefing/free-money.html
+
 **Trump Hands Victories to Putin, Who Offers More War in Return**\
 `Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniv
 `It can take years to create, and then weather and wars can upend all the planning.`\
 https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
 
-**Trump Has Asked Kimberly Guilfoyle to Resign, White House Says**\
-`Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports including asking a Republican donor to pay off a credit card.`\
+**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
+`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports including that she had asked a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
 
 **Saudi Arabia and Yemen’s Houthis Trade Threats Targeting Oil Facilities**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/10/13/opinion/trump-democracy-political-polarizatio
 **Western Civ Lessons for Team Trump**\
 `Can humility, decency and honesty be taught?`\
 https://www.nytimes.com/2026/10/13/opinion/western-civilization-trump.html
-
-**The Oct. 7 Attack Changed Israel, but Not Its Politics**\
-`As Israelis prepare to vote for the first time since the Hamas-led assault, they remain divided over whether to hold Prime Minister Benjamin Netanyahu responsible for negligence or fault the “treason” of his generals.`\
-https://www.nytimes.com/2026/10/13/world/middleeast/israel-october-7-attacks-elections.html
 
