@@ -6,7 +6,7 @@ https://www.nytimes.com/interactive/2026/10/13/weather/trudy-map-path-tracker.ht
 `President Trump’s new press secretary, Katie Zacharia, held her first press briefing on Tuesday morning at the White House lectern. She read from a script for eight minutes, called on only three reporters and made an awkward slip-up.`\
 https://www.nytimes.com/video/us/politics/100000011212093/katie-zacharia-white-house-press-secretary.html
 
-**The Evening: Trump Aids Putin, Feuds With Ukraine**\
+**Trump Aids Putin, Feuds With Ukraine**\
 `Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
 

@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Trudy**\
+`See the likely path and wind arrival times for Trudy`\
+https://www.nytimes.com/interactive/2026/10/13/weather/trudy-map-path-tracker.html
+
 **The New White House Press Secretary Has Awkward Debut**\
 `President Trump’s new press secretary, Katie Zacharia, held her first press briefing on Tuesday morning at the White House lectern. She read from a script for eight minutes, called on only three reporters and made an awkward slip-up.`\
 https://www.nytimes.com/video/us/politics/100000011212093/katie-zacharia-white-house-press-secretary.html

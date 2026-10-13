@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Trudy**\
+`See the likely path and wind arrival times for Trudy`\
+https://www.nytimes.com/interactive/2026/10/13/weather/trudy-map-path-tracker.html
+
 **The New White House Press Secretary Has Awkward Debut**\
 `President Trump’s new press secretary, Katie Zacharia, held her first press briefing on Tuesday morning at the White House lectern. She read from a script for eight minutes, called on only three reporters and made an awkward slip-up.`\
 https://www.nytimes.com/video/us/politics/100000011212093/katie-zacharia-white-house-press-secretary.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/us/you-have-politics-questions-we-answer-them
 **Trump Hands Victories to Putin, Who Offers More War in Return**\
 `Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
-
-**Judy Markey, Frank and Funny Voice on Chicago Radio, Dies at 82**\
-`She and Kathy O’Malley — known as “the Girlfriends” — were the rare female hosts in a major market. Their freewheeling segments included “Sex Thursday.”`\
-https://www.nytimes.com/2026/10/13/business/media/judy-markey-dead.html
 
