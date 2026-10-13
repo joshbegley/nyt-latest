@@ -1,3 +1,15 @@
+**Miami Tugboat Captain Gets 18 Months in Crash That Killed 3 Children**\
+`Five girls and a camp counselor were thrown into the water off Miami Beach in July last year when a barge pushed by a tugboat struck their stalled sailboat.`\
+https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
+
+**President Obama’s Climate Legacy**\
+`The Obama Presidential Center’s exhibits on climate change was like going back in time to a seemingly more harmonious world.`\
+https://www.nytimes.com/2026/10/13/climate/obama-presidential-center-climate.html
+
+**We Want Your Original Cartoon**\
+`The cartoonist P.C. Vey died recently. We’re inviting readers to share original cartoons of their own that, like Mr. Vey’s, find humor in the absurdities of everyday life.`\
+https://www.nytimes.com/2026/10/13/obituaries/cartoons-new-yorker-pc-vey.html
+
 **The New Yorker Cartoonist P.C. Vey Has Died**\
 `His work for The New Yorker savaged the absurdities of everyday life. He has died at 70.`\
 https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.html
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/10/13/style/street-style-look-travel-outfit.html
 **Rising Interest Rates Bite Some Wall St. Banks**\
 `JPMorgan released surprisingly spotty earnings results for the third quarter, while Goldman Sachs and Citi posted better-than-expected results, reflecting a choppy trading environment.`\
 https://www.nytimes.com/2026/10/13/business/bank-earnings-jpmorgan-chase-interest-rates.html
-
-**U.S. Still Shares Intelligence With Ukraine, Both Say, Amid Fears It Could Stop**\
-`President Volodymyr Zelensky said Kyiv had received no early warning of a Russian missile attack, after an apparent U.S. threat to halt intelligence sharing, but officials say the sharing continues.`\
-https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
-
-**MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
-`The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns in the U.K., and called Iran-led attacks on Jewish communities “sickening.”`\
-https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

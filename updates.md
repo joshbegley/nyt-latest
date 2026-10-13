@@ -1,3 +1,11 @@
+**The New Yorker Cartoonist P.C. Vey Has Died**\
+`His work for The New Yorker savaged the absurdities of everyday life. He has died at 70.`\
+https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.html
+
+**RJ Mitte Is Remembered by Bryan Cranston, Vince Gilligan and Others From ‘Breaking Bad’**\
+`Bryan Cranston, Vince Gilligan and others shared their shock and sadness at the loss. “I’ll miss you, son,” Cranston wrote.`\
+https://www.nytimes.com/2026/10/13/arts/television/rj-mitte-death-reactions-bryan-cranston.html
+
 **Restaurant Review: Soccería in New York**\
 `From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
 https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html

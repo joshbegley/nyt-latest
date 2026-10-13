@@ -1,3 +1,11 @@
+**The New Yorker Cartoonist P.C. Vey Has Died**\
+`His work for The New Yorker savaged the absurdities of everyday life. He has died at 70.`\
+https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.html
+
+**RJ Mitte Is Remembered by Bryan Cranston, Vince Gilligan and Others From ‘Breaking Bad’**\
+`Bryan Cranston, Vince Gilligan and others shared their shock and sadness at the loss. “I’ll miss you, son,” Cranston wrote.`\
+https://www.nytimes.com/2026/10/13/arts/television/rj-mitte-death-reactions-bryan-cranston.html
+
 **Restaurant Review: Soccería in New York**\
 `From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
 https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
 **MI5 Chief Warns of Escalating Hybrid Threats From Iran and Russia on British Soil**\
 `The head of Britain’s domestic security agency accused Tehran and Moscow of escalating their hybrid campaigns in the U.K., and called Iran-led attacks on Jewish communities “sickening.”`\
 https://www.nytimes.com/2026/10/13/world/europe/mi5-uk-threat-iran-russia.html
-
-**Do You Recall the Spooky Locations in These Horror Books?**\
-`These spine-tingling stories were inspired by real places that still exist. Try this quiz to see how many you know — and may want to visit.`\
-https://www.nytimes.com/quiz/2026/10/13/bookreview/spooky-book-locations.html
-
-**Top G.O.P. Groups Pull Support From First House Incumbents**\
-`Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
-https://www.nytimes.com/2026/10/13/us/politics/top-gop-groups-pull-support-from-first-house-incumbents.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
