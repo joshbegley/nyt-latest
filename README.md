@@ -1,3 +1,7 @@
+**Restaurant Review: Soccería in New York**\
+`From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
+https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
+
 **Who Is Ahead in Georgia's 3rd Congressional District?**\
 `Track the latest polls in Georgia's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/quiz/2026/10/13/bookreview/spooky-book-locations.html
 **Top G.O.P. Groups Pull Support From First House Incumbents**\
 `Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
 https://www.nytimes.com/2026/10/13/us/politics/top-gop-groups-pull-support-from-first-house-incumbents.html
-
-**Vance, Altman, Musk, Mamdani, Bieber and More at the DealBook Summit**\
-`The conference on Nov. 18 will bring together the biggest names in business, politics, culture and more`\
-https://www.nytimes.com/2026/10/13/business/dealbook/dealbook-summit-lineup.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\
