@@ -1,4 +1,4 @@
-**Supreme Court to Review Dispute Over Access to DOGE Records**\
+**Supreme Court Will Review Dispute Over Records From Elon Musk’s DOGE**\
 `A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
 https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
 
