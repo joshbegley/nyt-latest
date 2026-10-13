@@ -1,3 +1,7 @@
+**Pope Leo Undergoes ‘Successful’ Surgery to Remove Lung Nodule**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
 **U.S. Still Shares Intelligence With Ukraine, Both Say, Amid Fears It Could Stop**\
 `President Volodymyr Zelensky said Kyiv had received no early warning of a Russian missile attack, after an apparent U.S. threat to halt intelligence sharing, but officials say the sharing continues.`\
 https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
