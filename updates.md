@@ -1,3 +1,11 @@
+**How Elon Musk’s Money Is Shaping Republicans’ Midterms Strategy**\
+`A quarter-billion dollars to help Republicans hold Congress.`\
+https://www.nytimes.com/2026/10/13/us/politics/elon-musk-republicans-spending.html
+
+**Justice Dept. Issues Subpoenas in Ilhan Omar Investigation**\
+`After years of investigation, the Justice Department appears to be intensifying a criminal inquiry into the immigration history of Ilhan Omar, a Minnesota Democrat, and her family.`\
+https://www.nytimes.com/2026/10/13/us/politics/justice-dept-ilhan-omar-subpoenas.html
+
 **Trump Aids Putin, Feuds With Ukraine**\
 `Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
