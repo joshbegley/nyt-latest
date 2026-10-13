@@ -1,3 +1,7 @@
+**‘Girls’ to Return for a Limited Run**\
+`HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
+https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
+
 **James Dolan, a Former Hochul Supporter, Goes All In on Her G.O.P. Rival**\
 `The Knicks owner is urging New York’s business elite to abandon Gov. Kathy Hochul, highlighting her support of Mayor Zohran Mamdani. Mr. Dolan has spent millions to back her opponent, Bruce Blakeman.`\
 https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-hochul.html
