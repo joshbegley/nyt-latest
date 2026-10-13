@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/13/world/europe/russia-migrant-workers-killed.ht
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/13/learning/word-of-the-day-aegis.html
 
-**Sterlin Harjo’s Oklahoma is a ‘Land of Secrets.’ He’s Revealing Them One by One.**\
-`How the creator of “The Lowdown” and “Reservation Dogs” is telling the stories of America with a little help from his friends, family and heroes.`\
-https://www.nytimes.com/2026/10/13/magazine/sterlin-harjo-lowdown-reservation-dogs-oklahoma.html
-
