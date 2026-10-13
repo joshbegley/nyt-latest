@@ -1,3 +1,7 @@
+**At Least 6 Injured in Stabbing in South Korea**\
+`The police in the city of Incheon said they had arrested one man and were investigating his motive.`\
+https://www.nytimes.com/2026/10/13/world/asia/south-korea-stabbing-homeplus.html
+
 **American Woman Who Is Accused of Joining ISIS Goes on Trial**\
 `Halima Salman is believed to be the first woman accused of being a member of ISIS to go on trial in U.S. federal court`\
 https://www.nytimes.com/2026/10/13/nyregion/nyc-salman-isis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/opinion/letters/anthropic-chatbot-soul.html
 **Strikes Put Saudi Arabia’s Economy Under Pressure**\
 `Deadly attacks on the main Saudi airport add to the challenges facing the country, as it seeks to maintain energy production and keep major events on track.`\
 https://www.nytimes.com/2026/10/12/business/dealbook/saudi-arabia-strikes-energy-airport.html
-
-**Fire in Paris Devastates City’s Oldest Covered Food Market**\
-`A fire in central Paris destroyed the city’s oldest covered food market, Le Marché des Enfants Rouges, which opened in 1615.`\
-https://www.nytimes.com/video/world/europe/100000011209012/paris-fire-food-market-france.html
 
