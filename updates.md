@@ -1,3 +1,27 @@
+**UAW’s Shawn Fain Wins Second Term as President**\
+`The United Auto Workers has grown under Mr. Fain, who has also drawn scrutiny from federal prosecutors.`\
+https://www.nytimes.com/2026/10/13/us/politics/uaw-shawn-fain.html
+
+**Lawyer for Fed Governor Cook Denounces Trump’s New Investigation**\
+`A lawyer for Lisa Cook raised “significant concerns” over the “objectivity and fitness of the committee” assembled by President Trump as a way to remove her as a governor at the Federal Reserve.`\
+https://www.nytimes.com/2026/10/13/business/fed-governor-lisa-cook-trump-investigation.html
+
+**Meatballs With Any Meat**\
+`Making great meatballs is all about memorizing a basic ratio that you can adjust to suit your taste.`\
+https://www.nytimes.com/video/dining/100000011211789/meatballs-with-any-meat.html
+
+**Texas Prosecutors May Seek Charges Against ICE Agent Who Hit Fleeing Man**\
+`The Harris County district attorney said investigators from his office did not believe that the crash that left Miguel Parra Hernandez injured over the weekend was accidental.`\
+https://www.nytimes.com/2026/10/13/us/houston-ice-ramming-man-suv.html
+
+**A Look at California's Billionaires vs. the Rest of the World**\
+`See how America's billionaires can enjoy extreme wealth without drawing a significant salary.`\
+https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
+
+**Lena Dunham’s ‘Girls’ to Return to HBO for 5 New Episodes**\
+`HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
+https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
+
 **Ransomware Attacks Have Swept Japan. A.I. May Be Making Them Easier.**\
 `Critical infrastructure has been targeted in a wave of cyberattacks, which experts say are rising because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intelligence.html

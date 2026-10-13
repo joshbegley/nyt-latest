@@ -1,3 +1,19 @@
+**UAW’s Shawn Fain Wins Second Term as President**\
+`The United Auto Workers has grown under Mr. Fain, who has also drawn scrutiny from federal prosecutors.`\
+https://www.nytimes.com/2026/10/13/us/politics/uaw-shawn-fain.html
+
+**Lawyer for Fed Governor Cook Denounces Trump’s New Investigation**\
+`A lawyer for Lisa Cook raised “significant concerns” over the “objectivity and fitness of the committee” assembled by President Trump as a way to remove her as a governor at the Federal Reserve.`\
+https://www.nytimes.com/2026/10/13/business/fed-governor-lisa-cook-trump-investigation.html
+
+**Meatballs With Any Meat**\
+`Making great meatballs is all about memorizing a basic ratio that you can adjust to suit your taste.`\
+https://www.nytimes.com/video/dining/100000011211789/meatballs-with-any-meat.html
+
+**Texas Prosecutors May Seek Charges Against ICE Agent Who Hit Fleeing Man**\
+`The Harris County district attorney said investigators from his office did not believe that the crash that left Miguel Parra Hernandez injured over the weekend was accidental.`\
+https://www.nytimes.com/2026/10/13/us/houston-ice-ramming-man-suv.html
+
 **Ransomware Attacks Have Swept Japan. A.I. May Be Making Them Easier.**\
 `Critical infrastructure has been targeted in a wave of cyberattacks, which experts say are rising because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intelligence.html
@@ -7,7 +23,7 @@ https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intel
 https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
 
 **A Look at California's Billionaires vs. the Rest of the World**\
-`Next month, California residents will vote on Proposition 40. Here's what at stake.`\
+`See how America's billionaires can enjoy extreme wealth without drawing a significant salary.`\
 https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
 
 **Trump Squeezes Ukraine, Again**\
@@ -22,7 +38,7 @@ https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
 `During an acrimonious trial, she barred the mayor’s lover from Gracie Mansion and ruled that his income and clients were open to scrutiny.`\
 https://www.nytimes.com/2026/10/13/nyregion/judith-j-gische-dead.html
 
-**‘Girls’ to Return for a Limited Run**\
+**Lena Dunham’s ‘Girls’ to Return to HBO for 5 New Episodes**\
 `HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
 https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
 
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-re
 **New York Comic Con Celebrates 20 Years**\
 `More anime, fewer superheroes. More nostalgia, less heavy promo. The annual convention continued on its path as a fan-driven event and not an industry hype machine.`\
 https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniversary.html
-
-**The Complicated Puzzle of the Formula 1 Schedule**\
-`It can take years to create, and then weather and wars can upend all the planning.`\
-https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
-
-**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
-`Ms. Guilfoyle was asked to quit by the White House after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
-https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
-
-**Saudi Arabia and Yemen’s Houthis Trade Threats to Hit Oil Facilities**\
-`The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice for an oil facility in the Yemeni capital.`\
-https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
-
-**Hackers Target Supermarket Refrigerators in France**\
-`Hundreds of supermarkets in France were targeted in a cyberattack that affected refrigeration software, forcing some workers to throw out large stocks of frozen produce.`\
-https://www.nytimes.com/video/world/europe/100000011210355/france-cyberattack-supermarket-fridges.html
 
 **Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
 `(No description)`\

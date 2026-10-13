@@ -1,3 +1,7 @@
+**Katie Zacharia Stepped to the Lectern for the First Time. It Was a Bumpy Ride.**\
+`Ms. Zacharia spent eight minutes reading from a script, called on only three reporters and made an awkward slip-up.`\
+https://www.nytimes.com/2026/10/13/us/politics/katie-zacharia-white-house-first-briefing.html
+
 **UAW’s Shawn Fain Wins Second Term as President**\
 `The United Auto Workers has grown under Mr. Fain, who has also drawn scrutiny from federal prosecutors.`\
 https://www.nytimes.com/2026/10/13/us/politics/uaw-shawn-fain.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/13/world/asia/japan-cyberattack-artificial-intel
 https://www.nytimes.com/2026/10/13/opinion/hegseth-livestream-firing-squad-execution.html
 
 **A Look at California's Billionaires vs. the Rest of the World**\
-`See how America's billionaires can enjoy extreme wealth without drawing a significant salary.`\
+`See how America's billionaires can accumulate so much wealth without drawing a significant salary.`\
 https://www.nytimes.com/interactive/2026/10/13/magazine/billionaire-wealth-tax-proposition-40.html
 
 **Trump Squeezes Ukraine, Again**\
@@ -158,6 +162,10 @@ https://www.nytimes.com/2026/10/13/nyregion/nj-transit-path-disruption-portal-br
 `We look at an experimental program.`\
 https://www.nytimes.com/2026/10/13/briefing/free-money.html
 
+**You have politics questions. We answer them.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/13/us/you-have-politics-questions-we-answer-them.html
+
 **Trump Hands Victories to Putin, Who Offers More War in Return**\
 `Russia has reaped a diesel deal and an increase in U.S. pressure on Ukraine as President Trump’s political needs align with his longstanding inclinations toward Russia.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-putin-trump-diesel-ukraine.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-amer
 **Supreme Court Will Review Dispute Over Records From Elon Musk’s DOGE**\
 `A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
 https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
-
-**New York Comic Con Celebrates 20 Years**\
-`More anime, fewer superheroes. More nostalgia, less heavy promo. The annual convention continued on its path as a fan-driven event and not an industry hype machine.`\
-https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniversary.html
-
-**Candidates in Georgia, Iowa and Maine to Debate With Senate Control at Stake**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/13/us/midterms-elections
 
