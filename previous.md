@@ -1,3 +1,7 @@
+**F.B.I. Arrests OpenAI Employee Accused of Planting Bug in Office**\
+`OpenAI said that the employee had placed a device built to evade detection and that he had planned to secretly record meetings in other sensitive spaces.`\
+https://www.nytimes.com/2026/10/13/technology/openai-worker-arrested-bugging.html
+
 **Katie Zacharia Makes Bumpy Debut as Trump’s New Press Secretary**\
 `Ms. Zacharia spent eight minutes reading from a script, called on only three reporters and made an awkward slip-up.`\
 https://www.nytimes.com/2026/10/13/us/politics/katie-zacharia-white-house-first-briefing.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 **They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
 https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
-
-**Supreme Court Will Review Dispute Over Records From Elon Musk’s DOGE**\
-`A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
-https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
 

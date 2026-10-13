@@ -1,3 +1,7 @@
+**F.B.I. Arrests OpenAI Employee Accused of Planting Bug in Office**\
+`OpenAI said that the employee had placed a device built to evade detection and that he had planned to secretly record meetings in other sensitive spaces.`\
+https://www.nytimes.com/2026/10/13/technology/openai-worker-arrested-bugging.html
+
 **Katie Zacharia Makes Bumpy Debut as Trump’s New Press Secretary**\
 `Ms. Zacharia spent eight minutes reading from a script, called on only three reporters and made an awkward slip-up.`\
 https://www.nytimes.com/2026/10/13/us/politics/katie-zacharia-white-house-first-briefing.html
