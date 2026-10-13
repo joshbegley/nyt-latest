@@ -1,3 +1,11 @@
+**Cabagges World’s Favorite New York City Restaurants**\
+`Anna Archibald and Kevin Serai, the couple behind the popular home cooking and lifestyle account, tackle our restaurant questionnaire.`\
+https://www.nytimes.com/2026/10/13/dining/cabagges-world.html
+
+**Pope Leo Undergoes Successful Surgery to Remove Lung Nodule, Vatican Says**\
+`The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
+
 **Pope Leo Undergoes SuccessfulSurgery to Remove Lung Nodule, Vatican Says**\
 `The Vatican has said that the pontiff is expected to spend about a week recovering in the hospital.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-lung-surgery.html
