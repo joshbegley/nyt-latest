@@ -1,3 +1,7 @@
+**Zelensky Comment Raises Fear That U.S. Is Cutting Intelligence Sharing**\
+`The Ukrainian leader said Kyiv had no early warning from its Western partners before a Russian ballistic missile attack. But some such attacks do go undetected.`\
+https://www.nytimes.com/2026/10/13/world/europe/ukraine-trump-intelligence.html
+
 **Top G.O.P. Groups Pull Support From First House Incumbents**\
 `Two major Republican super PACs are said to be withdrawing cash from the races of the incumbent Representatives Thomas H. Kean Jr. of New Jersey and Mariannette Miller-Meeks of Iowa in an effort to triage the midterm map.`\
 https://www.nytimes.com/2026/10/13/us/politics/top-gop-groups-pull-support-from-first-house-incumbents.html
