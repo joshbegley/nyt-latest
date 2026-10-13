@@ -1,3 +1,11 @@
+**The New White House Press Secretary Has Awkward Debut**\
+`President Trump’s new press secretary, Katie Zacharia, held her first press briefing on Tuesday morning at the White House lectern. She read from a script for eight minutes, called on only three reporters and made an awkward slip-up.`\
+https://www.nytimes.com/video/us/politics/100000011212093/katie-zacharia-white-house-press-secretary.html
+
+**The Evening: Trump Aids Putin, Feuds With Ukraine**\
+`Plus, the G.O.P. plays defense in red states. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/13/briefing/putin-guilfoyle-gop.html
+
 **What to Know About Pope Leo’s Lung Cancer Diagnosis**\
 `The cancer has a high survival rate if caught in the early stages.`\
 https://www.nytimes.com/2026/10/13/well/pope-leo-lung-cancer-adenocarcinoma.html
