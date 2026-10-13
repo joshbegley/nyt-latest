@@ -1,3 +1,7 @@
+**Florida Executes First Prisoner Since Botched Injection in Tennessee**\
+`The execution of James Robertson, who said he deliberately killed another inmate to get on death row, occurred without complications, state officials said.`\
+https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-injection.html
+
 **Saudi Arabia and Yemen’s Houthis Trade Threats to Hit Oil Facilities**\
 `The Iran-backed militia threatened to attack the Saudi energy giant Aramco after the Saudi authorities issued an evacuation notice for an oil facility in the Yemeni capital.`\
 https://www.nytimes.com/2026/10/13/world/middleeast/saudi-arabia-yemen-houthis-aramco-threat.html
