@@ -1,3 +1,7 @@
+**Florida Executes First Prisoner Since Botched Injection in Tennessee**\
+`The execution of James Robertson, who said he deliberately killed another inmate to get on death row, was Florida’s 17th this year.`\
+https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-injection.html
+
 **NJ Transit Riders Face Delays Amid Portal North Bridge Construction**\
 `NJ Transit commuters experienced delays on Tuesday as the Portal North Bridge entered its final phase of construction.`\
 https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-construction.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/10/13/opinion/watergate-nixon-trump.html
 `Some of the best lessons for remaining active in later years can be found on a surfboard.`\
 https://www.nytimes.com/2026/10/13/well/surfing-living-longer.html
 
-**Members of Group That Pushed Abortion Pill Law Are Being Sued Under It**\
+**They Pushed an Anti-Abortion Pill Law. Now, They’re Being Sued Under It.**\
 `A Texas mother is suing the president of Students for Life of America and others in the group over an Instagram post that appeared to boast about ordering abortion pills in Houston.`\
 https://www.nytimes.com/2026/10/13/us/texas-abortion-pill-students-for-life-america-lawsuit.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/13/podcasts/the-headlines/musk-pours-276-million
 **NYT Strands Hints for October 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 14, 2026.`\
 https://www.nytimes.com/2026/10/13/crosswords/strands-sidekick-955.html
-
-**Today’s Wordle Hints for October 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for day, Date, 2026.`\
-https://www.nytimes.com/2026/10/13/crosswords/wordle-review-1943.html
 
 **Bridge Upgrade Scrambles Commute From New Jersey to Manhattan**\
 `NJ Transit riders will face detours and delays for the second time this year as workers complete a bridge replacement. Tuesday is the first regular workday of the five-week project.`\

@@ -1,3 +1,7 @@
+**NJ Transit Riders Face Delays Amid Portal North Bridge Construction**\
+`NJ Transit commuters experienced delays on Tuesday as the Portal North Bridge entered its final phase of construction.`\
+https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-construction.html
+
 **Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
 `The expansive changes to campus life come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-bans-fraternity-parties-and-adds-sexual-assault-investigators.html
