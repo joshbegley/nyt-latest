@@ -1,3 +1,7 @@
+**Calls Show How Confusion Delayed Emergency Response for Christa Pike**\
+`The first 911 call from inside the prison was made at 8:40 p.m. It took about 30 minutes to verify its authenticity.`\
+https://www.nytimes.com/2026/10/12/us/christa-pike-medical-care-delay.html
+
 **‘Breaking Bad’ Actor RJ Mitte Dies at 34**\
 `The actor RJ Mitte, who played Walter White’s son on “Breaking Bad,” died on Monday in Texas at age 34.`\
 https://www.nytimes.com/video/obituaries/100000011209837/breaking-bad-actor-rj-mitte-dies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/12/business/middle-east-oil-exports-houthi-saudi
 **How a Book Editor Lives on $74,000 in Carroll Gardens, Brooklyn**\
 `Mo Crist has three family goals, but financing them is a tricky proposition in an expensive city like New York.`\
 https://www.nytimes.com/interactive/2026/10/12/nyregion/nyc-budgeting-affordability-crist.html
-
-**Crossplay Tips and Tricks to Use Against Your Friends**\
-`Top players share tips and tricks that you can use in your next game.`\
-https://www.nytimes.com/2026/10/12/crosswords/crossplay-tips-and-tricks.html
 
