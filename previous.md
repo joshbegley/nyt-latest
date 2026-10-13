@@ -1,3 +1,11 @@
+**Supreme Court to Review Dispute Over Access to DOGE Records**\
+`A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
+https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
+
+**New York Comic Con Celebrates 20 Years**\
+`More anime, fewer superheroes. More nostalgia, less heavy promo. The annual convention continued on its path as a fan-driven event and not an industry hype machine.`\
+https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniversary.html
+
 **The Complicated Puzzle of the Formula 1 Schedule**\
 `It can take years to create, and then weather and wars can upend all the planning.`\
 https://www.nytimes.com/2026/10/13/sports/f1-schedule.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/interactive/2026/10/13/opinion/midterm-elections-trump-i
 **In Atlanta, an A.D.U. Built With Salvaged Materials for $50,000**\
 `Evan Levy realized he could build an accessory dwelling unit within his budget if he did much of the work himself.`\
 https://www.nytimes.com/2026/10/13/realestate/in-atlanta-an-adu-built-with-salvaged-materials-for-50000.html
-
-**Democrats Need a Plan for Supreme Court Reform. Here’s a Start.**\
-`Why Democrats must prioritize court reform.`\
-https://www.nytimes.com/2026/10/13/opinion/supreme-court-reform-democrats.html
-
-**Making Rules for A.I. Is Hard. Tell Us How You’d Do It.**\
-`It can feel as if we’re getting dragged into the future by a dangerous technology. But humans are still in charge.`\
-https://www.nytimes.com/interactive/2026/10/13/opinion/ai-rules-regulations.html
 

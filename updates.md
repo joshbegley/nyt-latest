@@ -1,3 +1,11 @@
+**Supreme Court to Review Dispute Over Access to DOGE Records**\
+`A nonprofit watchdog group sued the Department of Government Efficiency, asserting that it should be subject to federal Freedom of Information Act discovery requests.`\
+https://www.nytimes.com/2026/10/13/us/politics/supreme-court-doge-musk-public-records.html
+
+**New York Comic Con Celebrates 20 Years**\
+`More anime, fewer superheroes. More nostalgia, less heavy promo. The annual convention continued on its path as a fan-driven event and not an industry hype machine.`\
+https://www.nytimes.com/2026/10/13/arts/television/new-york-comic-con-20th-anniversary.html
+
 **Trump Has Asked Kimberly Guilfoyle to Resign, White House Says**\
 `Ms. Guilfoyle, the U.S. ambassador to Greece, has faced a string of damaging reports including asking a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resign.html
