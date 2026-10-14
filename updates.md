@@ -1,3 +1,7 @@
+**Russell Brand Labeled ‘Sexual Predator’ as Trial Opens; He Denies Rape and Assault Charges**\
+`The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
+https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
+
 **What Allegations of Spying at OpenAI Mean for the A.I. Industry**\
 `The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
 https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
