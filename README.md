@@ -1,3 +1,11 @@
+**A Pilgrim and a Retiree: Victims of the Houthi Airport Attack in Saudi Arabia**\
+`The strike was the Iran-backed militia’s most lethal against the kingdom, by far, during their long conflict.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
+
+**The Taliban Suspend BBC Broadcasts Across Afghanistan**\
+`The Taliban government has intensified its crackdown on the press in recent months but had so far targeted Afghan news outlets.`\
+https://www.nytimes.com/2026/10/14/world/asia/afghanistan-taliban-suspends-bbc.html
+
 **The Kelly Clarkson Tape, Revealed**\
 `What really happened in that Brooklyn store?`\
 https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/business/india-elon-musk-starlink.html
 **Bayeux Tapestry’s Return Has History Buffs Re-Enacting Like It’s 1066**\
 `Almost a millennium ago, the Battle of Hastings was fought on an English field and depicted on the tapestry. This year’s restaging drew spectators spurred on by the artifact’s visit to Britain.`\
 https://www.nytimes.com/2026/10/14/arts/battle-of-hastings-1066-reenactment-bayeux-tapestry.html
-
-**Israelis Feel Abandoned. That’s Why They Might Turn to This Bereaved General**\
-`How a bereaved general has won over Israelis.`\
-https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
-
-**‘The Assassin(s)’ Movie Fuels South Korea’s Culture Wars**\
-`The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
-https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
 

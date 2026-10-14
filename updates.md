@@ -1,3 +1,11 @@
+**The Kelly Clarkson Tape, Revealed**\
+`What really happened in that Brooklyn store?`\
+https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.html
+
+**Peruvians Pray for Pope’s Recovery After Cancer Diagnosis**\
+`People in Peru sent Pope Leo their prayers after he was diagnosed with lung cancer on Tuesday. The news comes just weeks before the pope’s Latin America trip.`\
+https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cancer-peru.html
+
 **Modern Love: Does My Son Like His Stepmother More Than Me?**\
 `How one mom found a place in her son’s new family.`\
 https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
