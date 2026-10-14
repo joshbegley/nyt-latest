@@ -1,3 +1,15 @@
+**Senators Question Meta’s Data Center Tax Strategy**\
+`Democrats on the Senate Finance Committee sent a letter to Mark Zuckerberg, Meta’s chief executive, questioning the company’s $6.6 billion in tax breaks.`\
+https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html
+
+**Russia Fires Ballistic Missile Barrage at Ukraine**\
+`Russia launched dozens of ballistic missiles at Ukraine early Wednesday in one of the largest salvos of the war. Some 600,000 people were left without power in the capital, according to Ukraine’s president.`\
+https://www.nytimes.com/video/world/europe/100000011212931/ukraine-russia-war-missile-attack.html
+
+**5 Costs That Jumped for Americans**\
+`Consumers are paying more for everyday goods and services, like food, computers and streaming.`\
+https://www.nytimes.com/2026/10/14/business/5-costs-that-jumped-for-americans.html
+
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.html
@@ -13,6 +25,10 @@ https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-p
 **Social Security COLA for 2027 Will Be 3.6%**\
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
+
+**Iowa G.O.P. Senate Nominee Is Latest to Split With Trump Over Russian Diesel**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 
 **Gas Costs 34 Percent More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/14/us/politics/susan-collins-trump-maine-senate.
 **If You Were Wealthy, Would You Give Away Your Money?**\
 `The country music legend Dolly Parton, who died this summer, gave generously to causes she believed in. If you were rich, would you share your wealth with others?`\
 https://www.nytimes.com/2026/10/14/learning/if-you-were-wealthy-would-you-give-away-your-money.html
-
-**Five Bodies Are Found Along Michigan Trail and the Police Hunt a Killer**\
-`Lansing’s police chief says the string of attacks along a greenway raises the possibility that a serial killer has been at work. A man is under arrest in one of the deaths.`\
-https://www.nytimes.com/2026/10/14/us/lansing-michigan-serial-killer.html
-
-**Angelina Jolie Largely Breaks Even After Selling Her Los Angeles Estate**\
-`The actress, who has expressed a desire to move abroad, got $24.75 million, $250,000 more than what she had paid. Also, Larry Ellison, John McEnroe and Little Steven are selling their homes.`\
-https://www.nytimes.com/2026/10/14/realestate/angelina-jolie-sells-her-los-angeles-estate.html
-
-**Arimasuton, a Singular Labor of Love in Tokyo, Nears Completion**\
-`Architect Keisuke Oka’s Arimasuton building is a rejection of Japan’s disposable architecture.`\
-https://www.nytimes.com/2026/10/14/realestate/tokyo-building-arimasuton-keisuke-oka.html
-
-**Is It a Relationship if No One’s on the Other Side?**\
-`Sherry Turkle, who has spent decades studying people’s relationships with machines, believes we have “a very small window” to correct our current course with A.I.`\
-https://www.nytimes.com/2026/10/14/opinion/ezra-klein-podcast-sherry-turkle.html
 

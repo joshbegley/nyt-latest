@@ -1,3 +1,19 @@
+**Senators Question Meta’s Data Center Tax Strategy**\
+`Democrats on the Senate Finance Committee sent a letter to Mark Zuckerberg, Meta’s chief executive, questioning the company’s $6.6 billion in tax breaks.`\
+https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html
+
+**Russia Fires Ballistic Missile Barrage at Ukraine**\
+`Russia launched dozens of ballistic missiles at Ukraine early Wednesday in one of the largest salvos of the war. Some 600,000 people were left without power in the capital, according to Ukraine’s president.`\
+https://www.nytimes.com/video/world/europe/100000011212931/ukraine-russia-war-missile-attack.html
+
+**5 Costs That Jumped for Americans**\
+`Consumers are paying more for everyday goods and services, like food, computers and streaming.`\
+https://www.nytimes.com/2026/10/14/business/5-costs-that-jumped-for-americans.html
+
+**Iowa G.O.P. Senate Nominee Is Latest to Split With Trump Over Russian Diesel**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
+
 **Here’s the latest.**\
 `(No description)`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
