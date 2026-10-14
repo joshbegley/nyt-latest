@@ -1,3 +1,7 @@
+**Social Security COLA for 2027 Will Be 3.6%**\
+`The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
+https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
+
 **Gas Costs a Third More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.
 https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
 
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
-`Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+`Pope Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
 
 **Japan Protests Russia’s Detention of Journalist Accused of Spying**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/business/medicare-advantage-plan-finder.html
 **Stella Lefty Crafted a Viral Hit. Some Thought It Sounded Familiar.**\
 `After this singer-songwriter’s hit, “Boston,” was likened to a Noah Kahan tune, content creators made a sport of noting similarities her music and other popular tracks.`\
 https://www.nytimes.com/2026/10/14/arts/music/stella-lefty-boston-song-lyrics.html
-
-**22 People Got Together For a Dinner Party. So Did Their A.I. Agents.**\
-`As artificial intelligence bots spread, we are increasingly glimpsing how these digital entities interact and what they talk about with one another.`\
-https://www.nytimes.com/2026/10/14/technology/ai-agents-communication-tech-dinner-party.html
 

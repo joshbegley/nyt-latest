@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital
 https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
 
 **Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
-`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
 **Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\

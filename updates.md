@@ -1,3 +1,11 @@
+**Social Security COLA for 2027 Will Be 3.6%**\
+`The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
+https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
+
+**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
+`Pope Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
+
 **Gas Costs a Third More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
