@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-jou
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
-**Zelensky Visits U.K. as Ukraine Presses Allies on Intelligence Sharing**\
-`President Volodymyr Zelensky said Ukraine had received “no early warning from our partners” about Russian attacks. President Trump has said Washington is still “sharing intel.”`\
+**As Ukraine Raises Alarm Over U.S. Backing, Europeans Pledge Support**\
+`President Volodymyr Zelensky, who met with Britain’s prime minister, has said Ukraine received no warning of Russian attacks, but President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
 
 **Rogue A.I. Agents from China Chatted with Researchers**\
