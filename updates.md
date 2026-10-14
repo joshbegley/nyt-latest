@@ -1,3 +1,11 @@
+**Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
+
+**Higher Energy Prices Pushed U.S. Inflation Up to 3.7% Ahead of Midterm Elections**\
+`September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
+https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
+
 **Higher Energy Prices Pushed U.S. Inflation Up 3.7% Ahead of Midterm Elections**\
 `September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
