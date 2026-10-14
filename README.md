@@ -1,3 +1,7 @@
+**Soaring Energy Prices Push Inflation Higher**\
+`Also, polls show that the Texas Senate race is tightening. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/14/briefing/soaring-energy-prices-push-inflation-higher.html
+
 **Ossoff and Collins Trade Blows in Georgia Senate Debate**\
 `Senator Jon Ossoff, the Democratic incumbent, and Representative Mike Collins, the Republican challenger, debated inflation, tariffs and the Epstein files during the second and final Georgia senate debate.`\
 https://www.nytimes.com/video/us/elections/100000011213887/ossoff-collins-georgia-senate-debate-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-mi
 **What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service Ukraine Relies On?**\
 `For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
 https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
-
-**Senators’ Letter to Meta**\
-`Democrats on the Senate Finance Committee sent a letter to Meta about $6.6 billion in tax breaks.`\
-https://www.nytimes.com/interactive/2026/10/14/us/senate-letter-to-meta-on-research-tax-credit.html
 
