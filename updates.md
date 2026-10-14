@@ -1,3 +1,11 @@
+**Sleeping ICE Agent Who Fought With Homeowner Is Charged With Assault**\
+`The off-duty agent was found sleeping on the front lawn of a home in Fresno, Calif., last week before the scuffle unfolded. The police said he “appeared intoxicated and agitated.”`\
+https://www.nytimes.com/2026/10/14/us/fresno-drunk-ice-agent.html
+
+**Maryland Republican Andy Harris Blamed Democrats for High Gas Prices. Laughter Ensued.**\
+`Representative Andy Harris, a Republican, said during a debate that environmental regulations had caused diesel prices to rise. Some in the audience groaned.`\
+https://www.nytimes.com/2026/10/14/us/andy-harris-maryland-republican-diesel.html
+
 **The Breathtaking Cost of the Midterms: $10 Billion and Counting on Ads**\
 `The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
 https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
