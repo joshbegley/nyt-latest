@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
+`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
+https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
+
 **Anger Over Trump’s Deal With Putin**\
 `Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
 https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
 https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.html
 
 **6 Dead in Wisconsin Plane Crash**\
-`The aircraft crashed in the town of Dellona on Tuesday night, killing five adults and one child, local authorities said.`\
+`The aircraft crashed near the Wisconsin Dells on Tuesday night, killing five adults and one child, local authorities said.`\
 https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
 
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 **Higher Energy Prices Pushed U.S. Inflation Up to 3.7% Ahead of Midterm Elections**\
 `September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
-
-**Pope Leo’s Cancer Diagnosis: What Happens Next**\
-`Pope Leo XIV was diagnosed with a common form of lung cancer. The Vatican said that he was walking and receiving therapy after an operation to remove a cancerous nodule.`\
-https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
 
