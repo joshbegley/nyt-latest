@@ -1,3 +1,7 @@
+**Joni Mitchell Is Now an American, After 60 Years of Living in the U.S.**\
+`On Tuesday, she announced the news of her U.S. citizenship on social media with a video and a photo of herself at the ceremony.`\
+https://www.nytimes.com/2026/10/13/arts/music/joni-mitchell-us-citizenship.html
+
 **Senators Urge Trump to Reverse Diesel Deal With Putin**\
 `A bipartisan group of 12 senators called on the president to drop his decision to ease sanctions on Russia’s exports of diesel fuel, saying the deal would help Moscow continue the war in Ukraine.`\
 https://www.nytimes.com/2026/10/13/us/politics/trump-putin-russia-diesel-senate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/nyregion/cornell-sexual-assault-fraternity-pa
 **Russia Detains Japanese Journalist for Alleged Espionage**\
 `The main security service said it had detained a reporter for the Hokkaido Shimbun newspaper in Russia’s far east, where he had been reporting on military recruitment.`\
 https://www.nytimes.com/2026/10/13/world/europe/russia-detains-japanese-journalist.html
-
-**Is Anyone Really Wearing a Bra as a Shirt?**\
-`A trend that points nowhere.`\
-https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
 
