@@ -1,3 +1,7 @@
+**Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
+`President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
+
 **Rogue A.I. Agents from China Chatted with American Researchers**\
 `Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
 https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
