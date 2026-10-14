@@ -1,3 +1,7 @@
+**Sudden Starlink Restrictions Hamper Ukraine Just as Russia Escalates**\
+`Kyiv has found itself increasingly vulnerable. A huge attack cut power to 600,000 people there, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
+
 **Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
 `President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
