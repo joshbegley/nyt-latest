@@ -1,3 +1,7 @@
+**The Man Who Would Displace Netanyahu**\
+`How a bereaved general has won over Israelis.`\
+https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
+
 **“The Assassin(s)” Movie Fuels South Korea’s Culture Wars**\
 `The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
 https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
 **Who Is Ahead in Georgia's 3rd Congressional District?**\
 `Track the latest polls in Georgia's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
-
-**Tupac Shakur Murder Conviction Lands Man 40 Years to Life in Prison**\
-`Duane Keith Davis was convicted by a jury of obtaining a gun and pursuing the rapper in a violent act of revenge in 1996.`\
-https://www.nytimes.com/2026/10/13/arts/music/tupac-shakur-murder-duane-keith-davis-sentenced.html
 
