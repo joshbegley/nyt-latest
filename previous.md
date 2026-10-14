@@ -1,3 +1,7 @@
+**Hochul and Blakeman in Heated Debate on Trump, Mamdani and High Prices**\
+`The two contenders for governor of New York clashed over issues that include data centers and immigration in a debate that reflected the contentious nature of their contest.`\
+https://www.nytimes.com/2026/10/13/nyregion/new-york-governor-debate-hochul-blakeman.html
+
 **Joni Mitchell Is Now an American, After 60 Years of Living in the U.S.**\
 `On Tuesday, she announced the news of her U.S. citizenship on social media with a video and a photo of herself at the ceremony.`\
 https://www.nytimes.com/2026/10/13/arts/music/joni-mitchell-us-citizenship.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-constr
 **Cornell Bans Fraternity Parties and Adds Sexual Assault Investigators**\
 `The expansive changes to campus life, including working closely with the state police, come in the wake of the national uproar caused by allegations of a gang rape at a fraternity house.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-sexual-assault-fraternity-party-ban.html
-
-**Russia Detains Japanese Journalist for Alleged Espionage**\
-`The main security service said it had detained a reporter for the Hokkaido Shimbun newspaper in Russia’s far east, where he had been reporting on military recruitment.`\
-https://www.nytimes.com/2026/10/13/world/europe/russia-detains-japanese-journalist.html
 

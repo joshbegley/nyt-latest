@@ -1,3 +1,7 @@
+**Hochul and Blakeman in Heated Debate on Trump, Mamdani and High Prices**\
+`The two contenders for governor of New York clashed over issues that include data centers and immigration in a debate that reflected the contentious nature of their contest.`\
+https://www.nytimes.com/2026/10/13/nyregion/new-york-governor-debate-hochul-blakeman.html
+
 **Joni Mitchell Is Now an American, After 60 Years of Living in the U.S.**\
 `On Tuesday, she announced the news of her U.S. citizenship on social media with a video and a photo of herself at the ceremony.`\
 https://www.nytimes.com/2026/10/13/arts/music/joni-mitchell-us-citizenship.html
