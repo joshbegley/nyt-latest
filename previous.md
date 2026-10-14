@@ -1,3 +1,7 @@
+**Anthropic Says Revenue Jumped 45% to $16.8 Billion in Third Quarter**\
+`The company held an investor meeting on Wednesday as it plans a blockbuster initial public offering as soon as next month.`\
+https://www.nytimes.com/2026/10/14/technology/anthropic-ipo-revenue-profit.html
+
 **Inflation Data Shows Prices Are Up, Worrying Republicans Ahead of the Midterms**\
 `Today’s inflation report gave Democrats a chance to tie pain at the pump to Trump’s decisions.`\
 https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/briefing/cornell-bans-frat-parties.html
 **How to Make the Creamiest Mac and Cheese**\
 `This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
 https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html
-
-**Creamy Tuscan Chicken**\
-`Despite its name, Tuscan chicken is not a traditional Italian recipe, but a dish of Italian-American origin, with its roots perhaps most frequently linked to Olive Garden.`\
-https://www.nytimes.com/video/dining/100000011211697/creamy-tuscan-chicken.html
 

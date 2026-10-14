@@ -1,3 +1,7 @@
+**Anthropic Says Revenue Jumped 45% to $16.8 Billion in Third Quarter**\
+`The company held an investor meeting on Wednesday as it plans a blockbuster initial public offering as soon as next month.`\
+https://www.nytimes.com/2026/10/14/technology/anthropic-ipo-revenue-profit.html
+
 **Inflation Data Shows Prices Are Up, Worrying Republicans Ahead of the Midterms**\
 `Today’s inflation report gave Democrats a chance to tie pain at the pump to Trump’s decisions.`\
 https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-trump.html
