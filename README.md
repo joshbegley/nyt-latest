@@ -1,3 +1,7 @@
+**Senators Urge Trump to Reverse Diesel Deal With Putin**\
+`A bipartisan group of 12 senators called on the president to drop his decision to ease sanctions on Russia’s exports of diesel fuel, saying the deal would help Moscow continue the war in Ukraine.`\
+https://www.nytimes.com/2026/10/13/us/politics/trump-putin-russia-diesel-senate.html
+
 **City Council Speaker and Mamdani Agree on Horse-Drawn Carriage Ban**\
 `Under legislation backed by City Council Speaker Julie Menin and Mayor Zohran Mamdani, the use of horse-drawn carriages in Central Park would end by June 2028.`\
 https://www.nytimes.com/2026/10/13/nyregion/horse-carriages-ban-central-park.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/world/europe/russia-detains-japanese-journali
 **Is Anyone Really Wearing a Bra as a Shirt?**\
 `A trend that points nowhere.`\
 https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
-
-**Restaurant Review: So Fox in Atlanta**\
-`The chef Myles Moody returns home to bring his worldly take on the classics.`\
-https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
 
