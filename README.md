@@ -1,4 +1,4 @@
-**The Man Who Would Displace Netanyahu**\
+**Israelis Feel Abandoned. That’s Why They Might Turn to This Bereaved General**\
 `How a bereaved general has won over Israelis.`\
 https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
 
