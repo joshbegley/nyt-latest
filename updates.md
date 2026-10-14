@@ -1,3 +1,7 @@
+**4 Takeaways From the Los Angeles Mayoral Debate**\
+`Mayor Karen Bass and her former ally, the City Council member Nithya Raman, attacked each other’s records on Tuesday night in the last televised debate before the election.`\
+https://www.nytimes.com/2026/10/14/us/los-angeles-mayor-debate-takeaways.html
+
 **New York City Comptroller Backs Off Promise to Invest in Israeli Bonds**\
 `Mark Levine, a Democrat, said he remained a steadfast supporter of Israel, but said the quality of the bonds had deteriorated amid conflict in the Middle East.`\
 https://www.nytimes.com/2026/10/14/nyregion/mark-levine-comptroller-israel.html
