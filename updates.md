@@ -1,3 +1,15 @@
+**The Breathtaking Cost of the Midterms: $10 Billion and Counting on Ads**\
+`The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
+https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
+
+**Energy Department Order Takes Aim at Mid-Atlantic Blackout Risk**\
+`The order as a precaution allows grid operators to use backup generation this week. There were no widespread outages reported.`\
+https://www.nytimes.com/2026/10/14/business/department-of-energy-emergency-power-order.html
+
+**Why Trump Made a Diesel Deal With Putin**\
+`Our national security and White House correspondent David E. Sanger breaks down why President Donald Trump struck a deal with President Vladimir V. Putin to import Russian diesel fuel in the coming months, despite having signed recent congressional legislation tightening energy sanctions on Russia.`\
+https://www.nytimes.com/video/world/europe/100000011205967/00vid-rv-trump-putin-deal.html
+
 **Democrats Shouldn’t Wait Two More Years**\
 `The Trump era is ending. It’s time for Democrats to decide what happens next.`\
 https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
