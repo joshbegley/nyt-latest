@@ -1,3 +1,19 @@
+**What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service?**\
+`For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
+https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
+
+**Senators’ Letter to Meta**\
+`Democrats on the Senate Finance Committee sent a letter to Meta about $6.6 billion in tax breaks.`\
+https://www.nytimes.com/interactive/2026/10/14/us/senate-letter-to-meta-on-research-tax-credit.html
+
+**Pope Leo’s Cancer Diagnosis: What Happens Next**\
+`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday. The Vatican said that his postoperative tests showed normal results.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
+
+**If Democrats Win the Senate, They Cannot Mess Around**\
+`The party will need to make the most of whatever majority it has.`\
+https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
+
 **Senators Question Meta’s Data Center Tax Strategy**\
 `Democrats on the Senate Finance Committee sent a letter to Mark Zuckerberg, Meta’s chief executive, questioning the company’s $6.6 billion in tax breaks.`\
 https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html

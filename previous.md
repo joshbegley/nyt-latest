@@ -1,3 +1,11 @@
+**What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service?**\
+`For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
+https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
+
+**Senators’ Letter to Meta**\
+`Democrats on the Senate Finance Committee sent a letter to Meta about $6.6 billion in tax breaks.`\
+https://www.nytimes.com/interactive/2026/10/14/us/senate-letter-to-meta-on-research-tax-credit.html
+
 **Senators Question Meta’s Data Center Tax Strategy**\
 `Democrats on the Senate Finance Committee sent a letter to Mark Zuckerberg, Meta’s chief executive, questioning the company’s $6.6 billion in tax breaks.`\
 https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html
@@ -127,7 +135,7 @@ https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
-`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
+`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday. The Vatican said that his postoperative tests showed normal results.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
 
 **‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
@@ -150,8 +158,8 @@ https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cance
 `How one mom found a place in her son’s new family.`\
 https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
 
-**A Lifeline for American Democracy**\
-`If Democrats win the Senate, they cannot mess around.`\
+**If Democrats Win the Senate, They Cannot Mess Around**\
+`The party will need to make the most of whatever majority it has.`\
 https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
 
 **Ebola Has Never Spread This Quickly Before**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/realestate/which-400000-dollar-home-would-you
 **‘Crystal Lake,’ a ‘Friday the 13th’ Prequel, Feels for Its Villain**\
 `This prequel series, on Peacock, is TV’s latest streaming extension of a beloved horror franchise.`\
 https://www.nytimes.com/2026/10/14/arts/television/crystal-lake-friday-the-13th.html
-
-**A Trump Backlash Endangers Susan Collins in the Maine Senate Race**\
-`The race in Maine, which could decide Senate control, is testing whether there is still room for Ms. Collins’s brand of moderation during a sharply polarizing presidency.`\
-https://www.nytimes.com/2026/10/14/us/politics/susan-collins-trump-maine-senate.html
-
-**If You Were Wealthy, Would You Give Away Your Money?**\
-`The country music legend Dolly Parton, who died this summer, gave generously to causes she believed in. If you were rich, would you share your wealth with others?`\
-https://www.nytimes.com/2026/10/14/learning/if-you-were-wealthy-would-you-give-away-your-money.html
 
