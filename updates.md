@@ -1,3 +1,15 @@
+**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
+`Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
+
+**Japan Protests Russia’s Detention of Journalist Accused of Spying**\
+`Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
+https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
+
+**Live Updates: Last U.S. Inflation Reading Before Election to Offer Insights on Economy**\
+`The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **Sudden Starlink Restrictions Hamper Ukraine Just as Russia Escalates**\
 `Kyiv has found itself increasingly vulnerable. A huge attack cut power to 600,000 people there, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html

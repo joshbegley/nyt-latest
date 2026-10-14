@@ -1,3 +1,11 @@
+**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
+`Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
+
+**Japan Protests Russia’s Detention of Journalist Accused of Spying**\
+`Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
+https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
+
 **Sudden Starlink Restrictions Hamper Ukraine Just as Russia Escalates**\
 `Kyiv has found itself increasingly vulnerable. A huge attack cut power to 600,000 people there, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 `The prosecution, outlining its case against Mr. Brand, said that during the time when crimes were said to have taken place, he saw women as “simply a means to an end.”`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: New Insight on Inflation Pressuring U.S. Economy and the Fed**\
+**Live Updates: Last U.S. Inflation Reading Before Election to Offer Insights on Economy**\
 `The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/learning/word-of-the-day-hypnotize.html
 **Will Anyone Actually Ever Live to 200?**\
 `Some experts are optimistic that science will eventually find ways to extend life, but many longevity claims are unrealistic.`\
 https://www.nytimes.com/2026/10/14/well/live/humans-lifespan-limits-potential.html
-
-**Ballet Salon Is a New Home for Dancers Who Want to Return to the Stage**\
-`For many ballet dancers and former students, love of the art form endures even after they stop dancing. Ballet Salon was founded as a place for them to practice and perform at a high level.`\
-https://www.nytimes.com/2026/10/14/arts/dance/ballet-salon-dancers-gibney-theater.html
-
-**How Top Trump Officials Stoked Fears of a Nuke That Could Fry the Power Grid**\
-`For more than a decade, conservative activists held that a single atomic bomb could, without killing Americans directly, lay waste to the country — a claim that built fervor for war with Iran.`\
-https://www.nytimes.com/2026/10/14/science/electromagnetic-pulse-nuke-trump-officials.html
 
