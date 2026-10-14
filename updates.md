@@ -1,3 +1,7 @@
+**6 Dead in Wisconsin Plane Crash**\
+`The aircraft crashed in the town of Dellona on Tuesday night, killing five adults and one child, local authorities said.`\
+https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
+
 **Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
