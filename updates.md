@@ -1,3 +1,7 @@
+**Battle Over the Pierre Ends in Defeat for the Buyer Pushed by Lutnick**\
+`Motasem Khashoggi, who hails from a prominent Saudi family, missed a Tuesday deadline to deliver a $100 million deposit to purchase the Manhattan landmark.`\
+https://www.nytimes.com/2026/10/14/business/pierre-buyer-lutnick.html
+
 **Why Cattle Farmers Feel ‘Disillusioned’ Before Midterms**\
 `Lisa Lerer, a New York Times national politics reporter, joins Natalie Kitroeff on “The Call” from a cow auction in Calhan, Colo., to discuss how rising agriculture and diesel costs are making farmers disillusioned ahead of the midterms.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011214372/why-cattle-farmers-feel-disillusioned-before-midterms.html

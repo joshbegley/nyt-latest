@@ -1,3 +1,7 @@
+**Battle Over the Pierre Ends in Defeat for the Buyer Pushed by Lutnick**\
+`Motasem Khashoggi, who hails from a prominent Saudi family, missed a Tuesday deadline to deliver a $100 million deposit to purchase the Manhattan landmark.`\
+https://www.nytimes.com/2026/10/14/business/pierre-buyer-lutnick.html
+
 **Why Cattle Farmers Feel ‘Disillusioned’ Before Midterms**\
 `Lisa Lerer, a New York Times national politics reporter, joins Natalie Kitroeff on “The Call” from a cow auction in Calhan, Colo., to discuss how rising agriculture and diesel costs are making farmers disillusioned ahead of the midterms.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011214372/why-cattle-farmers-feel-disillusioned-before-midterms.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/10/14/us/senate-letter-to-meta-on-resea
 **Senators Question Meta’s Data Center Tax Strategy**\
 `Democrats on the Senate Finance Committee sent a letter to Mark Zuckerberg, Meta’s chief executive, questioning the company’s $6.6 billion in tax breaks.`\
 https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html
-
-**Russia Fires Ballistic Missile Barrage at Ukraine**\
-`Russia launched dozens of ballistic missiles at Ukraine early Wednesday in one of the largest salvos of the war. Some 600,000 people were left without power in the capital, according to Ukraine’s president.`\
-https://www.nytimes.com/video/world/europe/100000011212931/ukraine-russia-war-missile-attack.html
 
 **Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
 `(No description)`\
