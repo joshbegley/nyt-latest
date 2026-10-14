@@ -1,3 +1,15 @@
+**ICE Agent Strikes, Injures Fleeing Man With Vehicle**\
+`An ICE agent struck a Mexican construction worker, Miguel Parra Hernandez, with a vehicle on Saturday. Mr. Parra Hernandez was hospitalized with hip and ankle injuries, according to an immigrant rights group.`\
+https://www.nytimes.com/video/us/100000011214155/ice-mexican-worker-miguel-hernandez.html
+
+**Surprise Democratic Donor Blitzes Senate Races in Republican-Leaning States With Ads**\
+`Steve Pajcic, a lawyer and philanthropist in Florida, started a group that is airing ads in Kansas and South Carolina. Florida and Mississippi are next.`\
+https://www.nytimes.com/2026/10/14/us/politics/democratic-donor-senate-red-state-ads.html
+
+**Eilen Itzel do Espírito Santo Wants Her Paintings to ‘Engulf’ You**\
+`The Dominican American artist Eilen Itzel do Espírito Santo, who has a presentation at Frieze London, wants her works to “engulf” viewers.`\
+https://www.nytimes.com/2026/10/14/t-magazine/eilen-itzel-do-espirito-santo-frieze-london.html
+
 **U.S. Continues to Provide Intelligence to Ukraine, Officials Say**\
 `Confusion about the U.S. stance has mounted in Kyiv amid restrictions on how the military version of Starlink is used.`\
 https://www.nytimes.com/2026/10/14/us/politics/us-intelligence-sharing-ukraine.html

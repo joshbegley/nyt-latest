@@ -1,3 +1,15 @@
+**ICE Agent Strikes, Injures Fleeing Man With Vehicle**\
+`An ICE agent struck a Mexican construction worker, Miguel Parra Hernandez, with a vehicle on Saturday. Mr. Parra Hernandez was hospitalized with hip and ankle injuries, according to an immigrant rights group.`\
+https://www.nytimes.com/video/us/100000011214155/ice-mexican-worker-miguel-hernandez.html
+
+**Surprise Democratic Donor Blitzes Senate Races in Republican-Leaning States With Ads**\
+`Steve Pajcic, a lawyer and philanthropist in Florida, started a group that is airing ads in Kansas and South Carolina. Florida and Mississippi are next.`\
+https://www.nytimes.com/2026/10/14/us/politics/democratic-donor-senate-red-state-ads.html
+
+**Eilen Itzel do Espírito Santo Wants Her Paintings to ‘Engulf’ You**\
+`The Dominican American artist Eilen Itzel do Espírito Santo, who has a presentation at Frieze London, wants her works to “engulf” viewers.`\
+https://www.nytimes.com/2026/10/14/t-magazine/eilen-itzel-do-espirito-santo-frieze-london.html
+
 **U.S. Continues to Provide Intelligence to Ukraine, Officials Say**\
 `Confusion about the U.S. stance has mounted in Kyiv amid restrictions on how the military version of Starlink is used.`\
 https://www.nytimes.com/2026/10/14/us/politics/us-intelligence-sharing-ukraine.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/dining/100000011211810/slow-cooker-cauliflower-pot
 **Is It Wrong to Vote in the Other Party’s Primary?**\
 `My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
 https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
-
-**Jon Ossoff Says He Won’t Run for President in 2028 in Georgia Senate Debate**\
-`“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
-https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
-
-**Netflix, Facing Slowing Growth, Cuts 6% of Its Work Force**\
-`The streamer’s share price is down more than 40 percent over the last year as the company has struggled with stalling engagement.`\
-https://www.nytimes.com/2026/10/14/business/media/netflix-layoffs-ted-sarandos.html
-
-**Mamdani Enters Deal with N.Y.U. to Share Profits from Quantum Lab**\
-`Mayor Zohran Mamdani said that in exchange for a $30 million city investment, New York would get 15 percent of proceeds from projects developed in the quantum technology lab.`\
-https://www.nytimes.com/2026/10/14/nyregion/mamdani-nyu-quantum-partnership.html
 
