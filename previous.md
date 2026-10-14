@@ -1,3 +1,7 @@
+**Pope Leo’s Cancer Surgery Draws Outpouring From World Leaders**\
+`The pontiff’s illness also prompted calls for people to seek medical treatment and early cancer screenings.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-cancer-diagnosis-prayers-reaction.html
+
 **7 Takeaways From the Second Georgia Senate Debate**\
 `Representative Mike Collins, who lags Senator Jon Ossoff in public polls, hit his opponent harder in a second and final debate on Tuesday.`\
 https://www.nytimes.com/2026/10/13/us/politics/georgia-senate-debate-ossoff-collins.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011210717/dc-trump-kimberly-guil
 **Frances Stonor Saunders, Who Detailed C.I.A. Propaganda, Dies at 60**\
 `In a 1999 book, she chronicled the spy agency’s secret backing of Cold War culture projects to manipulate public opinion against Communism in Western Europe.`\
 https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
-
-**The Path to a ‘Good Death’ Starts With a Plan**\
-`Readers respond to an I.C.U. doctor’s essay about how we as a society need a new definition of what qualifies as a good death.`\
-https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
 

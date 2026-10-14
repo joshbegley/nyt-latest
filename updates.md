@@ -1,3 +1,7 @@
+**Pope Leo’s Cancer Surgery Draws Outpouring From World Leaders**\
+`The pontiff’s illness also prompted calls for people to seek medical treatment and early cancer screenings.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-cancer-diagnosis-prayers-reaction.html
+
 **7 Takeaways From the Second Georgia Senate Debate**\
 `Representative Mike Collins, who lags Senator Jon Ossoff in public polls, hit his opponent harder in a second and final debate on Tuesday.`\
 https://www.nytimes.com/2026/10/13/us/politics/georgia-senate-debate-ossoff-collins.html
