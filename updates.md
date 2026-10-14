@@ -1,3 +1,7 @@
+**Bleached Coral Rebounded After Touching Healthy Coral, Study Finds**\
+`After sick corals were placed in direct contact with healthy ones of the same genetic make-up, they recovered at “incredible” speed, scientists found.`\
+https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html
+
 **As Ukraine Raises Alarm Over U.S. Backing, Europeans Pledge Support**\
 `President Volodymyr Zelensky, who met with Britain’s prime minister, has said Ukraine received no warning of Russian attacks, but President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
