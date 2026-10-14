@@ -1,3 +1,23 @@
+**“The Assassin(s)” Movie Fuels South Korea’s Culture Wars**\
+`The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
+https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
+
+**Quote of the Day: After a Decade of Macron, France Faces a Deluge**\
+`Quotation of the Day for Wednesday, October 14, 2026.`\
+https://www.nytimes.com/2026/10/14/pageoneplus/quote-of-the-day-after-a-decade-of-macron-france-faces-a-deluge.html
+
+**From Allies to Enemies: Ethiopia and Eritrea Edge Toward War**\
+`The two nations fought alongside each other during a brutal conflict in Tigray that left hundreds of thousands of people dead just a few years ago. Now they are on the brink of fighting each other.`\
+https://www.nytimes.com/2026/10/14/world/africa/ethiopia-eritrea-tigray-invasion.html
+
+**China’s Exports Soar, Putting Its Trade Surplus on Track for a Record**\
+`China’s exports grew last month at the fastest pace in almost any month since the end of the global financial crisis.`\
+https://www.nytimes.com/2026/10/14/business/china-exports-trade-surplus.html
+
+**On This Day, Oct. 14: In 1912, Theodore Roosevelt Was Shot; He Then Delivered a Speech**\
+`In 1912, Theodore Roosevelt was shot while campaigning for president in Milwaukee. He then delivered a lengthy speech before seeking medical treatment.`\
+https://www.nytimes.com/2026/10/14/learning/on-this-day-oct-14-theodore-roosevelt-shot.html
+
 **Trump Adds Another Giveaway to His Midterm Pitch: Pardons.**\
 `The president has stepped up his offers of financial rewards to voters with just weeks until the midterms. On Tuesday at a rally in Alaska, he announced pardons.`\
 https://www.nytimes.com/2026/10/13/us/elections/trump-pardons-midterms-payments.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
 **Tupac Shakur Murder Conviction Lands Man 40 Years to Life in Prison**\
 `Duane Keith Davis was convicted by a jury of obtaining a gun and pursuing the rapper in a violent act of revenge in 1996.`\
 https://www.nytimes.com/2026/10/13/arts/music/tupac-shakur-murder-duane-keith-davis-sentenced.html
-
-**Cabagges World’s Favorite New York City Restaurants**\
-`Anna Archibald and Kevin Serai, the couple behind the popular home cooking and lifestyle account, tackle our restaurant questionnaire.`\
-https://www.nytimes.com/2026/10/13/dining/cabagges-world.html
-
-**F.B.I. Disrupts Pyongyang Revenue Stream: North Koreans in U.S. Tech Jobs**\
-`F.B.I. investigators worked with the cybersecurity firm CrowdStrike to dismantle so-called laptop farms that steal American identities to earn cash for Pyongyang.`\
-https://www.nytimes.com/2026/10/13/us/politics/north-korea-it-workers-fbi.html
-
-**Judge Prohibits Further Tree Cutting at East Potomac Golf Course for Two Weeks**\
-`The ruling barred major modifications at the D.C. course while a federal judge seeks testimony from Interior Department officials about whether they ignored a court order.`\
-https://www.nytimes.com/2026/10/13/us/politics/trump-potomac-tree-cutting-golf-course.html
-
-**Martin Shkreli Violated Lifetime Ban From Drug Industry, U.S. Says**\
-`The attorneys general of New York and six other states joined the Federal Trade Commission in accusing the disgraced former pharmaceutical executive of repeatedly violating the ban.`\
-https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-daraprim.html
-
-**Why A.I. Has This Mathematician in Tears**\
-`Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
 
