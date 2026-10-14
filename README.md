@@ -1,3 +1,11 @@
+**The Kelly Clarkson Tape, Revealed**\
+`What really happened in that Brooklyn store?`\
+https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.html
+
+**Peruvians Pray for Pope’s Recovery After Cancer Diagnosis**\
+`People in Peru sent Pope Leo their prayers after he was diagnosed with lung cancer on Tuesday. The news comes just weeks before the pope’s Latin America trip.`\
+https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cancer-peru.html
+
 **Modern Love: Does My Son Like His Stepmother More Than Me?**\
 `How one mom found a place in her son’s new family.`\
 https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.ht
 **‘The Assassin(s)’ Movie Fuels South Korea’s Culture Wars**\
 `The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
 https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
-
-**Quote of the Day: After a Decade of Macron, France Faces a Deluge**\
-`Quotation of the Day for Wednesday, October 14, 2026.`\
-https://www.nytimes.com/2026/10/14/pageoneplus/quote-of-the-day-after-a-decade-of-macron-france-faces-a-deluge.html
-
-**From Allies to Enemies: Ethiopia and Eritrea Edge Toward War**\
-`The two nations fought alongside each other during a brutal conflict in Tigray that left hundreds of thousands of people dead just a few years ago. Now they are on the brink of fighting each other.`\
-https://www.nytimes.com/2026/10/14/world/africa/ethiopia-eritrea-tigray-invasion.html
 
