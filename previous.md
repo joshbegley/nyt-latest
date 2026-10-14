@@ -1,3 +1,7 @@
+**Democrats Put Blame for Higher Prices on Trump**\
+`Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
+https://www.nytimes.com/2026/10/14/business/economy/democrats-put-blame-for-higher-prices-on-trump.html
+
 **What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service?**\
 `For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
 https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
@@ -130,8 +134,8 @@ https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
-**Here’s the latest.**\
-`(No description)`\
+**Higher Energy Prices Lift U.S. Inflation Ahead of Midterm Elections**\
+`September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/arts/hydrocal-plaster-shortage-sculptors.html
 **Which $400,000 Home Would You Choose?**\
 `Homes include an Italianate brick home in Schenectady, N.Y., a bungalow in Springfield, Ore., and a farmhouse in Plainfield, Ind.`\
 https://www.nytimes.com/2026/10/14/realestate/which-400000-dollar-home-would-you-choose.html
-
-**‘Crystal Lake,’ a ‘Friday the 13th’ Prequel, Feels for Its Villain**\
-`This prequel series, on Peacock, is TV’s latest streaming extension of a beloved horror franchise.`\
-https://www.nytimes.com/2026/10/14/arts/television/crystal-lake-friday-the-13th.html
 

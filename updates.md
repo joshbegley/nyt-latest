@@ -1,3 +1,11 @@
+**Democrats Put Blame for Higher Prices on Trump**\
+`Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
+https://www.nytimes.com/2026/10/14/business/economy/democrats-put-blame-for-higher-prices-on-trump.html
+
+**Higher Energy Prices Lift U.S. Inflation Ahead of Midterm Elections**\
+`September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
+https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
+
 **What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service?**\
 `For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
 https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
