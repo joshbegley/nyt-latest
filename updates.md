@@ -1,3 +1,11 @@
+**Appeals Court Questions Trump’s National Guard Deployment in D.C.**\
+`After thousands of troops deployed by the president have patrolled Washington for more than a year, a three-judge panel interrogated whether the deployment could continue indefinitely.`\
+https://www.nytimes.com/2026/10/14/us/politics/appeals-court-national-guard-washington.html
+
+**Midterm Election Ad Spending Topped $10 Billion, and It’s Still Rising**\
+`The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
+https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
+
 **Sleeping ICE Agent Who Fought With Homeowner Is Charged With Assault**\
 `The off-duty agent was found sleeping on the front lawn of a home in Fresno, Calif., last week before the scuffle unfolded. The police said he “appeared intoxicated and agitated.”`\
 https://www.nytimes.com/2026/10/14/us/fresno-drunk-ice-agent.html
