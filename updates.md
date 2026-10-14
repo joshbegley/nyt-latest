@@ -1,3 +1,7 @@
+**Five Key Moments From The Times’s Interview With Cornell’s President**\
+`Michael Kotlikoff addressed concerns over the university’s handling of a former student’s claims that she was gang-raped at a fraternity party.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-takeaways.html
+
 **Pope Leo’s Cancer Surgery Draws Outpouring From World Leaders**\
 `The pontiff’s illness also prompted calls for people to seek medical treatment and early cancer screenings.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-cancer-diagnosis-prayers-reaction.html

@@ -1,3 +1,7 @@
+**Five Key Moments From The Times’s Interview With Cornell’s President**\
+`Michael Kotlikoff addressed concerns over the university’s handling of a former student’s claims that she was gang-raped at a fraternity party.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-takeaways.html
+
 **Pope Leo’s Cancer Surgery Draws Outpouring From World Leaders**\
 `The pontiff’s illness also prompted calls for people to seek medical treatment and early cancer screenings.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-cancer-diagnosis-prayers-reaction.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-jud
 **Kimberly Guilfoyle Resigns as Ambassador to Greece**\
 `The White House asked Kimberly Guilfoyle to resign from her post after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
 https://www.nytimes.com/video/us/politics/100000011210717/dc-trump-kimberly-guilfoyle-ambassador.html
-
-**Frances Stonor Saunders, Who Detailed C.I.A. Propaganda, Dies at 60**\
-`In a 1999 book, she chronicled the spy agency’s secret backing of Cold War culture projects to manipulate public opinion against Communism in Western Europe.`\
-https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
 
