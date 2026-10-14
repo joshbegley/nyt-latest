@@ -1,3 +1,7 @@
+**America’s Way Is Not the Only Way**\
+`Must civil and political rights come first for a country to prosper? On “The Opinions,” Kaiser Kuo challenges the United States’ longstanding insistence on that path to development, arguing that some nations may prioritize securing food, clothing and shelter first. As the world order frays, he makes the case for thinking more expansively about how countries prosper.`\
+https://www.nytimes.com/video/opinion/100000011210554/americas-way-is-not-the-only-way.html
+
 **Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
 `As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
 https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
