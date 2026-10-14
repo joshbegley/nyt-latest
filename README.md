@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: Last U.S. Inflation Reading Before Election to Offer Insights on Economy**\
-`The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
+**Live Update: Inflation Accelerates on Persistent Energy Pressures**\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, a faster rate than a month earlier that reflected higher fuel prices.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
