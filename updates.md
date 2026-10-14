@@ -1,3 +1,19 @@
+**Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
+`The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
+https://www.nytimes.com/2026/10/14/business/economy/surging-inflation-complicates-trumps-final-push-to-sell-voters-on-strong-economy.html
+
+**They Created a Cell That’s Almost Alive. What to Do With It Now?**\
+`SpudCells may one day produce new medicines and materials. But first scientists have to improve them — and make sure they aren’t misused.`\
+https://www.nytimes.com/2026/10/14/science/spudcell-adamala-biotic.html
+
+**Rising Costs Push Necessities Out of Reach for Nearly Half of Americans**\
+`Inflation has made basic goods hard to afford and attitudes toward inequality have changed, studies from the Pew Research Center showed.`\
+https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-pew-research.html
+
+**Is It a Relationship if No One’s on the Other Side?**\
+`Sherry Turkle, who has spent decades studying people’s relationships with machines, believes we have “a very small window” to correct our current course with A.I.`\
+https://www.nytimes.com/2026/10/14/opinion/ezra-klein-podcast-sherry-turkle.html
+
 **6 Dead in Wisconsin Plane Crash**\
 `The aircraft crashed in the town of Dellona on Tuesday night, killing five adults and one child, local authorities said.`\
 https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html

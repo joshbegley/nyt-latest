@@ -1,3 +1,15 @@
+**Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
+`The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
+https://www.nytimes.com/2026/10/14/business/economy/surging-inflation-complicates-trumps-final-push-to-sell-voters-on-strong-economy.html
+
+**They Created a Cell That’s Almost Alive. What to Do With It Now?**\
+`SpudCells may one day produce new medicines and materials. But first scientists have to improve them — and make sure they aren’t misused.`\
+https://www.nytimes.com/2026/10/14/science/spudcell-adamala-biotic.html
+
+**Rising Costs Push Necessities Out of Reach for Nearly Half of Americans**\
+`Inflation has made basic goods hard to afford and attitudes toward inequality have changed, studies from the Pew Research Center showed.`\
+https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-pew-research.html
+
 **Social Security COLA for 2027 Will Be 3.6%**\
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
@@ -178,23 +190,11 @@ https://www.nytimes.com/2026/10/14/realestate/angelina-jolie-sells-her-los-angel
 `Architect Keisuke Oka’s Arimasuton building is a rejection of Japan’s disposable architecture.`\
 https://www.nytimes.com/2026/10/14/realestate/tokyo-building-arimasuton-keisuke-oka.html
 
-**Is It Wrong to Love a Chatbot?**\
+**Is It a Relationship if No One’s on the Other Side?**\
 `Sherry Turkle, who has spent decades studying people’s relationships with machines, believes we have “a very small window” to correct our current course with A.I.`\
 https://www.nytimes.com/2026/10/14/opinion/ezra-klein-podcast-sherry-turkle.html
 
 **Supreme Court Weighs Privacy Law From the Videotape Era of ‘Be Kind, Rewind’**\
 `The justices will consider how the Video Privacy Protection Act of 1988 applies in the digital age of streaming videos, email newsletters and targeted advertisements.`\
 https://www.nytimes.com/2026/10/14/us/politics/supreme-court-bork-video-privacy.html
-
-**He Pushed Heavy Metal to Even Darker Extremes**\
-`Conrad Lant, the frontman for Venom, took the stage name Cronos, pioneered black metal and more or less made Satan a sideman. He has died at 63.`\
-https://www.nytimes.com/2026/10/14/arts/music/conrad-lant-cronos-dead.html
-
-**Choosing a Medicare Advantage Provider for 2027 May Be Easier, but Not Perfect**\
-`The government has made improvements to the Medicare Plan Finder, a key online tool, in time for open enrollment. It helps seniors compare policies to avoid costly surprises.`\
-https://www.nytimes.com/2026/10/14/business/medicare-advantage-plan-finder.html
-
-**Stella Lefty Crafted a Viral Hit. Some Thought It Sounded Familiar.**\
-`After this singer-songwriter’s hit, “Boston,” was likened to a Noah Kahan tune, content creators made a sport of noting similarities her music and other popular tracks.`\
-https://www.nytimes.com/2026/10/14/arts/music/stella-lefty-boston-song-lyrics.html
 
