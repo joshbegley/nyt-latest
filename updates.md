@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
+
 **Gas Costs 34 Percent More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html

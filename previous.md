@@ -106,6 +106,10 @@ https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
+
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
 `Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/realestate/tokyo-building-arimasuton-keisuke-
 **Is It a Relationship if No One’s on the Other Side?**\
 `Sherry Turkle, who has spent decades studying people’s relationships with machines, believes we have “a very small window” to correct our current course with A.I.`\
 https://www.nytimes.com/2026/10/14/opinion/ezra-klein-podcast-sherry-turkle.html
-
-**Supreme Court Weighs Privacy Law From the Videotape Era of ‘Be Kind, Rewind’**\
-`The justices will consider how the Video Privacy Protection Act of 1988 applies in the digital age of streaming videos, email newsletters and targeted advertisements.`\
-https://www.nytimes.com/2026/10/14/us/politics/supreme-court-bork-video-privacy.html
 
