@@ -1,3 +1,7 @@
+**Mexico Bans Violent Content on Social Media for Children**\
+`Joining a global movement, President Claudia Sheinbaum signed a decree requiring the removal of a range of material for people under 18 and held out the prospect of tougher measures.`\
+https://www.nytimes.com/2026/10/14/world/americas/mexico-media-bans-children.html
+
 **The Disappearing Women of the Trump Administration**\
 `In President Trump’s second term, those heading for the exits, voluntarily or involuntarily, are female officials.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-administration-kimberly-guilfoyle-women.html

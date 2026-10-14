@@ -1,3 +1,7 @@
+**Mexico Bans Violent Content on Social Media for Children**\
+`Joining a global movement, President Claudia Sheinbaum signed a decree requiring the removal of a range of material for people under 18 and held out the prospect of tougher measures.`\
+https://www.nytimes.com/2026/10/14/world/americas/mexico-media-bans-children.html
+
 **The Disappearing Women of the Trump Administration**\
 `In President Trump’s second term, those heading for the exits, voluntarily or involuntarily, are female officials.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-administration-kimberly-guilfoyle-women.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011211697/creamy-tuscan-chicken.html
 **World’s Best Chocolate Cake**\
 `This versatile cake can be served without icing and just a light dusting of cocoa powder, or dressed up to the nines, as it is here, with a thin layer of chocolate ganache and served with espresso cinnamon mascarpone cream.`\
 https://www.nytimes.com/video/dining/100000011211701/worlds-best-chocolate-cake.html
-
-**Slow-Cooker Cauliflower, Potato and White Bean Soup**\
-`This creamy vegetarian soup takes just a few minutes to throw the ingredients into the slow cooker, making it very doable on a weekday.`\
-https://www.nytimes.com/video/dining/100000011211810/slow-cooker-cauliflower-potato-and-white-bean-soup.html
 
