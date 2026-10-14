@@ -1,3 +1,11 @@
+**World’s Best Chocolate Cake**\
+`This versatile cake can be served without icing and just a light dusting of cocoa powder, or dressed up to the nines, as it is here, with a thin layer of chocolate ganache and served with espresso cinnamon mascarpone cream.`\
+https://www.nytimes.com/video/dining/100000011211701/worlds-best-chocolate-cake.html
+
+**Slow-Cooker Cauliflower, Potato and White Bean Soup**\
+`This creamy vegetarian soup takes just a few minutes to throw the ingredients into the slow cooker, making it very doable on a weekday.`\
+https://www.nytimes.com/video/dining/100000011211810/slow-cooker-cauliflower-potato-and-white-bean-soup.html
+
 **Is It Wrong to Vote in the Other Party’s Primary?**\
 `My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
 https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.htm
 **Peruvians Pray for Pope’s Recovery After Cancer Diagnosis**\
 `People in Peru sent Pope Leo their prayers after he was diagnosed with lung cancer on Tuesday. The news comes just weeks before the pope’s Latin America trip.`\
 https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cancer-peru.html
-
-**Modern Love: Does My Son Like His Stepmother More Than Me?**\
-`How one mom found a place in her son’s new family.`\
-https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
-
-**If Democrats Win the Senate, They Cannot Mess Around**\
-`The party will need to make the most of whatever majority it has.`\
-https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
 
