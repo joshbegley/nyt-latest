@@ -1,3 +1,7 @@
+**America’s Way Is Not the Only Way**\
+`Must civil and political rights come first for a country to prosper? On “The Opinions,” Kaiser Kuo challenges the United States’ longstanding insistence on that path to development, arguing that some nations may prioritize securing food, clothing and shelter first. As the world order frays, he makes the case for thinking more expansively about how countries prosper.`\
+https://www.nytimes.com/video/opinion/100000011210554/americas-way-is-not-the-only-way.html
+
 **Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
 `As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
 https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/14/business/prices-inflation-food-airfare-car-re
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.html
-
-**They Created a Cell That’s Almost Alive. What to Do With It Now?**\
-`SpudCells may one day produce new medicines and materials. But first scientists have to improve them — and make sure they aren’t misused.`\
-https://www.nytimes.com/2026/10/14/science/spudcell-adamala-biotic.html
 
 **Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
 `(No description)`\
