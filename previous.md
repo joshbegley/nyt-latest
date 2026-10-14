@@ -1,3 +1,7 @@
+**Judge Blocks Trump Administration’s Sanctions on 2 Groups Aiding the I.C.C.**\
+`The ruling prevents the administration from penalizing two rights groups for working to provide information for the International Criminal Court’s war crimes investigations.`\
+https://www.nytimes.com/2026/10/14/us/icc-sanctions-trump-administration.html
+
 **4 Takeaways From the Los Angeles Mayoral Debate**\
 `Mayor Karen Bass and her former ally, the City Council member Nithya Raman, attacked each other’s records on Tuesday night in the last televised debate before the election.`\
 https://www.nytimes.com/2026/10/14/us/los-angeles-mayor-debate-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-
 **Miami Tugboat Captain Gets 18 Months in Crash That Killed 3 Children**\
 `Five girls and a camp counselor were thrown into the water off Miami Beach in July last year when a barge pushed by a tugboat struck their stalled sailboat.`\
 https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
-
-**President Obama’s Climate Legacy**\
-`The Obama Presidential Center’s exhibits on climate change was like going back in time to a seemingly more harmonious world.`\
-https://www.nytimes.com/2026/10/13/climate/obama-presidential-center-climate.html
 

@@ -1,3 +1,7 @@
+**Judge Blocks Trump Administration’s Sanctions on 2 Groups Aiding the I.C.C.**\
+`The ruling prevents the administration from penalizing two rights groups for working to provide information for the International Criminal Court’s war crimes investigations.`\
+https://www.nytimes.com/2026/10/14/us/icc-sanctions-trump-administration.html
+
 **‘Honey Please’: The Steep Rise and Sudden Fall of Kimberly Guilfoyle.**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
 https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resigns-trump-ambassador-greece.html
