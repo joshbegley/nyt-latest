@@ -1,3 +1,7 @@
+**America First?**\
+`We look at the state of the U.S.-Ukraine relationship.`\
+https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
+
 **The U.S. Tried to Choke Russia’s Energy Market. Then It Made a Diesel Deal.**\
 `President Trump has announced a deal in which the United States could buy billions of dollars’ worth of diesel fuel from Russia, stunning allies and lawmakers.`\
 https://www.nytimes.com/2026/10/14/podcasts/the-daily/trump-russsia-diesel-deal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/us/xavier-becerra-latino-california-governor.
 **Argentina’s President Has a Dog Psychic. Meet Celia Melamed.**\
 `In Argentina, many people try to read the mind of the president. Celia Melamed read the mind of his dogs.`\
 https://www.nytimes.com/2026/10/14/world/americas/argentina-president-milei-dog-pet-psychic.html
-
-**Amit Forlit, the Israeli Private Eye at the Heart of a Climate Hacking Scandal**\
-`He’s been linked to someone called “The Hawk.” He named his company “This Isn’t a Dentist’s Office.” The feds say he hacked American environmentalists.`\
-https://www.nytimes.com/2026/10/14/climate/amit-forlit-climate-hacking-allegations.html
 
