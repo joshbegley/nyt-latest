@@ -1,3 +1,7 @@
+**Pope Leo’s Cancer Diagnosis: What Happens Next**\
+`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
+
 **A Pilgrim and a Retiree: Victims of the Houthi Airport Attack in Saudi Arabia**\
 `The strike was the Iran-backed militia’s most lethal against the kingdom, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html

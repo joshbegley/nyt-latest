@@ -1,3 +1,7 @@
+**Pope Leo’s Cancer Diagnosis: What Happens Next**\
+`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
+
 **A Pilgrim and a Retiree: Victims of the Houthi Airport Attack in Saudi Arabia**\
 `The strike was the Iran-backed militia’s most lethal against the kingdom, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/crosswords/spelling-bee-forum.html
 **Musk Blames Tycoon for Stalling Satellite Internet Access in India**\
 `As Starlink seeks permission to operate in India, a recent protest in New Delhi showed how quickly authorities can cut off mobile internet access.`\
 https://www.nytimes.com/2026/10/14/business/india-elon-musk-starlink.html
-
-**Bayeux Tapestry’s Return Has History Buffs Re-Enacting Like It’s 1066**\
-`Almost a millennium ago, the Battle of Hastings was fought on an English field and depicted on the tapestry. This year’s restaging drew spectators spurred on by the artifact’s visit to Britain.`\
-https://www.nytimes.com/2026/10/14/arts/battle-of-hastings-1066-reenactment-bayeux-tapestry.html
 
