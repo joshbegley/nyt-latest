@@ -1,3 +1,7 @@
+**City Council Speaker and Mamdani Agree on Horse-Drawn Carriage Ban**\
+`Under legislation backed by City Council Speaker Julie Menin and Mayor Zohran Mamdani, the use of horse-drawn carriages in Central Park would end by June 2028.`\
+https://www.nytimes.com/2026/10/13/nyregion/horse-carriages-ban-central-park.html
+
 **Duane Keith Davis Sentenced to 40 Years to Life for Tupac Shakur Murder**\
 `Duane Keith Davis on Tuesday was sentenced to 40 years to life in prison for orchestrating the 1996 drive-by shooting that killed Tupac Shakur.`\
 https://www.nytimes.com/video/us/100000011211647/duane-davis-sentencing-tupac-shakur-murder.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/style/the-fashions-bras-fall-shopping.html
 **Restaurant Review: So Fox in Atlanta**\
 `The chef Myles Moody returns home to bring his worldly take on the classics.`\
 https://www.nytimes.com/2026/10/13/dining/so-fox-restaurant-review.html
-
-**Bills Prevail After Back-and-Forth Contest With Rams**\
-`The Buffalo Bills needed every ounce of energy to amend their Week 4 loss. On Monday night, they edged the Los Angeles Rams 37-34 in overtime.`\
-https://www.nytimes.com/video/the-athletic/100000011210894/bills-prevail-after-back-and-forth-contest-with-rams.html
 
