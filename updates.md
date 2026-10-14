@@ -1,3 +1,7 @@
+**Live Update: Inflation Accelerates on Persistent Energy Pressures**\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, a faster rate than a month earlier that reflected higher fuel prices.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **Oil Prices Rise as Iran Steps Up Attacks and Fighting Intensifies**\
 `In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
 https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html

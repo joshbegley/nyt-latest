@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
 **Live Update: Inflation Accelerates on Persistent Energy Pressures**\
-`The Consumer Price Index rose 3.7 percent in September from a year earlier, a faster rate than a month earlier that reflected higher fuel prices.`\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
