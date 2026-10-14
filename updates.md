@@ -1,3 +1,11 @@
+**Jon Ossoff Says He Won’t Run for President in 2028 in Georgia Senate Debate**\
+`“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
+https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
+
+**Attacks on Ships in Strait of Hormuz Escalate Sharply**\
+`In a volatile moment in the region, a significant increase in attacks on vessels passing through the vital waterway is raising alarm.`\
+https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
+
 **Is It Wrong to Vote in the Other Party’s Primary?**\
 `My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
 https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
