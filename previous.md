@@ -1,3 +1,11 @@
+**New York City Comptroller Backs Off Promise to Invest in Israeli Bonds**\
+`Mark Levine, a Democrat, said he remained a steadfast supporter of Israel, but said the quality of the bonds had deteriorated amid conflict in the Middle East.`\
+https://www.nytimes.com/2026/10/14/nyregion/mark-levine-comptroller-israel.html
+
+**NYT Spelling Bee Answers for October 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/14/crosswords/spelling-bee-forum.html
+
 **Musk Blames Tycoon for Stalling Satellite Internet Access in India**\
 `As Starlink seeks permission to operate in India, a recent protest in New Delhi showed how quickly authorities can cut off mobile internet access.`\
 https://www.nytimes.com/2026/10/14/business/india-elon-musk-starlink.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/13/climate/obama-presidential-center-climate.htm
 **We Want Your Original Cartoon**\
 `The cartoonist P.C. Vey died recently. We’re inviting readers to share original cartoons of their own that, like Mr. Vey’s, find humor in the absurdities of everyday life.`\
 https://www.nytimes.com/2026/10/13/obituaries/cartoons-new-yorker-pc-vey.html
-
-**The New Yorker Cartoonist P.C. Vey Has Died**\
-`His work for The New Yorker savaged the absurdities of everyday life. He has died at 70.`\
-https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.html
-
-**RJ Mitte Is Remembered by Bryan Cranston, Vince Gilligan and Others From ‘Breaking Bad’**\
-`Bryan Cranston, Vince Gilligan and others shared their shock and sadness at the loss. “I’ll miss you, son,” Cranston wrote.`\
-https://www.nytimes.com/2026/10/13/arts/television/rj-mitte-death-reactions-bryan-cranston.html
 
