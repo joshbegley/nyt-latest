@@ -1,3 +1,11 @@
+**Sleeping ICE Agent Who Fought With Homeowner Is Charged With Assault**\
+`The off-duty agent was found sleeping on the front lawn of a home in Fresno, Calif., last week before the scuffle unfolded. The police said he “appeared intoxicated and agitated.”`\
+https://www.nytimes.com/2026/10/14/us/fresno-drunk-ice-agent.html
+
+**Maryland Republican Andy Harris Blamed Democrats for High Gas Prices. Laughter Ensued.**\
+`Representative Andy Harris, a Republican, said during a debate that environmental regulations had caused diesel prices to rise. Some in the audience groaned.`\
+https://www.nytimes.com/2026/10/14/us/andy-harris-maryland-republican-diesel.html
+
 **The Breathtaking Cost of the Midterms: $10 Billion and Counting on Ads**\
 `The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
 https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
 **Attacks on Ships in Strait of Hormuz Escalate Sharply**\
 `In a volatile moment in the region, a significant increase in attacks on vessels passing through the vital waterway is raising alarm.`\
 https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
-
-**Corruption Trial Begins for Former Oakland Mayor and City Contractors**\
-`The bribery and fraud charges against Sheng Thao, her partner and an influential family offer a window into more widespread efforts to corrupt officials in the San Francisco Bay Area.`\
-https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.html
-
-**6 Dead in Wisconsin Plane Crash**\
-`The aircraft crashed near the Wisconsin Dells on Tuesday night, killing five adults and one child, local authorities said.`\
-https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
