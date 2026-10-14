@@ -1,3 +1,11 @@
+**There’s a New Great Pumpkin to Rule Them All**\
+`A farmer in Rhode Island raised a 3,156-pound pumpkin this year, setting a new measure for the greatest of all gourds.`\
+https://www.nytimes.com/2026/10/14/us/rhode-island-giant-pumpkin-world-record.html
+
+**Why So Many People Still Are Not Screened for Lung Cancer**\
+`Regular scans could catch lung cancers like Pope Leo XIV’s sooner, but many people at risk don’t qualify for screening. Doctors want to change that.`\
+https://www.nytimes.com/2026/10/14/well/pope-lung-cancer-screening.html
+
 **The Plaza Hotel to Close for Yearslong Renovation in 2027**\
 `The famous Fifth Avenue hotel, which opened in 1907, requires a restoration of its exterior, its operators said. It was not clear if residents of the building’s condos would have to leave.`\
 https://www.nytimes.com/2026/10/14/nyregion/the-plaza-hotel-closes-temporarily-nyc.html
