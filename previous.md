@@ -1,3 +1,7 @@
+**Inflation Data Shows Prices Are Up, Worrying Republicans Ahead of the Midterms**\
+`Today’s inflation report gave Democrats a chance to tie pain at the pump to Trump’s decisions.`\
+https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-trump.html
+
 **Mexico Bans Violent Content on Social Media for Children**\
 `Joining a global movement, President Claudia Sheinbaum signed a decree requiring the removal of a range of material for people under 18 and held out the prospect of tougher measures.`\
 https://www.nytimes.com/2026/10/14/world/americas/mexico-media-bans-children.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-m
 **Creamy Tuscan Chicken**\
 `Despite its name, Tuscan chicken is not a traditional Italian recipe, but a dish of Italian-American origin, with its roots perhaps most frequently linked to Olive Garden.`\
 https://www.nytimes.com/video/dining/100000011211697/creamy-tuscan-chicken.html
-
-**World’s Best Chocolate Cake**\
-`This versatile cake can be served without icing and just a light dusting of cocoa powder, or dressed up to the nines, as it is here, with a thin layer of chocolate ganache and served with espresso cinnamon mascarpone cream.`\
-https://www.nytimes.com/video/dining/100000011211701/worlds-best-chocolate-cake.html
 
