@@ -1,3 +1,11 @@
+**A Pilgrim and a Retiree: Victims of the Houthi Airport Attack in Saudi Arabia**\
+`The strike was the Iran-backed militia’s most lethal against the kingdom, by far, during their long conflict.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
+
+**The Taliban Suspend BBC Broadcasts Across Afghanistan**\
+`The Taliban government has intensified its crackdown on the press in recent months but had so far targeted Afghan news outlets.`\
+https://www.nytimes.com/2026/10/14/world/asia/afghanistan-taliban-suspends-bbc.html
+
 **The Kelly Clarkson Tape, Revealed**\
 `What really happened in that Brooklyn store?`\
 https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.html
