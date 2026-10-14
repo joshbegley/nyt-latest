@@ -1,3 +1,27 @@
+**Corrections: Oct. 14, 2026**\
+`Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
+
+**Oil Prices Rise as Iran Steps Up Attacks and Houthi-Saudi Fighting Intensifies**\
+`In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
+https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
+
+**Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
+`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
+
+**Rogue A.I. Agents from China Chatted with Researchers**\
+`Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
+https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
+
+**Russell Brand Trial: Prosecution Outlines the Accusations**\
+`The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
+https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
+
+**Trump’s Latest Effort to Fire Fed Governor Lisa Cook Underscores Political Motives**\
+`President Trump tapped his political appointees to determine whether he could oust Lisa Cook, a Fed governor he had already tried to oust.`\
+https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hearing.html
+
 **Hollywood Agents and Producers Push to Restore Glory Days of Indie TV**\
 `A new alliance seeks legislation to force the biggest entertainment and streaming companies to devote half of their content budgets to independent producers in the U.S.`\
 https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron-howard.html

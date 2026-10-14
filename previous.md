@@ -1,3 +1,7 @@
+**Corrections: Oct. 14, 2026**\
+`Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
+https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
+
 **Hollywood Agents and Producers Push to Restore Glory Days of Indie TV**\
 `A new alliance seeks legislation to force the biggest entertainment and streaming companies to devote half of their content budgets to independent producers in the U.S.`\
 https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron-howard.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
 `The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
 https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
 
-**Oil Prices Rise as Iran Steps Up Attacks and Fighting Intensifies**\
+**Oil Prices Rise as Iran Steps Up Attacks and Houthi-Saudi Fighting Intensifies**\
 `In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
 https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
 
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital
 `Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
 https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
 
-**Sudden Starlink Restrictions Deepen Ukraine’s Vulnerability as Russia Escalates**\
+**Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 `President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
 
-**Rogue A.I. Agents from China Chatted with American Researchers**\
+**Rogue A.I. Agents from China Chatted with Researchers**\
 `Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
 https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
 
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/10/14/crosswords/strands-sidekick-956.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
 https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 
-**Russell Brand Labeled ‘Sexual Predator’ as Trial Opens; He Denies Rape and Assault Charges**\
+**Russell Brand Trial: Prosecution Outlines the Accusations**\
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.htm
 `This outbreak was detected late, giving the virus a head start.`\
 https://www.nytimes.com/interactive/2026/10/14/opinion/ebola-spread-africa-outbreak.html
 
-**Trump’s Latest Effort to Fire a Fed Official Underscores Political Motives**\
+**Trump’s Latest Effort to Fire Fed Governor Lisa Cook Underscores Political Motives**\
 `President Trump tapped his political appointees to determine whether he could oust Lisa Cook, a Fed governor he had already tried to oust.`\
 https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hearing.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/books/review/kolkhoz-emmanuel-carrere.html
 **5 Bike Ride Trails in the U.S. That You’ll Really Love**\
 `When we recently featured a few of the best car-free bike rides in America, readers had a lot of recommendations for trails we had missed. We picked five to share.`\
 https://www.nytimes.com/2026/10/14/travel/bike-rides-trails.html
-
-**Have a Complaint About the M.T.A.? She’s Listening.**\
-`The chief customer officer for the Metropolitan Transportation Authority knows that New Yorkers have no shortage of opinions about subways and buses.`\
-https://www.nytimes.com/2026/10/14/nyregion/mta-chief-complaint-officer-nyc.html
 

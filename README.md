@@ -1,3 +1,7 @@
+**Turkey Raids Pro-Opposition TV Station**\
+`The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
+
 **Corrections: Oct. 14, 2026**\
 `Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
 https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Update: Inflation Accelerates on Persistent Energy Pressures**\
+**Live Update: Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/technology/ai-agents-communication-tech-dinne
 **Book Review: ‘Kolkhoz,’ by Emmanuel Carrère**\
 `Emmanuel Carrère’s latest book combines a nuanced portrait of his formidable mother with a meditation on the fraught nature of truth.`\
 https://www.nytimes.com/2026/10/14/books/review/kolkhoz-emmanuel-carrere.html
-
-**5 Bike Ride Trails in the U.S. That You’ll Really Love**\
-`When we recently featured a few of the best car-free bike rides in America, readers had a lot of recommendations for trails we had missed. We picked five to share.`\
-https://www.nytimes.com/2026/10/14/travel/bike-rides-trails.html
 
