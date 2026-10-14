@@ -1,3 +1,7 @@
+**7 Takeaways From the Second Georgia Senate Debate**\
+`Representative Mike Collins, who lags Senator Jon Ossoff in public polls, hit his opponent harder in a second and final debate on Tuesday.`\
+https://www.nytimes.com/2026/10/13/us/politics/georgia-senate-debate-ossoff-collins.html
+
 **Leo XIV’s Lung Cancer Diagnosis Tests a Papacy Still Taking Shape**\
 `For a pope who appeared to have time on his side, cancer has raised questions about his longevity and brought a new urgency to his plans for the Church.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-health-cancer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/books/frances-stonor-saunders-dead.html
 **The Path to a ‘Good Death’ Starts With a Plan**\
 `Readers respond to an I.C.U. doctor’s essay about how we as a society need a new definition of what qualifies as a good death.`\
 https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
-
-**Acclaimed Author Denies Using A.I. but Admits Plagiarism**\
-`Breaking a weekslong silence, Thélyson Orélien, a Haitian-Canadian writer, still rejected accusations about his new novel, ‘It Was Either That or Die.’`\
-https://www.nytimes.com/2026/10/13/world/europe/author-ai-plagiarism-france-haiti.html
 

@@ -1,3 +1,7 @@
+**7 Takeaways From the Second Georgia Senate Debate**\
+`Representative Mike Collins, who lags Senator Jon Ossoff in public polls, hit his opponent harder in a second and final debate on Tuesday.`\
+https://www.nytimes.com/2026/10/13/us/politics/georgia-senate-debate-ossoff-collins.html
+
 **Leo XIV’s Lung Cancer Diagnosis Tests a Papacy Still Taking Shape**\
 `For a pope who appeared to have time on his side, cancer has raised questions about his longevity and brought a new urgency to his plans for the Church.`\
 https://www.nytimes.com/2026/10/13/world/europe/pope-leo-health-cancer.html
