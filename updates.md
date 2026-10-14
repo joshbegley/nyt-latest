@@ -1,3 +1,7 @@
+**‘Honey Please’: The Steep Rise and Sudden Fall of Kimberly Guilfoyle.**\
+`President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resigns-trump-ambassador-greece.html
+
 **4 Takeaways From the Los Angeles Mayoral Debate**\
 `Mayor Karen Bass and her former ally, the City Council member Nithya Raman, attacked each other’s records on Tuesday night in the last televised debate before the election.`\
 https://www.nytimes.com/2026/10/14/us/los-angeles-mayor-debate-takeaways.html

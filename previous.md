@@ -176,7 +176,7 @@ https://www.nytimes.com/2026/10/13/world/trump-russia-ukraine-deal-pope-leo.html
 
 **‘Honey Please’: The Steep Rise and Sudden Fall of Kimberly Guilfoyle.**\
 `President Trump cut her loose after damaging news reports about her tenure as ambassador to Greece. Once a prominent Trump insider, she suggested she will now fight to defend her reputation.`\
-https://www.nytimes.com/2026/10/13/us/politics/guilfoyle-fall.html
+https://www.nytimes.com/2026/10/13/us/politics/kimberly-guilfoyle-resigns-trump-ambassador-greece.html
 
 **Judith J. Gische, Judge in Giuliani Divorce Case, Dies at 70**\
 `During an acrimonious trial, she barred the mayor’s lover from Gracie Mansion and ruled that his income and clients were open to scrutiny.`\
