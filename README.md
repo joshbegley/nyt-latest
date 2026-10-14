@@ -1,3 +1,7 @@
+**Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
+`President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
+
 **Rogue A.I. Agents from China Chatted with American Researchers**\
 `Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
 https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/science/electromagnetic-pulse-nuke-trump-offi
 **Coming Out at 50 Can Be Hard. Shelly Found a Coach.**\
 `She spent decades building an identity as a wife and mother. Could she disrupt “a perfectly good family dynamic” to live her own truth?`\
 https://www.nytimes.com/2026/10/14/well/family/coming-out-midlife.html
-
-**Becerra Is a Quiet Trailblazer for Latinos in California**\
-`Xavier Becerra is a heavy favorite to become California’s first Latino governor in the modern era, though he does not talk much about the milestone.`\
-https://www.nytimes.com/2026/10/14/us/xavier-becerra-latino-california-governor.html
 

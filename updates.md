@@ -1,3 +1,7 @@
+**Rogue A.I. Agents from China Chatted with American Researchers**\
+`Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
+https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
+
 **America First?**\
 `We look at the state of the U.S.-Ukraine relationship.`\
 https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
