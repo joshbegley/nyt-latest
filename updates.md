@@ -1,3 +1,7 @@
+**Russell Brand Labeled ‘Sexual Predator’ at Rape and Assault Trial**\
+`The prosecution, outlining its case against Mr. Brand, said that during the time when crimes were said to have taken place, he saw women as “simply a means to an end.”`\
+https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
+
 **Live Updates: New Insight on Inflation Pressuring U.S. Economy and the Fed**\
 `The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
