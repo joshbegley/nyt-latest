@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-p
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 
-**Iowa G.O.P. Senate Nominee Is Latest to Split With Trump Over Russian Diesel**\
+**Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
-**Higher Energy Prices Pushed U.S. Inflation Up 3.7% Ahead of Midterm Elections**\
+**Higher Energy Prices Pushed U.S. Inflation Up to 3.7% Ahead of Midterm Elections**\
 `September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 
