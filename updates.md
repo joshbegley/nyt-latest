@@ -1,3 +1,7 @@
+**Russell Brand Labeled ‘Sexual Predator’; He Denies Rape and Assault Charges**\
+`The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
+https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
+
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
 `Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
