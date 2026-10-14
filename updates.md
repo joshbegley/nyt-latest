@@ -1,3 +1,11 @@
+**Cornell Bans Frat Parties**\
+`Also, a hidden listening device at OpenAI`\
+https://www.nytimes.com/2026/10/14/briefing/cornell-bans-frat-parties.html
+
+**Soaring Energy Prices Push Inflation Higher**\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **How to Make the Creamiest Mac and Cheese**\
 `This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
 https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html

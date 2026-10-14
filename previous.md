@@ -1,3 +1,7 @@
+**Cornell Bans Frat Parties**\
+`Also, a hidden listening device at OpenAI`\
+https://www.nytimes.com/2026/10/14/briefing/cornell-bans-frat-parties.html
+
 **How to Make the Creamiest Mac and Cheese**\
 `This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
 https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html
@@ -178,7 +182,7 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Update: Soaring Energy Prices Push Inflation Higher**\
+**Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.ht
 **‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
 `The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
-
-**The Taliban Suspend BBC Broadcasts Across Afghanistan**\
-`The Taliban government has intensified its crackdown on the press in recent months but had so far targeted Afghan news outlets.`\
-https://www.nytimes.com/2026/10/14/world/asia/afghanistan-taliban-suspends-bbc.html
 
