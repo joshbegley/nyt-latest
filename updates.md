@@ -1,3 +1,15 @@
+**NYT Crossword Answers for Oct. 14, 2026**\
+`Jacob Stulberg meets resistance.`\
+https://www.nytimes.com/2026/10/13/crosswords/daily-puzzle-2026-10-14.html
+
+**Cornell’s President Acknowledges Missteps in Handling of Rape Accusations**\
+`In an interview with The New York Times, Michael Kotlikoff addressed his administration’s handling of sexual assault accusations brought by a former student.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-missteps.html
+
+**Bank of America Fined $1.2 Billion for Lax Money-Laundering Oversight**\
+`Federal regulators said the bank had waved through suspicious transactions without proper care.`\
+https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
+
 **‘I’m Personally Sorry’: Cornell’s President Acknowledges Missteps**\
 `In an interview with The New York Times, Michael Kotlikoff addressed his administration’s handling of sexual assault accusations brought by a former student.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-missteps.html

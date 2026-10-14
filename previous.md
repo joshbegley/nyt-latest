@@ -1,4 +1,8 @@
-**‘I’m Personally Sorry’: Cornell’s President Acknowledges Missteps**\
+**NYT Crossword Answers for Oct. 14, 2026**\
+`Jacob Stulberg meets resistance.`\
+https://www.nytimes.com/2026/10/13/crosswords/daily-puzzle-2026-10-14.html
+
+**Cornell’s President Acknowledges Missteps in Handling of Rape Accusations**\
 `In an interview with The New York Times, Michael Kotlikoff addressed his administration’s handling of sexual assault accusations brought by a former student.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-missteps.html
 
@@ -26,7 +30,7 @@ https://www.nytimes.com/video/us/100000011211647/duane-davis-sentencing-tupac-sh
 `Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
 https://www.nytimes.com/2026/10/13/nyregion/cia-analyst-south-korea-charges.html
 
-**Bank of America Pays $1.8 Billion Fine for Lax Money-Laundering Oversight**\
+**Bank of America Fined $1.2 Billion for Lax Money-Laundering Oversight**\
 `Federal regulators said the bank had waved through suspicious transactions without proper care.`\
 https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/dining/nyc-restaurant-news.html
 **Florida Executes First Prisoner Since Botched Injection in Tennessee**\
 `The execution of James Robertson, who said he deliberately killed another inmate to get on death row, occurred without complications, state officials said.`\
 https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-injection.html
-
-**NJ Transit Riders Face Delays Amid Portal North Bridge Construction**\
-`NJ Transit commuters experienced delays on Tuesday as the Portal North Bridge entered its final phase of construction.`\
-https://www.nytimes.com/video/us/100000011210607/nj-transit-delays-bridge-construction.html
 
