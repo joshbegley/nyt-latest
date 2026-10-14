@@ -1,3 +1,7 @@
+**5 Takeaways From a Heated and Personal Maine Senate Debate**\
+`Senator Susan Collins, a Republican, and her Democratic challenger, Troy Jackson, disagreed over the war in Iran and President Trump in the third of four debates in a key race.`\
+https://www.nytimes.com/2026/10/13/us/politics/maine-senate-debate-collins-jackson.html
+
 **NYT Crossword Answers for Oct. 14, 2026**\
 `Jacob Stulberg meets resistance.`\
 https://www.nytimes.com/2026/10/13/crosswords/daily-puzzle-2026-10-14.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/world/europe/author-ai-plagiarism-france-hait
 **Daniel Humm Finally Puts His Name on a Restaurant**\
 `Softville makes its American gelato debut, Diner24 provides dinner-theater on the hour and more restaurant news.`\
 https://www.nytimes.com/2026/10/13/dining/nyc-restaurant-news.html
-
-**Florida Executes First Prisoner Since Botched Injection in Tennessee**\
-`The execution of James Robertson, who said he deliberately killed another inmate to get on death row, occurred without complications, state officials said.`\
-https://www.nytimes.com/2026/10/13/us/james-robertson-florida-execution-lethal-injection.html
 
