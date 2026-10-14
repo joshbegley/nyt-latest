@@ -1,3 +1,7 @@
+**There’s a New Great Pumpkin to Rule Them All**\
+`A farmer in Rhode Island raised a 3,156-pound pumpkin this year, setting a new measure for the greatest of all gourds.`\
+https://www.nytimes.com/2026/10/14/us/rhode-island-giant-pumpkin-world-record.html
+
 **Why So Many People Still Are Not Screened for Lung Cancer**\
 `Regular scans could catch lung cancers like Pope Leo XIV’s sooner, but many people at risk don’t qualify for screening. Doctors want to change that.`\
 https://www.nytimes.com/2026/10/14/well/pope-lung-cancer-screening.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/nyregion/mamdani-nyu-quantum-partnership.html
 **A New World of Lung Cancer Therapy Awaits Pope Leo**\
 `Lung cancer is still a leading cause of cancer death, but that rate is half what it was in the 1990s, partly because newly developed treatments are working.`\
 https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-genetic-mutations.html
-
-**Conor Kennedy and Giulia Be Celebrate Their Wedding in Rio de Janeiro**\
-`By the time the couple met in person in Los Angeles, they had already fallen for each other after months of messaging on WhatsApp. They celebrated their marriage with three days of festivities in Rio de Janeiro that blended both families’ traditions.`\
-https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriage-rio-de-janeiro.html
 
