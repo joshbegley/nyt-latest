@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-p
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 
-**Gas Costs a Third More Than a Year Ago**\
+**Gas Costs 34 Percent More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
