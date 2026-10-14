@@ -1,3 +1,11 @@
+**The Plaza Hotel to Close for Yearslong Renovation in 2027**\
+`The famous Fifth Avenue hotel, which opened in 1907, requires a restoration of its exterior, its operators said. It was not clear if residents of the building’s condos would have to leave.`\
+https://www.nytimes.com/2026/10/14/nyregion/the-plaza-hotel-closes-temporarily-nyc.html
+
+**The Brooklyn Toy Store at the Center of the Kelly Clarkson Online Frenzy**\
+`Art of Play, a novelty store in Brooklyn Heights, has found itself at the center of a social media maelstrom over a feud between the shop and the singer and TV personality Kelly Clarkson.`\
+https://www.nytimes.com/2026/10/14/nyregion/kelly-clarkson-art-of-play-feud.html
+
 **Who Is Ahead in Rhode Island's 1st Congressional District?**\
 `Track the latest polls in Rhode Island's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/rhode-island-us-house-1-polls-2026.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriag
 **Sexual Assault Report at Chicago Frat Upends Another Elite Campus**\
 `The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny after revelations of a reported gang rape at Cornell University in New York.`\
 https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
-
-**Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
-`Former Vice President Kamala Harris will also rally for Democratic candidates in Georgia and Nevada.`\
-https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-campaign.html
-
-**Democrats Blame Trump After CPI Report Shows Energy Prices Drove Up Inflation**\
-`Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
-https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-midterms-energy.html
 

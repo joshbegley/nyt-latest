@@ -1,3 +1,7 @@
+**Santa Ana Winds Prompt Fire Warnings in Southern California**\
+`The first Santa Ana winds of the season are arriving this week in Southern California, where the most severe warnings were in place for Thursday and Friday.`\
+https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
+
 **Who Is Ahead in Rhode Island's 1st Congressional District?**\
 `Track the latest polls in Rhode Island's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/rhode-island-us-house-1-polls-2026.html
