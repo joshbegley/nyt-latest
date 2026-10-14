@@ -1,3 +1,7 @@
+**Russell Brand Labeled ‘Sexual Predator’ at Rape and Assault Trial**\
+`The prosecution, outlining its case against Mr. Brand, said that during the time when crimes were said to have taken place, he saw women as “simply a means to an end.”`\
+https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
+
 **Live Updates: New Insight on Inflation Pressuring U.S. Economy and the Fed**\
 `The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/us/los-angeles-mayor-debate-takeaways.html
 **New York City Comptroller Backs Off Promise to Invest in Israeli Bonds**\
 `Mark Levine, a Democrat, said he remained a steadfast supporter of Israel, but said the quality of the bonds had deteriorated amid conflict in the Middle East.`\
 https://www.nytimes.com/2026/10/14/nyregion/mark-levine-comptroller-israel.html
-
-**NYT Spelling Bee Answers for October 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/14/crosswords/spelling-bee-forum.html
 
