@@ -1,3 +1,7 @@
+**Supreme Court Again Sides With Republicans in Political TV Ad Fight**\
+`The Trump administration had filed an emergency application asking the justices to intervene in a long-running dispute over political ad rates.`\
+https://www.nytimes.com/2026/10/14/us/politics/supreme-court-ads-political.html
+
 **Battle Over the Pierre Ends in Defeat for the Buyer Pushed by Lutnick**\
 `Motasem Khashoggi, who hails from a prominent Saudi family, missed a Tuesday deadline to deliver a $100 million deposit to purchase the Manhattan landmark.`\
 https://www.nytimes.com/2026/10/14/business/pierre-buyer-lutnick.html
