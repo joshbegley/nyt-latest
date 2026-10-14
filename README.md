@@ -1,3 +1,11 @@
+**Is It Wrong to Love a Chatbot?**\
+`Sherry Turkle, who has spent decades studying people’s relationships with machines, believes we have “a very small window” to correct our current course with A.I.`\
+https://www.nytimes.com/video/opinion/100000011206641/is-it-wrong-to-love-a-chatbot.html
+
+**‘The United States Is Abdicating’**\
+`The old world order is fraying. Who gets to shape the next one?`\
+https://www.nytimes.com/video/opinion/100000011210551/the-united-states-is-abdicating.html
+
 **Judge Blocks Trump Administration’s Sanctions on 2 Groups Aiding the I.C.C.**\
 `The ruling prevents the administration from penalizing two rights groups for working to provide information for the International Criminal Court’s war crimes investigations.`\
 https://www.nytimes.com/2026/10/14/us/icc-sanctions-trump-administration.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/13/nyregion/judith-j-gische-dead.html
 **Lena Dunham’s ‘Girls’ to Return to HBO for 5 New Episodes**\
 `HBO announced that the show created by Lena Dunham will begin production on five new episodes next year, 10 years after the finale.`\
 https://www.nytimes.com/2026/10/13/business/media/girls-lena-dunham-hbo.html
-
-**James Dolan, a Former Hochul Supporter, Goes All In on Her G.O.P. Rival**\
-`The Knicks owner is urging New York’s business elite to abandon Gov. Kathy Hochul, highlighting her support of Mayor Zohran Mamdani. Mr. Dolan has spent millions to back her opponent, Bruce Blakeman.`\
-https://www.nytimes.com/2026/10/13/nyregion/james-dolan-bruce-blakeman-governor-hochul.html
-
-**Miami Tugboat Captain Gets 18 Months in Crash That Killed 3 Children**\
-`Five girls and a camp counselor were thrown into the water off Miami Beach in July last year when a barge pushed by a tugboat struck their stalled sailboat.`\
-https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
 
