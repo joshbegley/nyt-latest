@@ -1,3 +1,7 @@
+**Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
+`The ruling will ensure access to the White House grounds while the outlets sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
+https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
+
 **Five Key Moments From The Times’s Interview With Cornell’s President**\
 `Michael Kotlikoff addressed concerns over the university’s handling of a former student’s claims that she was gang-raped at a fraternity party.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this
 **Great Live Albums From Carnegie Hall**\
 `Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
 https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
-
-**Kimberly Guilfoyle Resigns as Ambassador to Greece**\
-`The White House asked Kimberly Guilfoyle to resign from her post after a string of damaging reports, including that she had asked a Republican donor to pay off a credit card.`\
-https://www.nytimes.com/video/us/politics/100000011210717/dc-trump-kimberly-guilfoyle-ambassador.html
 

@@ -1,3 +1,7 @@
+**Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
+`The ruling will ensure access to the White House grounds while the outlets sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
+https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
+
 **Five Key Moments From The Times’s Interview With Cornell’s President**\
 `Michael Kotlikoff addressed concerns over the university’s handling of a former student’s claims that she was gang-raped at a fraternity party.`\
 https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-takeaways.html
