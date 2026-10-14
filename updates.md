@@ -1,3 +1,7 @@
+**America First?**\
+`We look at the state of the U.S.-Ukraine relationship.`\
+https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
+
 **22 People Got Together For a Dinner Party. So Did Their A.I. Agents.**\
 `As artificial intelligence bots spread, we are increasingly glimpsing how these digital entities interact and what they talk about with one another.`\
 https://www.nytimes.com/2026/10/14/technology/ai-agents-communication-tech-dinner-party.html
