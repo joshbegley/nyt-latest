@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital
 `Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
 https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
 
-**Sudden Starlink Restrictions Deepen Ukraine’s Vulnerability as Russia Escalates**\
+**Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 

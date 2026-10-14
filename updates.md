@@ -1,3 +1,15 @@
+**Hollywood Agents and Producers Push to Restore Glory Days of Indie TV**\
+`A new alliance seeks legislation to force the biggest entertainment and streaming companies to devote half of their content budgets to independent producers in the U.S.`\
+https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron-howard.html
+
+**A Group of Boys Won’t Let My Granddaughter Play Soccer With Them. Help!**\
+`The girl’s father is considering getting the school principal involved, but her grandmother is skeptical that foisting one’s company on others is ever the right move.`\
+https://www.nytimes.com/2026/10/14/style/playground-exclusion-boys-girls.html
+
+**Martina Arroyo, Luminous Soprano Who Broke Barriers, Dies at 89**\
+`A leading star at the Metropolitan Opera in the 1960s and ’70s, she was one of the first Black singers to have a major stage career.`\
+https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
+
 **Russell Brand Labeled ‘Sexual Predator’ as Trial Opens; He Denies Rape and Assault Charges**\
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
