@@ -1,3 +1,7 @@
+**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport.**\
+`The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
+
 **Turkey Raids Pro-Opposition TV Station**\
 `The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
