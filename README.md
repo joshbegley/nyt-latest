@@ -1,3 +1,7 @@
+**The Breathtaking Cost of the Midterms: $10 Billion and Counting on Ads**\
+`The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
+https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
+
 **Energy Department Order Takes Aim at Mid-Atlantic Blackout Risk**\
 `The order as a precaution allows grid operators to use backup generation this week. There were no widespread outages reported.`\
 https://www.nytimes.com/2026/10/14/business/department-of-energy-emergency-power-order.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.
 **6 Dead in Wisconsin Plane Crash**\
 `The aircraft crashed near the Wisconsin Dells on Tuesday night, killing five adults and one child, local authorities said.`\
 https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
-
-**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
-`The pontiff, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer. Messages of support have flooded in from far and wide.`\
-https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
