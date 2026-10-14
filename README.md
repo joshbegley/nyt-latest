@@ -1,3 +1,7 @@
+**4 Takeaways From the Los Angeles Mayoral Debate**\
+`Mayor Karen Bass and her former ally, the City Council member Nithya Raman, attacked each other’s records on Tuesday night in the last televised debate before the election.`\
+https://www.nytimes.com/2026/10/14/us/los-angeles-mayor-debate-takeaways.html
+
 **New York City Comptroller Backs Off Promise to Invest in Israeli Bonds**\
 `Mark Levine, a Democrat, said he remained a steadfast supporter of Israel, but said the quality of the bonds had deteriorated amid conflict in the Middle East.`\
 https://www.nytimes.com/2026/10/14/nyregion/mark-levine-comptroller-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/us/florida-tugboat-captain-sentence.html
 **President Obama’s Climate Legacy**\
 `The Obama Presidential Center’s exhibits on climate change was like going back in time to a seemingly more harmonious world.`\
 https://www.nytimes.com/2026/10/13/climate/obama-presidential-center-climate.html
-
-**We Want Your Original Cartoon**\
-`The cartoonist P.C. Vey died recently. We’re inviting readers to share original cartoons of their own that, like Mr. Vey’s, find humor in the absurdities of everyday life.`\
-https://www.nytimes.com/2026/10/13/obituaries/cartoons-new-yorker-pc-vey.html
 
