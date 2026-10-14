@@ -1,3 +1,11 @@
+**Is It Wrong to Vote in the Other Party’s Primary?**\
+`My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
+https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
+
+**Jon Ossoff Says He’s Not Running For President. History Says He Can Change His Mind.**\
+`“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
+https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
+
 **Netflix, Facing Slowing Growth, Cuts 6% of Its Work Force**\
 `The streamer’s share price is down more than 40 percent over the last year as the company has struggled with stalling engagement.`\
 https://www.nytimes.com/2026/10/14/business/media/netflix-layoffs-ted-sarandos.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
 **If Democrats Win the Senate, They Cannot Mess Around**\
 `The party will need to make the most of whatever majority it has.`\
 https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
-
-**Ebola Has Never Spread This Quickly Before**\
-`This outbreak was detected late, giving the virus a head start.`\
-https://www.nytimes.com/interactive/2026/10/14/opinion/ebola-spread-africa-outbreak.html
-
-**Trump’s Latest Effort to Fire Fed Governor Lisa Cook Underscores Political Motives**\
-`President Trump tapped his political appointees to determine whether he could oust Lisa Cook, a Fed governor he had already tried to oust.`\
-https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hearing.html
 
