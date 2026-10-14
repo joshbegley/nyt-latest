@@ -1,3 +1,7 @@
+**Why Easing Sanctions on Russian Diesel Is Unlikely to Lower Fuel Costs**\
+`President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Dance soundtrack, feather atlas and the sound of a sunny day.`\
 https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
