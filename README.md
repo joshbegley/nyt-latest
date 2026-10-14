@@ -27,7 +27,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011214372/why-cattle-farm
 https://www.nytimes.com/2026/10/14/t-magazine/engagement-wedding-gift-guide.html
 
 **Santa Ana Winds Prompt Fire Warnings in Southern California**\
-`The first Santa Ana winds of the season are arriving this week. Red flag warnings were issued for Thursday and Friday in Los Angeles and Ventura Counties.`\
+`The first Santa Ana winds of the season are arriving this week in Southern California, where the most severe warnings were in place for Thursday and Friday.`\
 https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
 
 **America’s Way Is Not the Only Way**\
