@@ -1,3 +1,7 @@
+**Leo XIV’s Lung Cancer Diagnosis Tests a Papacy Still Taking Shape**\
+`For a pope who appeared to have time on his side, cancer has raised questions about his longevity and brought a new urgency to his plans for the Church.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-health-cancer.html
+
 **5 Takeaways From a Heated and Personal Maine Senate Debate**\
 `Senator Susan Collins, a Republican, and her Democratic challenger, Troy Jackson, disagreed over the war in Iran and President Trump in the third of four debates in a key race.`\
 https://www.nytimes.com/2026/10/13/us/politics/maine-senate-debate-collins-jackson.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/opinion/letters/death-icu-hospital-home.html
 **Acclaimed Author Denies Using A.I. but Admits Plagiarism**\
 `Breaking a weekslong silence, Thélyson Orélien, a Haitian-Canadian writer, still rejected accusations about his new novel, ‘It Was Either That or Die.’`\
 https://www.nytimes.com/2026/10/13/world/europe/author-ai-plagiarism-france-haiti.html
-
-**Daniel Humm Finally Puts His Name on a Restaurant**\
-`Softville makes its American gelato debut, Diner24 provides dinner-theater on the hour and more restaurant news.`\
-https://www.nytimes.com/2026/10/13/dining/nyc-restaurant-news.html
 
