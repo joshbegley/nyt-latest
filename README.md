@@ -1,3 +1,11 @@
+**Fact-Checking Senate Debates in Georgia, Maine and Michigan**\
+`With control of Congress hanging in the balance, nominees have attacked their rivals’ records, stock portfolios and families, with varying degrees of accuracy.`\
+https://www.nytimes.com/2026/10/14/us/elections/fact-check-senate-debates-maine-michigan-georgia.html
+
+**Josh O’Connor's a Knockout in ‘Golden Boy,’ Plus Cate Blanchett and More**\
+`Tilda Swinton (in “Man to Man”) and Billy Crudup and Gillian Anderson (in “Who’s Afraid of Virginia Woolf?”) are among the titans making a meal of London.`\
+https://www.nytimes.com/2026/10/14/theater/golden-boy-virginia-woolf-london-theater.html
+
 **Processing My Father's Death by Climbing in Yosemite**\
 `Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
 https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
@@ -54,7 +62,7 @@ https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-beli
 `Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
 https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
 
-**Why Easing Sanctions on Russian Diesel Is Unlikely to Lower Fuel Costs**\
+**Why Trump’s Russian Diesel Deal Is Unlikely to Lower Fuel Costs**\
 `President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
 https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-ha
 **Corrections: Oct. 14, 2026**\
 `Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
 https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
-
-**Hollywood Agents and Producers Push to Restore Glory Days of Indie TV**\
-`A new alliance seeks legislation to force the biggest entertainment and streaming companies to devote half of their content budgets to independent producers in the U.S.`\
-https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron-howard.html
-
-**A Group of Boys Won’t Let My Granddaughter Play Soccer With Them. Help!**\
-`The girl’s father is considering getting the school principal involved, but her grandmother is skeptical that foisting one’s company on others is ever the right move.`\
-https://www.nytimes.com/2026/10/14/style/playground-exclusion-boys-girls.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
