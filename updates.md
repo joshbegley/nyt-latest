@@ -1,3 +1,11 @@
+**Brazil’s President Lula Accuses Meta of Helping His Right-Wing Opponent**\
+`With a narrow presidential election looming, President Luiz Inácio Lula da Silva and his allies claim Meta is trying to give his right-wing rival an advantage.`\
+https://www.nytimes.com/2026/10/14/world/americas/brazil-president-lula-meta-bolsonaro.html
+
+**Sally Rooney’s Books Pulled in U.K. Over Her Support of Pro-Palestinian Group**\
+`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in the U.K.`\
+https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
+
 **Tim Janus, One of the World’s Greatest Competitive Eaters, Has Died**\
 `He brought rigor and strategy to the sport, rising to No. 2 in the world and eating 141 pieces of nigiri in six minutes in the process.`\
 https://www.nytimes.com/2026/10/14/obituaries/tim-janus-eater-x-dead.html

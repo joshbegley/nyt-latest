@@ -1,3 +1,7 @@
+**Angry Youth in Aging Europe**\
+`A bitter generational battle over resources is boiling over as economic growth on the continent stalls.`\
+https://www.nytimes.com/2026/10/14/world/youth-aging-europe-pension-ukraine-starshield.html
+
 **Brazil’s President Lula Accuses Meta of Helping His Right-Wing Opponent**\
 `With a narrow presidential election looming, President Luiz Inácio Lula da Silva and his allies claim Meta is trying to give his right-wing rival an advantage.`\
 https://www.nytimes.com/2026/10/14/world/americas/brazil-president-lula-meta-bolsonaro.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 **Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
-
-**Gas Prices Are Up 34% From a Year Ago, Adding to Inflation Pressures**\
-`Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
-https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
