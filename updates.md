@@ -1,3 +1,11 @@
+**Processing My Father's Death by Climbing in Yosemite**\
+`Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
+https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
+
+**Sally Rooney Says Her Novels Will No Longer Be Sold in Britain**\
+`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in the U.K.`\
+https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
+
 **Appeals Court Questions Trump’s National Guard Deployment in D.C.**\
 `After thousands of troops deployed by the president have patrolled Washington for more than a year, a three-judge panel interrogated whether the deployment could continue indefinitely.`\
 https://www.nytimes.com/2026/10/14/us/politics/appeals-court-national-guard-washington.html

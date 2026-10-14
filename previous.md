@@ -1,3 +1,11 @@
+**Processing My Father's Death by Climbing in Yosemite**\
+`Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
+https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
+
+**Sally Rooney Says Her Novels Will No Longer Be Sold in Britain**\
+`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in the U.K.`\
+https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
+
 **Appeals Court Questions Trump’s National Guard Deployment in D.C.**\
 `After thousands of troops deployed by the president have patrolled Washington for more than a year, a three-judge panel interrogated whether the deployment could continue indefinitely.`\
 https://www.nytimes.com/2026/10/14/us/politics/appeals-court-national-guard-washington.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron
 **A Group of Boys Won’t Let My Granddaughter Play Soccer With Them. Help!**\
 `The girl’s father is considering getting the school principal involved, but her grandmother is skeptical that foisting one’s company on others is ever the right move.`\
 https://www.nytimes.com/2026/10/14/style/playground-exclusion-boys-girls.html
-
-**Martina Arroyo, Luminous Soprano Who Broke Barriers, Dies at 90**\
-`A leading star at the Metropolitan Opera in the 1960s and ’70s, she was one of the first Black singers to have a major stage career.`\
-https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
-
-**What Allegations of Spying at OpenAI Mean for the A.I. Industry**\
-`The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
-https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
