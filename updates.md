@@ -1,3 +1,15 @@
+**How to Make the Creamiest Mac and Cheese**\
+`This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
+https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html
+
+**Creamy Tuscan Chicken**\
+`Despite its name, Tuscan chicken is not a traditional Italian recipe, but a dish of Italian-American origin, with its roots perhaps most frequently linked to Olive Garden.`\
+https://www.nytimes.com/video/dining/100000011211697/creamy-tuscan-chicken.html
+
+**Pope Leo’s Cancer Diagnosis: What Happens Next**\
+`Pope Leo XIV was diagnosed with a common form of lung cancer. The Vatican said that he was walking and receiving therapy after an operation to remove a cancerous nodule.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
+
 **World’s Best Chocolate Cake**\
 `This versatile cake can be served without icing and just a light dusting of cocoa powder, or dressed up to the nines, as it is here, with a thin layer of chocolate ganache and served with espresso cinnamon mascarpone cream.`\
 https://www.nytimes.com/video/dining/100000011211701/worlds-best-chocolate-cake.html

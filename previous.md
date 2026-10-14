@@ -1,3 +1,11 @@
+**How to Make the Creamiest Mac and Cheese**\
+`This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
+https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html
+
+**Creamy Tuscan Chicken**\
+`Despite its name, Tuscan chicken is not a traditional Italian recipe, but a dish of Italian-American origin, with its roots perhaps most frequently linked to Olive Garden.`\
+https://www.nytimes.com/video/dining/100000011211697/creamy-tuscan-chicken.html
+
 **World’s Best Chocolate Cake**\
 `This versatile cake can be served without icing and just a light dusting of cocoa powder, or dressed up to the nines, as it is here, with a thin layer of chocolate ganache and served with espresso cinnamon mascarpone cream.`\
 https://www.nytimes.com/video/dining/100000011211701/worlds-best-chocolate-cake.html
@@ -179,7 +187,7 @@ https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
-`Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday. The Vatican said that his postoperative tests showed normal results.`\
+`Pope Leo XIV was diagnosed with a common form of lung cancer. The Vatican said that he was walking and receiving therapy after an operation to remove a cancerous nodule.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
 
 **‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victim
 **The Taliban Suspend BBC Broadcasts Across Afghanistan**\
 `The Taliban government has intensified its crackdown on the press in recent months but had so far targeted Afghan news outlets.`\
 https://www.nytimes.com/2026/10/14/world/asia/afghanistan-taliban-suspends-bbc.html
-
-**The Kelly Clarkson Tape, Revealed**\
-`What really happened in that Brooklyn store?`\
-https://www.nytimes.com/2026/10/14/podcasts/the-kelly-clarkson-tape-revealed.html
-
-**Peruvians Pray for Pope’s Recovery After Cancer Diagnosis**\
-`People in Peru sent Pope Leo their prayers after he was diagnosed with lung cancer on Tuesday. The news comes just weeks before the pope’s Latin America trip.`\
-https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cancer-peru.html
 
