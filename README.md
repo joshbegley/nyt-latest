@@ -2,7 +2,7 @@
 `How a bereaved general has won over Israelis.`\
 https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
 
-**“The Assassin(s)” Movie Fuels South Korea’s Culture Wars**\
+**‘The Assassin(s)’ Movie Fuels South Korea’s Culture Wars**\
 `The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
 https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
 
