@@ -1,3 +1,7 @@
+**Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
+`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
+
 **Social Security COLA for 2027 Will Be 3.6%**\
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
