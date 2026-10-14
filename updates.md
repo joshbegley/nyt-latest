@@ -1,3 +1,11 @@
+**Gas Costs 34 Percent More Than a Year Ago**\
+`Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
+https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
+
+**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
+`The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
+
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.html

@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-p
 `The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
 https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 
-**Gas Costs a Third More Than a Year Ago**\
+**Gas Costs 34 Percent More Than a Year Ago**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
@@ -110,7 +110,7 @@ https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 `Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
 
-**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport.**\
+**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
 `The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
 
