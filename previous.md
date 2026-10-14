@@ -1,3 +1,7 @@
+**Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
+`Former Vice President Kamala Harris will also rally for Democratic candidates in Georgia and Nevada.`\
+https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-campaign.html
+
 **Democrats Blame Trump After CPI Report Shows Energy Prices Drove Up Inflation**\
 `Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-midterms-energy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/world/asia/india-protests-police-brutality.ht
 **Sculptors Panic as Specialty Plaster Used in Artworks to Be Discontinued**\
 `Artists are scrambling for alternatives to Hydrocal plaster, a crucial component for making sculptures.`\
 https://www.nytimes.com/2026/10/14/arts/hydrocal-plaster-shortage-sculptors.html
-
-**Which $400,000 Home Would You Choose?**\
-`Homes include an Italianate brick home in Schenectady, N.Y., a bungalow in Springfield, Ore., and a farmhouse in Plainfield, Ind.`\
-https://www.nytimes.com/2026/10/14/realestate/which-400000-dollar-home-would-you-choose.html
 

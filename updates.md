@@ -1,3 +1,7 @@
+**Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
+`Former Vice President Kamala Harris will also rally for Democratic candidates in Georgia and Nevada.`\
+https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-campaign.html
+
 **Democrats Blame Trump After CPI Report Shows Energy Prices Drove Up Inflation**\
 `Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-midterms-energy.html
