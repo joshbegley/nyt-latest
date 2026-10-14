@@ -1,3 +1,11 @@
+**The Plaza Hotel to Close for Yearslong Renovation in 2027**\
+`The famous Fifth Avenue hotel, which opened in 1907, requires a restoration of its exterior, its operators said. It was not clear if residents of the building’s condos would have to leave.`\
+https://www.nytimes.com/2026/10/14/nyregion/the-plaza-hotel-closes-temporarily-nyc.html
+
+**The Brooklyn Toy Store at the Center of the Kelly Clarkson Online Frenzy**\
+`Art of Play, a novelty store in Brooklyn Heights, has found itself at the center of a social media maelstrom over a feud between the shop and the singer and TV personality Kelly Clarkson.`\
+https://www.nytimes.com/2026/10/14/nyregion/kelly-clarkson-art-of-play-feud.html
+
 **Santa Ana Winds Prompt Fire Warnings in Southern California**\
 `The first Santa Ana winds of the season are arriving this week in Southern California, where the most severe warnings were in place for Thursday and Friday.`\
 https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
