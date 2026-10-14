@@ -1,5 +1,13 @@
-**Sexual Assault Report at Chicago Frat Roils Another Elite Campus**\
-`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny and outrage after revelations of a reported gang rape at Cornell University in New York.`\
+**A New World of Lung Cancer Therapy Awaits Pope Leo**\
+`Lung cancer is still a leading cause of cancer death, but that rate is half what it was in the 1990s, partly because newly developed treatments are working.`\
+https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-genetic-mutations.html
+
+**Conor Kennedy and Giulia Be Celebrate Their Wedding in Rio de Janeiro**\
+`By the time the couple met in person in Los Angeles, they had already fallen for each other after months of messaging on WhatsApp. They celebrated their marriage with three days of festivities in Rio de Janeiro that blended both families’ traditions.`\
+https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriage-rio-de-janeiro.html
+
+**Sexual Assault Report at Chicago Frat Upends Another Elite Campus**\
+`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny after revelations of a reported gang rape at Cornell University in New York.`\
 https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
 
 **Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
@@ -26,9 +34,9 @@ https://www.nytimes.com/2026/10/14/technology/meta-senators-tax-avoidance.html
 `Russia launched dozens of ballistic missiles at Ukraine early Wednesday in one of the largest salvos of the war. Some 600,000 people were left without power in the capital, according to Ukraine’s president.`\
 https://www.nytimes.com/video/world/europe/100000011212931/ukraine-russia-war-missile-attack.html
 
-**5 Costs That Jumped for Americans**\
+**5 Costs Americans Are Paying More for as Inflation Rises**\
 `Consumers are paying more for everyday goods and services, like food, computers and streaming.`\
-https://www.nytimes.com/2026/10/14/business/5-costs-that-jumped-for-americans.html
+https://www.nytimes.com/2026/10/14/business/prices-inflation-food-airfare-car-rentals.html
 
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
@@ -55,7 +63,7 @@ https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
 **Turkey Raids Pro-Opposition TV Station**\
-`The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
+`The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
 
 **Corrections: Oct. 14, 2026**\
@@ -91,7 +99,7 @@ https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.
 https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
 
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
-`Pope Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+`The pontiff, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer. Messages of support have flooded in from far and wide.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
 
 **Japan Protests Russia’s Detention of Journalist Accused of Spying**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/world/europe/france-dali-theft.html
 **‘Digger,’ Tom Cruise’s Big Flop, Is a Secret Masterpiece**\
 `The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
 https://www.nytimes.com/2026/10/14/opinion/digger-tom-cruise-movie-climate-flop.html
-
-**America Is in Decline, and Trump Is Leading the Fall**\
-`The old world order is fraying. Who gets to shape the next one?`\
-https://www.nytimes.com/2026/10/14/opinion/usa-decline-trump-global-powers.html
-
-**Indian Protesters Describe Rough Treatment by the Police**\
-`Some of those detained accused security forces of beating them during an intense crackdown on demonstrations in India’s capital over the weekend. Police have said they followed the law.`\
-https://www.nytimes.com/2026/10/14/world/asia/india-protests-police-brutality.html
 

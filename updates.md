@@ -1,3 +1,27 @@
+**A New World of Lung Cancer Therapy Awaits Pope Leo**\
+`Lung cancer is still a leading cause of cancer death, but that rate is half what it was in the 1990s, partly because newly developed treatments are working.`\
+https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-genetic-mutations.html
+
+**Conor Kennedy and Giulia Be Celebrate Their Wedding in Rio de Janeiro**\
+`By the time the couple met in person in Los Angeles, they had already fallen for each other after months of messaging on WhatsApp. They celebrated their marriage with three days of festivities in Rio de Janeiro that blended both families’ traditions.`\
+https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriage-rio-de-janeiro.html
+
+**Sexual Assault Report at Chicago Frat Upends Another Elite Campus**\
+`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny after revelations of a reported gang rape at Cornell University in New York.`\
+https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
+
+**5 Costs Americans Are Paying More for as Inflation Rises**\
+`Consumers are paying more for everyday goods and services, like food, computers and streaming.`\
+https://www.nytimes.com/2026/10/14/business/prices-inflation-food-airfare-car-rentals.html
+
+**Turkey Raids Pro-Opposition TV Station**\
+`The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
+
+**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
+`The pontiff, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer. Messages of support have flooded in from far and wide.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
+
 **Sexual Assault Report at Chicago Frat Roils Another Elite Campus**\
 `The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny and outrage after revelations of a reported gang rape at Cornell University in New York.`\
 https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
