@@ -1,3 +1,7 @@
+**Anger Over Trump’s Deal With Putin**\
+`Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
+https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
+
 **Cornell Bans Frat Parties**\
 `Also, a hidden listening device at OpenAI`\
 https://www.nytimes.com/2026/10/14/briefing/cornell-bans-frat-parties.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
 `Pope Leo XIV was diagnosed with a common form of lung cancer. The Vatican said that he was walking and receiving therapy after an operation to remove a cancerous nodule.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
-
-**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
-`The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
-https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
 

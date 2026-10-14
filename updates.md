@@ -1,3 +1,7 @@
+**Anger Over Trump’s Deal With Putin**\
+`Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
+https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
+
 **Turkey Raids Pro-Opposition TV Station**\
 `The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced the leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
