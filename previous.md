@@ -1,6 +1,6 @@
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
-https://www.nytimes.com/2026/10/14/business/economy/surging-inflation-complicates-trumps-final-push-to-sell-voters-on-strong-economy.html
+https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.html
 
 **They Created a Cell That’s Almost Alive. What to Do With It Now?**\
 `SpudCells may one day produce new medicines and materials. But first scientists have to improve them — and make sure they aren’t misused.`\
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/14/business/media/hollywood-agents-producers-ron
 `The girl’s father is considering getting the school principal involved, but her grandmother is skeptical that foisting one’s company on others is ever the right move.`\
 https://www.nytimes.com/2026/10/14/style/playground-exclusion-boys-girls.html
 
-**Martina Arroyo, Luminous Soprano Who Broke Barriers, Dies at 89**\
+**Martina Arroyo, Luminous Soprano Who Broke Barriers, Dies at 90**\
 `A leading star at the Metropolitan Opera in the 1960s and ’70s, she was one of the first Black singers to have a major stage career.`\
 https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
 
@@ -130,8 +130,8 @@ https://www.nytimes.com/video/world/americas/100000011212706/pope-leo-lung-cance
 `How one mom found a place in her son’s new family.`\
 https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
 
-**If Democrats Win the Senate, They Cannot Play Games**\
-`The party will need to make the most of whatever majority it has.`\
+**A Lifeline for American Democracy**\
+`If Democrats win the Senate, they cannot mess around.`\
 https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
 
 **Ebola Has Never Spread This Quickly Before**\

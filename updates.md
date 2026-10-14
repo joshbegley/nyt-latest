@@ -1,5 +1,17 @@
 **Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
 `The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
+https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.html
+
+**Martina Arroyo, Luminous Soprano Who Broke Barriers, Dies at 90**\
+`A leading star at the Metropolitan Opera in the 1960s and ’70s, she was one of the first Black singers to have a major stage career.`\
+https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
+
+**A Lifeline for American Democracy**\
+`If Democrats win the Senate, they cannot mess around.`\
+https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
+
+**Surging Inflation Complicates Trump’s Final Push to Sell Voters on Strong Economy**\
+`The final inflation report before the 2026 election — showing price increases and stagnant wages — spelled bad political news for the White House.`\
 https://www.nytimes.com/2026/10/14/business/economy/surging-inflation-complicates-trumps-final-push-to-sell-voters-on-strong-economy.html
 
 **They Created a Cell That’s Almost Alive. What to Do With It Now?**\

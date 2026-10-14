@@ -110,7 +110,7 @@ https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 `Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
 
-**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport.**\
+**‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport**\
 `The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
 
