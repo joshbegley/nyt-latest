@@ -1,3 +1,11 @@
+**Turkey Raids Pro-Opposition TV Station**\
+`The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
+https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
+
+**Live Update: Soaring Energy Prices Push Inflation Higher**\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **Corrections: Oct. 14, 2026**\
 `Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
 https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
