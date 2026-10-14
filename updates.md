@@ -1,3 +1,23 @@
+**The U.S. Tried to Choke Russia’s Energy Market. Then It Made a Diesel Deal.**\
+`President Trump has announced a deal in which the United States could buy billions of dollars’ worth of diesel fuel from Russia, stunning allies and lawmakers.`\
+https://www.nytimes.com/2026/10/14/podcasts/the-daily/trump-russsia-diesel-deal.html
+
+**NYT Connections Answers for October 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
+https://www.nytimes.com/2026/10/14/crosswords/connections-companion-1222.html
+
+**The Downfall of Trump’s Ambassador to Greece, and the Pope’s Cancer Diagnosis**\
+`Plus, the antique apples making a comeback.`\
+https://www.nytimes.com/2026/10/14/podcasts/the-headlines/kimberly-guilfoyle-pope-cancer.html
+
+**NYT Strands Hints for October 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
+https://www.nytimes.com/2026/10/14/crosswords/strands-sidekick-956.html
+
+**Today’s Wordle Hints for October 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
+https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
+
 **Russell Brand Labeled ‘Sexual Predator’ at Rape and Assault Trial**\
 `The prosecution, outlining its case against Mr. Brand, said that during the time when crimes were said to have taken place, he saw women as “simply a means to an end.”`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
