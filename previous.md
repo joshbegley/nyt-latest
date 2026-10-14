@@ -1,3 +1,7 @@
+**U.S. Is Sending Hundreds of Troops to Latin America**\
+`The Pentagon is expanding its fight against drug traffickers, even as the plans recall a long and bloody history of U.S. intervention in the region.`\
+https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
+
 **Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
 **America First?**\
 `We look at the state of the U.S.-Ukraine relationship.`\
 https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
-
-**The U.S. Tried to Choke Russia’s Energy Market. Then It Made a Diesel Deal.**\
-`President Trump has announced a deal in which the United States could buy billions of dollars’ worth of diesel fuel from Russia, stunning allies and lawmakers.`\
-https://www.nytimes.com/2026/10/14/podcasts/the-daily/trump-russsia-diesel-deal.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\

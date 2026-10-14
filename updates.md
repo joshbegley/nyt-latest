@@ -1,3 +1,7 @@
+**U.S. Is Sending Hundreds of Troops to Latin America**\
+`The Pentagon is expanding its fight against drug traffickers, even as the plans recall a long and bloody history of U.S. intervention in the region.`\
+https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
+
 **Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
