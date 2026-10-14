@@ -1,3 +1,7 @@
+**The Disappearing Women of the Trump Administration**\
+`In President Trump’s second term, those heading for the exits, voluntarily or involuntarily, are female officials.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-administration-kimberly-guilfoyle-women.html
+
 **ICE Agent Strikes, Injures Fleeing Man With Vehicle**\
 `An ICE agent struck a Mexican construction worker, Miguel Parra Hernandez, with a vehicle on Saturday. Mr. Parra Hernandez was hospitalized with hip and ankle injuries, according to an immigrant rights group.`\
 https://www.nytimes.com/video/us/100000011214155/ice-mexican-worker-miguel-hernandez.html
