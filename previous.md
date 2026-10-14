@@ -1,8 +1,8 @@
-**Democrats Put Blame for Higher Prices on Trump**\
+**Democrats Blame Trump After CPI Report Shows Energy Prices Drove Up Inflation**\
 `Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
-https://www.nytimes.com/2026/10/14/business/economy/democrats-put-blame-for-higher-prices-on-trump.html
+https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-midterms-energy.html
 
-**What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service?**\
+**What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service Ukraine Relies On?**\
 `For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
 https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
 
@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hear
 `Three thieves broke into a private museum in central France and took off with a 330-pound book cover created by the surrealist master Salvador Dalí.`\
 https://www.nytimes.com/2026/10/14/world/europe/france-dali-theft.html
 
-**‘Digger’ Is a Flop. It’s Also the Best Climate Crisis Movie Ever Made.**\
+**‘Digger,’ Tom Cruise’s Big Flop, Is a Secret Masterpiece**\
 `The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
 https://www.nytimes.com/2026/10/14/opinion/digger-tom-cruise-movie-climate-flop.html
 
