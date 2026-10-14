@@ -1,4 +1,4 @@
-**7 Takeaways from the Second Georgia Senate Debate**\
+**7 Takeaways From the Second Georgia Senate Debate**\
 `Representative Mike Collins, who lags Senator Jon Ossoff in public polls, hit his opponent harder in a second and final debate on Tuesday.`\
 https://www.nytimes.com/2026/10/13/us/politics/georgia-senate-debate-ossoff-collins.html
 
