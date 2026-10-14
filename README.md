@@ -1,3 +1,7 @@
+**Who Is Ahead in Rhode Island's 1st Congressional District?**\
+`Track the latest polls in Rhode Island's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/rhode-island-us-house-1-polls-2026.html
+
 **Soaring Energy Prices Push Inflation Higher**\
 `Also, polls show that the Texas Senate race is tightening. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/14/briefing/soaring-energy-prices-push-inflation-higher.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/10/14/theater/golden-boy-virginia-woolf-london-thea
 `Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
 https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
 
-**Sally Rooney’s Books Pulled in U.K. Over Her Support of Pro-Palestinian Group**\
-`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in the U.K.`\
+**Sally Rooney Withdraws Her Books From UK Over Her Support of Palestine Action**\
+`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in Britain.`\
 https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
 
 **Appeals Court Questions Trump’s National Guard Deployment in D.C.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-
 **Democrats Blame Trump After CPI Report Shows Energy Prices Drove Up Inflation**\
 `Inflation and economic frustrations have expanded the map of competitive midterm election districts deep into Republican territory.`\
 https://www.nytimes.com/2026/10/14/business/economy/inflation-trump-democrats-midterms-energy.html
-
-**What Is Starshield, SpaceX’s Military-Grade Satellite Internet Service Ukraine Relies On?**\
-`For years, Ukraine’s armed forces have relied on satellite communication services developed by Elon Musk’s SpaceX. Recent restrictions have hampered its war effort.`\
-https://www.nytimes.com/2026/10/14/business/starshield-spacex-ukraine-starlink-satellites-musk.html
 
