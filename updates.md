@@ -1,3 +1,23 @@
+**“The Assassin(s)” Movie Fuels South Korea’s Culture Wars**\
+`The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
+https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html
+
+**Quote of the Day: After a Decade of Macron, France Faces a Deluge**\
+`Quotation of the Day for Wednesday, October 14, 2026.`\
+https://www.nytimes.com/2026/10/14/pageoneplus/quote-of-the-day-after-a-decade-of-macron-france-faces-a-deluge.html
+
+**From Allies to Enemies: Ethiopia and Eritrea Edge Toward War**\
+`The two nations fought alongside each other during a brutal conflict in Tigray that left hundreds of thousands of people dead just a few years ago. Now they are on the brink of fighting each other.`\
+https://www.nytimes.com/2026/10/14/world/africa/ethiopia-eritrea-tigray-invasion.html
+
+**China’s Exports Soar, Putting Its Trade Surplus on Track for a Record**\
+`China’s exports grew last month at the fastest pace in almost any month since the end of the global financial crisis.`\
+https://www.nytimes.com/2026/10/14/business/china-exports-trade-surplus.html
+
+**On This Day, Oct. 14: In 1912, Theodore Roosevelt Was Shot; He Then Delivered a Speech**\
+`In 1912, Theodore Roosevelt was shot while campaigning for president in Milwaukee. He then delivered a lengthy speech before seeking medical treatment.`\
+https://www.nytimes.com/2026/10/14/learning/on-this-day-oct-14-theodore-roosevelt-shot.html
+
 **Trump Adds Another Giveaway to His Midterm Pitch: Pardons.**\
 `The president has stepped up his offers of financial rewards to voters with just weeks until the midterms. On Tuesday at a rally in Alaska, he announced pardons.`\
 https://www.nytimes.com/2026/10/13/us/elections/trump-pardons-midterms-payments.html
