@@ -1,3 +1,11 @@
+**Sexual Assault Report at Chicago Frat Roils Another Elite Campus**\
+`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny and outrage after revelations of a reported gang rape at Cornell University in New York.`\
+https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
+
+**Zelensky Visits U.K. as Ukraine Presses Allies on Intelligence Sharing**\
+`President Volodymyr Zelensky said Ukraine had received “no early warning from our partners” about Russian attacks. President Trump has said Washington is still “sharing intel.”`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
+
 **Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
 `Former Vice President Kamala Harris will also rally for Democratic candidates in Georgia and Nevada.`\
 https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-campaign.html

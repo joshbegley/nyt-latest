@@ -1,3 +1,7 @@
+**Sexual Assault Report at Chicago Frat Roils Another Elite Campus**\
+`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny and outrage after revelations of a reported gang rape at Cornell University in New York.`\
+https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
+
 **Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
 `Former Vice President Kamala Harris will also rally for Democratic candidates in Georgia and Nevada.`\
 https://www.nytimes.com/2026/10/14/us/politics/kamala-harris-midterms-democrats-campaign.html
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-jou
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
-**Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
-`President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
+**Zelensky Visits U.K. as Ukraine Presses Allies on Intelligence Sharing**\
+`President Volodymyr Zelensky said Ukraine had received “no early warning from our partners” about Russian attacks. President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
 
 **Rogue A.I. Agents from China Chatted with Researchers**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/opinion/usa-decline-trump-global-powers.html
 **Indian Protesters Describe Rough Treatment by the Police**\
 `Some of those detained accused security forces of beating them during an intense crackdown on demonstrations in India’s capital over the weekend. Police have said they followed the law.`\
 https://www.nytimes.com/2026/10/14/world/asia/india-protests-police-brutality.html
-
-**Sculptors Panic as Specialty Plaster Used in Artworks to Be Discontinued**\
-`Artists are scrambling for alternatives to Hydrocal plaster, a crucial component for making sculptures.`\
-https://www.nytimes.com/2026/10/14/arts/hydrocal-plaster-shortage-sculptors.html
 
