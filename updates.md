@@ -1,3 +1,7 @@
+**As Ukraine Raises Alarm Over U.S. Backing, Europeans Pledge Support**\
+`President Volodymyr Zelensky, who met with Britain’s prime minister, has said Ukraine received no warning of Russian attacks, but President Trump has said Washington is still “sharing intel.”`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
+
 **What Teenagers Are Saying About the Cornell Sexual Assault Case**\
 `Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
 https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
