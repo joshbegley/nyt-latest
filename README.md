@@ -1,3 +1,7 @@
+**Oil Prices Rise as Iran Steps Up Attacks and Fighting Intensifies**\
+`In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
+https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
+
 **Corruption Trial Begins for Former Oakland Mayor and City Contractors**\
 `The bribery and fraud charges against Sheng Thao, her partner and an influential family offer a window into more widespread efforts to corrupt officials in the San Francisco Bay Area.`\
 https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/books/review/witchland-marion-gibson.html
 **Inside California’s Battle With the Ultra Rich Over a Billionaire Tax**\
 `Inside the state’s multifront battle over the world’s first tax for the ultrarich.`\
 https://www.nytimes.com/2026/10/14/magazine/california-billionaires-tax.html
-
-**Acclaimed Writers Turn to Classical Music in New Novels**\
-`The challenge for Barbara Kingsolver and Yiyun Li: capturing how dedication to the piano can be a source of joy and pain.`\
-https://www.nytimes.com/2026/10/14/books/review/barbara-kingsolver-yiyun-li-music-partita.html
 

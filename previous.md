@@ -1,3 +1,11 @@
+**Corruption Trial Begins for Former Oakland Mayor and City Contractors**\
+`The bribery and fraud charges against Sheng Thao, her partner and an influential family offer a window into more widespread efforts to corrupt officials in the San Francisco Bay Area.`\
+https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.html
+
+**Multiple People Killed in Wisconsin Plane Crash**\
+`The aircraft crashed in the town of Dellona on Tuesday night, local authorities said.`\
+https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
+
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
 `Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/magazine/california-billionaires-tax.html
 **Acclaimed Writers Turn to Classical Music in New Novels**\
 `The challenge for Barbara Kingsolver and Yiyun Li: capturing how dedication to the piano can be a source of joy and pain.`\
 https://www.nytimes.com/2026/10/14/books/review/barbara-kingsolver-yiyun-li-music-partita.html
-
-**Word of the Day: hypnotize**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/14/learning/word-of-the-day-hypnotize.html
-
-**Will Anyone Actually Ever Live to 200?**\
-`Some experts are optimistic that science will eventually find ways to extend life, but many longevity claims are unrealistic.`\
-https://www.nytimes.com/2026/10/14/well/live/humans-lifespan-limits-potential.html
 

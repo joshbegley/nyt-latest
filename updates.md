@@ -1,3 +1,11 @@
+**Corruption Trial Begins for Former Oakland Mayor and City Contractors**\
+`The bribery and fraud charges against Sheng Thao, her partner and an influential family offer a window into more widespread efforts to corrupt officials in the San Francisco Bay Area.`\
+https://www.nytimes.com/2026/10/14/us/oakland-mayor-sheng-thao-corruption-trial.html
+
+**Multiple People Killed in Wisconsin Plane Crash**\
+`The aircraft crashed in the town of Dellona on Tuesday night, local authorities said.`\
+https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
+
 **Russell Brand Labeled ‘Sexual Predator’; He Denies Rape and Assault Charges**\
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
