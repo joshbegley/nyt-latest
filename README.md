@@ -1,3 +1,7 @@
+**Bleached Coral Rebounded After Touching Healthy Coral, Study Finds**\
+`After sick corals were placed in direct contact with healthy ones of the same genetic make-up, they recovered at “incredible” speed, scientists found.`\
+https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html
+
 **What Teenagers Are Saying About the Cornell Sexual Assault Case**\
 `Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
 https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
-
-**Higher Energy Prices Pushed U.S. Inflation Up to 3.7% Ahead of Midterm Elections**\
-`September’s Consumer Price Index report will keep pressure on President Trump and the Federal Reserve to tame intensifying price pressures.`\
-https://www.nytimes.com/2026/10/14/business/economy/inflation-cpi.html
 
