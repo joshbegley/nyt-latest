@@ -1,3 +1,7 @@
+**Tim Janus, One of the World’s Greatest Competitive Eaters, Has Died**\
+`He brought rigor and strategy to the sport, rising to No. 2 in the world and eating 141 pieces of nigiri in six minutes in the process.`\
+https://www.nytimes.com/2026/10/14/obituaries/tim-janus-eater-x-dead.html
+
 **Fact-Checking Senate Debates in Georgia, Maine and Michigan**\
 `With control of Congress hanging in the balance, nominees have attacked their rivals’ records, stock portfolios and families, with varying degrees of accuracy.`\
 https://www.nytimes.com/2026/10/14/us/elections/fact-check-senate-debates-maine-michigan-georgia.html

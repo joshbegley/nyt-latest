@@ -1,3 +1,7 @@
+**Tim Janus, One of the World’s Greatest Competitive Eaters, Has Died**\
+`He brought rigor and strategy to the sport, rising to No. 2 in the world and eating 141 pieces of nigiri in six minutes in the process.`\
+https://www.nytimes.com/2026/10/14/obituaries/tim-janus-eater-x-dead.html
+
 **Fact-Checking Senate Debates in Georgia, Maine and Michigan**\
 `With control of Congress hanging in the balance, nominees have attacked their rivals’ records, stock portfolios and families, with varying degrees of accuracy.`\
 https://www.nytimes.com/2026/10/14/us/elections/fact-check-senate-debates-maine-michigan-georgia.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.htm
 **Turkey Raids Pro-Opposition TV Station**\
 `The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced the leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
-
-**Corrections: Oct. 14, 2026**\
-`Corrections that appeared in print on Wednesday, Oct. 14, 2026.`\
-https://www.nytimes.com/2026/10/14/pageoneplus/corrections-oct-14-2026.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
