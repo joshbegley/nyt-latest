@@ -2,7 +2,7 @@
 `My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
 https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
 
-**Jon Ossoff Says He’s Not Running For President. History Says He Can Change His Mind.**\
+**Jon Ossoff Says He Won’t Run for President in 2028 in Georgia Senate Debate**\
 `“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
 https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
 
@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/10/14/arts/music/martina-arroyo-dead.html
 `The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
 https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
 
-**Oil Prices Rise as Iran Steps Up Attacks and Houthi-Saudi Fighting Intensifies**\
-`In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
+**Attacks on Ships in Strait of Hormuz Escalate Sharply**\
+`In a volatile moment in the region, a significant increase in attacks on vessels passing through the vital waterway is raising alarm.`\
 https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
 
 **Corruption Trial Begins for Former Oakland Mayor and City Contractors**\
