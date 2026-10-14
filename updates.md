@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Dance soundtrack, feather atlas and the sound of a sunny day.`\
+https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
+
+**The Local: Video rental stores return**\
+`Also, the Twin Cities Film Fest kicks off tomorrow.`\
+https://www.nytimes.com/2026/10/14/briefing/video-rental-stores.html
+
 **Bleached Coral Rebounded After Touching Healthy Coral, Study Finds**\
 `After sick corals were placed in direct contact with healthy ones of the same genetic make-up, they recovered at “incredible” speed, scientists found.`\
 https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html

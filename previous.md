@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Dance soundtrack, feather atlas and the sound of a sunny day.`\
+https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
+
+**The Local: Video rental stores return**\
+`Also, the Twin Cities Film Fest kicks off tomorrow.`\
+https://www.nytimes.com/2026/10/14/briefing/video-rental-stores.html
+
 **Bleached Coral Rebounded After Touching Healthy Coral, Study Finds**\
 `After sick corals were placed in direct contact with healthy ones of the same genetic make-up, they recovered at “incredible” speed, scientists found.`\
 https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/14/podcasts/the-headlines/kimberly-guilfoyle-pop
 **NYT Strands Hints for October 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
 https://www.nytimes.com/2026/10/14/crosswords/strands-sidekick-956.html
-
-**Today’s Wordle Hints for October 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
-https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
-
-**Russell Brand Trial: Prosecution Outlines the Accusations**\
-`The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
-https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\

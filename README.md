@@ -1,3 +1,7 @@
+**Why Easing Sanctions on Russian Diesel Is Unlikely to Lower Fuel Costs**\
+`President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Dance soundtrack, feather atlas and the sound of a sunny day.`\
 https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/crosswords/connections-companion-1222.html
 **The Downfall of Trump’s Ambassador to Greece, and the Pope’s Cancer Diagnosis**\
 `Plus, the antique apples making a comeback.`\
 https://www.nytimes.com/2026/10/14/podcasts/the-headlines/kimberly-guilfoyle-pope-cancer.html
-
-**NYT Strands Hints for October 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
-https://www.nytimes.com/2026/10/14/crosswords/strands-sidekick-956.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
