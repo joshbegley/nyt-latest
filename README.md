@@ -1,9 +1,13 @@
+**A New World of Lung Cancer Therapy Awaits Pope Leo**\
+`Lung cancer is still a leading cause of cancer death, but that rate is half what it was in the 1990s, partly because newly developed treatments are working.`\
+https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-genetic-mutations.html
+
 **Conor Kennedy and Giulia Be Celebrate Their Wedding in Rio de Janeiro**\
 `By the time the couple met in person in Los Angeles, they had already fallen for each other after months of messaging on WhatsApp. They celebrated their marriage with three days of festivities in Rio de Janeiro that blended both families’ traditions.`\
 https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriage-rio-de-janeiro.html
 
 **Sexual Assault Report at Chicago Frat Upends Another Elite Campus**\
-`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny and outrage after revelations of a reported gang rape at Cornell University in New York.`\
+`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny after revelations of a reported gang rape at Cornell University in New York.`\
 https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
 
 **Kamala Harris to Campaign for Democrats in Mississippi, New Hampshire and Wisconsin Ahead of Midterms**\
@@ -59,7 +63,7 @@ https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
 **Turkey Raids Pro-Opposition TV Station**\
-`The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
+`The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
 
 **Corrections: Oct. 14, 2026**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hear
 **Dalí Book Cover Stolen in France**\
 `Three thieves broke into a private museum in central France and took off with a 330-pound book cover created by the surrealist master Salvador Dalí.`\
 https://www.nytimes.com/2026/10/14/world/europe/france-dali-theft.html
-
-**America Is in Decline, and Trump Is Leading the Fall**\
-`The old world order is fraying. Who gets to shape the next one?`\
-https://www.nytimes.com/2026/10/14/opinion/usa-decline-trump-global-powers.html
 
 **‘Digger,’ Tom Cruise’s Big Flop, Is a Secret Masterpiece**\
 `The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
