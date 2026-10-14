@@ -1,3 +1,7 @@
+**Gas Costs a Third More Than a Year Ago**\
+`Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
+https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
+
 **Turkey Raids Pro-Opposition TV Station**\
 `The government appointed its own manager of the last big news channel to be critical of President Recep Tayyip Erdogan. The authorities have now replaced leadership at five major news outlets.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/arts/music/stella-lefty-boston-song-lyrics.ht
 **22 People Got Together For a Dinner Party. So Did Their A.I. Agents.**\
 `As artificial intelligence bots spread, we are increasingly glimpsing how these digital entities interact and what they talk about with one another.`\
 https://www.nytimes.com/2026/10/14/technology/ai-agents-communication-tech-dinner-party.html
-
-**Book Review: ‘Kolkhoz,’ by Emmanuel Carrère**\
-`Emmanuel Carrère’s latest book combines a nuanced portrait of his formidable mother with a meditation on the fraught nature of truth.`\
-https://www.nytimes.com/2026/10/14/books/review/kolkhoz-emmanuel-carrere.html
 

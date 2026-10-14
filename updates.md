@@ -1,3 +1,7 @@
+**Gas Costs a Third More Than a Year Ago**\
+`Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
+https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
+
 **‘Why Did They Kill Him?’ Mourning Victims of Houthi Attack on a Saudi Airport.**\
 `The strike was the Iran-backed militia’s most lethal against Saudi Arabia, by far, during their long conflict.`\
 https://www.nytimes.com/2026/10/14/world/middleeast/houthi-airport-attack-victims-saudi-arabia.html
