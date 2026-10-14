@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
+
 **Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
 `Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
 https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
 **The U.S. Tried to Choke Russia’s Energy Market. Then It Made a Diesel Deal.**\
 `President Trump has announced a deal in which the United States could buy billions of dollars’ worth of diesel fuel from Russia, stunning allies and lawmakers.`\
 https://www.nytimes.com/2026/10/14/podcasts/the-daily/trump-russsia-diesel-deal.html
-
-**NYT Connections Answers for October 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
-https://www.nytimes.com/2026/10/14/crosswords/connections-companion-1222.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
