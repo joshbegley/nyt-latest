@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
+
 **Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
 `Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
 https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
