@@ -30,7 +30,7 @@ https://www.nytimes.com/video/us/100000011211647/duane-davis-sentencing-tupac-sh
 `Sue Mi Terry has maintained her innocence since being accused of working secretly for the South Korean government in exchange for luxury gifts.`\
 https://www.nytimes.com/2026/10/13/nyregion/cia-analyst-south-korea-charges.html
 
-**Bank of America Pays $1.8 Billion Fine for Lax Money-Laundering Oversight**\
+**Bank of America Fined $1.2 Billion for Lax Money-Laundering Oversight**\
 `Federal regulators said the bank had waved through suspicious transactions without proper care.`\
 https://www.nytimes.com/2026/10/13/business/bank-of-america-money-laundering-fine.html
 
