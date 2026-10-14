@@ -1,3 +1,7 @@
+**Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
+`The ruling will allow the outlets to enter the White House grounds while they sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
+https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
+
 **“The Assassin(s)” Movie Fuels South Korea’s Culture Wars**\
 `The film, “The Assassin(s),” revisits a 1974 shooting that has spawned J.F.K.-style conspiracy theories, exposing divides over the country’s history.`\
 https://www.nytimes.com/2026/10/14/world/asia/korea-assasin-assassins-movie.html

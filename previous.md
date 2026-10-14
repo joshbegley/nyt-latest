@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/10/14/learning/on-this-day-oct-14-theodore-roosevel
 https://www.nytimes.com/2026/10/13/us/elections/trump-pardons-midterms-payments.html
 
 **Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
-`The ruling will ensure access to the White House grounds while the outlets sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
+`The ruling will allow the outlets to enter the White House grounds while they sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
 https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
 
 **Five Key Moments From The Times’s Interview With Cornell’s President**\
