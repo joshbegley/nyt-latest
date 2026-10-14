@@ -1,3 +1,11 @@
+**Leo XIV’s Lung Cancer Diagnosis Tests a Papacy Still Taking Shape**\
+`For a pope who appeared to have time on his side, cancer has raised questions about his longevity and brought a new urgency to his plans for the Church.`\
+https://www.nytimes.com/2026/10/13/world/europe/pope-leo-health-cancer.html
+
+**5 Takeaways From a Heated and Personal Maine Senate Debate**\
+`Senator Susan Collins, a Republican, and her Democratic challenger, Troy Jackson, disagreed over the war in Iran and President Trump in the third of four debates in a key race.`\
+https://www.nytimes.com/2026/10/13/us/politics/maine-senate-debate-collins-jackson.html
+
 **NYT Crossword Answers for Oct. 14, 2026**\
 `Jacob Stulberg meets resistance.`\
 https://www.nytimes.com/2026/10/13/crosswords/daily-puzzle-2026-10-14.html
