@@ -132,7 +132,7 @@ https://www.nytimes.com/2026/10/14/arts/music/stella-lefty-boston-song-lyrics.ht
 
 **22 People Got Together For a Dinner Party. So Did Their A.I. Agents.**\
 `As artificial intelligence bots spread, we are increasingly glimpsing how these digital entities interact and what they talk about with one another.`\
-https://www.nytimes.com/2026/10/14/technology/22-people-got-together-for-a-dinner-party-so-did-their-ai-agents.html
+https://www.nytimes.com/2026/10/14/technology/ai-agents-communication-tech-dinner-party.html
 
 **Book Review: ‘Kolkhoz,’ by Emmanuel Carrère**\
 `Emmanuel Carrère’s latest book combines a nuanced portrait of his formidable mother with a meditation on the fraught nature of truth.`\
@@ -192,7 +192,7 @@ https://www.nytimes.com/2026/10/14/us/xavier-becerra-latino-california-governor.
 
 **Argentina’s President Has a Dog Psychic. Meet Celia Melamed.**\
 `In Argentina, many people try to read the mind of the president. Celia Melamed read the mind of his dogs.`\
-https://www.nytimes.com/2026/10/14/world/americas/the-presidents-dog-psychic.html
+https://www.nytimes.com/2026/10/14/world/americas/argentina-president-milei-dog-pet-psychic.html
 
 **Amit Forlit, the Israeli Private Eye at the Heart of a Climate Hacking Scandal**\
 `He’s been linked to someone called “The Hawk.” He named his company “This Isn’t a Dentist’s Office.” The feds say he hacked American environmentalists.`\
