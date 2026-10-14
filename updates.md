@@ -1,3 +1,15 @@
+**Appeals Court Blocks California Law Mandating I.D. for Federal Agents**\
+`The court said that California could not impose state requirements on federal law enforcement operations.`\
+https://www.nytimes.com/2026/10/14/us/court-blocks-california-ice-agent-id.html
+
+**The Crisis Playbook for Universities in Trouble**\
+`Schools under scrutiny as Cornell is often follow a sort of public relations playbook, adding rules, hiring outside investigators and sometimes making leadership changes.`\
+https://www.nytimes.com/2026/10/14/us/cornell-crisis-playbook-universities-colleges.html
+
+**The Trump Administration and the Shrinking Number of Women in Top Roles**\
+`In President Trump’s second term, those heading for the exits, voluntarily or involuntarily, are female officials.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-administration-kimberly-guilfoyle-women.html
+
 **Anthropic Says Revenue Jumped 45% to $16.8 Billion in Third Quarter**\
 `The company held an investor meeting on Wednesday as it plans a blockbuster initial public offering as soon as next month.`\
 https://www.nytimes.com/2026/10/14/technology/anthropic-ipo-revenue-profit.html
