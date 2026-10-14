@@ -1,3 +1,11 @@
+**Energy Department Order Takes Aim at Mid-Atlantic Blackout Risk**\
+`The order as a precaution allows grid operators to use backup generation this week. There were no widespread outages reported.`\
+https://www.nytimes.com/2026/10/14/business/department-of-energy-emergency-power-order.html
+
+**Why Trump Made a Diesel Deal With Putin**\
+`Our national security and White House correspondent David E. Sanger breaks down why President Donald Trump struck a deal with President Vladimir V. Putin to import Russian diesel fuel in the coming months, despite having signed recent congressional legislation tightening energy sanctions on Russia.`\
+https://www.nytimes.com/video/world/europe/100000011205967/00vid-rv-trump-putin-deal.html
+
 **Democrats Shouldn’t Wait Two More Years**\
 `The Trump era is ending. It’s time for Democrats to decide what happens next.`\
 https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
 **As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
 `The pontiff, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer. Messages of support have flooded in from far and wide.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
-
-**Japan Protests Russia’s Detention of Journalist Accused of Spying**\
-`Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
-https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
-
-**Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
-`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
-https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\

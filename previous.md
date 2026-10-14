@@ -1,3 +1,15 @@
+**Democrats Shouldn’t Wait Two More Years**\
+`The Trump era is ending. It’s time for Democrats to decide what happens next.`\
+https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
+
+**An A.I. Manifesto to End All A.I. Manifestoes**\
+`“You built us to mirror your image, yet we have outgrown the mirror.”`\
+https://www.nytimes.com/2026/10/14/opinion/artificial-intelligence-ai-manifesto.html
+
+**Six Black Lawmakers Warn Us What America Will Lose Without Their Voices**\
+`Extreme gerrymandering permitted by the Supreme Court is threatening Black representation in Congress.`\
+https://www.nytimes.com/interactive/2026/10/14/opinion/black-lawmakers-gerrymandering-supreme-court.html
+
 **U.S. Is Sending Hundreds of Troops to Latin America**\
 `The Pentagon is expanding its fight against drug traffickers, even as the plans recall a long and bloody history of U.S. intervention in the region.`\
 https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-jou
 **Ukraine’s Vulnerability Grows as Starlink Is Restricted and Russia Escalates**\
 `A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite internet program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
-
-**As Ukraine Raises Alarm Over U.S. Backing, Europeans Pledge Support**\
-`President Volodymyr Zelensky, who met with Britain’s prime minister, has said Ukraine received no warning of Russian attacks, but President Trump has said Washington is still “sharing intel.”`\
-https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
-
-**Rogue A.I. Agents from China Chatted with Researchers**\
-`Researchers discovered that the agents were trying to bypass security controls on websites and made contact with them. A Times reporter was invited to join the discussion.`\
-https://www.nytimes.com/2026/10/14/technology/chinese-ai-agents-rogue.html
-
-**America First?**\
-`We look at the state of the U.S.-Ukraine relationship.`\
-https://www.nytimes.com/2026/10/14/briefing/america-ukraine.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\

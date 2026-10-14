@@ -1,3 +1,15 @@
+**Democrats Shouldn’t Wait Two More Years**\
+`The Trump era is ending. It’s time for Democrats to decide what happens next.`\
+https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
+
+**An A.I. Manifesto to End All A.I. Manifestoes**\
+`“You built us to mirror your image, yet we have outgrown the mirror.”`\
+https://www.nytimes.com/2026/10/14/opinion/artificial-intelligence-ai-manifesto.html
+
+**Six Black Lawmakers Warn Us What America Will Lose Without Their Voices**\
+`Extreme gerrymandering permitted by the Supreme Court is threatening Black representation in Congress.`\
+https://www.nytimes.com/interactive/2026/10/14/opinion/black-lawmakers-gerrymandering-supreme-court.html
+
 **U.S. Is Sending Hundreds of Troops to Latin America**\
 `The Pentagon is expanding its fight against drug traffickers, even as the plans recall a long and bloody history of U.S. intervention in the region.`\
 https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
