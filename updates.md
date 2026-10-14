@@ -1,3 +1,15 @@
+**What Allegations of Spying at OpenAI Mean for the A.I. Industry**\
+`The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
+https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
+
+**Sudden Starlink Restrictions Deepen Ukraine’s Vulnerability as Russia Escalates**\
+`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
+
+**Live Update: Inflation Accelerates on Persistent Energy Pressures**\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **Live Update: Inflation Accelerates on Persistent Energy Pressures**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, a faster rate than a month earlier that reflected higher fuel prices.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september

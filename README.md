@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/10/14/crosswords/strands-sidekick-956.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 15, 2026.`\
 https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 
-**Russell Brand Labeled ‘Sexual Predator’; He Denies Rape and Assault Charges**\
+**Russell Brand Labeled ‘Sexual Predator’ as Trial Opens; He Denies Rape and Assault Charges**\
 `The prosecution said that Mr. Brand saw women as “simply a means to an end” during the time when crimes were said to have taken place. He said he was “hopeful” about the trial.`\
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 

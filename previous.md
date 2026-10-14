@@ -1,3 +1,7 @@
+**What Allegations of Spying at OpenAI Mean for the A.I. Industry**\
+`The arrest of an OpenAI employee accused of planting a bug in an office of the artificial intelligence giant flags another concern for the industry.`\
+https://www.nytimes.com/2026/10/14/business/dealbook/openai-espionage.html
+
 **Oil Prices Rise as Iran Steps Up Attacks and Fighting Intensifies**\
 `In a volatile moment for energy markets, more vessels are being hit while transiting the Strait of Hormuz, while the Houthis and Saudi Arabia traded attacks.`\
 https://www.nytimes.com/2026/10/14/business/saudi-houthi-hormuz-oil.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital
 `Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
 https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
 
-**Sudden Starlink Restrictions Hamper Ukraine Just as Russia Escalates**\
-`Kyiv has found itself increasingly vulnerable. A huge attack cut power to 600,000 people there, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+**Sudden Starlink Restrictions Deepen Ukraine’s Vulnerability as Russia Escalates**\
+`A huge attack cut power to 600,000 people in Kyiv, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
 
 **Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/10/14/crosswords/wordle-review-1944.html
 https://www.nytimes.com/2026/10/14/arts/russell-brand-trial-rape-sexual-assault.html
 
 **Live Update: Inflation Accelerates on Persistent Energy Pressures**\
-`The Consumer Price Index rose 3.7 percent in September from a year earlier, a faster rate than a month earlier that reflected higher fuel prices.`\
+`The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
 https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
 
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/t-magazine/andreas-schulze-spritzdekor-collec
 **Book Review: ‘Witchland,’ by Marion Gibson**\
 `In her latest work, the historian Marion Gibson focuses on the victims of a deadly English witch hunt.`\
 https://www.nytimes.com/2026/10/14/books/review/witchland-marion-gibson.html
-
-**Inside California’s Battle With the Ultra Rich Over a Billionaire Tax**\
-`Inside the state’s multifront battle over the world’s first tax for the ultrarich.`\
-https://www.nytimes.com/2026/10/14/magazine/california-billionaires-tax.html
 
