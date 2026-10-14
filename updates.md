@@ -1,3 +1,11 @@
+**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
+`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
+https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
+
+**6 Dead in Wisconsin Plane Crash**\
+`The aircraft crashed near the Wisconsin Dells on Tuesday night, killing five adults and one child, local authorities said.`\
+https://www.nytimes.com/2026/10/14/us/wisconsin-plane-crash-dead.html
+
 **Anger Over Trump’s Deal With Putin**\
 `Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
 https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
