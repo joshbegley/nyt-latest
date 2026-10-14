@@ -1,3 +1,7 @@
+**Trump Adds Another Giveaway to His Midterm Pitch: Pardons.**\
+`The president has stepped up his offers of financial rewards to voters with just weeks until the midterms. On Tuesday at a rally in Alaska, he announced pardons.`\
+https://www.nytimes.com/2026/10/13/us/elections/trump-pardons-midterms-payments.html
+
 **Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
 `The ruling will ensure access to the White House grounds while the outlets sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
 https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html

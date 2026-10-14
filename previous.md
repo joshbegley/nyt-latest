@@ -1,3 +1,7 @@
+**Trump Adds Another Giveaway to His Midterm Pitch: Pardons.**\
+`The president has stepped up his offers of financial rewards to voters with just weeks until the midterms. On Tuesday at a rally in Alaska, he announced pardons.`\
+https://www.nytimes.com/2026/10/13/us/elections/trump-pardons-midterms-payments.html
+
 **Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
 `The ruling will ensure access to the White House grounds while the outlets sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
 https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/nyregion/martin-shkreli-ftc-pharma-ban-darapr
 **Why A.I. Has This Mathematician in Tears**\
 `Artificial intelligence is now capable of helping solve some of mathematics’ most famous open problems. Steven Strogatz, a math professor at Cornell, joins Rachel Abrams on “The Daily” to talk about what happens when A.I. comes not just for your job, but for your purpose.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011211514/why-ai-has-this-mathematician-in-tears.html
-
-**Great Live Albums From Carnegie Hall**\
-`Hear songs from Joni Mitchell, Bill Withers, Judy Garland and more recorded at the storied venue.`\
-https://www.nytimes.com/2026/10/13/arts/music/amplifier-newsletter-bob-dylan-judy-garland-carnegie-hall.html
 
