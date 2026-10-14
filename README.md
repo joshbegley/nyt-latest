@@ -1,3 +1,7 @@
+**Musk Blames Tycoon for Stalling Satellite Internet Access in India**\
+`As Starlink seeks permission to operate in India, a recent protest in New Delhi showed how quickly authorities can cut off mobile internet access.`\
+https://www.nytimes.com/2026/10/14/business/india-elon-musk-starlink.html
+
 **Bayeux Tapestry’s Return Has History Buffs Re-Enacting Like It’s 1066**\
 `Almost a millennium ago, the Battle of Hastings was fought on an English field and depicted on the tapestry. This year’s restaging drew spectators spurred on by the artifact’s visit to Britain.`\
 https://www.nytimes.com/2026/10/14/arts/battle-of-hastings-1066-reenactment-bayeux-tapestry.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/business/media/peter-christopher-pc-vey-dead.
 **RJ Mitte Is Remembered by Bryan Cranston, Vince Gilligan and Others From ‘Breaking Bad’**\
 `Bryan Cranston, Vince Gilligan and others shared their shock and sadness at the loss. “I’ll miss you, son,” Cranston wrote.`\
 https://www.nytimes.com/2026/10/13/arts/television/rj-mitte-death-reactions-bryan-cranston.html
-
-**Restaurant Review: Soccería in New York**\
-`From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
-https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
 
