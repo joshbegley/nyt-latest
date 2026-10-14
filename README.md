@@ -1,3 +1,7 @@
+**ICE Agent Strikes, Injures Fleeing Man With Vehicle**\
+`An ICE agent struck a Mexican construction worker, Miguel Parra Hernandez, with a vehicle on Saturday. Mr. Parra Hernandez was hospitalized with hip and ankle injuries, according to an immigrant rights group.`\
+https://www.nytimes.com/video/us/100000011214155/ice-mexican-worker-miguel-hernandez.html
+
 **Surprise Democratic Donor Blitzes Senate Races in Republican-Leaning States With Ads**\
 `Steve Pajcic, a lawyer and philanthropist in Florida, started a group that is airing ads in Kansas and South Carolina. Florida and Mississippi are next.`\
 https://www.nytimes.com/2026/10/14/us/politics/democratic-donor-senate-red-state-ads.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011211810/slow-cooker-cauliflower-pot
 **Is It Wrong to Vote in the Other Party’s Primary?**\
 `My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
 https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
-
-**Jon Ossoff Says He Won’t Run for President in 2028 in Georgia Senate Debate**\
-`“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
-https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
 
