@@ -1,3 +1,7 @@
+**U.S. Continues to Provide Intelligence to Ukraine, Officials Say**\
+`Confusion about the U.S. stance has mounted in Kyiv amid restrictions on how the military version of Starlink is used.`\
+https://www.nytimes.com/2026/10/14/us/politics/us-intelligence-sharing-ukraine.html
+
 **There’s a New Great Pumpkin to Rule Them All**\
 `A farmer in Rhode Island raised a 3,156-pound pumpkin this year, setting a new measure for the greatest of all gourds.`\
 https://www.nytimes.com/2026/10/14/us/rhode-island-giant-pumpkin-world-record.html
