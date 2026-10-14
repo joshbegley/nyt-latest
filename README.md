@@ -1,3 +1,11 @@
+**Appeals Court Blocks California Law Mandating I.D. for Federal Agents**\
+`The court said that California could not impose state requirements on federal law enforcement operations.`\
+https://www.nytimes.com/2026/10/14/us/court-blocks-california-ice-agent-id.html
+
+**The Crisis Playbook for Universities in Trouble**\
+`Schools under scrutiny as Cornell is often follow a sort of public relations playbook, adding rules, hiring outside investigators and sometimes making leadership changes.`\
+https://www.nytimes.com/2026/10/14/us/cornell-crisis-playbook-universities-colleges.html
+
 **Anthropic Says Revenue Jumped 45% to $16.8 Billion in Third Quarter**\
 `The company held an investor meeting on Wednesday as it plans a blockbuster initial public offering as soon as next month.`\
 https://www.nytimes.com/2026/10/14/technology/anthropic-ipo-revenue-profit.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-tr
 `Joining a global movement, President Claudia Sheinbaum signed a decree requiring the removal of a range of material for people under 18 and held out the prospect of tougher measures.`\
 https://www.nytimes.com/2026/10/14/world/americas/mexico-media-bans-children.html
 
-**The Disappearing Women of the Trump Administration**\
+**The Trump Administration and the Shrinking Number of Women in Top Roles**\
 `In President Trump’s second term, those heading for the exits, voluntarily or involuntarily, are female officials.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-administration-kimberly-guilfoyle-women.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-
 **Anger Over Trump’s Deal With Putin**\
 `Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
 https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
-
-**Cornell Bans Frat Parties**\
-`Also, a hidden listening device at OpenAI`\
-https://www.nytimes.com/2026/10/14/briefing/cornell-bans-frat-parties.html
-
-**How to Make the Creamiest Mac and Cheese**\
-`This mac and cheese feels alive the way a crashing wave does, each mouthful crackly and silky as the crunch of toasted crumbs slides into the riptide of cheese sauce.`\
-https://www.nytimes.com/video/dining/100000011211884/how-to-make-the-creamiest-mac-and-cheese.html
 
