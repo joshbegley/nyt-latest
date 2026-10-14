@@ -1,3 +1,7 @@
+**Live Updates: New Insight on Inflation Pressuring U.S. Economy and the Fed**\
+`The Consumer Price Index for September will show how high energy costs and import demand are affecting the inflation rate.`\
+https://www.nytimes.com/live/2026/10/14/business/inflation-cpi-report-september
+
 **Pope Leo’s Cancer Diagnosis: What Happens Next**\
 `Pope Leo XIV was diagnosed with a common form of lung cancer on Tuesday, about a year and half into his papacy. He still plans to travel to South America next month.`\
 https://www.nytimes.com/2026/10/14/world/europe/pope-leo-xiv-cancer-diagnosis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/nyregion/mark-levine-comptroller-israel.html
 **NYT Spelling Bee Answers for October 14, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/14/crosswords/spelling-bee-forum.html
-
-**Musk Blames Tycoon for Stalling Satellite Internet Access in India**\
-`As Starlink seeks permission to operate in India, a recent protest in New Delhi showed how quickly authorities can cut off mobile internet access.`\
-https://www.nytimes.com/2026/10/14/business/india-elon-musk-starlink.html
 
