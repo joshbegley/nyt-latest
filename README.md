@@ -1,3 +1,7 @@
+**Brazil’s President Lula Accuses Meta of Helping His Right-Wing Opponent**\
+`With a narrow presidential election looming, President Luiz Inácio Lula da Silva and his allies claim Meta is trying to give his right-wing rival an advantage.`\
+https://www.nytimes.com/2026/10/14/world/americas/brazil-president-lula-meta-bolsonaro.html
+
 **Tim Janus, One of the World’s Greatest Competitive Eaters, Has Died**\
 `He brought rigor and strategy to the sport, rising to No. 2 in the world and eating 141 pieces of nigiri in six minutes in the process.`\
 https://www.nytimes.com/2026/10/14/obituaries/tim-janus-eater-x-dead.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/10/14/theater/golden-boy-virginia-woolf-london-thea
 `Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
 https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
 
-**Sally Rooney Says Her Novels Will No Longer Be Sold in Britain**\
+**Sally Rooney’s Books Pulled in U.K. Over Her Support of Pro-Palestinian Group**\
 `Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in the U.K.`\
 https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 **Gas Prices Are Up 34% From a Year Ago, Adding to Inflation Pressures**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
-
-**Turkey Raids Pro-Opposition TV Station**\
-`The government appointed an overseer to the last big news channel critical of President Recep Tayyip Erdogan. The authorities have now replaced the leadership at five major news outlets.`\
-https://www.nytimes.com/2026/10/14/world/middleeast/turkey-erdogan-opposition-halk-tv.html
 
 **Soaring Energy Prices Push Inflation Higher**\
 `The Consumer Price Index rose 3.7 percent in September from a year earlier, faster than a month earlier, as gas prices surged 34 percent.`\
