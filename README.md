@@ -1,3 +1,7 @@
+**Why So Many People Still Are Not Screened for Lung Cancer**\
+`Regular scans could catch lung cancers like Pope Leo XIV’s sooner, but many people at risk don’t qualify for screening. Doctors want to change that.`\
+https://www.nytimes.com/2026/10/14/well/pope-lung-cancer-screening.html
+
 **The Plaza Hotel to Close for Yearslong Renovation in 2027**\
 `The famous Fifth Avenue hotel, which opened in 1907, requires a restoration of its exterior, its operators said. It was not clear if residents of the building’s condos would have to leave.`\
 https://www.nytimes.com/2026/10/14/nyregion/the-plaza-hotel-closes-temporarily-nyc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-geneti
 **Conor Kennedy and Giulia Be Celebrate Their Wedding in Rio de Janeiro**\
 `By the time the couple met in person in Los Angeles, they had already fallen for each other after months of messaging on WhatsApp. They celebrated their marriage with three days of festivities in Rio de Janeiro that blended both families’ traditions.`\
 https://www.nytimes.com/2026/10/14/style/conor-kennedy-giulia-be-wedding-marriage-rio-de-janeiro.html
-
-**Sexual Assault Report at Chicago Frat Upends Another Elite Campus**\
-`The University of Chicago said the suspect and victim were not students at the school. But the accusation drew scrutiny after revelations of a reported gang rape at Cornell University in New York.`\
-https://www.nytimes.com/2026/10/14/us/university-chicago-fraternity-sexual-assault.html
 
