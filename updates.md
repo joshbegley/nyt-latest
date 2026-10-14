@@ -1,3 +1,7 @@
+**The Man Who Would Displace Netanyahu**\
+`How a bereaved general has won over Israelis.`\
+https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
+
 **Federal Judge Again Blocks Trump’s Ban on CNN, MS NOW and Politico**\
 `The ruling will allow the outlets to enter the White House grounds while they sue to overturn the ban. But it doesn’t resolve all of their access problems.`\
 https://www.nytimes.com/2026/10/13/business/media/cnn-ms-now-and-politico-ban-ruling.html
