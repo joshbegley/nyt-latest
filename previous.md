@@ -1,4 +1,8 @@
-**The Man Who Would Displace Netanyahu**\
+**Bayeux Tapestry’s Return Has History Buffs Re-Enacting Like It’s 1066**\
+`Almost a millennium ago, the Battle of Hastings was fought on an English field and depicted on the tapestry. This year’s restaging drew spectators spurred on by the artifact’s visit to Britain.`\
+https://www.nytimes.com/2026/10/14/arts/battle-of-hastings-1066-reenactment-bayeux-tapestry.html
+
+**Israelis Feel Abandoned. That’s Why They Might Turn to This Bereaved General**\
 `How a bereaved general has won over Israelis.`\
 https://www.nytimes.com/2026/10/14/opinion/netanyahu-eisenkot-israel-election.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/13/arts/television/rj-mitte-death-reactions-brya
 **Restaurant Review: Soccería in New York**\
 `From the Taqueria Ramírez team, Soccería in Greenpoint pairs lively fútbol energy with seriously good cooking.`\
 https://www.nytimes.com/2026/10/13/dining/restaurant-review-socceria-nyc.html
-
-**Who Is Ahead in Georgia's 3rd Congressional District?**\
-`Track the latest polls in Georgia's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/georgia-us-house-3-polls-2026.html
 
