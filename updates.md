@@ -1,3 +1,15 @@
+**Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
+`As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
+https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
+
+**Stocks Tumble as Concerns Over Inflation and A.I. Investments Grow**\
+`The S&P 500 fell 1.1 percent on Wednesday, the steepest drop in more than two months.`\
+https://www.nytimes.com/2026/10/14/business/stocks-500-index-ai.html
+
+**Angry Youth in Aging Europe**\
+`A bitter generational battle over resources is boiling over as economic growth on the continent stalls.`\
+https://www.nytimes.com/2026/10/14/world/youth-aging-europe-pension-ukraine-starshield.html
+
 **Brazil’s President Lula Accuses Meta of Helping His Right-Wing Opponent**\
 `With a narrow presidential election looming, President Luiz Inácio Lula da Silva and his allies claim Meta is trying to give his right-wing rival an advantage.`\
 https://www.nytimes.com/2026/10/14/world/americas/brazil-president-lula-meta-bolsonaro.html
