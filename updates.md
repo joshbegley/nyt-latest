@@ -1,3 +1,15 @@
+**Fact-Checking Senate Debates in Georgia, Maine and Michigan**\
+`With control of Congress hanging in the balance, nominees have attacked their rivals’ records, stock portfolios and families, with varying degrees of accuracy.`\
+https://www.nytimes.com/2026/10/14/us/elections/fact-check-senate-debates-maine-michigan-georgia.html
+
+**Josh O’Connor's a Knockout in ‘Golden Boy,’ Plus Cate Blanchett and More**\
+`Tilda Swinton (in “Man to Man”) and Billy Crudup and Gillian Anderson (in “Who’s Afraid of Virginia Woolf?”) are among the titans making a meal of London.`\
+https://www.nytimes.com/2026/10/14/theater/golden-boy-virginia-woolf-london-theater.html
+
+**Why Trump’s Russian Diesel Deal Is Unlikely to Lower Fuel Costs**\
+`President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
+https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
+
 **Processing My Father's Death by Climbing in Yosemite**\
 `Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
 https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
