@@ -1,3 +1,7 @@
+**Sudden Starlink Restrictions Hamper Ukraine Just as Russia Escalates**\
+`Kyiv has found itself increasingly vulnerable. A huge attack cut power to 600,000 people there, and a Pentagon-funded satellite program appeared to be curbed without warning.`\
+https://www.nytimes.com/2026/10/14/world/europe/ukraine-starlink-energy.html
+
 **Zelensky to Visit U.K. as Ukraine Presses Allies on Intelligence Sharing**\
 `President Volodymyr Zelensky said Ukraine received “no early warning from our partners” about a Russian attack. President Trump has said Washington is still “sharing intel.”`\
 https://www.nytimes.com/2026/10/14/world/europe/ukraine-intelligence-sharing-zelensky-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/arts/dance/ballet-salon-dancers-gibney-theate
 **How Top Trump Officials Stoked Fears of a Nuke That Could Fry the Power Grid**\
 `For more than a decade, conservative activists held that a single atomic bomb could, without killing Americans directly, lay waste to the country — a claim that built fervor for war with Iran.`\
 https://www.nytimes.com/2026/10/14/science/electromagnetic-pulse-nuke-trump-officials.html
-
-**Coming Out at 50 Can Be Hard. Shelly Found a Coach.**\
-`She spent decades building an identity as a wife and mother. Could she disrupt “a perfectly good family dynamic” to live her own truth?`\
-https://www.nytimes.com/2026/10/14/well/family/coming-out-midlife.html
 
