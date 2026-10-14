@@ -1,3 +1,19 @@
+**Is It Wrong to Vote in the Other Party’s Primary?**\
+`My friend, a red-state Democrat, wanted to register as a Republican to support a moderate candidate.`\
+https://www.nytimes.com/2026/10/14/magazine/voting-primary-ethics.html
+
+**Jon Ossoff Says He’s Not Running For President. History Says He Can Change His Mind.**\
+`“I’m running for re-election to the Senate,” the Democrat said during a debate on Tuesday. Barack Obama said the same thing 20 years ago.`\
+https://www.nytimes.com/2026/10/14/us/politics/jon-ossoff-georgia-senate-term-president.html
+
+**Netflix, Facing Slowing Growth, Cuts 6% of Its Work Force**\
+`The streamer’s share price is down more than 40 percent over the last year as the company has struggled with stalling engagement.`\
+https://www.nytimes.com/2026/10/14/business/media/netflix-layoffs-ted-sarandos.html
+
+**Mamdani Enters Deal with N.Y.U. to Share Profits from Quantum Lab**\
+`Mayor Zohran Mamdani said that in exchange for a $30 million city investment, New York would get 15 percent of proceeds from projects developed in the quantum technology lab.`\
+https://www.nytimes.com/2026/10/14/nyregion/mamdani-nyu-quantum-partnership.html
+
 **A New World of Lung Cancer Therapy Awaits Pope Leo**\
 `Lung cancer is still a leading cause of cancer death, but that rate is half what it was in the 1990s, partly because newly developed treatments are working.`\
 https://www.nytimes.com/2026/10/14/science/pope-leo-lung-cancer-therapies-genetic-mutations.html
@@ -58,7 +74,7 @@ https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 `(No description)`\
 https://www.nytimes.com/live/2026/10/14/us/midterms-elections-trump
 
-**Gas Costs 34 Percent More Than a Year Ago**\
+**Gas Prices Are Up 34% From a Year Ago, Adding to Inflation Pressures**\
 `Energy prices have surged since the start of war with Iran, lifting inflation in the United States.`\
 https://www.nytimes.com/2026/10/14/business/economy/gas-prices-inflation-cpi.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/14/podcasts/modern-love-stepmom-son.html
 **If Democrats Win the Senate, They Cannot Mess Around**\
 `The party will need to make the most of whatever majority it has.`\
 https://www.nytimes.com/2026/10/14/opinion/democrats-midterms-trump-congress.html
-
-**Ebola Has Never Spread This Quickly Before**\
-`This outbreak was detected late, giving the virus a head start.`\
-https://www.nytimes.com/interactive/2026/10/14/opinion/ebola-spread-africa-outbreak.html
-
-**Trump’s Latest Effort to Fire Fed Governor Lisa Cook Underscores Political Motives**\
-`President Trump tapped his political appointees to determine whether he could oust Lisa Cook, a Fed governor he had already tried to oust.`\
-https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hearing.html
-
-**Dalí Book Cover Stolen in France**\
-`Three thieves broke into a private museum in central France and took off with a 330-pound book cover created by the surrealist master Salvador Dalí.`\
-https://www.nytimes.com/2026/10/14/world/europe/france-dali-theft.html
-
-**‘Digger,’ Tom Cruise’s Big Flop, Is a Secret Masterpiece**\
-`The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
-https://www.nytimes.com/2026/10/14/opinion/digger-tom-cruise-movie-climate-flop.html
 
