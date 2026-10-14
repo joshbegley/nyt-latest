@@ -1,3 +1,7 @@
+**Ossoff and Collins Trade Blows in Georgia Senate Debate**\
+`Senator Jon Ossoff, the Democratic incumbent, and Representative Mike Collins, the Republican challenger, debated inflation, tariffs and the Epstein files during the second and final Georgia senate debate.`\
+https://www.nytimes.com/video/us/elections/100000011213887/ossoff-collins-georgia-senate-debate-midterms.html
+
 **Supreme Court Again Sides With Republicans in Political TV Ad Fight**\
 `The Trump administration had filed an emergency application asking the justices to intervene in a long-running dispute over political ad rates.`\
 https://www.nytimes.com/2026/10/14/us/politics/supreme-court-ads-political.html
