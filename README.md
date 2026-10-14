@@ -1,3 +1,7 @@
+**As Pope Leo Recovers From Surgery, Messages of Support Abound at Rome Hospital**\
+`Leo, 71, is expected to spend about a week in the hospital recovering from surgery that found lung cancer.`\
+https://www.nytimes.com/2026/10/14/world/europe/pope-leo-surgery-cancer-hospital-rome.html
+
 **Japan Protests Russia’s Detention of Journalist Accused of Spying**\
 `Tokyo summoned Russia’s ambassador after a Japanese reporter was arrested in Russia’s far east and accused of collecting military intelligence.`\
 https://www.nytimes.com/2026/10/14/world/asia/japan-protest-russia-detention-journalist.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/learning/word-of-the-day-hypnotize.html
 **Will Anyone Actually Ever Live to 200?**\
 `Some experts are optimistic that science will eventually find ways to extend life, but many longevity claims are unrealistic.`\
 https://www.nytimes.com/2026/10/14/well/live/humans-lifespan-limits-potential.html
-
-**Ballet Salon Is a New Home for Dancers Who Want to Return to the Stage**\
-`For many ballet dancers and former students, love of the art form endures even after they stop dancing. Ballet Salon was founded as a place for them to practice and perform at a high level.`\
-https://www.nytimes.com/2026/10/14/arts/dance/ballet-salon-dancers-gibney-theater.html
 
