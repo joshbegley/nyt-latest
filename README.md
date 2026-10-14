@@ -1,3 +1,11 @@
+**Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
+`As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
+https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
+
+**Stocks Tumble as Concerns Over Inflation and A.I. Investments Grow**\
+`The S&P 500 fell 1.1 percent on Wednesday, the steepest drop in more than two months.`\
+https://www.nytimes.com/2026/10/14/business/stocks-500-index-ai.html
+
 **Angry Youth in Aging Europe**\
 `A bitter generational battle over resources is boiling over as economic growth on the continent stalls.`\
 https://www.nytimes.com/2026/10/14/world/youth-aging-europe-pension-ukraine-starshield.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/14/business/economy/inflation-economy-midterms.h
 **They Created a Cell That’s Almost Alive. What to Do With It Now?**\
 `SpudCells may one day produce new medicines and materials. But first scientists have to improve them — and make sure they aren’t misused.`\
 https://www.nytimes.com/2026/10/14/science/spudcell-adamala-biotic.html
-
-**Rising Costs Push Necessities Out of Reach for Nearly Half of Americans**\
-`Inflation has made basic goods hard to afford and attitudes toward inequality have changed, studies from the Pew Research Center showed.`\
-https://www.nytimes.com/2026/10/14/business/economy/high-prices-cost-of-living-pew-research.html
-
-**Social Security COLA for 2027 Will Be 3.6%**\
-`The cost of living adjustment, or COLA, for next year will be the largest since 2023. Retirees will see the extra money in their benefit checks starting in January.`\
-https://www.nytimes.com/2026/10/14/business/social-security-cola-retirees.html
 
 **Texas Senate Race Tightens, Polls Show, Even as Talarico Keeps His Edge**\
 `(No description)`\
