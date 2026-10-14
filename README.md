@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/10/14/business/trump-lisa-cook-federal-reserve-hear
 `Three thieves broke into a private museum in central France and took off with a 330-pound book cover created by the surrealist master Salvador Dalí.`\
 https://www.nytimes.com/2026/10/14/world/europe/france-dali-theft.html
 
-**‘Digger’ Is a Flop. It’s Also the Best Climate Crisis Movie Ever Made.**\
-`The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
-https://www.nytimes.com/2026/10/14/opinion/digger-tom-cruise-movie-climate-flop.html
-
 **America Is in Decline, and Trump Is Leading the Fall**\
 `The old world order is fraying. Who gets to shape the next one?`\
 https://www.nytimes.com/2026/10/14/opinion/usa-decline-trump-global-powers.html
+
+**‘Digger’ Is a Flop. It’s Also the Best Climate Crisis Movie Ever Made.**\
+`The film has been panned by critics and shunned by audiences, but its message about the climate crisis is one we need to hear.`\
+https://www.nytimes.com/2026/10/14/opinion/digger-tom-cruise-movie-climate-flop.html
 
 **Indian Protesters Describe Rough Treatment by the Police**\
 `Some of those detained accused security forces of beating them during an intense crackdown on demonstrations in India’s capital over the weekend. Police have said they followed the law.`\
