@@ -1,3 +1,7 @@
+**Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
+`Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
+https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
+
 **Why Easing Sanctions on Russian Diesel Is Unlikely to Lower Fuel Costs**\
 `President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
 https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
