@@ -1,3 +1,7 @@
+**‘I’m Personally Sorry’: Cornell’s President Acknowledges Missteps**\
+`In an interview with The New York Times, Michael Kotlikoff addressed his administration’s handling of sexual assault accusations brought by a former student.`\
+https://www.nytimes.com/2026/10/13/nyregion/cornell-president-interview-missteps.html
+
 **Hochul and Blakeman in Heated Debate on Trump, Mamdani and High Prices**\
 `The two contenders for governor of New York clashed over issues that include data centers and immigration in a debate that reflected the contentious nature of their contest.`\
 https://www.nytimes.com/2026/10/13/nyregion/new-york-governor-debate-hochul-blakeman.html
