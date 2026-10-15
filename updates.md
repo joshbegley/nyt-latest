@@ -1,3 +1,19 @@
+**Where to Eat Like You’re in Hawaii (From 5,000 Miles Away)**\
+`Hawaiian food is scarce in New York City, but not so scarce that you can’t find some great options.`\
+https://www.nytimes.com/2026/10/15/dining/hawaiian-food-nyc.html
+
+**Hegseth’s Plan to Livestream Execution Drew Opposition From Many**\
+`A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
+https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
+
+**Gusty Winds, Hot Temperatures and Dry Air Raise Wildfire Risk in California**\
+`Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
+https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html
+
+**Trump Administration Sues California Over Voter Rolls**\
+`The lawsuit seeks to temporarily block the state from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-administration-california-voter-rolls.html
+
 **California Faces a Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
 `Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
 https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html

@@ -1,8 +1,12 @@
+**Ms., Martians and Guacamole: Their First Time in The Times**\
+`Our reporters share a compendium of debuts, discoveries and (sometimes overdue) appearances in the paper.`\
+https://www.nytimes.com/2026/10/15/us/175-anniversary-history-corrections-pulitzer-martian.html
+
 **Where to Eat Like You’re in Hawaii (From 5,000 Miles Away)**\
 `Hawaiian food is scarce in New York City, but not so scarce that you can’t find some great options.`\
 https://www.nytimes.com/2026/10/15/dining/hawaiian-food-nyc.html
 
-**Hegseth’s Plan to Livestream Execution Drew Opposition From Many**\
+**Many Figures Opposed Hegseth’s Plan to Livestream Fort Hood Shooter’s Execution**\
 `A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
 https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/climate/hfc-kigali-greenhouse-gases.html
 **Trump’s Democracy-for-Diesel Deal Shames Us All**\
 `The president’s arrangement to import Russian diesel fuel is one more example of how he has sold out American democracy.`\
 https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
-
-**New Guidelines Strongly Support Hormone Therapy for Common Menopause Symptoms**\
-`The American College of Obstetricians and Gynecologists said the benefits of the treatment outweigh the harms for many women.`\
-https://www.nytimes.com/2026/10/15/well/live/menopause-hormone-therapy-acog.html
 
