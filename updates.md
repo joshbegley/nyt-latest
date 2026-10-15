@@ -1,3 +1,11 @@
+**Trump’s Deal With Russia Inflames War He Vowed to Swiftly End**\
+`The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
+
+**Work to Lift Damaged Floors of Midtown High-Rise Is Set to Begin**\
+`The future of the office-to-residential conversion project, once one of New York City’s most ambitious, remains uncertain.`\
+https://www.nytimes.com/2026/10/15/nyregion/pfizer-building-columns-jacking.html
+
 **Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
 `In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
 https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html

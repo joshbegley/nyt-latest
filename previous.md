@@ -1,3 +1,11 @@
+**Trump’s Deal With Russia Inflames War He Vowed to Swiftly End**\
+`The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
+
+**Work to Lift Damaged Floors of Midtown High-Rise Is Set to Begin**\
+`The future of the office-to-residential conversion project, once one of New York City’s most ambitious, remains uncertain.`\
+https://www.nytimes.com/2026/10/15/nyregion/pfizer-building-columns-jacking.html
+
 **Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
 `In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
 https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
 **Who Is Ahead in New Mexico's 1st Congressional District?**\
 `Track the latest polls in New Mexico's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
-
-**Harvard Endowment Soars to $68 Billion Even as Federal Cuts Force Layoffs**\
-`The stock market has boosted Harvard’s wealth. But as federal funding slumps, the school is seeking corporate sponsors to underwrite research.`\
-https://www.nytimes.com/2026/10/15/us/harvard-endowment-soars.html
-
-**‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
-`Readers’ least favorite vegetables, and the recipes that changed their minds.`\
-https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
 
