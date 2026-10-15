@@ -1,3 +1,7 @@
+**Cornell’s President Grilled by Faculty Senate Over Handling of Crisis**\
+`Ahead of a vote on a resolution of no confidence in Michael I. Kotlikoff, some faculty members said they were not swayed by steps he announced on Tuesday, including banning fraternity parties.`\
+https://www.nytimes.com/2026/10/14/nyregion/cornell-president-faculty-senate-lawsuit-response.html
+
 **Appeals Court Blocks California Law Mandating I.D. for Federal Agents**\
 `The court said that California could not impose state requirements on federal law enforcement operations.`\
 https://www.nytimes.com/2026/10/14/us/court-blocks-california-ice-agent-id.html
