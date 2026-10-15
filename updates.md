@@ -1,3 +1,15 @@
+**These Legislatures Could See Big Changes in November**\
+`Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
+https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
+
+**Midterms Could Shift Focus of Epstein Abuse to Banks’ Role**\
+`With an eye on retaking control of Congress, Democrats are introducing a bill that would hold banks accountable for their handling of Jeffrey Epstein’s finances.`\
+https://www.nytimes.com/2026/10/15/business/epstein-banks-midterm-elections.html
+
+**A Fresh Take on Rembrandt Is Coming to the Met, Then Heading to the Louvre**\
+`The exhibition, with paintings new to the United States, opens in November 2027. The Met’s Facade and Great Hall commissions go to Danh Vo and Sandra Mujinga.`\
+https://www.nytimes.com/2026/10/15/arts/design/rembrandt-met-louvre-danh-vo-sandra-mujinga.html
+
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
 `The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans are facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html

@@ -1,3 +1,15 @@
+**These Legislatures Could See Big Changes in November**\
+`Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
+https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
+
+**Midterms Could Shift Focus of Epstein Abuse to Banks’ Role**\
+`With an eye on retaking control of Congress, Democrats are introducing a bill that would hold banks accountable for their handling of Jeffrey Epstein’s finances.`\
+https://www.nytimes.com/2026/10/15/business/epstein-banks-midterm-elections.html
+
+**A Fresh Take on Rembrandt Is Coming to the Met, Then Heading to the Louvre**\
+`The exhibition, with paintings new to the United States, opens in November 2027. The Met’s Facade and Great Hall commissions go to Danh Vo and Sandra Mujinga.`\
+https://www.nytimes.com/2026/10/15/arts/design/rembrandt-met-louvre-danh-vo-sandra-mujinga.html
+
 **Get ‘Aligned’ or Get Out of the Way**\
 `Whether an A.I. or a human, you’re encouraged to be aligned. How did we get here?`\
 https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/15/movies/marjoe-gortner-dead.html
 **Readers Offer Lessons on the Way to 100**\
 `We asked people who aspire to live long lives about how they hoped to do it and who might have inspired them along the way.`\
 https://www.nytimes.com/2026/10/15/health/longevity-aging-experiences.html
-
-**Book Review: ‘A Dead White,’ by Wendy S. Walters**\
-`A meandering manifesto illustrates the challenges of building cultural criticism on big reading and decadent contrariness.`\
-https://www.nytimes.com/2026/10/15/books/review/a-dead-white-wendy-walters.html
-
-**Relaxed, Uncomplicated Men’s Tailoring for Fall**\
-`Thanks to relaxed tailoring and a neutral palette, the season’s looks are refreshingly uncomplicated.`\
-https://www.nytimes.com/2026/10/15/t-magazine/mens-fall-relaxed-fashion.html
-
-**The Thrillingly Intricate Art of Cut Paper**\
-`A new generation is putting a fresh — and sometimes subversive — spin on the ancient practice.`\
-https://www.nytimes.com/2026/10/15/t-magazine/cut-paper-art.html
 

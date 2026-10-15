@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/10/15/realestate/housing-market-near-nyc.html
 https://www.nytimes.com/2026/10/15/realestate/housing-market-nyc.html
 
 **36 Hours in Tunis: Things to Do and See**\
-`Tunisia’s capital is awash in wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
+`Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
 https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
 
 **An Architect’s South Pasadena Retreat Is for Sale for $4.2 Million**\
