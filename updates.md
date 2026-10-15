@@ -1,3 +1,19 @@
+**‘Our Very Existence Is on the Ballot’**\
+`Extreme gerrymandering permitted by the Supreme Court threatens to roll back decades of hard-won civil rights progress. We spoke to six Black lawmakers about what’s truly at stake.`\
+https://www.nytimes.com/video/opinion/100000011216076/our-very-existence-is-on-the-ballot.html
+
+**At Art Basel Paris and Beyond, Celebrating 200 Years of Photography**\
+`Several artists at Art Basel Paris are honoring photography’s origins as France hosts hundreds of events to celebrate the medium’s bicentennial.`\
+https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-photography-bicentennial.html
+
+**What Else to Check Out During Art Basel Paris**\
+`Marie Antoinette, Cézanne and more await you if you step off the beaten path at the Paris art fair.`\
+https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-events.html
+
+**Trump Cancels Planned Execution Livestream of Nidal Hasan, Fort Hood Shooter**\
+`The president said only immediate families of the victims of the mass shooting in 2009 would witness the execution of Maj. Nidal Malik Hasan.`\
+https://www.nytimes.com/2026/10/15/us/trump-hasan-fort-hood-execution-livestream.html
+
 **An Angry Judge and a Maybe-Lawyer in the Briefing Room**\
 `A roundup of legal news from the past week.`\
 https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.html

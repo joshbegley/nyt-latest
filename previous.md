@@ -1,3 +1,15 @@
+**‘Our Very Existence Is on the Ballot’**\
+`Extreme gerrymandering permitted by the Supreme Court threatens to roll back decades of hard-won civil rights progress. We spoke to six Black lawmakers about what’s truly at stake.`\
+https://www.nytimes.com/video/opinion/100000011216076/our-very-existence-is-on-the-ballot.html
+
+**At Art Basel Paris and Beyond, Celebrating 200 Years of Photography**\
+`Several artists at Art Basel Paris are honoring photography’s origins as France hosts hundreds of events to celebrate the medium’s bicentennial.`\
+https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-photography-bicentennial.html
+
+**What Else to Check Out During Art Basel Paris**\
+`Marie Antoinette, Cézanne and more await you if you step off the beaten path at the Paris art fair.`\
+https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-events.html
+
 **An Angry Judge and a Maybe-Lawyer in the Briefing Room**\
 `A roundup of legal news from the past week.`\
 https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.html
@@ -74,7 +86,7 @@ https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html
 `The move will force a vote on the agreement after the midterm elections, though it faces steep odds in the Republican-controlled Congress even amid bipartisan concern about the deal.`\
 https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
 
-**Trump Cancels Planned Livestream of Fort Hood Shooter’s Execution**\
+**Trump Cancels Planned Execution Livestream of Nidal Hasan, Fort Hood Shooter**\
 `The president said only immediate families of the victims of the mass shooting in 2009 would witness the execution of Maj. Nidal Malik Hasan.`\
 https://www.nytimes.com/2026/10/15/us/trump-hasan-fort-hood-execution-livestream.html
 
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
 **Russia Was Losing. Enter President Trump.**\
 `The commander in chief is Putin’s ace in the hole.`\
 https://www.nytimes.com/2026/10/15/opinion/trump-russia-diesel-ukraine.html
-
-**A Blue Wave? A Blue Tsunami? Or Just Blue Sprinklers?**\
-`There is a chance that Democratic optimism is over the rainbow.`\
-https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
-
-**Gulf Oil Is Still Flowing Despite a Surge in Attacks on Ships**\
-`Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
-https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
-
-**As Early Midterm Voting Looms, a Glitch Delays 600,000 Texas Voter Registrations**\
-`Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
-https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
 
