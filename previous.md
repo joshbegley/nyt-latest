@@ -1,3 +1,7 @@
+**Understanding a Home’s Fire Risk**\
+`The ratings on real estate sites that try to convey the risk of burning in a wildfire may overcomplicate or misrepresent the risk.`\
+https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
+
 **Ms., Martians and Guacamole: Their First Time in The Times**\
 `Our reporters share a compendium of debuts, discoveries and (sometimes overdue) appearances in the paper.`\
 https://www.nytimes.com/2026/10/15/us/175-anniversary-history-corrections-pulitzer-martian.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-co
 **How One Global Climate Deal Worked ‘Perfectly’ as Others Faltered**\
 `In just a decade, the world has slashed super-polluting chemicals used in air-conditioners and fridges. Experts say the pact offers a model for cooperation on warming.`\
 https://www.nytimes.com/2026/10/15/climate/hfc-kigali-greenhouse-gases.html
-
-**Trump’s Democracy-for-Diesel Deal Shames Us All**\
-`The president’s arrangement to import Russian diesel fuel is one more example of how he has sold out American democracy.`\
-https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
 

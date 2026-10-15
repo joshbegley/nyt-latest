@@ -1,3 +1,7 @@
+**Understanding a Home’s Fire Risk**\
+`The ratings on real estate sites that try to convey the risk of burning in a wildfire may overcomplicate or misrepresent the risk.`\
+https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
+
 **Ms., Martians and Guacamole: Their First Time in The Times**\
 `Our reporters share a compendium of debuts, discoveries and (sometimes overdue) appearances in the paper.`\
 https://www.nytimes.com/2026/10/15/us/175-anniversary-history-corrections-pulitzer-martian.html
