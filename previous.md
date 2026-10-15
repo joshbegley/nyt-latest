@@ -48,7 +48,7 @@ https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-re
 
 **Chicano, Gay and Still Inspiring Connections**\
 `At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
-https://www.nytimes.com/2026/10/15/arts/design/chicano-gay-and-still-inspiring-connections.html
+https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandoval.html
 
 **What Teenagers Are Saying About the Cornell Sexual Assault Case**\
 `Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\

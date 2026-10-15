@@ -1,3 +1,7 @@
+**Chicano, Gay and Still Inspiring Connections**\
+`At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
+https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandoval.html
+
 **Vance Rallies in Michigan as Ocasio-Cortez Starts Bus Tour With El-Sayed**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/15/us/midterms-elections
