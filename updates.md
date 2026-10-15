@@ -1,3 +1,23 @@
+**Vance Rallies in Michigan as Ocasio-Cortez Starts Bus Tour With El-Sayed**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/15/us/midterms-elections
+
+**A Reader on What He Thinks We Get Wrong About Trump**\
+`In this first installment of “Sound Off,” Patrick Healy, assistant managing editor for The New York Times, speaks with Mark Jacob, former metro editor for The Chicago Tribune, who shares his criticism of Times coverage.`\
+https://www.nytimes.com/video/insider/100000011213260/a-reader-on-what-he-thinks-we-get-wrong-about-trump.html
+
+**Nazi-Looted Kandinsky Painting Sells for $42 Million at Auction**\
+`“The Colorful Life,” a 1907 work by the Russian painter Wassily Kandinsky, had been returned to the original owners’ heirs in 2023.`\
+https://www.nytimes.com/2026/10/15/world/europe/kandinsky-nazi-looted-art-auction.html
+
+**Shook Research Changes Name to Veritant After Forbes Scandal**\
+`The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
+https://www.nytimes.com/2026/10/15/business/media/shook-research-veritant-forbes.html
+
+**As Early Midterm Voting Looms, a Glitch Delays 600,000 Texas Voter Registrations**\
+`Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
+https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
+
 **36 Hours in Tunis: Things to Do and See**\
 `Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
 https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html

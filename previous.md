@@ -1,3 +1,15 @@
+**Vance Rallies in Michigan as Ocasio-Cortez Starts Bus Tour With El-Sayed**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/15/us/midterms-elections
+
+**A Reader on What He Thinks We Get Wrong About Trump**\
+`In this first installment of “Sound Off,” Patrick Healy, assistant managing editor for The New York Times, speaks with Mark Jacob, former metro editor for The Chicago Tribune, who shares his criticism of Times coverage.`\
+https://www.nytimes.com/video/insider/100000011213260/a-reader-on-what-he-thinks-we-get-wrong-about-trump.html
+
+**Nazi-Looted Kandinsky Painting Sells for $42 Million at Auction**\
+`“The Colorful Life,” a 1907 work by the Russian painter Wassily Kandinsky, had been returned to the original owners’ heirs in 2023.`\
+https://www.nytimes.com/2026/10/15/world/europe/kandinsky-nazi-looted-art-auction.html
+
 **These Legislatures Could See Big Changes in November**\
 `Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
 https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
@@ -20,7 +32,7 @@ https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.htm
 
 **Shook Research Changes Name to Veritant After Forbes Scandal**\
 `The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
-https://www.nytimes.com/2026/10/15/business/media/shook-research-changes-name-to-veritant-after-forbes-scandal.html
+https://www.nytimes.com/2026/10/15/business/media/shook-research-veritant-forbes.html
 
 **At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
 `Reporters often offer the only independent account of what happens inside a death chamber.`\
@@ -86,7 +98,7 @@ https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave
 `Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
 https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
 
-**Glitch Delays 600,000 Voter Registrations in Texas as Early Voting Looms**\
+**As Early Midterm Voting Looms, a Glitch Delays 600,000 Texas Voter Registrations**\
 `Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
 https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
 
@@ -177,20 +189,4 @@ https://www.nytimes.com/2026/10/15/movies/bola-negra-review.html
 **‘California Schemin’’ Review: Two Lads Take the Low Road to Fame**\
 `A hip-hop duo from Scotland tries to convince U.K. record executives that they hail from Los Angeles in this film, based on a true story.`\
 https://www.nytimes.com/2026/10/15/movies/california-schemin-review.html
-
-**In Divided Portland, Ore., Anti-Police Posts Fuel a Fight Over the Future**\
-`When social media posts denouncing the police surfaced, they were supposed to harm a socialist’s re-election. But the democratic socialists of Portland, and other cities, are showing their strength.`\
-https://www.nytimes.com/2026/10/15/us/politics/portland-oregon-dsa-socialism-police.html
-
-**‘Love of Your Life’ Review: Living Through Heartbreak**\
-`Margaret Qualley plays a nurse in Boston who finds love and then loses it in this fine romantic tragedy.`\
-https://www.nytimes.com/2026/10/15/movies/love-of-your-life-review.html
-
-**Marjoe Gortner, Evangelist Preacher Who Roused the Faithful and Then Exposed the Con, Dies at 82.**\
-`An ordained minister at 4, Marjoe Gortner went on to star in a documentary that revealed the flimflammery of his former profession: “You go into it like a business.”`\
-https://www.nytimes.com/2026/10/15/movies/marjoe-gortner-dead.html
-
-**Readers Offer Lessons on the Way to 100**\
-`We asked people who aspire to live long lives about how they hoped to do it and who might have inspired them along the way.`\
-https://www.nytimes.com/2026/10/15/health/longevity-aging-experiences.html
 
