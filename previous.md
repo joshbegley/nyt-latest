@@ -22,7 +22,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 `President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
-**Live Updates: At Least 2 People Are Shot at an Elementary School in Oregon**\
+**Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
 `The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.ht
 `Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria, who had held the job since 2023.`\
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
 
-**Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
+**Venezuela’s Opposition Leader Calls Trump’s New Oil Partner Corrupt**\
 `As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
 https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
 

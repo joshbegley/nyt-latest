@@ -1,3 +1,11 @@
+**Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
+`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
+**Venezuela’s Opposition Leader Calls Trump’s New Oil Partner Corrupt**\
+`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
+https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
+
 **Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
 `Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
 https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
