@@ -1,3 +1,19 @@
+**Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
+`Jocelyn Bioh’s “School Girls; or The African Mean Girls Play” has audiences laughing, but also wrestles with weighty topics like colorism.`\
+https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mean-girls.html
+
+**Who Is Ahead in New Mexico's 3rd Congressional District?**\
+`Track the latest polls in New Mexico's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
+
+**Who Is Ahead in New Mexico's 1st Congressional District?**\
+`Track the latest polls in New Mexico's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
+
+**Harvard Endowment Soars to $68 Billion Even as Federal Cuts Force Layoffs**\
+`The stock market has boosted Harvard’s wealth. But as federal funding slumps, the school is seeking corporate sponsors to underwrite research.`\
+https://www.nytimes.com/2026/10/15/us/harvard-endowment-soars.html
+
 **‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
 `Readers’ least favorite vegetables, and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stoc
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
 `The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans are facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
-
-**Chicano, Gay and Still Inspiring Connections**\
-`At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
-https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandoval.html
-
-**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
-`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
-https://www.nytimes.com/2026/10/15/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
-
-**Choosin’ Texas**\
-`We look at the costliest race in America.`\
-https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
-
-**Tech Stocks Drop Further Amid Doubts Over AI Spending**\
-`Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
-https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
 

@@ -1,3 +1,19 @@
+**Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
+`Jocelyn Bioh’s “School Girls; or The African Mean Girls Play” has audiences laughing, but also wrestles with weighty topics like colorism.`\
+https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mean-girls.html
+
+**Who Is Ahead in New Mexico's 3rd Congressional District?**\
+`Track the latest polls in New Mexico's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
+
+**Who Is Ahead in New Mexico's 1st Congressional District?**\
+`Track the latest polls in New Mexico's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
+
+**Harvard Endowment Soars to $68 Billion Even as Federal Cuts Force Layoffs**\
+`The stock market has boosted Harvard’s wealth. But as federal funding slumps, the school is seeking corporate sponsors to underwrite research.`\
+https://www.nytimes.com/2026/10/15/us/harvard-endowment-soars.html
+
 **‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
 `Readers’ least favorite vegetables, and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
