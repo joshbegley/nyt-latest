@@ -1,3 +1,15 @@
+**A.I. Is Making Us Antisocial**\
+`From social media to short-form content, the communication technologies we use shape how we think and see one another. On “The Ezra Klein Show,” the sociologist Sherry Turkle explains how A.I. is “deskilling” our ability to deal with one another.`\
+https://www.nytimes.com/video/opinion/100000011206645/ai-is-making-us-antisocial.html
+
+**OpenAI Engineer, Who Is Charged With Planting Bug, Advised Saudis**\
+`The employee, now fired, had said he advised government agencies in Saudi Arabia. He was also listed as a partner at a venture firm with a Saudi prince.`\
+https://www.nytimes.com/2026/10/14/technology/openai-engineer-hidden-device-saudi-government.html
+
+**‘Hurry!’**\
+`McKay Fritz’s debut crossword is right on the mark.`\
+https://www.nytimes.com/2026/10/14/crosswords/daily-puzzle-2026-10-15.html
+
 **Can A.I. Care for You?**\
 `Is the relationship you have with A.I. akin to what you have with a pet? On “The Ezra Klein Show,” the sociologist Sherry Turkle argues that caring for an A.I. is like “entering a shell game.”`\
 https://www.nytimes.com/video/opinion/100000011206643/can-ai-care-for-you.html
