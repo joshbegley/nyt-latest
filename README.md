@@ -1,3 +1,7 @@
+**An Angry Judge and a Maybe-Lawyer in the Briefing Room**\
+`A roundup of legal news from the past week.`\
+https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.html
+
 **Mortgage Rates Hover at 7.4%, Highest Since 2023**\
 `The average 30-year, fixed-rate mortgage has steadily risen in recent weeks, compounding affordability challenges for many Americans.`\
 https://www.nytimes.com/2026/10/15/business/economy/mortgage-rates-home-buying.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
 **As Early Midterm Voting Looms, a Glitch Delays 600,000 Texas Voter Registrations**\
 `Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
 https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
-
-**Hollywood Has a New Villain: The Tech Mogul**\
-`The tech world has eaten legacy Hollywood, humbled it, beaten it at its own game.`\
-https://www.nytimes.com/2026/10/15/opinion/hollywood-musk-zuckerberg-altman-social-reckoning.html
 
