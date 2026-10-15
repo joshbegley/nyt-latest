@@ -1,6 +1,6 @@
-**California Faces Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
+**California Faces a Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
 `Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
-https://www.nytimes.com/2026/10/15/weather/california-faces-combustible-mix-of-very-dry-air-and-75-mph-wind-gusts.html
+https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html
 
 **Trump Administration Sues California Over Voter Rolls**\
 `The lawsuit is seeking to block the state temporarily from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
