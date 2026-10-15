@@ -1,3 +1,7 @@
+**Yemen Says Prime Minister Unhurt After Iran-Backed Houthis Strike Palace**\
+`Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
+https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
+
 **Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
 `Jocelyn Bioh’s “School Girls; or The African Mean Girls Play” has audiences laughing, but also wrestles with weighty topics like colorism.`\
 https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mean-girls.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
 **The Fallout From the ‘Neocloud’ Wipeout**\
 `Investors are newly worried about the health of artificial intelligence infrastructure companies like CoreWeave. That’s weighing on the wider A.I. industry.`\
 https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stocks.html
-
-**Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
-`The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans are facing.`\
-https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
 
