@@ -1,3 +1,11 @@
+**More Than 30 Children Killed After School Roof Collapse in Pakistan**\
+`A roof collapsed at a school in Peshawar, Pakistan, killing more than 30 children and one teacher, the local authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-collapse-children-deaths.html
+
+**How One Global Climate Deal Worked ‘Perfectly’ as Others Faltered**\
+`In just a decade, the world has slashed super-polluting chemicals used in air-conditioners and fridges. Experts say the pact offers a model for cooperation on warming.`\
+https://www.nytimes.com/2026/10/15/climate/hfc-kigali-greenhouse-gases.html
+
 **Trump’s Democracy-for-Diesel Deal Shames Us All**\
 `The president’s arrangement to import Russian diesel fuel is one more example of how he has sold out American democracy.`\
 https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/15/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are in Kips Bay, Greenwich Village and on the Grand Concourse.`\
 https://www.nytimes.com/2026/10/15/realestate/housing-market-nyc.html
-
-**36 Hours in Tunis, Tunisia: Things to Do and See**\
-`Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
-https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
-
-**An Architect’s South Pasadena Retreat Is for Sale for $4.2 Million**\
-`The home of Bob Ray Offenhauser, known for his countless grand estates, is on the market for $4.2 million.`\
-https://www.nytimes.com/2026/10/15/realestate/an-architects-personal-jewel-box-is-for-sale-in-south-pasadena.html
 
