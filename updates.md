@@ -1,3 +1,7 @@
+**North Korea and China Open Their Biggest Border Bridge**\
+`The long-delayed opening of the New Yalu River Bridge comes as the two countries expand trade despite international sanctions imposed on North Korea.`\
+https://www.nytimes.com/2026/10/15/world/asia/north-korea-china-bridge-yalu.html
+
 **While Leo Recovers From Lung Surgery, the Church Runs on Autopilot**\
 `The Vatican bureaucracy has been fine-tuned over hundreds of years to function smoothly even when the pope cannot.`\
 https://www.nytimes.com/2026/10/15/world/europe/while-leo-recovers-from-lung-surgery-the-church-runs-on-autopilot.html
