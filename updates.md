@@ -1,3 +1,11 @@
+**Agents Who Rammed Worker Were After Man Who Died Years Ago, Family Says**\
+`An ICE operation in Houston left a Mexican man struck and injured by an S.U.V., but a bulletin of the target shows a man who died in 2017, his daughter said.`\
+https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
+
+**Hilary Swank Is Having Her Third Child at 52**\
+`The “Million Dollar Baby” star joins a growing cohort of celebrities having children later in life.`\
+https://www.nytimes.com/2026/10/15/style/hilary-swank-pregnancy.html
+
 **Senators Demand Investigation Into Ukraine Satellite Disruption**\
 `Republicans joined Democrats in calling on the Pentagon’s inspector general to look into whether the Trump administration was responsible for the interruption.`\
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-satellite-intelligence-investigation-senate.html

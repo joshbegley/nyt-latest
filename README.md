@@ -1,4 +1,4 @@
-**Agents Who Rammed Worker Were After Man Who Died Years Ago, Family Says**\
+**ICE Agents Who Rammed Worker Were Chasing Man Dead 9 Years, Family Says**\
 `An ICE operation in Houston left a Mexican man struck and injured by an S.U.V., but a bulletin of the target shows a man who died in 2017, his daughter said.`\
 https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
 
