@@ -1,3 +1,11 @@
+**How We Reported on the Cornell Case**\
+`In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
+https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
+
+**NYC School Aide Says He Paid Bus Fare Before MTA Officers Tackled Him**\
+`A Brooklyn school aide said transit workers assaulted him after asking whether he had paid. The incident was captured on a deli’s surveillance camera.`\
+https://www.nytimes.com/2026/10/15/nyregion/mta-bus-assault-kyle-taylor-nyc.html
+
 **Tech Stocks Drop Further Amid Doubts Over AI Spending**\
 `Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
 https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html

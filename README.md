@@ -1,3 +1,7 @@
+**‘Once Upon a Time in Harlem’ Review: A Renaissance of Their Own**\
+`The Black luminaries who turned 1920s Harlem into a hub of artistic expression gathered decades later to reminisce. It was a house party for the ages.`\
+https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
+
 **How We Reported on the Cornell Case**\
 `In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
 https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
 **The Republican Strategy to Salvage the Midterms**\
 `The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
 https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html
-
-**Inflation Data Undercuts Trump’s Economic Claims, and the Danger of New Jet-Powered Drones**\
-`Plus, the legacy of a competitive eating champion.`\
-https://www.nytimes.com/2026/10/15/podcasts/the-headlines/inflation-jet-powered-drones.html
 

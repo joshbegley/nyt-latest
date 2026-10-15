@@ -1,3 +1,11 @@
+**How We Reported on the Cornell Case**\
+`In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
+https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
+
+**NYC School Aide Says He Paid Bus Fare Before MTA Officers Tackled Him**\
+`A Brooklyn school aide said transit workers assaulted him after asking whether he had paid. The incident was captured on a deli’s surveillance camera.`\
+https://www.nytimes.com/2026/10/15/nyregion/mta-bus-assault-kyle-taylor-nyc.html
+
 **Violent Protests in Albania**\
 `Opposition to a luxury resort project linked to Jared Kushner has collided with rising discontent over corruption and the cost of living.`\
 https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midter
 **Inflation Data Undercuts Trump’s Economic Claims, and the Danger of New Jet-Powered Drones**\
 `Plus, the legacy of a competitive eating champion.`\
 https://www.nytimes.com/2026/10/15/podcasts/the-headlines/inflation-jet-powered-drones.html
-
-**NYT Connections Answers for October 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
-https://www.nytimes.com/2026/10/15/crosswords/connections-companion-1223.html
-
-**Today’s Wordle Hints for October 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
-https://www.nytimes.com/2026/10/15/crosswords/wordle-review-1945.html
 
