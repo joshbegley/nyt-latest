@@ -1,3 +1,19 @@
+**Justice Department Sues California Over Voter Rolls**\
+`Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
+
+**Teen Arrested Over Plan to Attack Hindu Temple, Officials Say**\
+`The suspect in suburban Chicago was in the parking lot of the temple on Sunday and told a co-worker that his gun had jammed, the authorities said.`\
+https://www.nytimes.com/2026/10/15/us/hindu-temple-chicago-arrest.html
+
+**Students Join Protest Demanding Albania Prime Minister’s Resignation**\
+`Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
+https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
+
+**Houthi Missiles Strike Government Headquarters in Yemen**\
+`Five people were killed when the Houthi militia struck the Maashiq Palace in Aden, a Yemeni minister said.`\
+https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
+
 **Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
 `A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
 https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html

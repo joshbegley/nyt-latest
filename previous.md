@@ -1,3 +1,15 @@
+**Justice Department Sues California Over Voter Rolls**\
+`Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
+
+**Teen Arrested Over Plan to Attack Hindu Temple, Officials Say**\
+`The suspect in suburban Chicago was in the parking lot of the temple on Sunday and told a co-worker that his gun had jammed, the authorities said.`\
+https://www.nytimes.com/2026/10/15/us/hindu-temple-chicago-arrest.html
+
+**Students Join Protest Demanding Albania Prime Minister’s Resignation**\
+`Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
+https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
+
 **Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
 `A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
 https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
@@ -110,8 +122,8 @@ https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.ht
 `Federal law enforcement officials said they were investigating a series of letters mailed to members of Congress and secretaries of state in recent days.`\
 https://www.nytimes.com/2026/10/15/us/senators-election-officials-mail-suspicious-substances.html
 
-**Iran-Backed Houthis Strike Presidential Palace, Yemen Says**\
-`Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
+**Houthi Missiles Strike Government Headquarters in Yemen**\
+`Five people were killed when the Houthi militia struck the Maashiq Palace in Aden, a Yemeni minister said.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
 
 **Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/15/movies/street-fighter-review.html
 **For Contemporary Art, the Large Center Is a Big Deal**\
 `The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
 https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
-
-**Cargo Floats in Strait of Hormuz as Iranian Shipping Attacks Rise**\
-`Footage shows small boats gathered around floating shipping containers after a Singapore-flagged cargo ship sank near the Strait of Hormuz on Wednesday. Analysts say Iran has ramped up its attacks on ships passing through the vital waterway.`\
-https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-containers-cargo-ship.html
-
-**Data Centers Become Targets in Wars in Ukraine, Russia and the Middle East**\
-`Military forces have sought to damage the computing hubs that power online services and artificial intelligence systems.`\
-https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
-
-**Cornell in Crisis**\
-`Also, a parade of women exit the Trump administration.`\
-https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
 
