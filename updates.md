@@ -1,3 +1,15 @@
+**How Trump Is Trying to Assert Control Over the Election**\
+`Many election officials fear that the Trump administration is laying the groundwork to challenge the midterm results in November if they do not favor Republicans. Our White House correspondent Zolan Kanno-Youngs describes what the administration is doing.`\
+https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-control-over-the-election.html
+
+**Dublin Hotel Accused of Revoking Bookings for an Event to Combat Antisemitism**\
+`A leader of the Jewish community in Ireland said a hotel canceled a deal for 70 rooms when it learned they were reserved for guests attending the international forum.`\
+https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitism.html
+
+**Hurricane Trudy is the Latest in an Unusual Pacific Hurricane Season**\
+`The Pacific Ocean is seeing more storms, and stronger storms, than usual. Here’s what’s going on (and how it all traces back to El Niño).`\
+https://www.nytimes.com/2026/10/15/weather/hurricane-trudy-pacific-season-facts-records.html
+
 **Mamdani Taps His Social Media Charm on Behalf of Hochul, a Crucial Ally**\
 `Mayor Zohran Mamdani’s first campaign video for Gov. Kathy Hochul, in which he attacks her Republican rival, Bruce Blakeman, has some of the mayor’s hallmark appeal, but a bit less pizazz.`\
 https://www.nytimes.com/2026/10/15/nyregion/hochul-mamdani-blakeman-election-campaign-ny-governor.html

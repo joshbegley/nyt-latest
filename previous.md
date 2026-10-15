@@ -1,3 +1,15 @@
+**How Trump Is Trying to Assert Control Over the Election**\
+`Many election officials fear that the Trump administration is laying the groundwork to challenge the midterm results in November if they do not favor Republicans. Our White House correspondent Zolan Kanno-Youngs describes what the administration is doing.`\
+https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-control-over-the-election.html
+
+**Dublin Hotel Accused of Revoking Bookings for an Event to Combat Antisemitism**\
+`A leader of the Jewish community in Ireland said a hotel canceled a deal for 70 rooms when it learned they were reserved for guests attending the international forum.`\
+https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitism.html
+
+**Hurricane Trudy is the Latest in an Unusual Pacific Hurricane Season**\
+`The Pacific Ocean is seeing more storms, and stronger storms, than usual. Here’s what’s going on (and how it all traces back to El Niño).`\
+https://www.nytimes.com/2026/10/15/weather/hurricane-trudy-pacific-season-facts-records.html
+
 **Mamdani Taps His Social Media Charm on Behalf of Hochul, a Crucial Ally**\
 `Mayor Zohran Mamdani’s first campaign video for Gov. Kathy Hochul, in which he attacks her Republican rival, Bruce Blakeman, has some of the mayor’s hallmark appeal, but a bit less pizazz.`\
 https://www.nytimes.com/2026/10/15/nyregion/hochul-mamdani-blakeman-election-campaign-ny-governor.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-tro
 **El-Sayed and Ocasio-Cortez Blitz Upper Michigan as Vance Heads Downstate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/15/us/midterms-elections
-
-**A Reader on What He Thinks We Get Wrong About Trump**\
-`In this first installment of “Sound Off,” Patrick Healy, assistant managing editor for The New York Times, speaks with Mark Jacob, former metro editor for The Chicago Tribune, who shares his criticism of Times coverage.`\
-https://www.nytimes.com/video/insider/100000011213260/a-reader-on-what-he-thinks-we-get-wrong-about-trump.html
-
-**Nazi-Looted Kandinsky Painting Sells for $42 Million at Auction**\
-`“The Colorful Life,” a 1907 work by the Russian painter Wassily Kandinsky, had been returned to the original owners’ heirs in 2023.`\
-https://www.nytimes.com/2026/10/15/world/europe/kandinsky-nazi-looted-art-auction.html
-
-**These Legislatures Could See Big Changes in November**\
-`Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
-https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
 
