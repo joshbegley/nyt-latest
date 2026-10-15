@@ -1,3 +1,7 @@
+**Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
+`A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
+https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
+
 **ICE Agents Who Rammed a Worker in Houston Were Chasing a Dead Man, Family Says**\
 `An ICE operation in Houston left a Mexican man struck and injured by an S.U.V., but a bulletin of the target shows a man who died in 2017, his daughter said.`\
 https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
 **Cornell in Crisis**\
 `Also, a parade of women exit the Trump administration.`\
 https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
-
-**Zelensky Says Trump Is on ‘Wrong Side’ of History**\
-`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with the Kremlin, while Russia continues its campaign of striking Ukrainian energy infrastructure before winter.`\
-https://www.nytimes.com/video/world/europe/100000011215483/zelensky-trump-russia-energy-strikes.html
 
