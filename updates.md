@@ -1,3 +1,7 @@
+**Netflix Replaces Bela Bajaria as Chief Content Officer**\
+`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
+https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
+
 **At Least 2 People Are Shot at an Elementary School in Oregon**\
 `The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
 https://www.nytimes.com/2026/10/15/us/bend-oregon-school-shooting.html

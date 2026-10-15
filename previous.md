@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/15/us/bend-oregon-school-shooting.html
 `A guide to the states where legislatures are up for grabs.`\
 https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.html
 
-**Netflix Shakes Up Top Ranks, Replacing Its Chief Content Officer**\
+**Netflix Replaces Bela Bajaria as Chief Content Officer**\
 `Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
 
