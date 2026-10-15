@@ -1,3 +1,11 @@
+**Iran-Backed Houthis Strike Presidential Palace, Yemen Says**\
+`Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
+https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
+
+**Zelensky Says Trump Is on ‘Wrong Side’ of History**\
+`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with the Kremlin, while Russia continues its campaign of striking Ukrainian energy infrastructure before winter.`\
+https://www.nytimes.com/video/world/europe/100000011215483/zelensky-trump-russia-energy-strikes.html
+
 **20 Hours After Falling Overboard, Cruise Passenger Is Rescued Near Greece**\
 `According to Greek officials, the woman told her rescuers she had jumped off the ship because she “wanted to disembark.”`\
 https://www.nytimes.com/2026/10/15/travel/cruise-passenger-overboard-rescue-greece.html

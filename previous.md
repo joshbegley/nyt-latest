@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.ht
 `Federal law enforcement officials said they were investigating a series of letters mailed to members of Congress and secretaries of state in recent days.`\
 https://www.nytimes.com/2026/10/15/us/senators-election-officials-mail-suspicious-substances.html
 
-**Yemen Says Prime Minister Unhurt After Iran-Backed Houthis Strike Palace**\
+**Iran-Backed Houthis Strike Presidential Palace, Yemen Says**\
 `Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
 
@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
 https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
 
 **Zelensky Says Trump Is on ‘Wrong Side’ of History**\
-`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with Russia as the country continued its campaign of striking Ukrainian energy infrastructure before winter.`\
+`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with the Kremlin, while Russia continues its campaign of striking Ukrainian energy infrastructure before winter.`\
 https://www.nytimes.com/video/world/europe/100000011215483/zelensky-trump-russia-energy-strikes.html
 
 **Maps: Tracking Tropical Storm Champi**\
