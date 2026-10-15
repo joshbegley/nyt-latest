@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
 https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stocks.html
 
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
-`The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans were facing.`\
+`The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans are facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
 
 **Chicano, Gay and Still Inspiring Connections**\
