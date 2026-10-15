@@ -1,3 +1,15 @@
+**How Claims of Widespread Noncitizen Voting Fall Apart**\
+`Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
+https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
+
+**Dwarkesh Patel’s Prediction for 2030**\
+`A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
+https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
+
+**Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
+`The police in Bend, Ore., said the suspect, who was also dead, was killed, possibly by an armed bystander.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
 `The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school

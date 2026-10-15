@@ -1,8 +1,12 @@
+**How Claims of Widespread Noncitizen Voting Fall Apart**\
+`Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
+https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
+
 **Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
 `Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
 https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
 
-**Dwarkesh Patel: A.I. Will Be Autonomous in Three Years**\
+**Dwarkesh Patel’s Prediction for 2030**\
 `A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
 https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
 
@@ -23,7 +27,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
 **Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
-`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
+`The police in Bend, Ore., said the suspect, who was also dead, was killed, possibly by an armed bystander.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprou
 **‘Once Upon a Time in Harlem’ Review: A Renaissance of Their Own**\
 `The Black luminaries who turned 1920s Harlem into a hub of artistic expression gathered decades later to reminisce. It was a house party for the ages.`\
 https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
-
-**How We Reported on the Cornell Case**\
-`In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
-https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
 
