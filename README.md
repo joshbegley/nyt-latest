@@ -1,3 +1,7 @@
+**Zelensky Says Ukraine Will Resume Strikes on Russian Oil Refineries**\
+`President Volodymyr Zelensky made the announcement in an interview with The Financial Times. He had paused the strikes to comply with a demand from the United States.`\
+https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html
+
 **Trump’s New Press Secretary Faces Scrutiny Over Credentials**\
 `President Trump called Katie Zacharia, his new press secretary, an “attorney” on Tuesday, creating confusion about her credentials.`\
 https://www.nytimes.com/video/us/politics/100000011215220/trump-press-secretary-katie-zacharia-lawyer.html
@@ -154,8 +158,8 @@ https://www.nytimes.com/2026/10/14/well/pope-lung-cancer-screening.html
 `The famous Fifth Avenue hotel, which opened in 1907, requires a restoration of its exterior, its operators said. It was not clear if residents of the building’s condos would have to leave.`\
 https://www.nytimes.com/2026/10/14/nyregion/the-plaza-hotel-closes-temporarily-nyc.html
 
-**The Brooklyn Toy Store at the Center of the Kelly Clarkson Online Frenzy**\
-`Art of Play, a novelty store in Brooklyn Heights, has found itself at the center of a social media maelstrom over a feud between the shop and the singer and TV personality Kelly Clarkson.`\
+**Inside Art of Play, the Brooklyn Toy Store at the Center of the Kelly Clarkson Online Frenzy**\
+`Art of Play, a high-end novelty store in Brooklyn Heights, has become embroiled in an extremely online feud with the singer and TV personality Kelly Clarkson.`\
 https://www.nytimes.com/2026/10/14/nyregion/kelly-clarkson-art-of-play-feud.html
 
 **Who Is Ahead in Rhode Island's 1st Congressional District?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
 **America’s Way Is Not the Only Way**\
 `Must civil and political rights come first for a country to prosper? On “The Opinions,” Kaiser Kuo challenges the United States’ longstanding insistence on that path to development, arguing that some nations may prioritize securing food, clothing and shelter first. As the world order frays, he makes the case for thinking more expansively about how countries prosper.`\
 https://www.nytimes.com/video/opinion/100000011210554/americas-way-is-not-the-only-way.html
-
-**Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
-`As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
-https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
 
