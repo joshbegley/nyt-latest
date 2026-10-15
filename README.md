@@ -1,3 +1,11 @@
+**Anti-Israel Protesters Pose a Purity Test That Even Mamdani Can’t Pass**\
+`The enmity directed toward Mayor Zohran Mamdani from within the pro-Palestinian movement illustrates the challenge the wider left faces in corralling its insurgents.`\
+https://www.nytimes.com/2026/10/15/nyregion/mamdani-dsa-protest-israel.html
+
+**NYT Spelling Bee Answers for October 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/15/crosswords/spelling-bee-forum.html
+
 **France Is on the Brink**\
 `A fiscal crisis threatens to bring the country to ruin.`\
 https://www.nytimes.com/2026/10/15/opinion/france-protests-debt-budget.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/business/stocks-500-index-ai.html
 **Angry Youth in Aging Europe**\
 `A bitter generational battle over resources is boiling over as economic growth on the continent stalls.`\
 https://www.nytimes.com/2026/10/14/world/youth-aging-europe-pension-ukraine-starshield.html
-
-**Brazil’s President Lula Accuses Meta of Helping His Right-Wing Opponent**\
-`With a narrow presidential election looming, President Luiz Inácio Lula da Silva and his allies claim Meta is trying to give his right-wing rival an advantage.`\
-https://www.nytimes.com/2026/10/14/world/americas/brazil-president-lula-meta-bolsonaro.html
-
-**Tim Janus, One of the World’s Greatest Competitive Eaters, Has Died**\
-`He brought rigor and strategy to the sport, rising to No. 2 in the world and eating 141 pieces of nigiri in six minutes in the process.`\
-https://www.nytimes.com/2026/10/14/obituaries/tim-janus-eater-x-dead.html
 
