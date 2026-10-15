@@ -1,3 +1,7 @@
+**Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
+`The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans were facing.`\
+https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
+
 **Chicano, Gay and Still Inspiring Connections**\
 `At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
 https://www.nytimes.com/2026/10/15/arts/design/chicano-gay-and-still-inspiring-connections.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/arts/design/rosalyn-drexler-garth-greenan-gal
 **Bonnie Garmus on Her Favorite Books and Her New Novel**\
 `For her follow-up to “Lessons in Chemistry,” she’s written a novel about poetry editors, one of whom is a “typeface connoisseur.” On the other hand, don’t get her started on clowns.`\
 https://www.nytimes.com/2026/10/15/books/review/bonnie-garmus-peck-and-peck.html
-
-**Exhausted Parents Are Turning to A.I. Apps Despite the Risks**\
-`Even as alarm grows over the risks, families are embracing bots and agents to tackle the spiraling administrative tasks of modern child rearing.`\
-https://www.nytimes.com/2026/10/15/style/ai-parenting-motherhood-ollie-fambot.html
 
