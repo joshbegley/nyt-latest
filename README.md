@@ -1,3 +1,39 @@
+**Tracking LeBron’s Helicopter**\
+`Sports insiders lay down the law in a rule-bending moment for the industry.`\
+https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
+
+**Russia Was Losing. Enter President Trump.**\
+`The commander in chief is Putin’s ace in the hole.`\
+https://www.nytimes.com/2026/10/15/opinion/trump-russia-diesel-ukraine.html
+
+**Blue Wave? Blue Tsunami? Or Just Blue Sprinklers?**\
+`There is a chance that Democratic optimism is over the rainbow.`\
+https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
+
+**Attacks on Tankers in Mideast Surge, but Oil Exports Remain Steady**\
+`Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
+https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
+
+**Glitch Delays 600,000 Voter Registrations in Texas as Early Voting Looms**\
+`Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
+https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
+
+**Hollywood Has a New Villain: The Tech Mogul**\
+`The tech world has eaten legacy Hollywood, humbled it, beaten it at its own game.`\
+https://www.nytimes.com/2026/10/15/opinion/hollywood-musk-zuckerberg-altman-social-reckoning.html
+
+**Corrections: Oct. 15, 2026**\
+`Corrections that appeared in print on Thursday, Oct. 15, 2026.`\
+https://www.nytimes.com/2026/10/15/pageoneplus/corrections-oct-15-2026.html
+
+**Should the Death Penalty Still Be in Use in the United States?**\
+`A botched execution in Tennessee and a planned execution that might be livestreamed have renewed debate and division over capital punishment. How do you feel about the issue?`\
+https://www.nytimes.com/2026/10/15/learning/should-the-death-penalty-still-be-in-use-in-the-united-states.html
+
+**Meet Neha Bora, Activist and Face of India’s Young Protesters**\
+`When police cracked down, Neha Bora helped rally Gen Z protesters with a mix of boundless energy, street theatrics and satirical humor.`\
+https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html
+
 **Chinese Carmakers, Once a Sideshow, Take Center Stage at Paris Motor Show**\
 `At this week’s Paris Motor Show, there are no signs the influx of low-cost Chinese vehicles will slow despite European Union efforts.`\
 https://www.nytimes.com/2026/10/15/business/chinese-evs-europe-paris-motor-show.html
@@ -157,44 +193,4 @@ https://www.nytimes.com/2026/10/15/well/widows-longevity-health.html
 **Why Are Food Prices So High? Ask the Farmers Market Vendors.**\
 `Farmers markets cut out a lot of middlemen, from shippers to grocery store managers. One Nashville market shows how farmers are getting squeezed — and why prices may keep going up.`\
 https://www.nytimes.com/interactive/2026/10/15/us/farmers-market-prices.html
-
-**Best Sci-Fi Books With Monsters and Other Creature Features**\
-`The best-selling author John Scalzi recommends his favorite alien thrillers, mad scientist tales and an intergalactic spin on “Moby Dick.”`\
-https://www.nytimes.com/2026/10/15/books/monster-books-sci-fi.html
-
-**How Old Will I Be Before I Own a Home?**\
-`Expect to stop renting by your late 30s (but don’t expect to live in Los Angeles or New York).`\
-https://www.nytimes.com/2026/10/15/realestate/how-old-will-i-be-before-i-own-a-home.html
-
-**Families of Sailors Killed in Gulf Struggle for Compensation and Closure**\
-`Attacks near the Strait of Hormuz have claimed the lives of at least 25 seafarers. Their survivors are reeling.`\
-https://www.nytimes.com/2026/10/15/business/iran-war-hormuz-sailors-dead-compensation.html
-
-**Is the Fox Collie the Perfect Dog for Our Aimless Era?**\
-`A winemaker in Northern California is convinced that a dog once bred to herd sheep in the Scottish Highlands is the ideal pet for our uncertain times.`\
-https://www.nytimes.com/2026/10/15/style/fox-collie-mcnab-dog-breed.html
-
-**How PetiteKnit’s Founder Turned Knitting Patterns Into a Thriving Business**\
-`Former med student Mette Wendelboe Okkels, the owner of the knitting pattern brand PetiteKnit, is renowned for her precision and her idyllic evocation of Scandinavian life.`\
-https://www.nytimes.com/2026/10/15/style/petiteknit-knitting-mette-wendelboe-okkels.html
-
-**What Can a Biological Age Test Actually Tell You?**\
-`Experts weigh in on the tests’ current accuracy and usefulness.`\
-https://www.nytimes.com/2026/10/15/well/biological-age-tests.html
-
-**Can W.W.E. Still Mint Hollywood Stars? ‘Street Fighter’ Is the Test.**\
-`Cody Rhodes and Roman Reigns hope to follow in the path of the Rock and John Cena. But both wrestling and Hollywood have changed so much since their rise.`\
-https://www.nytimes.com/2026/10/15/movies/street-fighter-wwe-cody-rhodes-roman-reigns.html
-
-**Hiking the Polish-Czech Friendship Trail, Where Cold War Dissidents Once Met**\
-`A writer walks the Polish-Czech Friendship Trail, where during the Cold War, dissidents from the two countries met to discuss their efforts against Communism.`\
-https://www.nytimes.com/2026/10/15/travel/polish-czech-friendship-trail-hike.html
-
-**How Adam Hamilton Built a Megachurch Where People Can Disagree**\
-`As he seeks to unseat a Republican in Kansas, Mr. Hamilton speaks of his work leading one of the state’s largest churches — and making it appealing to nonreligious people.`\
-https://www.nytimes.com/2026/10/15/us/adam-hamilton-religious-democrats-candidates.html
-
-**New York’s Art Scene Called to Her. Which Home Did She Choose?**\
-`After years of visiting her children in the city, Gail Folwell, a sculptor in Colorado, decided to look for a second home near Manhattan’s galleries.`\
-https://www.nytimes.com/quiz/2026/10/15/realestate/homes-for-sale-midtown-manhattan.html
 
