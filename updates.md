@@ -1,3 +1,19 @@
+**‘The Lowdown’ Season 2 Premiere Recap: The Lady in Blue**\
+`Ethan Hawke is back as a crusading truthstorian with more beatings to receive and a new mystery to solve.`\
+https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-premiere-recap.html
+
+**‘Hurry!’**\
+`McKay Fritz’s debut crossword is right on the mark.`\
+https://www.nytimes.com/2026/10/14/crosswords/hurry.html
+
+**Trump Says Those Who Leak Military Plans Should Be Shot**\
+`At a rally in Arizona, the president dramatically escalated his attacks on news gathering and those willing to speak to the press.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-media-leaks-shot-rally.html
+
+**3 Men Accused by Nancy Mace in House Speech Are Charged With Sex Crimes**\
+`The former fiancé of the South Carolina representative and two of his business associates were charged on Wednesday with sex crimes and voyeurism in connection with a 2018 incident.`\
+https://www.nytimes.com/2026/10/14/us/politics/nancy-mace-fiance-sexual-assault-arrest.html
+
 **Vance’s Talarico Attacks Show His Penchant for Personal Broadsides**\
 `At a rally in Texas, the vice president suggested the Democratic Senate nominee is gay, a comment criticized as homophobic.`\
 https://www.nytimes.com/2026/10/14/us/politics/vance-talarico-attacks.html

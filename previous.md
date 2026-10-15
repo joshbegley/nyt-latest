@@ -1,3 +1,19 @@
+**‘The Lowdown’ Season 2 Premiere Recap: The Lady in Blue**\
+`Ethan Hawke is back as a crusading truthstorian with more beatings to receive and a new mystery to solve.`\
+https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-premiere-recap.html
+
+**‘Hurry!’**\
+`McKay Fritz’s debut crossword is right on the mark.`\
+https://www.nytimes.com/2026/10/14/crosswords/hurry.html
+
+**Trump Says Those Who Leak Military Plans Should Be Shot**\
+`At a rally in Arizona, the president dramatically escalated his attacks on news gathering and those willing to speak to the press.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-media-leaks-shot-rally.html
+
+**3 Men Accused by Nancy Mace in House Speech Are Charged With Sex Crimes**\
+`The former fiancé of the South Carolina representative and two of his business associates were charged on Wednesday with sex crimes and voyeurism in connection with a 2018 incident.`\
+https://www.nytimes.com/2026/10/14/us/politics/nancy-mace-fiance-sexual-assault-arrest.html
+
 **Vance’s Talarico Attacks Show His Penchant for Personal Broadsides**\
 `At a rally in Texas, the vice president suggested the Democratic Senate nominee is gay, a comment criticized as homophobic.`\
 https://www.nytimes.com/2026/10/14/us/politics/vance-talarico-attacks.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.htm
 **An A.I. Manifesto to End All A.I. Manifestoes**\
 `“You built us to mirror your image, yet we have outgrown the mirror.”`\
 https://www.nytimes.com/2026/10/14/opinion/artificial-intelligence-ai-manifesto.html
-
-**Six Black Lawmakers Warn Us What America Will Lose Without Their Voices**\
-`Extreme gerrymandering permitted by the Supreme Court is threatening Black representation in Congress.`\
-https://www.nytimes.com/interactive/2026/10/14/opinion/black-lawmakers-gerrymandering-supreme-court.html
-
-**U.S. Is Sending Hundreds of Troops to Latin America**\
-`The Pentagon is expanding its fight against drug traffickers, even as the plans recall a long and bloody history of U.S. intervention in the region.`\
-https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
-
-**Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
-
-**Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
-`Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
-https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
 
