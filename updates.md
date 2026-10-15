@@ -1,3 +1,7 @@
+**Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
+`Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
+
 **How Trump Voters Feel About High Grocery Prices Ahead of The Midterms**\
 `With the midterms nearing, some are venting frustration with the president while others are standing by him.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-midterms-voters-grocery-prices.html
