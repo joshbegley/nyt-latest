@@ -1,3 +1,11 @@
+**Who Is Ahead in New Mexico's 1st Congressional District?**\
+`Track the latest polls in New Mexico's 1st Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
+
+**Harvard Endowment Soars to $68 Billion Even as Federal Cuts Force Layoffs**\
+`The stock market has boosted Harvard’s wealth. But as federal funding slumps, the school is seeking corporate sponsors to underwrite research.`\
+https://www.nytimes.com/2026/10/15/us/harvard-endowment-soars.html
+
 **‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
 `Readers’ least favorite vegetables, and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandova
 **What Teenagers Are Saying About the Cornell Sexual Assault Case**\
 `Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
 https://www.nytimes.com/2026/10/15/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
-
-**Choosin’ Texas**\
-`We look at the costliest race in America.`\
-https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
-
-**Tech Stocks Drop Further Amid Doubts Over AI Spending**\
-`Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
-https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
 

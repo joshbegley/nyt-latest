@@ -1,3 +1,15 @@
+**‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
+`Readers’ least favorite vegetables, and the recipes that changed their minds.`\
+https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
+
+**‘Once Upon a Time in Harlem’ Review: A Renaissance of Their Own**\
+`The Black luminaries who turned 1920s Harlem into a hub of artistic expression gathered decades later to reminisce. It was a house party for the ages.`\
+https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
+
+**El-Sayed Blitzes Upper Michigan With Ocasio-Cortez as Vance Heads Downstate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/15/us/midterms-elections
+
 **How We Reported on the Cornell Case**\
 `In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
 https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
