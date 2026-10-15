@@ -1,3 +1,7 @@
+**More Trump Allies Aided Pro-Russian Balkan Government**\
+`The daughter of the president’s chief of staff joined an American businessman in Republika Srpska as he explored a gas pipeline. And six current and former campaign advisers recently traveled there for an election.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-russia-srpska-elections-wiles.html
+
 **President Trump Cancels Livestream of Fort Hood Shooter’s Execution**\
 `President Trump canceled the planned livestream of the Fort Hood shooter’s execution. Mr. Trump said that only the victims’ immediate families will be able to watch the execution in person on Dec. 3.`\
 https://www.nytimes.com/video/us/politics/100000011216401/trump-fort-hood-shooter-execution-livestream-canceled.html
