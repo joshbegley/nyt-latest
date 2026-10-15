@@ -1,3 +1,7 @@
+**Vance Rallies in Michigan as Ocasio-Cortez Starts Bus Tour With El-Sayed**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/15/us/midterms-elections
+
 **A Reader on What He Thinks We Get Wrong About Trump**\
 `In this first installment of “Sound Off,” Patrick Healy, assistant managing editor for The New York Times, speaks with Mark Jacob, former metro editor for The Chicago Tribune, who shares his criticism of Times coverage.`\
 https://www.nytimes.com/video/insider/100000011213260/a-reader-on-what-he-thinks-we-get-wrong-about-trump.html
@@ -28,7 +32,7 @@ https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.htm
 
 **Shook Research Changes Name to Veritant After Forbes Scandal**\
 `The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
-https://www.nytimes.com/2026/10/15/business/media/shook-research-changes-name-to-veritant-after-forbes-scandal.html
+https://www.nytimes.com/2026/10/15/business/media/shook-research-veritant-forbes.html
 
 **At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
 `Reporters often offer the only independent account of what happens inside a death chamber.`\
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/10/15/movies/bola-negra-review.html
 **‘California Schemin’’ Review: Two Lads Take the Low Road to Fame**\
 `A hip-hop duo from Scotland tries to convince U.K. record executives that they hail from Los Angeles in this film, based on a true story.`\
 https://www.nytimes.com/2026/10/15/movies/california-schemin-review.html
-
-**In Divided Portland, Ore., Anti-Police Posts Fuel a Fight Over the Future**\
-`When social media posts denouncing the police surfaced, they were supposed to harm a socialist’s re-election. But the democratic socialists of Portland, and other cities, are showing their strength.`\
-https://www.nytimes.com/2026/10/15/us/politics/portland-oregon-dsa-socialism-police.html
-
-**‘Love of Your Life’ Review: Living Through Heartbreak**\
-`Margaret Qualley plays a nurse in Boston who finds love and then loses it in this fine romantic tragedy.`\
-https://www.nytimes.com/2026/10/15/movies/love-of-your-life-review.html
 
