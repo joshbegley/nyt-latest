@@ -1,3 +1,7 @@
+**Tech Stocks Plunge as Doubts Over A.I. Spending Intensify**\
+`Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
+https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
+
 **The Republican Strategy to Salvage the Midterms**\
 `The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
 https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html

@@ -1,3 +1,7 @@
+**Tech Stocks Plunge as Doubts Over A.I. Spending Intensify**\
+`Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
+https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
+
 **The Republican Strategy to Salvage the Midterms**\
 `The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
 https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/business/tesla-roadster-2026-ev-sports-car.ht
 **When Your Roommate Runs a Gallery Out of the Living Room**\
 `Artists across Crown Heights, Ridgewood and beyond are following in the grand New York City tradition of apartment galleries.`\
 https://www.nytimes.com/2026/10/15/realestate/apartment-art-galleries-brooklyn-queens.html
-
-**As Texas Schools Add Police Officers to Campuses, Some Students Are Facing Serious Charges**\
-`More students ages 10 to 13 are ending up in the justice system after vaping, making threats and lashing out at school.`\
-https://www.nytimes.com/2026/10/15/us/texas-students-bad-behavior-criminal-charges.html
 
