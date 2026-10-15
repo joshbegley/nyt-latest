@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/10/15/pageoneplus/quote-of-the-day-even-bananas-abs
 `The Saudi military has expensive equipment, but the missiles and drones used by the Yemeni militia are difficult to detect and stop.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/saudi-arabia-defense-houthi-attacks-yemen.html
 
-**Home of London’s Oldest Restaurant, Rules, is Given to National Trust**\
+**Home of London’s Oldest Restaurant, Rules, Is Given to National Trust**\
 `The restaurant Rules is an institution. Now the National Trust, which preserves Britain’s heritage, plans to safeguard the landmark.`\
 https://www.nytimes.com/2026/10/15/world/europe/rules-london-restaurant-national-trust.html
 
