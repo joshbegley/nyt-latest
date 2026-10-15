@@ -1,3 +1,23 @@
+**The Republican Strategy to Salvage the Midterms**\
+`The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
+https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html
+
+**Inflation Data Undercuts Trump’s Economic Claims, and the Danger of New Jet-Powered Drones**\
+`Plus, the legacy of a competitive eating champion.`\
+https://www.nytimes.com/2026/10/15/podcasts/the-headlines/inflation-jet-powered-drones.html
+
+**NYT Connections Answers for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/connections-companion-1223.html
+
+**Today’s Wordle Hints for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/wordle-review-1945.html
+
+**NYT Strands Hints for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/strands-sidekick-957.html
+
 **Tracking LeBron’s Helicopter**\
 `Sports insiders lay down the law in a rule-bending moment for the industry.`\
 https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
