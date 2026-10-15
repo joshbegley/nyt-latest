@@ -1,3 +1,7 @@
+**Where to Eat Like You’re in Hawaii (From 5,000 Miles Away)**\
+`Hawaiian food is scarce in New York City, but not so scarce that you can’t find some great options.`\
+https://www.nytimes.com/2026/10/15/dining/hawaiian-food-nyc.html
+
 **Hegseth’s Plan to Livestream Execution Drew Opposition From Many**\
 `A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
 https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
 **New Guidelines Strongly Support Hormone Therapy for Common Menopause Symptoms**\
 `The American College of Obstetricians and Gynecologists said the benefits of the treatment outweigh the harms for many women.`\
 https://www.nytimes.com/2026/10/15/well/live/menopause-hormone-therapy-acog.html
-
-**Don’t Make Salad. Make a Salad Pancake.**\
-`Ruffles of oak leaf lettuce are dipped in a light batter, pan-fried until crisp and dunked into a sesame and soy dipping sauce.`\
-https://www.nytimes.com/2026/10/15/dining/dont-make-salad-make-a-salad-pancake.html
 
