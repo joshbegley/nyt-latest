@@ -1,10 +1,10 @@
-**Theocracy Is Not What I Want for Israel**\
-`Israeli voters have an opportunity to end the stranglehold the ultra-Orthodox have on some aspects of society.`\
-https://www.nytimes.com/2026/10/15/opinion/israel-elections-ultra-orthodox-jewish.html
-
 **France Is on the Brink**\
 `A fiscal crisis threatens to bring the country to ruin.`\
 https://www.nytimes.com/2026/10/15/opinion/france-protests-debt-budget.html
+
+**Israelis Must Choose a Secular Nation or Theocracy**\
+`Israeli voters have an opportunity to end the stranglehold the ultra-Orthodox have on some aspects of society.`\
+https://www.nytimes.com/2026/10/15/opinion/israel-elections-ultra-orthodox-jewish.html
 
 **North Korea and China Open Their Biggest Border Bridge**\
 `The long-delayed opening of the New Yalu River Bridge comes as the two countries expand trade despite international sanctions imposed on North Korea.`\
