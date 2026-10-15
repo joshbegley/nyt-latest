@@ -1,3 +1,7 @@
+**How Trump Voters Feel About High Grocery Prices Ahead of The Midterms**\
+`With the midterms nearing, some are venting frustration with the president while others are standing by him.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-midterms-voters-grocery-prices.html
+
 **Cornell’s President Grilled by Faculty Senate Over Handling of Crisis**\
 `Ahead of a vote on a resolution of no confidence in Michael I. Kotlikoff, some faculty members said they were not swayed by steps he announced on Tuesday, including banning fraternity parties.`\
 https://www.nytimes.com/2026/10/14/nyregion/cornell-president-faculty-senate-lawsuit-response.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/10/14/us/cornell-crisis-playbook-universities-colle
 https://www.nytimes.com/2026/10/14/technology/anthropic-ipo-revenue-profit.html
 
 **Inflation Data Shows Prices Are Up, Worrying Republicans Ahead of the Midterms**\
-`Today’s inflation report gave Democrats a chance to tie pain at the pump to Trump’s decisions.`\
+`The newest inflation report gave Democrats a chance to tie pain at the pump to President Trump’s decisions.`\
 https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-trump.html
 
 **Mexico Bans Violent Content on Social Media for Children**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/briefing/video-rental-stores.html
 **Bleached Coral Rebounded After Touching Healthy Coral, Study Finds**\
 `After sick corals were placed in direct contact with healthy ones of the same genetic make-up, they recovered at “incredible” speed, scientists found.`\
 https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html
-
-**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
-`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
-https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
 
