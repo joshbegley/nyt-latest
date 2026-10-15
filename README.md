@@ -1,3 +1,7 @@
+**Get ‘Aligned’ or Get Out of the Way**\
+`Whether an A.I. or a human, you’re encouraged to be aligned. How did we get here?`\
+https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
+
 **Why Russia Sees a Window to Bomb Ukraine Into Submission This Winter**\
 `Moscow is not winning on the battlefield. Instead, it is seizing an opening to inflict immense human suffering in Ukrainian cities.`\
 https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/t-magazine/mens-fall-relaxed-fashion.html
 **The Thrillingly Intricate Art of Cut Paper**\
 `A new generation is putting a fresh — and sometimes subversive — spin on the ancient practice.`\
 https://www.nytimes.com/2026/10/15/t-magazine/cut-paper-art.html
-
-**‘Macbeth’ and More Theater to Stream This October**\
-`Verdi’s adaptation of the Shakespeare tragedy comes to movie screens around the world. And “Rent” holds a 30th anniversary concert.`\
-https://www.nytimes.com/2026/10/15/theater/rent-macbeth-billy-crystal-streaming-theater.html
 
