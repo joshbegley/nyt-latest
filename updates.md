@@ -1,3 +1,7 @@
+**Choosin’ Texas**\
+`We look at the costliest race in America.`\
+https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
+
 **Tech Stocks Plunge as Doubts Over A.I. Spending Intensify**\
 `Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
 https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html

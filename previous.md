@@ -1,3 +1,7 @@
+**Choosin’ Texas**\
+`We look at the costliest race in America.`\
+https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
+
 **Tech Stocks Plunge as Doubts Over A.I. Spending Intensify**\
 `Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
 https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/learning/word-of-the-day-colloquial.html
 **Tesla Debuts 2026 Roadster, an EV Sports Car at Least $200,000**\
 `Elon Musk’s company and other automakers, like Jaguar and Bentley, are trying to sell very expensive electric cars to people who usually prefer gasoline-fueled luxury and performance.`\
 https://www.nytimes.com/2026/10/15/business/tesla-roadster-2026-ev-sports-car.html
-
-**When Your Roommate Runs a Gallery Out of the Living Room**\
-`Artists across Crown Heights, Ridgewood and beyond are following in the grand New York City tradition of apartment galleries.`\
-https://www.nytimes.com/2026/10/15/realestate/apartment-art-galleries-brooklyn-queens.html
 
