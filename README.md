@@ -1,3 +1,23 @@
+**The Republican Strategy to Salvage the Midterms**\
+`The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
+https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html
+
+**Inflation Data Undercuts Trump’s Economic Claims, and the Danger of New Jet-Powered Drones**\
+`Plus, the legacy of a competitive eating champion.`\
+https://www.nytimes.com/2026/10/15/podcasts/the-headlines/inflation-jet-powered-drones.html
+
+**NYT Connections Answers for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/connections-companion-1223.html
+
+**Today’s Wordle Hints for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/wordle-review-1945.html
+
+**NYT Strands Hints for October 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/15/crosswords/strands-sidekick-957.html
+
 **Tracking LeBron’s Helicopter**\
 `Sports insiders lay down the law in a rule-bending moment for the industry.`\
 https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/10/15/realestate/apartment-art-galleries-brooklyn-q
 **As Texas Schools Add Police Officers to Campuses, Some Students Are Facing Serious Charges**\
 `More students ages 10 to 13 are ending up in the justice system after vaping, making threats and lashing out at school.`\
 https://www.nytimes.com/2026/10/15/us/texas-students-bad-behavior-criminal-charges.html
-
-**Migrant Children Without Lawyers Face Fast-Tracked Deportations Alone**\
-`For years, the government has helped secure lawyers for minors who arrive at the southern border. But a contract dispute has forced many children to face immigration judges alone.`\
-https://www.nytimes.com/2026/10/15/us/lawyers-unaccompanied-migrant-children-deportations.html
-
-**Caskets on the River: The Story of an American Disaster**\
-`Covering a flood powerful enough to disrupt the dead.`\
-https://www.nytimes.com/2026/10/15/us/1993-great-flood-mississippi-midwest.html
-
-**Do You Have ‘Purpose Anxiety’?**\
-`This is for everyone who has ever laid awake at night wondering what it’s all for.`\
-https://www.nytimes.com/2026/10/15/well/do-you-have-purpose-anxiety.html
-
-**Lessons From a New Widow on the Life After**\
-`As people think about living longer, a New York Times writer reflects on the recent death of her husband and what helps life go on.`\
-https://www.nytimes.com/2026/10/15/well/widows-longevity-health.html
-
-**Why Are Food Prices So High? Ask the Farmers Market Vendors.**\
-`Farmers markets cut out a lot of middlemen, from shippers to grocery store managers. One Nashville market shows how farmers are getting squeezed — and why prices may keep going up.`\
-https://www.nytimes.com/interactive/2026/10/15/us/farmers-market-prices.html
 
