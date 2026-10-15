@@ -1,3 +1,7 @@
+**‘The Lowdown’ Season 2 Episode 2 Recap: Father’s Day**\
+`Lee has a sour family reunion and a deadly night out.`\
+https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-episode-2-recap.html
+
 **A.I. Is Making Us Antisocial**\
 `From social media to short-form content, the communication technologies we use shape how we think and see one another. On “The Ezra Klein Show,” the sociologist Sherry Turkle explains how A.I. is “deskilling” our ability to deal with one another.`\
 https://www.nytimes.com/video/opinion/100000011206645/ai-is-making-us-antisocial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/us/andy-harris-maryland-republican-diesel.htm
 **Midterm Election Ad Spending Topped $10 Billion, and It’s Still Rising**\
 `The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
 https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
-
-**Energy Department Order Takes Aim at Mid-Atlantic Blackout Risk**\
-`The order as a precaution allows grid operators to use backup generation this week. There were no widespread outages reported.`\
-https://www.nytimes.com/2026/10/14/business/department-of-energy-emergency-power-order.html
 

@@ -1,3 +1,7 @@
+**‘The Lowdown’ Season 2 Episode 2 Recap: Father’s Day**\
+`Lee has a sour family reunion and a deadly night out.`\
+https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-episode-2-recap.html
+
 **A.I. Is Making Us Antisocial**\
 `From social media to short-form content, the communication technologies we use shape how we think and see one another. On “The Ezra Klein Show,” the sociologist Sherry Turkle explains how A.I. is “deskilling” our ability to deal with one another.`\
 https://www.nytimes.com/video/opinion/100000011206645/ai-is-making-us-antisocial.html
