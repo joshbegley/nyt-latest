@@ -1,3 +1,11 @@
+**Wine: It’s the People’s Drink**\
+`Let’s stop thinking about wine as an emblem of snobbery, and start celebrating it for what it is: a way for community to come together.`\
+https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
+
+**As Democrats Plow Into Red States, They Worry About Tight Races in Bluer Ones**\
+`Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
+https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html
+
 **Chicano, Gay and Still Inspiring Connections**\
 `At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
 https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandoval.html

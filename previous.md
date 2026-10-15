@@ -1,3 +1,11 @@
+**Wine: It’s the People’s Drink**\
+`Let’s stop thinking about wine as an emblem of snobbery, and start celebrating it for what it is: a way for community to come together.`\
+https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
+
+**As Democrats Plow Into Red States, They Worry About Tight Races in Bluer Ones**\
+`Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
+https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html
+
 **Vance Rallies in Michigan as Ocasio-Cortez Starts Bus Tour With El-Sayed**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/15/us/midterms-elections
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/movies/sense-and-sensibility-review.html
 **‘Sacrifice’ Review: Party Crashers at the End of the World**\
 `Starring Chris Evans and Anya Taylor-Joy, this nonsensical eat-the-rich satire follows an aging movie star swept up into a deranged eco-terrorist plot.`\
 https://www.nytimes.com/2026/10/15/movies/sacrifice-review.html
-
-**‘La Bola Negra’ Review: In Search of Freedom, and Love**\
-`A sprawling three-pronged Spanish epic reads the past to find meaning in the present, but can’t quite find its ending.`\
-https://www.nytimes.com/2026/10/15/movies/bola-negra-review.html
-
-**‘California Schemin’’ Review: Two Lads Take the Low Road to Fame**\
-`A hip-hop duo from Scotland tries to convince U.K. record executives that they hail from Los Angeles in this film, based on a true story.`\
-https://www.nytimes.com/2026/10/15/movies/california-schemin-review.html
 
