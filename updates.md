@@ -1,3 +1,15 @@
+**At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
+`Reporters often offer the only independent account of what happens inside a death chamber.`\
+https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
+
+**The Fallout From the ‘Neocloud’ Wipeout**\
+`Investors are newly worried about the health of artificial intelligence infrastructure companies like CoreWeave. That’s weighing on the wider A.I. industry.`\
+https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stocks.html
+
+**What the Frontier Labs Know That We Don’t**\
+`Dwarkesh Patel on what the public doesn’t know about A.I.`\
+https://www.nytimes.com/2026/10/15/opinion/interesting-times-dwarkes-patel-tyler-cowen.html
+
 **Gulf Oil Is Still Flowing Despite a Surge in Attacks on Ships**\
 `Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
 https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html

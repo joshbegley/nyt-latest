@@ -1,3 +1,11 @@
+**Why Russia Sees a Window to Bomb Ukraine Into Submission This Winter**\
+`Moscow is not winning on the battlefield. Instead, it is seizing an opening to inflict immense human suffering in Ukrainian cities.`\
+https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.html
+
+**Shook Research Changes Name to Veritant After Forbes Scandal**\
+`The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
+https://www.nytimes.com/2026/10/15/business/media/shook-research-changes-name-to-veritant-after-forbes-scandal.html
+
 **At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
 `Reporters often offer the only independent account of what happens inside a death chamber.`\
 https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/15/t-magazine/cut-paper-art.html
 **‘Macbeth’ and More Theater to Stream This October**\
 `Verdi’s adaptation of the Shakespeare tragedy comes to movie screens around the world. And “Rent” holds a 30th anniversary concert.`\
 https://www.nytimes.com/2026/10/15/theater/rent-macbeth-billy-crystal-streaming-theater.html
-
-**Rosalind Eleazar on ‘Misty Green’ and ‘Slow Horses’**\
-`Rosalind Eleazar is winning rapturous reviews for her turn as the very “humanly flawed” title character in “Misty Green,” from Chris Rock.`\
-https://www.nytimes.com/2026/10/15/movies/rosalind-eleazar-misty-green-slow-horses.html
-
-**Why Are Migrant Children in Court Without a Lawyer?**\
-`Many unaccompanied minors are facing deportation hearings without a lawyer because of the Trump administration’s dispute with an organization that helps provide legal representation to thousands of migrant children. Our national reporter Jazmine Ulloa explains.`\
-https://www.nytimes.com/video/us/100000011180523/why-are-migrant-children-in-court-without-a-lawyer.html
 
