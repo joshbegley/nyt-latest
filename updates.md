@@ -1,3 +1,7 @@
+**Tech Stocks Drop Further Amid Doubts Over AI Spending**\
+`Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
+https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
+
 **Violent Protests in Albania**\
 `Opposition to a luxury resort project linked to Jared Kushner has collided with rising discontent over corruption and the cost of living.`\
 https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html
