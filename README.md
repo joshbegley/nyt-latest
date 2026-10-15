@@ -1,3 +1,7 @@
+**Senators Demand Investigation Into Ukraine Satellite Disruption**\
+`Republicans joined Democrats in calling on the Pentagon’s inspector general to look into whether the Trump administration was responsible for the interruption.`\
+https://www.nytimes.com/2026/10/15/us/politics/ukraine-satellite-intelligence-investigation-senate.html
+
 **More Trump Allies Aided Pro-Russian Balkan Government**\
 `The daughter of the president’s chief of staff joined an American businessman in Republika Srpska as he explored a gas pipeline. And six current and former campaign advisers recently traveled there for an election.`\
 https://www.nytimes.com/2026/10/15/us/politics/trump-russia-srpska-elections-wiles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/15/weather/champi-map-path-tracker.h
 **California’s Proposition 45 Brings the Sprawl Debate Back**\
 `Among the measures up for a vote in November is one that would amend the state’s landmark environmental law and make it easier to build large housing developments outside cities.`\
 https://www.nytimes.com/2026/10/15/business/economy/californias-housing-proposition-45.html
-
-**James Talarico Raises Quarterly Record of $64 Million in Texas Senate Race Against Ken Paxton**\
-`The amount is the most that a Senate candidate has ever raised during that period, his campaign said, eclipsing his opponent in Texas, Ken Paxton.`\
-https://www.nytimes.com/2026/10/15/us/politics/james-talarico-fundraising-texas-senate.html
 
