@@ -1,3 +1,11 @@
+**Trump’s New Press Secretary Faces Scrutiny Over Credentials**\
+`President Trump called Katie Zacharia, his new press secretary, an “attorney” on Tuesday, creating confusion about her credentials.`\
+https://www.nytimes.com/video/us/politics/100000011215220/trump-press-secretary-katie-zacharia-lawyer.html
+
+**At Least 20 Children Dead After School Roof Collapses in Pakistan**\
+`The collapse, in Peshawar, also killed a teacher and injured more than 40 people. The country’s prime minister urged rescuers to speed up the search for survivors.`\
+https://www.nytimes.com/2026/10/15/world/asia/pakistan-school-collapse.html
+
 **Home of London’s Oldest Restaurant, Rules, Is Given to National Trust**\
 `The restaurant Rules is an institution. Now the National Trust, which preserves Britain’s heritage, plans to safeguard the landmark.`\
 https://www.nytimes.com/2026/10/15/world/europe/rules-london-restaurant-national-trust.html
