@@ -1,3 +1,11 @@
+**President Trump Cancels Livestream of Fort Hood Shooter’s Execution**\
+`President Trump canceled the planned livestream of the Fort Hood shooter’s execution. Mr. Trump said that only the victims’ immediate families will be able to watch the execution in person on Dec. 3.`\
+https://www.nytimes.com/video/us/politics/100000011216401/trump-fort-hood-shooter-execution-livestream-canceled.html
+
+**America’s Most Expensive Senate Race**\
+`The Senate showdown in Texas shows why Donald Trump and the Republican Party are worried about the midterm elections.`\
+https://www.nytimes.com/2026/10/15/world/us-midterms-texas-zelensky-ukraine.html
+
 **Understanding a Home’s Fire Risk**\
 `The ratings on real estate sites that try to convey the risk of burning in a wildfire may overcomplicate or misrepresent the risk.`\
 https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
