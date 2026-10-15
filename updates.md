@@ -1,3 +1,7 @@
+**36 Hours in Tunis: Things to Do and See**\
+`Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
+https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
+
 **These Legislatures Could See Big Changes in November**\
 `Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
 https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
