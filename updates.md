@@ -1,3 +1,11 @@
+**Democrats Worry About Tight Midterm Races in Maine, Michigan and Minnesota**\
+`Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
+https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html
+
+**Talarico Reports Record Haul as Money Pours Into Races for Final Sprint**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/15/us/midterms-elections
+
 **Democratic Senators Move to Block U.S.-Saudi Nuclear Deal**\
 `The move will force a vote on the agreement after the midterm elections, though it faces steep odds in the Republican-controlled Congress even amid bipartisan concern about the deal.`\
 https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
