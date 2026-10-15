@@ -1,14 +1,22 @@
+**A.I. Is Making Us Antisocial**\
+`From social media to short-form content, the communication technologies we use shape how we think and see one another. On “The Ezra Klein Show,” the sociologist Sherry Turkle explains how A.I. is “deskilling” our ability to deal with one another.`\
+https://www.nytimes.com/video/opinion/100000011206645/ai-is-making-us-antisocial.html
+
+**OpenAI Engineer, Who Is Charged With Planting Bug, Advised Saudis**\
+`The employee, now fired, had said he advised government agencies in Saudi Arabia. He was also listed as a partner at a venture firm with a Saudi prince.`\
+https://www.nytimes.com/2026/10/14/technology/openai-engineer-hidden-device-saudi-government.html
+
 **Can A.I. Care for You?**\
 `Is the relationship you have with A.I. akin to what you have with a pet? On “The Ezra Klein Show,” the sociologist Sherry Turkle argues that caring for an A.I. is like “entering a shell game.”`\
 https://www.nytimes.com/video/opinion/100000011206643/can-ai-care-for-you.html
 
+**‘Hurry!’**\
+`McKay Fritz’s debut crossword is right on the mark.`\
+https://www.nytimes.com/2026/10/14/crosswords/daily-puzzle-2026-10-15.html
+
 **‘The Lowdown’ Season 2 Premiere Recap: The Lady in Blue**\
 `Ethan Hawke is back as a crusading truthstorian with more beatings to receive and a new mystery to solve.`\
 https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-premiere-recap.html
-
-**‘Hurry!’**\
-`McKay Fritz’s debut crossword is right on the mark.`\
-https://www.nytimes.com/2026/10/14/crosswords/hurry.html
 
 **Trump Says Those Who Leak Military Plans Should Be Shot**\
 `At a rally in Arizona, the president dramatically escalated his attacks on news gathering and those willing to speak to the press.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.h
 **Energy Department Order Takes Aim at Mid-Atlantic Blackout Risk**\
 `The order as a precaution allows grid operators to use backup generation this week. There were no widespread outages reported.`\
 https://www.nytimes.com/2026/10/14/business/department-of-energy-emergency-power-order.html
-
-**Why Trump Made a Diesel Deal With Putin**\
-`Our national security and White House correspondent David E. Sanger breaks down why President Donald Trump struck a deal with President Vladimir V. Putin to import Russian diesel fuel in the coming months, despite having signed recent congressional legislation tightening energy sanctions on Russia.`\
-https://www.nytimes.com/video/world/europe/100000011205967/00vid-rv-trump-putin-deal.html
-
-**Democrats Shouldn’t Wait Two More Years**\
-`The Trump era is ending. It’s time for Democrats to decide what happens next.`\
-https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
 
