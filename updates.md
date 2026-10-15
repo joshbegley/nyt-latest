@@ -1,3 +1,7 @@
+**Zelensky Says Ukraine Will Resume Russian Refinery Strikes, Defying Trump**\
+`President Volodymyr Zelensky made the announcement in an interview with The Financial Times. He had paused the strikes to comply with a demand from the United States.`\
+https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html
+
 **Zelensky Says Ukraine Will Resume Strikes on Russian Oil Refineries**\
 `President Volodymyr Zelensky made the announcement in an interview with The Financial Times. He had paused the strikes to comply with a demand from the United States.`\
 https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html
