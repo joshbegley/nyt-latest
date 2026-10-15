@@ -1,3 +1,7 @@
+**Home of London’s Oldest Restaurant, Rules, Is Given to National Trust**\
+`The restaurant Rules is an institution. Now the National Trust, which preserves Britain’s heritage, plans to safeguard the landmark.`\
+https://www.nytimes.com/2026/10/15/world/europe/rules-london-restaurant-national-trust.html
+
 **Anti-Israel Protesters Pose a Purity Test That Even Mamdani Can’t Pass**\
 `The enmity directed toward Mayor Zohran Mamdani from within the pro-Palestinian movement illustrates the challenge the wider left faces in corralling its insurgents.`\
 https://www.nytimes.com/2026/10/15/nyregion/mamdani-dsa-protest-israel.html
