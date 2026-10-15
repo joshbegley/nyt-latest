@@ -1,3 +1,15 @@
+**An Angry Judge and a Maybe-Lawyer in the Briefing Room**\
+`A roundup of legal news from the past week.`\
+https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.html
+
+**Mortgage Rates Hover at 7.4%, Highest Since 2023**\
+`The average 30-year, fixed-rate mortgage has steadily risen in recent weeks, compounding affordability challenges for many Americans.`\
+https://www.nytimes.com/2026/10/15/business/economy/mortgage-rates-home-buying.html
+
+**‘Street Fighter’ Review: Choose Your Fighter**\
+`It’s hard to introduce a dozen or so cartoon fighters in a story, but this fun adaptation of the ’80s arcade game has a sturdy enough script to bear the load.`\
+https://www.nytimes.com/2026/10/15/movies/street-fighter-review.html
+
 **For Contemporary Art, the Large Center Is a Big Deal**\
 `The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
 https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
 **As Early Midterm Voting Looms, a Glitch Delays 600,000 Texas Voter Registrations**\
 `Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
 https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
-
-**Hollywood Has a New Villain: The Tech Mogul**\
-`The tech world has eaten legacy Hollywood, humbled it, beaten it at its own game.`\
-https://www.nytimes.com/2026/10/15/opinion/hollywood-musk-zuckerberg-altman-social-reckoning.html
-
-**Corrections: Oct. 15, 2026**\
-`Corrections that appeared in print on Thursday, Oct. 15, 2026.`\
-https://www.nytimes.com/2026/10/15/pageoneplus/corrections-oct-15-2026.html
-
-**Should the Death Penalty Still Be in Use in the United States?**\
-`A botched execution in Tennessee and a planned execution that might be livestreamed have renewed debate and division over capital punishment. How do you feel about the issue?`\
-https://www.nytimes.com/2026/10/15/learning/should-the-death-penalty-still-be-in-use-in-the-united-states.html
 

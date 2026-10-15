@@ -1,3 +1,15 @@
+**An Angry Judge and a Maybe-Lawyer in the Briefing Room**\
+`A roundup of legal news from the past week.`\
+https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.html
+
+**Mortgage Rates Hover at 7.4%, Highest Since 2023**\
+`The average 30-year, fixed-rate mortgage has steadily risen in recent weeks, compounding affordability challenges for many Americans.`\
+https://www.nytimes.com/2026/10/15/business/economy/mortgage-rates-home-buying.html
+
+**‘Street Fighter’ Review: Choose Your Fighter**\
+`It’s hard to introduce a dozen or so cartoon fighters in a story, but this fun adaptation of the ’80s arcade game has a sturdy enough script to bear the load.`\
+https://www.nytimes.com/2026/10/15/movies/street-fighter-review.html
+
 **For Contemporary Art, the Large Center Is a Big Deal**\
 `The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
 https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
