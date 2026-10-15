@@ -1,3 +1,7 @@
+**Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
+`Katie Zacharia told The New York Times that the confusion over her legal credentials was the result of one big misunderstanding.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
+
 **‘The Lowdown’ Season 2 Episode 2 Recap: Father’s Day**\
 `Lee has a sour family reunion and a deadly night out.`\
 https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-episode-2-recap.html

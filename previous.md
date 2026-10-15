@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/14/nyregion/rent-stabilized-lawsuit-overcharge-e
 https://www.nytimes.com/2026/10/14/theater/anon-review-anne-washburn.html
 
 **Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
-`Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
+`Katie Zacharia told The New York Times that the confusion over her legal credentials was the result of one big misunderstanding.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
 
 **How Trump Voters Feel About High Grocery Prices Ahead of The Midterms**\
