@@ -1,3 +1,7 @@
+**‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
+`Readers’ least favorite vegetables, and the recipes that changed their minds.`\
+https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
+
 **‘Once Upon a Time in Harlem’ Review: A Renaissance of Their Own**\
 `The Black luminaries who turned 1920s Harlem into a hub of artistic expression gathered decades later to reminisce. It was a house party for the ages.`\
 https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
@@ -122,7 +126,7 @@ https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
 `Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
 https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html
 
-**Talarico Reports Record Haul as Money Pours Into Races for Final Sprint**\
+**El-Sayed Blitzes Upper Michigan With Ocasio-Cortez as Vance Heads Downstate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/15/us/midterms-elections
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
 **Tech Stocks Drop Further Amid Doubts Over AI Spending**\
 `Tech stocks plunged, led by a steep drop in South Korea’s benchmark index, as concerns over soaring A.I. spending and stubborn inflation fueled a sell-off.`\
 https://www.nytimes.com/2026/10/15/business/chip-stocks-technology.html
-
-**The Republican Strategy to Salvage the Midterms**\
-`The right wing is scrambling for wins in the elections as Democrats lead in the polls.`\
-https://www.nytimes.com/2026/10/15/podcasts/the-daily/republican-strategy-midterms.html
 
