@@ -1,3 +1,7 @@
+**Students Join Protest Demanding Albania Prime Minister’s Resignation**\
+`Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
+https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
+
 **Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
 `A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
 https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-conta
 **Data Centers Become Targets in Wars in Ukraine, Russia and the Middle East**\
 `Military forces have sought to damage the computing hubs that power online services and artificial intelligence systems.`\
 https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
-
-**Cornell in Crisis**\
-`Also, a parade of women exit the Trump administration.`\
-https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
 
