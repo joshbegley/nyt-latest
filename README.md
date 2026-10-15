@@ -1,3 +1,11 @@
+**Cornell in Crisis**\
+`Also, a parade of women exit the Trump administration.`\
+https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
+
+**Zelensky Says Trump Is on ‘Wrong Side’ of History**\
+`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with Russia as the country continued its campaign of striking Ukrainian energy infrastructure before winter.`\
+https://www.nytimes.com/video/world/europe/100000011215483/zelensky-trump-russia-energy-strikes.html
+
 **Maps: Tracking Tropical Storm Champi**\
 `See the likely path and wind arrival times for Champi`\
 https://www.nytimes.com/interactive/2026/10/15/weather/champi-map-path-tracker.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/10/15/business/economy/californias-housing-proposit
 `The amount is the most that a Senate candidate has ever raised during that period, his campaign said, eclipsing his opponent in Texas, Ken Paxton.`\
 https://www.nytimes.com/2026/10/15/us/politics/james-talarico-fundraising-texas-senate.html
 
-**Homeownership Drifts Further Out of Reach as Rates Rise**\
+**Homeownership Drifts Further Out of Reach as Mortgage Rates Rise**\
 `Mortgage rates have pushed above 7 percent and home prices remain elevated, hurting the prospects of would-be buyers.`\
 https://www.nytimes.com/2026/10/15/business/economy/housing-market-mortgage-rates.html
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html
 **Chinese Carmakers, Once a Sideshow, Take Center Stage at Paris Motor Show**\
 `At this week’s Paris Motor Show, there are no signs the influx of low-cost Chinese vehicles will slow despite European Union efforts.`\
 https://www.nytimes.com/2026/10/15/business/chinese-evs-europe-paris-motor-show.html
-
-**Why Basketball Legends Are Coming to the Bronx**\
-`A charter school named for Earl Monroe is dedicating a new building, which features a basketball-and-book-themed mural.`\
-https://www.nytimes.com/2026/10/15/nyregion/bronx-charter-school-basketball-books.html
-
-**What the Frontier Labs Know That We Don’t**\
-`Dwarkesh Patel on what the public doesn’t know about A.I.`\
-https://www.nytimes.com/2026/10/15/opinion/interesting-times-dwarkes-patel-tyler-cowen.html
 
