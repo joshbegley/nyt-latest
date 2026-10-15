@@ -1,3 +1,23 @@
+**While Leo Recovers From Lung Surgery, the Church Runs on Autopilot**\
+`The Vatican bureaucracy has been fine-tuned over hundreds of years to function smoothly even when the pope cannot.`\
+https://www.nytimes.com/2026/10/15/world/europe/while-leo-recovers-from-lung-surgery-the-church-runs-on-autopilot.html
+
+**Quote of the Day: Even Bananas Absorb Blows of War in Iran**\
+`Quotation of the Day for Thursday, October 15, 2026.`\
+https://www.nytimes.com/2026/10/15/pageoneplus/quote-of-the-day-even-bananas-absorb-blows-of-war-in-iran.html
+
+**Why Does Saudi Arabia Struggle to Stop Houthi Attacks?**\
+`The Saudi military has expensive equipment, but the missiles and drones used by the Yemeni militia are difficult to detect and stop.`\
+https://www.nytimes.com/2026/10/15/world/middleeast/saudi-arabia-defense-houthi-attacks-yemen.html
+
+**Home of London’s Oldest Restaurant, Rules, is Given to National Trust**\
+`The restaurant Rules is an institution. Now the National Trust, which preserves Britain’s heritage, plans to safeguard the landmark.`\
+https://www.nytimes.com/2026/10/15/world/europe/rules-london-restaurant-national-trust.html
+
+**On This Day, Oct. 15: In 1964, Khrushchev was ousted in a coup.**\
+`In 1964, Soviet leaders announced that Nikita Khrushchev had been ousted from his top roles. In the bloodless coup, Leonid Brezhnev became the Communist Party chief, and Alexei Kosygin became the premier.`\
+https://www.nytimes.com/2026/10/15/learning/on-this-day-oct-15-nikita-khrushchev.html
+
 **‘The Lowdown’ Season 2 Episode 2 Recap: Father’s Day**\
 `Lee has a sour family reunion and a deadly night out.`\
 https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-episode-2-recap.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/14/theater/golden-boy-virginia-woolf-london-thea
 **Processing My Father's Death by Climbing in Yosemite**\
 `Yosemite is where my father taught me to climb. It’s also where he made a mistake that nearly cost me my life.`\
 https://www.nytimes.com/interactive/2026/10/14/magazine/yosemite-climbing-dad-east-buttress.html
-
-**Sally Rooney Withdraws Her Books From UK Over Her Support of Palestine Action**\
-`Ms. Rooney and her publisher said that she could no longer receive royalties from British sales because she pledged to donate book revenues to Palestine Action, which is banned in Britain.`\
-https://www.nytimes.com/2026/10/14/world/europe/rooney-britain-palestine-book-sales.html
-
-**Appeals Court Questions Trump’s National Guard Deployment in D.C.**\
-`After thousands of troops deployed by the president have patrolled Washington for more than a year, a three-judge panel interrogated whether the deployment could continue indefinitely.`\
-https://www.nytimes.com/2026/10/14/us/politics/appeals-court-national-guard-washington.html
-
-**Sleeping ICE Agent Who Fought With Homeowner Is Charged With Assault**\
-`The off-duty agent was found sleeping on the front lawn of a home in Fresno, Calif., last week before the scuffle unfolded. The police said he “appeared intoxicated and agitated.”`\
-https://www.nytimes.com/2026/10/14/us/fresno-drunk-ice-agent.html
-
-**Maryland Republican Andy Harris Blamed Democrats for High Gas Prices. Laughter Ensued.**\
-`Representative Andy Harris, a Republican, said during a debate that environmental regulations had caused diesel prices to rise. Some in the audience groaned.`\
-https://www.nytimes.com/2026/10/14/us/andy-harris-maryland-republican-diesel.html
-
-**Midterm Election Ad Spending Topped $10 Billion, and It’s Still Rising**\
-`The campaign is set to be more expensive than the 2024 presidential election cycle, and has already exceeded the ad total booked by the N.F.L. last season.`\
-https://www.nytimes.com/2026/10/14/us/politics/midterms-ad-spending-10-billion.html
 
