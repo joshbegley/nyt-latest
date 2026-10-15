@@ -1,3 +1,7 @@
+**Mira Nair Hosts an Intimate Diwali Dinner**\
+`Authors, filmmakers, artists and writers gathered at Passerine this week to celebrate the Hindu festival. Several voiced support for the bubbling youth democracy movement in India.`\
+https://www.nytimes.com/2026/10/15/style/mira-nair-diwali-dinner-salman-rushdie.html
+
 **20 Hours After Falling Overboard, Cruise Passenger Is Rescued Near Greece**\
 `According to Greek officials, the woman told her rescuers she had jumped off the ship because she “wanted to disembark.”`\
 https://www.nytimes.com/2026/10/15/travel/cruise-passenger-overboard-rescue-greece.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
 **Trump Cancels Planned Execution Livestream of Nidal Hasan, Fort Hood Shooter**\
 `The president said only immediate families of the victims of the mass shooting in 2009 would witness the execution of Maj. Nidal Malik Hasan.`\
 https://www.nytimes.com/2026/10/15/us/trump-hasan-fort-hood-execution-livestream.html
-
-**Wine: It’s the People’s Drink**\
-`Let’s stop thinking about wine as an emblem of snobbery, and start celebrating it for what it is: a way for community to come together.`\
-https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
 
