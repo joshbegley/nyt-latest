@@ -1,3 +1,7 @@
+**Vance’s Talarico Attacks Show His Penchant for Personal Broadsides**\
+`At a rally in Texas, the vice president suggested the Democratic Senate nominee is gay, a comment criticized as homophobic.`\
+https://www.nytimes.com/2026/10/14/us/politics/vance-talarico-attacks.html
+
 **Eliot Spitzer’s Real Estate Firm Overcharged Tenants, Lawsuit Claims**\
 `The suit argues that the company run by the former New York governor violated state rent regulations at a luxury tower in Brooklyn.`\
 https://www.nytimes.com/2026/10/14/nyregion/rent-stabilized-lawsuit-overcharge-eliot-spitzer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-beli
 **Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
 `Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
 https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
-
-**Why Trump’s Russian Diesel Deal Is Unlikely to Lower Fuel Costs**\
-`President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
-https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
 
