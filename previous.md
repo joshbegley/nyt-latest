@@ -1,3 +1,11 @@
+**Netflix Shakes Up Top Ranks, Replacing Its Chief Content Officer**\
+`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
+https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
+
+**Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
+`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you think.”`\
+https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
+
 **Justice Department Sues California Over Voter Rolls**\
 `Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/15/us/politics/the-docket-legal-news-roundup.htm
 **Mortgage Rates Hover at 7.4%, Highest Since 2023**\
 `The average 30-year, fixed-rate mortgage has steadily risen in recent weeks, compounding affordability challenges for many Americans.`\
 https://www.nytimes.com/2026/10/15/business/economy/mortgage-rates-home-buying.html
-
-**‘Street Fighter’ Review: Choose Your Fighter**\
-`It’s hard to introduce a dozen or so cartoon fighters in a story, but this fun adaptation of the ’80s arcade game has a sturdy enough script to bear the load.`\
-https://www.nytimes.com/2026/10/15/movies/street-fighter-review.html
-
-**For Contemporary Art, the Large Center Is a Big Deal**\
-`The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
-https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
 

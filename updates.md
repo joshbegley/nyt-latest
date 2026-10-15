@@ -1,3 +1,11 @@
+**Netflix Shakes Up Top Ranks, Replacing Its Chief Content Officer**\
+`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
+https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
+
+**Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
+`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you think.”`\
+https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
+
 **Justice Department Sues California Over Voter Rolls**\
 `Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
