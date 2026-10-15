@@ -1,3 +1,11 @@
+**Chicano, Gay and Still Inspiring Connections**\
+`At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
+https://www.nytimes.com/2026/10/15/arts/design/chicano-gay-and-still-inspiring-connections.html
+
+**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
+`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
+https://www.nytimes.com/2026/10/15/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
+
 **Choosin’ Texas**\
 `We look at the costliest race in America.`\
 https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
 `The commander in chief is Putin’s ace in the hole.`\
 https://www.nytimes.com/2026/10/15/opinion/trump-russia-diesel-ukraine.html
 
-**Blue Wave? Blue Tsunami? Or Just Blue Sprinklers?**\
+**A Blue Wave? A Blue Tsunami? Or Just Blue Sprinklers?**\
 `There is a chance that Democratic optimism is over the rainbow.`\
 https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/15/books/review/bonnie-garmus-peck-and-peck.html
 **Exhausted Parents Are Turning to A.I. Apps Despite the Risks**\
 `Even as alarm grows over the risks, families are embracing bots and agents to tackle the spiraling administrative tasks of modern child rearing.`\
 https://www.nytimes.com/2026/10/15/style/ai-parenting-motherhood-ollie-fambot.html
-
-**Word of the Day: colloquial**\
-`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/15/learning/word-of-the-day-colloquial.html
-
-**Tesla Debuts 2026 Roadster, an EV Sports Car at Least $200,000**\
-`Elon Musk’s company and other automakers, like Jaguar and Bentley, are trying to sell very expensive electric cars to people who usually prefer gasoline-fueled luxury and performance.`\
-https://www.nytimes.com/2026/10/15/business/tesla-roadster-2026-ev-sports-car.html
 

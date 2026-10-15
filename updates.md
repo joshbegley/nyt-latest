@@ -1,3 +1,15 @@
+**Chicano, Gay and Still Inspiring Connections**\
+`At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
+https://www.nytimes.com/2026/10/15/arts/design/chicano-gay-and-still-inspiring-connections.html
+
+**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
+`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
+https://www.nytimes.com/2026/10/15/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
+
+**A Blue Wave? A Blue Tsunami? Or Just Blue Sprinklers?**\
+`There is a chance that Democratic optimism is over the rainbow.`\
+https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
+
 **Choosin’ Texas**\
 `We look at the costliest race in America.`\
 https://www.nytimes.com/2026/10/15/briefing/texas-senate-race.html
