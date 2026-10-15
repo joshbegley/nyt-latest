@@ -1,3 +1,31 @@
+**How PetiteKnit’s Founder Turned Knitting Patterns Into a Thriving Business**\
+`Former med student Mette Wendelboe Okkels, the owner of the knitting pattern brand PetiteKnit, is renowned for her precision and her idyllic evocation of Scandinavian life.`\
+https://www.nytimes.com/2026/10/15/style/petiteknit-knitting-mette-wendelboe-okkels.html
+
+**What Can a Biological Age Test Actually Tell You?**\
+`Experts weigh in on the tests’ current accuracy and usefulness.`\
+https://www.nytimes.com/2026/10/15/well/biological-age-tests.html
+
+**Can W.W.E. Still Mint Hollywood Stars? ‘Street Fighter’ Is the Test.**\
+`Cody Rhodes and Roman Reigns hope to follow in the path of the Rock and John Cena. But both wrestling and Hollywood have changed so much since their rise.`\
+https://www.nytimes.com/2026/10/15/movies/street-fighter-wwe-cody-rhodes-roman-reigns.html
+
+**Hiking the Polish-Czech Friendship Trail, Where Cold War Dissidents Once Met**\
+`A writer walks the Polish-Czech Friendship Trail, where during the Cold War, dissidents from the two countries met to discuss their efforts against Communism.`\
+https://www.nytimes.com/2026/10/15/travel/polish-czech-friendship-trail-hike.html
+
+**How Adam Hamilton Built a Megachurch Where People Can Disagree**\
+`As he seeks to unseat a Republican in Kansas, Mr. Hamilton speaks of his work leading one of the state’s largest churches — and making it appealing to nonreligious people.`\
+https://www.nytimes.com/2026/10/15/us/adam-hamilton-religious-democrats-candidates.html
+
+**New York’s Art Scene Called to Her. Which Home Did She Choose?**\
+`After years of visiting her children in the city, Gail Folwell, a sculptor in Colorado, decided to look for a second home near Manhattan’s galleries.`\
+https://www.nytimes.com/quiz/2026/10/15/realestate/homes-for-sale-midtown-manhattan.html
+
+**Inside the Mind of A.I.’s Most Essential Chronicler**\
+`Dwarkesh Patel on what the public doesn’t know about A.I.`\
+https://www.nytimes.com/video/opinion/100000011206819/inside-the-mind-of-ais-most-essential-chronicler.html
+
 **North Korea and China’s Biggest Border Bridge Opens**\
 `The New Yalu River Bridge, the largest border crossing connecting China and North Korea, had its grand opening on Thursday.`\
 https://www.nytimes.com/video/world/asia/100000011215214/china-north-korea-bridge-new-yalu.html

@@ -1,3 +1,31 @@
+**How PetiteKnit’s Founder Turned Knitting Patterns Into a Thriving Business**\
+`Former med student Mette Wendelboe Okkels, the owner of the knitting pattern brand PetiteKnit, is renowned for her precision and her idyllic evocation of Scandinavian life.`\
+https://www.nytimes.com/2026/10/15/style/petiteknit-knitting-mette-wendelboe-okkels.html
+
+**What Can a Biological Age Test Actually Tell You?**\
+`Experts weigh in on the tests’ current accuracy and usefulness.`\
+https://www.nytimes.com/2026/10/15/well/biological-age-tests.html
+
+**Can W.W.E. Still Mint Hollywood Stars? ‘Street Fighter’ Is the Test.**\
+`Cody Rhodes and Roman Reigns hope to follow in the path of the Rock and John Cena. But both wrestling and Hollywood have changed so much since their rise.`\
+https://www.nytimes.com/2026/10/15/movies/street-fighter-wwe-cody-rhodes-roman-reigns.html
+
+**Hiking the Polish-Czech Friendship Trail, Where Cold War Dissidents Once Met**\
+`A writer walks the Polish-Czech Friendship Trail, where during the Cold War, dissidents from the two countries met to discuss their efforts against Communism.`\
+https://www.nytimes.com/2026/10/15/travel/polish-czech-friendship-trail-hike.html
+
+**How Adam Hamilton Built a Megachurch Where People Can Disagree**\
+`As he seeks to unseat a Republican in Kansas, Mr. Hamilton speaks of his work leading one of the state’s largest churches — and making it appealing to nonreligious people.`\
+https://www.nytimes.com/2026/10/15/us/adam-hamilton-religious-democrats-candidates.html
+
+**New York’s Art Scene Called to Her. Which Home Did She Choose?**\
+`After years of visiting her children in the city, Gail Folwell, a sculptor in Colorado, decided to look for a second home near Manhattan’s galleries.`\
+https://www.nytimes.com/quiz/2026/10/15/realestate/homes-for-sale-midtown-manhattan.html
+
+**Inside the Mind of A.I.’s Most Essential Chronicler**\
+`Dwarkesh Patel on what the public doesn’t know about A.I.`\
+https://www.nytimes.com/video/opinion/100000011206819/inside-the-mind-of-ais-most-essential-chronicler.html
+
 **North Korea and China’s Biggest Border Bridge Opens**\
 `The New Yalu River Bridge, the largest border crossing connecting China and North Korea, had its grand opening on Thursday.`\
 https://www.nytimes.com/video/world/asia/100000011215214/china-north-korea-bridge-new-yalu.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/14/nyregion/kelly-clarkson-art-of-play-feud.html
 **Who Is Ahead in Rhode Island's 1st Congressional District?**\
 `Track the latest polls in Rhode Island's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/rhode-island-us-house-1-polls-2026.html
-
-**Soaring Energy Prices Push Inflation Higher**\
-`Also, polls show that the Texas Senate race is tightening. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/10/14/briefing/soaring-energy-prices-push-inflation-higher.html
-
-**Ossoff and Collins Trade Blows in Georgia Senate Debate**\
-`Senator Jon Ossoff, the Democratic incumbent, and Representative Mike Collins, the Republican challenger, debated inflation, tariffs and the Epstein files during the second and final Georgia senate debate.`\
-https://www.nytimes.com/video/us/elections/100000011213887/ossoff-collins-georgia-senate-debate-midterms.html
-
-**Supreme Court Again Sides With Republicans in Political TV Ad Fight**\
-`The Trump administration had filed an emergency application asking the justices to intervene in a long-running dispute over political ad rates.`\
-https://www.nytimes.com/2026/10/14/us/politics/supreme-court-ads-political.html
-
-**Battle Over the Pierre Ends in Defeat for the Buyer Pushed by Lutnick**\
-`Motasem Khashoggi, who hails from a prominent Saudi family, missed a Tuesday deadline to deliver a $100 million deposit to purchase the Manhattan landmark.`\
-https://www.nytimes.com/2026/10/14/business/pierre-buyer-lutnick.html
-
-**Why Cattle Farmers Feel ‘Disillusioned’ Before Midterms**\
-`Lisa Lerer, a New York Times national politics reporter, joins Natalie Kitroeff on “The Call” from a cow auction in Calhan, Colo., to discuss how rising agriculture and diesel costs are making farmers disillusioned ahead of the midterms.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011214372/why-cattle-farmers-feel-disillusioned-before-midterms.html
-
-**Engagement Gifts That Can Double as Wedding Presents**\
-`Velvet jewelry trays, keepsake matchboxes and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/10/14/t-magazine/engagement-wedding-gift-guide.html
-
-**Santa Ana Winds Prompt Fire Warnings in Southern California**\
-`The first Santa Ana winds of the season are arriving this week in Southern California, where the most severe warnings were in place for Thursday and Friday.`\
-https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
 
