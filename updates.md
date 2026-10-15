@@ -1,3 +1,11 @@
+**How Trump Voters Feel About High Grocery Prices Ahead of The Midterms**\
+`With the midterms nearing, some are venting frustration with the president while others are standing by him.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-midterms-voters-grocery-prices.html
+
+**Inflation Data Shows Prices Are Up, Worrying Republicans Ahead of the Midterms**\
+`The newest inflation report gave Democrats a chance to tie pain at the pump to President Trump’s decisions.`\
+https://www.nytimes.com/2026/10/14/us/politics/inflation-republicans-midterms-trump.html
+
 **Cornell’s President Grilled by Faculty Senate Over Handling of Crisis**\
 `Ahead of a vote on a resolution of no confidence in Michael I. Kotlikoff, some faculty members said they were not swayed by steps he announced on Tuesday, including banning fraternity parties.`\
 https://www.nytimes.com/2026/10/14/nyregion/cornell-president-faculty-senate-lawsuit-response.html
