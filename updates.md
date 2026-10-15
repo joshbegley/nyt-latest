@@ -1,3 +1,7 @@
+**Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
+`Katie Zacharia told The New York Times that the confusion over her legal credentials was the result of one big misunderstanding.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
+
 **Theocracy Is Not What I Want for Israel**\
 `Israeli voters have an opportunity to end the stranglehold the ultra-Orthodox have on some aspects of society.`\
 https://www.nytimes.com/2026/10/15/opinion/israel-elections-ultra-orthodox-jewish.html
