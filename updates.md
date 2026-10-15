@@ -1,3 +1,11 @@
+**6 Members of South Africa’s Biggest Party Are Killed in Shootings**\
+`The two shootings took place only a few weeks before pivotal, nationwide local elections, and as the party, the A.N.C., is embroiled in a dispute over the eligibility of more than 100 candidates.`\
+https://www.nytimes.com/2026/10/15/world/africa/south-africa-anc-campaign-election.html
+
+**Mira Nair Hosts an Intimate Diwali Dinner**\
+`Authors, filmmakers, artists and writers gathered at Passerine this week to celebrate the Hindu festival. Several voiced support for the bubbling youth democracy movement in India.`\
+https://www.nytimes.com/2026/10/15/style/mira-nair-diwali-dinner-salman-rushdie.html
+
 **Iran-Backed Houthis Strike Presidential Palace, Yemen Says**\
 `Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
