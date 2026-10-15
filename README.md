@@ -1,3 +1,7 @@
+**3 Men Accused by Nancy Mace in House Speech Are Charged With Sex Crimes**\
+`The former fiancé of the South Carolina representative and two of his business associates were charged on Wednesday with sex crimes and voyeurism in connection with a 2018 incident.`\
+https://www.nytimes.com/2026/10/14/us/politics/nancy-mace-fiance-sexual-assault-arrest.html
+
 **Vance’s Talarico Attacks Show His Penchant for Personal Broadsides**\
 `At a rally in Texas, the vice president suggested the Democratic Senate nominee is gay, a comment criticized as homophobic.`\
 https://www.nytimes.com/2026/10/14/us/politics/vance-talarico-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/us/politics/us-troops-latin-america.html
 **Tiny Love Stories: ‘Who Would Believe That Nonsense?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/14/style/tiny-modern-love-stories-who-would-believe-that-nonsense.html
-
-**Avantika’s Diwali Party Mixed Family Traditions with Chai Cocktails and 50 Cent**\
-`Actress Avantika Vandanapu, who stars in “Not Suitable for Work,” hosted a party that mixed Hindu traditions with chai cocktails and 50 Cent.`\
-https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-work-diwali-party.html
 
