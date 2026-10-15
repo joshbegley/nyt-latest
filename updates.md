@@ -1,3 +1,39 @@
+**Tracking LeBron’s Helicopter**\
+`Sports insiders lay down the law in a rule-bending moment for the industry.`\
+https://www.nytimes.com/2026/10/15/podcasts/lebron-james-sixers-helicopter.html
+
+**Russia Was Losing. Enter President Trump.**\
+`The commander in chief is Putin’s ace in the hole.`\
+https://www.nytimes.com/2026/10/15/opinion/trump-russia-diesel-ukraine.html
+
+**Blue Wave? Blue Tsunami? Or Just Blue Sprinklers?**\
+`There is a chance that Democratic optimism is over the rainbow.`\
+https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
+
+**Attacks on Tankers in Mideast Surge, but Oil Exports Remain Steady**\
+`Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
+https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
+
+**Glitch Delays 600,000 Voter Registrations in Texas as Early Voting Looms**\
+`Voting rights groups sued the Texas Department of Public Safety and the secretary of state over delayed voter registrations that overwhelmed local election workers.`\
+https://www.nytimes.com/2026/10/15/us/politics/texas-voter-registration-lawsuit.html
+
+**Hollywood Has a New Villain: The Tech Mogul**\
+`The tech world has eaten legacy Hollywood, humbled it, beaten it at its own game.`\
+https://www.nytimes.com/2026/10/15/opinion/hollywood-musk-zuckerberg-altman-social-reckoning.html
+
+**Corrections: Oct. 15, 2026**\
+`Corrections that appeared in print on Thursday, Oct. 15, 2026.`\
+https://www.nytimes.com/2026/10/15/pageoneplus/corrections-oct-15-2026.html
+
+**Should the Death Penalty Still Be in Use in the United States?**\
+`A botched execution in Tennessee and a planned execution that might be livestreamed have renewed debate and division over capital punishment. How do you feel about the issue?`\
+https://www.nytimes.com/2026/10/15/learning/should-the-death-penalty-still-be-in-use-in-the-united-states.html
+
+**Meet Neha Bora, Activist and Face of India’s Young Protesters**\
+`When police cracked down, Neha Bora helped rally Gen Z protesters with a mix of boundless energy, street theatrics and satirical humor.`\
+https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html
+
 **Chinese Carmakers, Once a Sideshow, Take Center Stage at Paris Motor Show**\
 `At this week’s Paris Motor Show, there are no signs the influx of low-cost Chinese vehicles will slow despite European Union efforts.`\
 https://www.nytimes.com/2026/10/15/business/chinese-evs-europe-paris-motor-show.html
