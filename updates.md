@@ -1,3 +1,15 @@
+**20 Hours After Falling Overboard, Cruise Passenger Is Rescued Near Greece**\
+`According to Greek officials, the woman told her rescuers she had jumped off the ship because she “wanted to disembark.”`\
+https://www.nytimes.com/2026/10/15/travel/cruise-passenger-overboard-rescue-greece.html
+
+**‘The Full Monty’ Is Postponed as ‘Rhinoceros’ Comes to Broadway**\
+`John Turturro, Tatiana Maslany and Tony Shalhoub will star in a spring production of the satirical Ionesco drama.`\
+https://www.nytimes.com/2026/10/15/theater/full-monty-postponed-rhinoceros-broadway.html
+
+**Land Acknowledgments Aren’t Just Woke, They’re Right**\
+`Often, they are not just lip service, but part of a useful response to Native American needs.`\
+https://www.nytimes.com/2026/10/15/opinion/land-acknowledgments-native-americans.html
+
 **How Trump Is Trying to Assert Control Over the Election**\
 `Many election officials fear that the Trump administration is laying the groundwork to challenge the midterm results in November if they do not favor Republicans. Our White House correspondent Zolan Kanno-Youngs describes what the administration is doing.`\
 https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-control-over-the-election.html
