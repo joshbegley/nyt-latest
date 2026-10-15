@@ -1,3 +1,23 @@
+**More Than 30 Children Killed After School Roof Collapse in Pakistan**\
+`A roof collapsed at a school in Peshawar, Pakistan, killing more than 30 children and one teacher, the local authorities said.`\
+https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-collapse-children-deaths.html
+
+**How One Global Climate Deal Worked ‘Perfectly’ as Others Faltered**\
+`In just a decade, the world has slashed super-polluting chemicals used in air-conditioners and fridges. Experts say the pact offers a model for cooperation on warming.`\
+https://www.nytimes.com/2026/10/15/climate/hfc-kigali-greenhouse-gases.html
+
+**Trump’s Democracy-for-Diesel Deal Shames Us All**\
+`The president’s arrangement to import Russian diesel fuel is one more example of how he has sold out American democracy.`\
+https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
+
+**New Guidelines Strongly Support Hormone Therapy for Common Menopause Symptoms**\
+`The American College of Obstetricians and Gynecologists said the benefits of the treatment outweigh the harms for many women.`\
+https://www.nytimes.com/2026/10/15/well/live/menopause-hormone-therapy-acog.html
+
+**Don’t Make Salad. Make a Salad Pancake.**\
+`Ruffles of oak leaf lettuce are dipped in a light batter, pan-fried until crisp and dunked into a sesame and soy dipping sauce.`\
+https://www.nytimes.com/2026/10/15/dining/dont-make-salad-make-a-salad-pancake.html
+
 **What Are Data Centers Doing? A Mind-Boggling Amount of Math.**\
 `The calculations needed to train A.I. are nearly impossible to visualize — but we tried anyway.`\
 https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html

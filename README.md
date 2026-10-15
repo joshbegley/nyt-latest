@@ -1,3 +1,19 @@
+**Maps: Tracking Tropical Storm Champi**\
+`See the likely path and wind arrival times for Champi`\
+https://www.nytimes.com/interactive/2026/10/15/weather/champi-map-path-tracker.html
+
+**California’s Proposition 45 Brings the Sprawl Debate Back**\
+`Among the measures up for a vote in November is one that would amend the state’s landmark environmental law and make it easier to build large housing developments outside cities.`\
+https://www.nytimes.com/2026/10/15/business/economy/californias-housing-proposition-45.html
+
+**James Talarico Raises Quarterly Record of $64 Million in Texas Senate Race Against Ken Paxton**\
+`The amount is the most that a Senate candidate has ever raised during that period, his campaign said, eclipsing his opponent in Texas, Ken Paxton.`\
+https://www.nytimes.com/2026/10/15/us/politics/james-talarico-fundraising-texas-senate.html
+
+**Homeownership Drifts Further Out of Reach as Rates Rise**\
+`Mortgage rates have pushed above 7 percent and home prices remain elevated, hurting the prospects of would-be buyers.`\
+https://www.nytimes.com/2026/10/15/business/economy/housing-market-mortgage-rates.html
+
 **More Than 30 Children Killed After School Roof Collapse in Pakistan**\
 `A roof collapsed at a school in Peshawar, Pakistan, killing more than 30 children and one teacher, the local authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-collapse-children-deaths.html
@@ -169,20 +185,4 @@ https://www.nytimes.com/2026/10/15/nyregion/bronx-charter-school-basketball-book
 **What the Frontier Labs Know That We Don’t**\
 `Dwarkesh Patel on what the public doesn’t know about A.I.`\
 https://www.nytimes.com/2026/10/15/opinion/interesting-times-dwarkes-patel-tyler-cowen.html
-
-**Solve a Special Detective Novel Themed Crossword Puzzle**\
-`Rian Johnson, the Oscar-nominated director, co-constructed this puzzle.`\
-https://www.nytimes.com/2026/10/15/crosswords/special-detective-novel-crossword-puzzle.html
-
-**Inside the Plague Research Labs at the Heart of a Russian Mystery**\
-`A Russian researcher, who died from an unknown illness, worked at a remote anti-plague facility. Few foreigners have visited these labs, which dot the former Soviet states, and are shrouded in secrecy.`\
-https://www.nytimes.com/2026/10/15/science/russia-plague-laboratory-mystery.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a ranch-style house in Cold Spring Harbor, N.Y., and a lakefront log cabin in Medford Lakes, N.J.`\
-https://www.nytimes.com/2026/10/15/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in Kips Bay, Greenwich Village and on the Grand Concourse.`\
-https://www.nytimes.com/2026/10/15/realestate/housing-market-nyc.html
 
