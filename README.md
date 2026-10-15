@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/10/15/opinion/trump-russia-diesel-ukraine.html
 `There is a chance that Democratic optimism is over the rainbow.`\
 https://www.nytimes.com/2026/10/15/opinion/democrats-election-midterms-blue-wave.html
 
-**Attacks on Tankers in Mideast Surge, but Oil Exports Remain Steady**\
+**Gulf Oil Is Still Flowing Despite a Surge in Attacks on Ships**\
 `Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
 https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
 
