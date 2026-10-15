@@ -1,3 +1,7 @@
+**Why Zara Larsson Refuses to Censor Herself – or Dim Her Joy**\
+`Watch the full conversation with Zara Larsson. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011212156/why-zara-larsson-refuses-to-censor-herself-or-dim-her-joy.html
+
 **Trump’s Attacks on Voting Raise Fears He Will Try to Challenge Midterm Results**\
 `Election officials say they worry the administration could use its own unsubstantiated claims to contest the vote in November.`\
 https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.html
