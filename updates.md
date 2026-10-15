@@ -1,3 +1,15 @@
+**At Least 2 People Are Shot at an Elementary School in Oregon**\
+`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
+https://www.nytimes.com/2026/10/15/us/bend-oregon-school-shooting.html
+
+**A Guide to State Legislature Elections and Where Partisan Control Is at Stake**\
+`A guide to the states where legislatures are up for grabs.`\
+https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.html
+
+**ICE Agents Who Rammed a Worker in Houston Were Chasing a Dead Man, Family Says**\
+`ICE agents rammed a man during a pursuit in Houston, leaving him with a shattered leg. But a bulletin of the target shows a man who died in 2017, his daughter said.`\
+https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
+
 **Netflix Shakes Up Top Ranks, Replacing Its Chief Content Officer**\
 `Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
