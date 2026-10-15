@@ -1,3 +1,7 @@
+**Vance’s Talarico Attacks Show His Penchant for Personal Broadsides**\
+`At a rally in Texas, the vice president suggested the Democratic Senate nominee is gay, a comment criticized as homophobic.`\
+https://www.nytimes.com/2026/10/14/us/politics/vance-talarico-attacks.html
+
 **Eliot Spitzer’s Real Estate Firm Overcharged Tenants, Lawsuit Claims**\
 `The suit argues that the company run by the former New York governor violated state rent regulations at a luxury tower in Brooklyn.`\
 https://www.nytimes.com/2026/10/14/nyregion/rent-stabilized-lawsuit-overcharge-eliot-spitzer.html
