@@ -1,3 +1,7 @@
+**‘Anon’ Review: Anne Washburn’s Satire Gets Lost in the Storm**\
+`The playwright tries to strike a middle path in this comedy about QAnon far-right conspiracy theories, which stars the reliably zany Crystal Finn.`\
+https://www.nytimes.com/2026/10/14/theater/anon-review-anne-washburn.html
+
 **Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
 `Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-dies
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Dance soundtrack, feather atlas and the sound of a sunny day.`\
 https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
-
-**The Local: Video rental stores return**\
-`Also, the Twin Cities Film Fest kicks off tomorrow.`\
-https://www.nytimes.com/2026/10/14/briefing/video-rental-stores.html
 
