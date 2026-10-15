@@ -1,3 +1,7 @@
+**Gulf Oil Is Still Flowing Despite a Surge in Attacks on Ships**\
+`Shipping operators are braving the Strait of Hormuz, but the risks are high and transportation costs have skyrocketed.`\
+https://www.nytimes.com/2026/10/15/business/hormuz-oil-tanker-attacks.html
+
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
 `The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans were facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
