@@ -1,3 +1,7 @@
+**Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
+`In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
+https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
+
 **Netflix Replaces Bela Bajaria as Chief Content Officer**\
 `Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html

@@ -1,3 +1,7 @@
+**Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
+`In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
+https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
+
 **At Least 2 People Are Shot at an Elementary School in Oregon**\
 `The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
 https://www.nytimes.com/2026/10/15/us/bend-oregon-school-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011216076/our-very-existence-is-on-t
 **At Art Basel Paris and Beyond, Celebrating 200 Years of Photography**\
 `Several artists at Art Basel Paris are honoring photography’s origins as France hosts hundreds of events to celebrate the medium’s bicentennial.`\
 https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-photography-bicentennial.html
-
-**What Else to Check Out During Art Basel Paris**\
-`Marie Antoinette, Cézanne and more await you if you step off the beaten path at the Paris art fair.`\
-https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-events.html
 
