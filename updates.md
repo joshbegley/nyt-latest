@@ -1,3 +1,23 @@
+**Cargo Floats in Strait of Hormuz as Iranian Shipping Attacks Rise**\
+`Footage shows small boats gathered around floating shipping containers after a Singapore-flagged cargo ship sank near the Strait of Hormuz on Wednesday. Analysts say Iran has ramped up its attacks on ships passing through the vital waterway.`\
+https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-containers-cargo-ship.html
+
+**Data Centers Become Targets in Wars in Ukraine, Russia and the Middle East**\
+`Military forces have sought to damage the computing hubs that power online services and artificial intelligence systems.`\
+https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
+
+**Cornell in Crisis**\
+`Also, a parade of women exit the Trump administration.`\
+https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
+
+**Zelensky Says Trump Is on ‘Wrong Side’ of History**\
+`Ukraine’s president, Volodymyr Zelensky, expressed frustration with President Trump for making deals with Russia as the country continued its campaign of striking Ukrainian energy infrastructure before winter.`\
+https://www.nytimes.com/video/world/europe/100000011215483/zelensky-trump-russia-energy-strikes.html
+
+**Homeownership Drifts Further Out of Reach as Mortgage Rates Rise**\
+`Mortgage rates have pushed above 7 percent and home prices remain elevated, hurting the prospects of would-be buyers.`\
+https://www.nytimes.com/2026/10/15/business/economy/housing-market-mortgage-rates.html
+
 **Maps: Tracking Tropical Storm Champi**\
 `See the likely path and wind arrival times for Champi`\
 https://www.nytimes.com/interactive/2026/10/15/weather/champi-map-path-tracker.html
