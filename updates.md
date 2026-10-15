@@ -1,3 +1,15 @@
+**Get ‘Aligned’ or Get Out of the Way**\
+`Whether an A.I. or a human, you’re encouraged to be aligned. How did we get here?`\
+https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
+
+**Why Russia Sees a Window to Bomb Ukraine Into Submission This Winter**\
+`Moscow is not winning on the battlefield. Instead, it is seizing an opening to inflict immense human suffering in Ukrainian cities.`\
+https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.html
+
+**Shook Research Changes Name to Veritant After Forbes Scandal**\
+`The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
+https://www.nytimes.com/2026/10/15/business/media/shook-research-changes-name-to-veritant-after-forbes-scandal.html
+
 **At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
 `Reporters often offer the only independent account of what happens inside a death chamber.`\
 https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
