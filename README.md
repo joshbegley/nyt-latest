@@ -1,3 +1,11 @@
+**Cargo Floats in Strait of Hormuz as Iranian Shipping Attacks Rise**\
+`Footage shows small boats gathered around floating shipping containers after a Singapore-flagged cargo ship sank near the Strait of Hormuz on Wednesday. Analysts say Iran has ramped up its attacks on ships passing through the vital waterway.`\
+https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-containers-cargo-ship.html
+
+**Data Centers Become Targets in Wars in Ukraine, Russia and the Middle East**\
+`Military forces have sought to damage the computing hubs that power online services and artificial intelligence systems.`\
+https://www.nytimes.com/2026/10/15/business/russia-ukraine-data-centers-war.html
+
 **Cornell in Crisis**\
 `Also, a parade of women exit the Trump administration.`\
 https://www.nytimes.com/2026/10/15/briefing/cornell-in-crisis.html
@@ -181,8 +189,4 @@ https://www.nytimes.com/2026/10/15/learning/should-the-death-penalty-still-be-in
 **Meet Neha Bora, Activist and Face of India’s Young Protesters**\
 `When police cracked down, Neha Bora helped rally Gen Z protesters with a mix of boundless energy, street theatrics and satirical humor.`\
 https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html
-
-**Chinese Carmakers, Once a Sideshow, Take Center Stage at Paris Motor Show**\
-`At this week’s Paris Motor Show, there are no signs the influx of low-cost Chinese vehicles will slow despite European Union efforts.`\
-https://www.nytimes.com/2026/10/15/business/chinese-evs-europe-paris-motor-show.html
 
