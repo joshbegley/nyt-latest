@@ -1,3 +1,7 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/15/books/review/new-recommended-books.html
+
 **Fired FBI Agents Who Worked on Trump Investigation Sue Patel and Others**\
 `The lawsuit also suggests that a motivating factor for the dismissals was the intense scrutiny of the F.B.I. director, Kash Patel, after he went to the Olympics in Milan.`\
 https://www.nytimes.com/2026/10/15/us/politics/fired-fbi-agents-lawsuit-kash-patel-trump.html

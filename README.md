@@ -1,3 +1,7 @@
+**Mamdani Taps His Social Media Charm on Behalf of Hochul, a Crucial Ally**\
+`Mayor Zohran Mamdani’s first campaign video for Gov. Kathy Hochul, in which he attacks her Republican rival, Bruce Blakeman, has some of the mayor’s hallmark appeal, but a bit less pizazz.`\
+https://www.nytimes.com/2026/10/15/nyregion/hochul-mamdani-blakeman-election-campaign-ny-governor.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/15/books/review/new-recommended-books.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/world/europe/kandinsky-nazi-looted-art-auctio
 **These Legislatures Could See Big Changes in November**\
 `Statehouses make health-care policy, guide education, and may redraw congressional districts ahead of 2028. With the stakes high, more than 6,100 legislators will be elected Nov. 3.`\
 https://www.nytimes.com/2026/10/15/us/elections/state-legislature-flip-control-election.html
-
-**Midterms Could Shift Focus of Epstein Abuse to Banks’ Role**\
-`With an eye on retaking control of Congress, Democrats are introducing a bill that would hold banks accountable for their handling of Jeffrey Epstein’s finances.`\
-https://www.nytimes.com/2026/10/15/business/epstein-banks-midterm-elections.html
 
