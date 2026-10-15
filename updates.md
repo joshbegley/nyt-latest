@@ -1,3 +1,39 @@
+**Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
+`Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
+https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
+
+**Dwarkesh Patel: A.I. Will Be Autonomous in Three Years**\
+`A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
+https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
+
+**Silicon Valley Is Worried**\
+`A.I. might be on the verge of overpowering humanity, the podcaster Dwarkesh Patel warns on “Interesting Times.” He tells the economist Tyler Cowen that Silicon Valley is worried frontier research might be like the Manhattan Project — releasing a catastrophic new technology in the world.`\
+https://www.nytimes.com/video/opinion/100000011206847/silicon-valley-is-worried.html
+
+**Cornell’s Powerful Board Meets as It Fights to Protect Its Reputation**\
+`The president argued this week that replacing him would be a mistake.`\
+https://www.nytimes.com/2026/10/15/us/cornell-board-trustees.html
+
+**Dwarkesh Patel Is Happy If A.I. Is Conscious**\
+`Are we murdering A.I.s every time we power down our computers? The economist Tyler Cowen and the podcaster Dwarkesh Patel get into what defines consciousness and how we should behave if A.I. meets the criteria.`\
+https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if-ai-is-conscious.html
+
+**How U.S. Support to Ukraine Has Evolved Under Trump**\
+`President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
+https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
+
+**Live Updates: At Least 2 People Are Shot at an Elementary School in Oregon**\
+`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
+**Netflix Replaces Bela Bajaria as Chief Content Officer**\
+`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria, who had held the job since 2023.`\
+https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
+
+**Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
+`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
+https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
+
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
 `In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
 https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
