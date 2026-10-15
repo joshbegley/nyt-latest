@@ -1,3 +1,15 @@
+**Violent Protests in Albania**\
+`Opposition to a luxury resort project linked to Jared Kushner has collided with rising discontent over corruption and the cost of living.`\
+https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html
+
+**Cornell and the Meaning of Consent**\
+`Readers respond to Opinion guest essays about Cornell, sexual assault, consent and fraternities. Also: After suicide; music in schools.`\
+https://www.nytimes.com/2026/10/15/opinion/cornell-consent-rape.html
+
+**President Trump Says That Leakers Should Be Shot**\
+`At a political rally in Arizona, President Trump said that government sources who leak military plans should be shot.`\
+https://www.nytimes.com/video/us/politics/100000011215886/president-trump-leakers-shot.html
+
 **‘Our Very Existence Is on the Ballot’**\
 `Extreme gerrymandering permitted by the Supreme Court threatens to roll back decades of hard-won civil rights progress. We spoke to six Black lawmakers about what’s truly at stake.`\
 https://www.nytimes.com/video/opinion/100000011216076/our-very-existence-is-on-the-ballot.html
