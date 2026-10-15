@@ -1,3 +1,11 @@
+**Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
+`Jocelyn Bioh’s “School Girls; or The African Mean Girls Play” has audiences laughing, but also wrestles with weighty topics like colorism.`\
+https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mean-girls.html
+
+**Who Is Ahead in New Mexico's 3rd Congressional District?**\
+`Track the latest polls in New Mexico's 3rd Congressional District.`\
+https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
+
 **Who Is Ahead in New Mexico's 1st Congressional District?**\
 `Track the latest polls in New Mexico's 1st Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stoc
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
 `The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans are facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
-
-**Chicano, Gay and Still Inspiring Connections**\
-`At El Museo del Barrio, a survey of the art multitasker Teddy Sandoval and his fictional collective, the Butch Gardens School.`\
-https://www.nytimes.com/2026/10/15/arts/design/el-museo-del-barrio-teddy-sandoval.html
-
-**What Teenagers Are Saying About the Cornell Sexual Assault Case**\
-`Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
-https://www.nytimes.com/2026/10/15/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
 
