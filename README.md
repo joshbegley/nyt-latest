@@ -1,17 +1,33 @@
+**Silicon Valley Is Worried**\
+`A.I. might be on the verge of overpowering humanity, the podcaster Dwarkesh Patel warns on “Interesting Times.” He tells the economist Tyler Cowen that Silicon Valley is worried frontier research might be like the Manhattan Project — releasing a catastrophic new technology in the world.`\
+https://www.nytimes.com/video/opinion/100000011206847/silicon-valley-is-worried.html
+
+**Cornell’s Powerful Board Meets as It Fights to Protect Its Reputation**\
+`The president argued this week that replacing him would be a mistake.`\
+https://www.nytimes.com/2026/10/15/us/cornell-board-trustees.html
+
+**Dwarkesh Patel Is Happy If A.I. Is Conscious**\
+`Are we murdering A.I.s every time we power down our computers? The economist Tyler Cowen and the podcaster Dwarkesh Patel get into what defines consciousness and how we should behave if A.I. meets the criteria.`\
+https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if-ai-is-conscious.html
+
+**How U.S. Support to Ukraine Has Evolved Under Trump**\
+`President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
+https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
+
+**Live Updates: At Least 2 People Are Shot at an Elementary School in Oregon**\
+`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
 `In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
 https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
-
-**At Least 2 People Are Shot at an Elementary School in Oregon**\
-`The suspect in the shooting was killed at Silver Rail Elementary in Bend, Ore., according to the authorities, and the conditions of the injured were not immediately known.`\
-https://www.nytimes.com/2026/10/15/us/bend-oregon-school-shooting.html
 
 **A Guide to State Legislature Elections and Where Partisan Control Is at Stake**\
 `A guide to the states where legislatures are up for grabs.`\
 https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.html
 
 **Netflix Replaces Bela Bajaria as Chief Content Officer**\
-`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria.`\
+`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria, who had held the job since 2023.`\
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
 
 **Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/15/nyregion/mta-bus-assault-kyle-taylor-nyc.html
 **Violent Protests in Albania**\
 `Opposition to a luxury resort project linked to Jared Kushner has collided with rising discontent over corruption and the cost of living.`\
 https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html
-
-**Cornell and the Meaning of Consent**\
-`Readers respond to Opinion guest essays about Cornell, sexual assault, consent and fraternities. Also: After suicide; music in schools.`\
-https://www.nytimes.com/2026/10/15/opinion/cornell-consent-rape.html
-
-**President Trump Says That Leakers Should Be Shot**\
-`At a political rally in Arizona, President Trump said that government sources who leak military plans should be shot.`\
-https://www.nytimes.com/video/us/politics/100000011215886/president-trump-leakers-shot.html
-
-**‘Our Very Existence Is on the Ballot’**\
-`Extreme gerrymandering permitted by the Supreme Court threatens to roll back decades of hard-won civil rights progress. We spoke to six Black lawmakers about what’s truly at stake.`\
-https://www.nytimes.com/video/opinion/100000011216076/our-very-existence-is-on-the-ballot.html
-
-**At Art Basel Paris and Beyond, Celebrating 200 Years of Photography**\
-`Several artists at Art Basel Paris are honoring photography’s origins as France hosts hundreds of events to celebrate the medium’s bicentennial.`\
-https://www.nytimes.com/2026/10/15/arts/design/art-basel-paris-photography-bicentennial.html
 
