@@ -1,3 +1,11 @@
+**President Trump Cancels Livestream of Fort Hood Shooter’s Execution**\
+`President Trump canceled the planned livestream of the Fort Hood shooter’s execution. Mr. Trump said that only the victims’ immediate families will be able to watch the execution in person on Dec. 3.`\
+https://www.nytimes.com/video/us/politics/100000011216401/trump-fort-hood-shooter-execution-livestream-canceled.html
+
+**America’s Most Expensive Senate Race**\
+`The Senate showdown in Texas shows why Donald Trump and the Republican Party are worried about the midterm elections.`\
+https://www.nytimes.com/2026/10/15/world/us-midterms-texas-zelensky-ukraine.html
+
 **Understanding a Home’s Fire Risk**\
 `The ratings on real estate sites that try to convey the risk of burning in a wildfire may overcomplicate or misrepresent the risk.`\
 https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/15/us/politics/james-talarico-fundraising-texas-
 **Homeownership Drifts Further Out of Reach as Mortgage Rates Rise**\
 `Mortgage rates have pushed above 7 percent and home prices remain elevated, hurting the prospects of would-be buyers.`\
 https://www.nytimes.com/2026/10/15/business/economy/housing-market-mortgage-rates.html
-
-**More Than 30 Children Killed After School Roof Collapse in Pakistan**\
-`A roof collapsed at a school in Peshawar, Pakistan, killing more than 30 children and one teacher, the local authorities said.`\
-https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-collapse-children-deaths.html
-
-**How One Global Climate Deal Worked ‘Perfectly’ as Others Faltered**\
-`In just a decade, the world has slashed super-polluting chemicals used in air-conditioners and fridges. Experts say the pact offers a model for cooperation on warming.`\
-https://www.nytimes.com/2026/10/15/climate/hfc-kigali-greenhouse-gases.html
 
