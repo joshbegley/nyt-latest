@@ -1,3 +1,11 @@
+**Trump’s New Press Secretary Faces Scrutiny Over Credentials**\
+`President Trump called Katie Zacharia, his new press secretary, an “attorney” on Tuesday, creating confusion about her credentials.`\
+https://www.nytimes.com/video/us/politics/100000011215220/trump-press-secretary-katie-zacharia-lawyer.html
+
+**At Least 20 Children Dead After School Roof Collapses in Pakistan**\
+`The collapse, in Peshawar, also killed a teacher and injured more than 40 people. The country’s prime minister urged rescuers to speed up the search for survivors.`\
+https://www.nytimes.com/2026/10/15/world/asia/pakistan-school-collapse.html
+
 **Anti-Israel Protesters Pose a Purity Test That Even Mamdani Can’t Pass**\
 `The enmity directed toward Mayor Zohran Mamdani from within the pro-Palestinian movement illustrates the challenge the wider left faces in corralling its insurgents.`\
 https://www.nytimes.com/2026/10/15/nyregion/mamdani-dsa-protest-israel.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011210554/americas-way-is-not-the-on
 **Frank Mancuso Has Died. He Was Behind Hit Movies of the 1980s and ’90s.**\
 `As head of Paramount he ushered box office favorites like “Top Gun” and “Fatal Attraction.” Later, he revived James Bond at MGM.`\
 https://www.nytimes.com/2026/10/14/obituaries/frank-mancuso-dead.html
-
-**Stocks Tumble as Concerns Over Inflation and A.I. Investments Grow**\
-`The S&P 500 fell 1.1 percent on Wednesday, the steepest drop in more than two months.`\
-https://www.nytimes.com/2026/10/14/business/stocks-500-index-ai.html
-
-**Angry Youth in Aging Europe**\
-`A bitter generational battle over resources is boiling over as economic growth on the continent stalls.`\
-https://www.nytimes.com/2026/10/14/world/youth-aging-europe-pension-ukraine-starshield.html
 
