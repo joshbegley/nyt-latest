@@ -1,3 +1,11 @@
+**Zelensky Says Ukraine Will Resume Strikes on Russian Oil Refineries**\
+`President Volodymyr Zelensky made the announcement in an interview with The Financial Times. He had paused the strikes to comply with a demand from the United States.`\
+https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html
+
+**Inside Art of Play, the Brooklyn Toy Store at the Center of the Kelly Clarkson Online Frenzy**\
+`Art of Play, a high-end novelty store in Brooklyn Heights, has become embroiled in an extremely online feud with the singer and TV personality Kelly Clarkson.`\
+https://www.nytimes.com/2026/10/14/nyregion/kelly-clarkson-art-of-play-feud.html
+
 **Trump’s New Press Secretary Faces Scrutiny Over Credentials**\
 `President Trump called Katie Zacharia, his new press secretary, an “attorney” on Tuesday, creating confusion about her credentials.`\
 https://www.nytimes.com/video/us/politics/100000011215220/trump-press-secretary-katie-zacharia-lawyer.html
