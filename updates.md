@@ -1,3 +1,11 @@
+**California Faces Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
+`Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
+https://www.nytimes.com/2026/10/15/weather/california-faces-combustible-mix-of-very-dry-air-and-75-mph-wind-gusts.html
+
+**Trump Administration Sues California Over Voter Rolls**\
+`The lawsuit is seeking to block the state temporarily from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-administration-california-voter-rolls.html
+
 **6 Members of South Africa’s Biggest Party Are Killed in Shootings**\
 `The two shootings took place only a few weeks before pivotal, nationwide local elections, and as the party, the A.N.C., is embroiled in a dispute over the eligibility of more than 100 candidates.`\
 https://www.nytimes.com/2026/10/15/world/africa/south-africa-anc-campaign-election.html
