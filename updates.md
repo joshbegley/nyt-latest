@@ -1,3 +1,7 @@
+**Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
+`Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
+https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
+
 **North Korea and China Open Their Biggest Border Bridge**\
 `The long-delayed opening of the New Yalu River Bridge comes as the two countries expand trade despite international sanctions imposed on North Korea.`\
 https://www.nytimes.com/2026/10/15/world/asia/north-korea-china-bridge-yalu.html
