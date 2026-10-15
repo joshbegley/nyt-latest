@@ -1,3 +1,7 @@
+**California Faces a Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
+`Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
+https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html
+
 **California Faces Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
 `Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
 https://www.nytimes.com/2026/10/15/weather/california-faces-combustible-mix-of-very-dry-air-and-75-mph-wind-gusts.html

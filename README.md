@@ -1,9 +1,13 @@
-**California Faces a Combustible Mix of ‘Very Dry’ Air and 75-M.P.H. Wind Gusts**\
+**Hegseth’s Plan to Livestream Execution Drew Opposition From Many**\
+`A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
+https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
+
+**Gusty Winds, Hot Temperatures and Dry Air Raise Wildfire Risk in California**\
 `Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
 https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html
 
 **Trump Administration Sues California Over Voter Rolls**\
-`The lawsuit is seeking to block the state temporarily from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
+`The lawsuit seeks to temporarily block the state from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
 https://www.nytimes.com/2026/10/15/us/politics/trump-administration-california-voter-rolls.html
 
 **6 Members of South Africa’s Biggest Party Are Killed in Shootings**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/well/live/menopause-hormone-therapy-acog.html
 **Don’t Make Salad. Make a Salad Pancake.**\
 `Ruffles of oak leaf lettuce are dipped in a light batter, pan-fried until crisp and dunked into a sesame and soy dipping sauce.`\
 https://www.nytimes.com/2026/10/15/dining/dont-make-salad-make-a-salad-pancake.html
-
-**What Are Data Centers Doing? A Mind-Boggling Amount of Math.**\
-`The calculations needed to train A.I. are nearly impossible to visualize — but we tried anyway.`\
-https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html
 
