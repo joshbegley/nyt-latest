@@ -1,3 +1,7 @@
+**North Korea and China’s Biggest Border Bridge Opens**\
+`The New Yalu River Bridge, the largest border crossing connecting China and North Korea, had its grand opening on Thursday.`\
+https://www.nytimes.com/video/world/asia/100000011215214/china-north-korea-bridge-new-yalu.html
+
 **Zelensky Says Ukraine Will Resume Russian Refinery Strikes, Defying Trump**\
 `President Volodymyr Zelensky made the announcement in an interview with The Financial Times. He had paused the strikes to comply with a demand from the United States.`\
 https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/t-magazine/engagement-wedding-gift-guide.html
 **Santa Ana Winds Prompt Fire Warnings in Southern California**\
 `The first Santa Ana winds of the season are arriving this week in Southern California, where the most severe warnings were in place for Thursday and Friday.`\
 https://www.nytimes.com/2026/10/14/weather/santa-ana-winds-la-california.html
-
-**America’s Way Is Not the Only Way**\
-`Must civil and political rights come first for a country to prosper? On “The Opinions,” Kaiser Kuo challenges the United States’ longstanding insistence on that path to development, arguing that some nations may prioritize securing food, clothing and shelter first. As the world order frays, he makes the case for thinking more expansively about how countries prosper.`\
-https://www.nytimes.com/video/opinion/100000011210554/americas-way-is-not-the-only-way.html
 
