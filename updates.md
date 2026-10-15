@@ -1,3 +1,11 @@
+**Fired FBI Agents Who Worked on Trump Investigation Sue Patel and Others**\
+`The lawsuit also suggests that a motivating factor for the dismissals was the intense scrutiny of the F.B.I. director, Kash Patel, after he went to the Olympics in Milan.`\
+https://www.nytimes.com/2026/10/15/us/politics/fired-fbi-agents-lawsuit-kash-patel-trump.html
+
+**Second Ebola Infection Announced in Kenya**\
+`The case is likely to raise alarms in the country and increase scrutiny of the government’s surveillance measures.`\
+https://www.nytimes.com/2026/10/15/world/africa/kenya-ebola-infections.html
+
 **Why Zara Larsson Refuses to Censor Herself – or Dim Her Joy**\
 `Watch the full conversation with Zara Larsson. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011212156/why-zara-larsson-refuses-to-censor-herself-or-dim-her-joy.html
