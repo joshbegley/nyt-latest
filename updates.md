@@ -1,3 +1,11 @@
+**Ms., Martians and Guacamole: Their First Time in The Times**\
+`Our reporters share a compendium of debuts, discoveries and (sometimes overdue) appearances in the paper.`\
+https://www.nytimes.com/2026/10/15/us/175-anniversary-history-corrections-pulitzer-martian.html
+
+**Many Figures Opposed Hegseth’s Plan to Livestream Fort Hood Shooter’s Execution**\
+`A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
+https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
+
 **Where to Eat Like You’re in Hawaii (From 5,000 Miles Away)**\
 `Hawaiian food is scarce in New York City, but not so scarce that you can’t find some great options.`\
 https://www.nytimes.com/2026/10/15/dining/hawaiian-food-nyc.html
