@@ -1,3 +1,11 @@
+**Democratic Senators Move to Block U.S.-Saudi Nuclear Deal**\
+`The move will force a vote on the agreement after the midterm elections, though it faces steep odds in the Republican-controlled Congress even amid bipartisan concern about the deal.`\
+https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
+
+**Trump Cancels Planned Livestream of Fort Hood Shooter’s Execution**\
+`The president said only immediate families of the victims of the mass shooting in 2009 would witness the execution of Maj. Nidal Malik Hasan.`\
+https://www.nytimes.com/2026/10/15/us/trump-hasan-fort-hood-execution-livestream.html
+
 **Wine: It’s the People’s Drink**\
 `Let’s stop thinking about wine as an emblem of snobbery, and start celebrating it for what it is: a way for community to come together.`\
 https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/10/15/business/epstein-banks-midterm-elections.html
 `The exhibition, with paintings new to the United States, opens in November 2027. The Met’s Facade and Great Hall commissions go to Danh Vo and Sandra Mujinga.`\
 https://www.nytimes.com/2026/10/15/arts/design/rembrandt-met-louvre-danh-vo-sandra-mujinga.html
 
-**Get ‘Aligned’ or Get Out of the Way**\
+**How ‘Alignment’ Took Over the Worlds of Business and Tech**\
 `Whether an A.I. or a human, you’re encouraged to be aligned. How did we get here?`\
 https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
 
@@ -154,7 +162,7 @@ https://www.nytimes.com/2026/10/15/realestate/housing-market-near-nyc.html
 `This week’s properties are in Kips Bay, Greenwich Village and on the Grand Concourse.`\
 https://www.nytimes.com/2026/10/15/realestate/housing-market-nyc.html
 
-**36 Hours in Tunis: Things to Do and See**\
+**36 Hours in Tunis, Tunisia: Things to Do and See**\
 `Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
 https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/movies/whalefall-review.html
 **‘Tenzing’ Review: Peak Ambition**\
 `An overlooked Mount Everest pioneer gets an overdue tribute in this pleasingly dignified mountaineering drama.`\
 https://www.nytimes.com/2026/10/15/movies/tenzing-review.html
-
-**‘Sense and Sensibility’ Review: Can’t Buy Me Love**\
-`A lush new adaptation of Jane Austen’s novel leans into youth and money troubles.`\
-https://www.nytimes.com/2026/10/15/movies/sense-and-sensibility-review.html
-
-**‘Sacrifice’ Review: Party Crashers at the End of the World**\
-`Starring Chris Evans and Anya Taylor-Joy, this nonsensical eat-the-rich satire follows an aging movie star swept up into a deranged eco-terrorist plot.`\
-https://www.nytimes.com/2026/10/15/movies/sacrifice-review.html
 

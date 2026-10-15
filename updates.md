@@ -1,3 +1,19 @@
+**Democratic Senators Move to Block U.S.-Saudi Nuclear Deal**\
+`The move will force a vote on the agreement after the midterm elections, though it faces steep odds in the Republican-controlled Congress even amid bipartisan concern about the deal.`\
+https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
+
+**Trump Cancels Planned Livestream of Fort Hood Shooter’s Execution**\
+`The president said only immediate families of the victims of the mass shooting in 2009 would witness the execution of Maj. Nidal Malik Hasan.`\
+https://www.nytimes.com/2026/10/15/us/trump-hasan-fort-hood-execution-livestream.html
+
+**How ‘Alignment’ Took Over the Worlds of Business and Tech**\
+`Whether an A.I. or a human, you’re encouraged to be aligned. How did we get here?`\
+https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
+
+**36 Hours in Tunis, Tunisia: Things to Do and See**\
+`Tunisia’s capital is replete with wonders both ancient and modern, from archaeological ruins to a kinetic contemporary art scene.`\
+https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
+
 **Wine: It’s the People’s Drink**\
 `Let’s stop thinking about wine as an emblem of snobbery, and start celebrating it for what it is: a way for community to come together.`\
 https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
