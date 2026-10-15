@@ -1,3 +1,11 @@
+**Anti-Israel Protesters Pose a Purity Test That Even Mamdani Can’t Pass**\
+`The enmity directed toward Mayor Zohran Mamdani from within the pro-Palestinian movement illustrates the challenge the wider left faces in corralling its insurgents.`\
+https://www.nytimes.com/2026/10/15/nyregion/mamdani-dsa-protest-israel.html
+
+**NYT Spelling Bee Answers for October 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/15/crosswords/spelling-bee-forum.html
+
 **Israelis Must Choose a Secular Nation or Theocracy**\
 `Israeli voters have an opportunity to end the stranglehold the ultra-Orthodox have on some aspects of society.`\
 https://www.nytimes.com/2026/10/15/opinion/israel-elections-ultra-orthodox-jewish.html
