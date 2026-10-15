@@ -1,3 +1,7 @@
+**Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
+`In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
+https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html
+
 **How Claims of Widespread Noncitizen Voting Fall Apart**\
 `Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
 https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/us/harvard-endowment-soars.html
 **‘I Had Always Considered Brussels Sprouts to Be Evil Little Cabbages’**\
 `Readers’ least favorite vegetables, and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/15/dining/i-had-always-considered-brussels-sprouts-to-be-evil-little-cabbages.html
-
-**‘Once Upon a Time in Harlem’ Review: A Renaissance of Their Own**\
-`The Black luminaries who turned 1920s Harlem into a hub of artistic expression gathered decades later to reminisce. It was a house party for the ages.`\
-https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
 

@@ -1,3 +1,7 @@
+**Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
+`In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
+https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html
+
 **How Claims of Widespread Noncitizen Voting Fall Apart**\
 `Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
 https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
