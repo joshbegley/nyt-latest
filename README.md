@@ -1,3 +1,15 @@
+**Trump’s Democracy-for-Diesel Deal Shames Us All**\
+`The president’s arrangement to import Russian diesel fuel is one more example of how he has sold out American democracy.`\
+https://www.nytimes.com/2026/10/15/opinion/trump-russia-oil-putin.html
+
+**New Guidelines Strongly Support Hormone Therapy for Common Menopause Symptoms**\
+`The American College of Obstetricians and Gynecologists said the benefits of the treatment outweigh the harms for many women.`\
+https://www.nytimes.com/2026/10/15/well/live/menopause-hormone-therapy-acog.html
+
+**Don’t Make Salad. Make a Salad Pancake.**\
+`Ruffles of oak leaf lettuce are dipped in a light batter, pan-fried until crisp and dunked into a sesame and soy dipping sauce.`\
+https://www.nytimes.com/2026/10/15/dining/dont-make-salad-make-a-salad-pancake.html
+
 **What Are Data Centers Doing? A Mind-Boggling Amount of Math.**\
 `The calculations needed to train A.I. are nearly impossible to visualize — but we tried anyway.`\
 https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html
@@ -173,16 +185,4 @@ https://www.nytimes.com/interactive/2026/10/15/travel/things-to-do-tunis.html
 **An Architect’s South Pasadena Retreat Is for Sale for $4.2 Million**\
 `The home of Bob Ray Offenhauser, known for his countless grand estates, is on the market for $4.2 million.`\
 https://www.nytimes.com/2026/10/15/realestate/an-architects-personal-jewel-box-is-for-sale-in-south-pasadena.html
-
-**The Chicks Still Won’t Make Nice**\
-`A new tour celebrates the 20th anniversary of “Taking the Long Way,” the trio’s Grammy-winning response to political backlash.`\
-https://www.nytimes.com/2026/10/15/arts/music/the-chicks-tour-taking-the-long-way.html
-
-**The Race to Defend Kyiv Against Terrifying New Jet-Powered Drones**\
-`Ukrainian engineers are rushing to perfect A.I.-guided, jet-driven interceptors. Their goal: to stop a fast Russian threat in the latest round of a deadly tech duel.`\
-https://www.nytimes.com/2026/10/15/world/europe/ukraine-jet-drone-interceptor.html
-
-**‘You Can See Everything’ Review: The Slippery Mind of Elizabeth Holmes**\
-`The disgraced tech entrepreneur and the comic Nathan Fielder chat and joust in a dizzying movie about truth, reality and the contours of knowledge.`\
-https://www.nytimes.com/2026/10/15/movies/you-can-see-everything-review-elizabeth-holmes.html
 

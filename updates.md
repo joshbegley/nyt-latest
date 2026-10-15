@@ -1,3 +1,7 @@
+**What Are Data Centers Doing? A Mind-Boggling Amount of Math.**\
+`The calculations needed to train A.I. are nearly impossible to visualize — but we tried anyway.`\
+https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html
+
 **Democrats Worry About Tight Midterm Races in Maine, Michigan and Minnesota**\
 `Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
 https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html

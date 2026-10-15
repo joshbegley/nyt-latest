@@ -1,3 +1,7 @@
+**What Are Data Centers Doing? A Mind-Boggling Amount of Math.**\
+`The calculations needed to train A.I. are nearly impossible to visualize — but we tried anyway.`\
+https://www.nytimes.com/interactive/2026/10/15/upshot/ai-data-center-math.html
+
 **Democratic Senators Move to Block U.S.-Saudi Nuclear Deal**\
 `The move will force a vote on the agreement after the midterm elections, though it faces steep odds in the Republican-controlled Congress even amid bipartisan concern about the deal.`\
 https://www.nytimes.com/2026/10/15/us/politics/senators-saudi-nuclear-deal.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/15/world/europe/ukraine-jet-drone-interceptor.ht
 **‘You Can See Everything’ Review: The Slippery Mind of Elizabeth Holmes**\
 `The disgraced tech entrepreneur and the comic Nathan Fielder chat and joust in a dizzying movie about truth, reality and the contours of knowledge.`\
 https://www.nytimes.com/2026/10/15/movies/you-can-see-everything-review-elizabeth-holmes.html
-
-**‘Whalefall’ Review: In the Belly of the Beast**\
-`Austin Abrams plays a grieving son in search of his father who ends up trapped inside a very large mammal in a family drama that’s too literal for its own good.`\
-https://www.nytimes.com/2026/10/15/movies/whalefall-review.html
-
-**‘Tenzing’ Review: Peak Ambition**\
-`An overlooked Mount Everest pioneer gets an overdue tribute in this pleasingly dignified mountaineering drama.`\
-https://www.nytimes.com/2026/10/15/movies/tenzing-review.html
 
