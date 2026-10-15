@@ -1,3 +1,7 @@
+**Cornell’s President Grilled by Faculty Senate Over Handling of Crisis**\
+`Ahead of a vote on a resolution of no confidence in Michael I. Kotlikoff, some faculty members said they were not swayed by steps he announced on Tuesday, including banning fraternity parties.`\
+https://www.nytimes.com/2026/10/14/nyregion/cornell-president-faculty-senate-lawsuit-response.html
+
 **Appeals Court Blocks California Law Mandating I.D. for Federal Agents**\
 `The court said that California could not impose state requirements on federal law enforcement operations.`\
 https://www.nytimes.com/2026/10/14/us/court-blocks-california-ice-agent-id.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/climate/coral-bleaching-healing-touch.html
 **What Teenagers Are Saying About the Cornell Sexual Assault Case**\
 `Students react to the news that has gripped the nation, sharing their thoughts on institutional accountability, fraternity culture and campus safety.`\
 https://www.nytimes.com/2026/10/14/learning/what-teenagers-are-saying-about-the-cornell-sexual-assault-case.html
-
-**Anger Over Trump’s Deal With Putin**\
-`Readers react to President Trump’s diesel fuel deal with Russia. Also: Stressed out in America; useful skills.`\
-https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html
 
