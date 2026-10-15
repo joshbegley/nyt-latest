@@ -1,3 +1,7 @@
+**Eliot Spitzer’s Real Estate Firm Overcharged Tenants, Lawsuit Claims**\
+`The suit argues that the company run by the former New York governor violated state rent regulations at a luxury tower in Brooklyn.`\
+https://www.nytimes.com/2026/10/14/nyregion/rent-stabilized-lawsuit-overcharge-eliot-spitzer.html
+
 **‘Anon’ Review: Anne Washburn’s Satire Gets Lost in the Storm**\
 `The playwright tries to strike a middle path in this comedy about QAnon far-right conspiracy theories, which stars the reliably zany Crystal Finn.`\
 https://www.nytimes.com/2026/10/14/theater/anon-review-anne-washburn.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/14/style/avantika-vandanapu-not-suitable-for-wor
 **Why Trump’s Russian Diesel Deal Is Unlikely to Lower Fuel Costs**\
 `President Trump’s deal with Russia will probably not lower diesel prices that have soared because of his war with Iran and Ukrainian attacks on Russian refineries.`\
 https://www.nytimes.com/2026/10/14/business/energy-environment/trump-russia-diesel-prices.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Dance soundtrack, feather atlas and the sound of a sunny day.`\
-https://www.nytimes.com/2026/10/14/briefing/14-the-good-list-singing-marina-abramovic.html
 

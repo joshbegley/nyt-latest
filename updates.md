@@ -1,3 +1,7 @@
+**Eliot Spitzer’s Real Estate Firm Overcharged Tenants, Lawsuit Claims**\
+`The suit argues that the company run by the former New York governor violated state rent regulations at a luxury tower in Brooklyn.`\
+https://www.nytimes.com/2026/10/14/nyregion/rent-stabilized-lawsuit-overcharge-eliot-spitzer.html
+
 **‘Anon’ Review: Anne Washburn’s Satire Gets Lost in the Storm**\
 `The playwright tries to strike a middle path in this comedy about QAnon far-right conspiracy theories, which stars the reliably zany Crystal Finn.`\
 https://www.nytimes.com/2026/10/14/theater/anon-review-anne-washburn.html
