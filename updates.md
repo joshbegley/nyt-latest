@@ -1,3 +1,7 @@
+**‘Anon’ Review: Anne Washburn’s Satire Gets Lost in the Storm**\
+`The playwright tries to strike a middle path in this comedy about QAnon far-right conspiracy theories, which stars the reliably zany Crystal Finn.`\
+https://www.nytimes.com/2026/10/14/theater/anon-review-anne-washburn.html
+
 **Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
 `Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
