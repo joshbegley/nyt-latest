@@ -1,3 +1,11 @@
+**Trump’s Attacks on Voting Raise Fears He Will Try to Challenge Midterm Results**\
+`Election officials say they worry the administration could use its own unsubstantiated claims to contest the vote in November.`\
+https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.html
+
+**‘Suspicious Substances’ Sent to Senators and State Election Officials**\
+`Federal law enforcement officials said they were investigating a series of letters mailed to members of Congress and secretaries of state in recent days.`\
+https://www.nytimes.com/2026/10/15/us/senators-election-officials-mail-suspicious-substances.html
+
 **Yemen Says Prime Minister Unhurt After Iran-Backed Houthis Strike Palace**\
 `Two were killed when Houthi missiles struck the Maashiq Presidential Palace in Aden, a Yemeni minister said. Saudi Arabia has said Iran is fueling the country’s escalating conflict.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
@@ -146,7 +154,7 @@ https://www.nytimes.com/2026/10/15/dining/drinks/wine-community.html
 `Despite hopes for a blue wave, Democratic candidates in Minnesota, Maine and Michigan are facing local political headwinds and have struggled to open up clear daylight in the polls.`\
 https://www.nytimes.com/2026/10/15/us/politics/peggy-flanagan-abdul-el-sayed-troy-jackson.html
 
-**El-Sayed Blitzes Upper Michigan With Ocasio-Cortez as Vance Heads Downstate**\
+**El-Sayed and Ocasio-Cortez Blitz Upper Michigan as Vance Heads Downstate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/15/us/midterms-elections
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.htm
 **Shook Research Changes Name to Veritant After Forbes Scandal**\
 `The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
 https://www.nytimes.com/2026/10/15/business/media/shook-research-veritant-forbes.html
-
-**At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
-`Reporters often offer the only independent account of what happens inside a death chamber.`\
-https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
-
-**The Fallout From the ‘Neocloud’ Wipeout**\
-`Investors are newly worried about the health of artificial intelligence infrastructure companies like CoreWeave. That’s weighing on the wider A.I. industry.`\
-https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stocks.html
 

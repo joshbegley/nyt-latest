@@ -1,3 +1,7 @@
+**Why Zara Larsson Refuses to Censor Herself – or Dim Her Joy**\
+`Watch the full conversation with Zara Larsson. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011212156/why-zara-larsson-refuses-to-censor-herself-or-dim-her-joy.html
+
 **Trump’s Attacks on Voting Raise Fears He Will Try to Challenge Midterm Results**\
 `Election officials say they worry the administration could use its own unsubstantiated claims to contest the vote in November.`\
 https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/magazine/aligned-corporate-jargon.html
 **Why Russia Sees a Window to Bomb Ukraine Into Submission This Winter**\
 `Moscow is not winning on the battlefield. Instead, it is seizing an opening to inflict immense human suffering in Ukrainian cities.`\
 https://www.nytimes.com/2026/10/15/world/europe/russia-ukraine-winter-energy.html
-
-**Shook Research Changes Name to Veritant After Forbes Scandal**\
-`The company, known for its rankings of wealth advisers, sped up a rebranding after its founder acknowledged a secret $6 million payment to the top editor of Forbes.`\
-https://www.nytimes.com/2026/10/15/business/media/shook-research-veritant-forbes.html
 
