@@ -1,3 +1,11 @@
+**At Christa Pike’s Botched Execution, Reporters Witness a ‘Horror Show’**\
+`Reporters often offer the only independent account of what happens inside a death chamber.`\
+https://www.nytimes.com/2026/10/15/insider/christa-pike-execution-reporters.html
+
+**The Fallout From the ‘Neocloud’ Wipeout**\
+`Investors are newly worried about the health of artificial intelligence infrastructure companies like CoreWeave. That’s weighing on the wider A.I. industry.`\
+https://www.nytimes.com/2026/10/15/business/dealbook/ai-neoclouds-coreweave-stocks.html
+
 **Elon Musk and Other Donors Pile $94 Million Into House Republican Effort**\
 `The party’s top super PAC for House candidates said it had raised more this summer than ever before in a third quarter, but acknowledged the challenges Republicans were facing.`\
 https://www.nytimes.com/2026/10/15/us/politics/elon-musk-timothy-mellon-house-republicans.html
@@ -82,7 +90,7 @@ https://www.nytimes.com/2026/10/15/business/chinese-evs-europe-paris-motor-show.
 `A charter school named for Earl Monroe is dedicating a new building, which features a basketball-and-book-themed mural.`\
 https://www.nytimes.com/2026/10/15/nyregion/bronx-charter-school-basketball-books.html
 
-**Inside the Mind of A.I.’s Most Essential Chronicler**\
+**What the Frontier Labs Know That We Don’t**\
 `Dwarkesh Patel on what the public doesn’t know about A.I.`\
 https://www.nytimes.com/2026/10/15/opinion/interesting-times-dwarkes-patel-tyler-cowen.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/15/movies/rosalind-eleazar-misty-green-slow-hors
 **Why Are Migrant Children in Court Without a Lawyer?**\
 `Many unaccompanied minors are facing deportation hearings without a lawyer because of the Trump administration’s dispute with an organization that helps provide legal representation to thousands of migrant children. Our national reporter Jazmine Ulloa explains.`\
 https://www.nytimes.com/video/us/100000011180523/why-are-migrant-children-in-court-without-a-lawyer.html
-
-**The Painter the Art World Loves to Forget**\
-`Artist, novelist, playwright, wrestler, fashion muse — the Rosalyn Drexler rediscovery is on (again).`\
-https://www.nytimes.com/2026/10/15/arts/design/rosalyn-drexler-garth-greenan-gallery.html
-
-**Bonnie Garmus on Her Favorite Books and Her New Novel**\
-`For her follow-up to “Lessons in Chemistry,” she’s written a novel about poetry editors, one of whom is a “typeface connoisseur.” On the other hand, don’t get her started on clowns.`\
-https://www.nytimes.com/2026/10/15/books/review/bonnie-garmus-peck-and-peck.html
 
