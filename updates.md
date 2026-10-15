@@ -1,3 +1,19 @@
+**Maps: Tracking Tropical Storm Champi**\
+`See the likely path and wind arrival times for Champi`\
+https://www.nytimes.com/interactive/2026/10/15/weather/champi-map-path-tracker.html
+
+**California’s Proposition 45 Brings the Sprawl Debate Back**\
+`Among the measures up for a vote in November is one that would amend the state’s landmark environmental law and make it easier to build large housing developments outside cities.`\
+https://www.nytimes.com/2026/10/15/business/economy/californias-housing-proposition-45.html
+
+**James Talarico Raises Quarterly Record of $64 Million in Texas Senate Race Against Ken Paxton**\
+`The amount is the most that a Senate candidate has ever raised during that period, his campaign said, eclipsing his opponent in Texas, Ken Paxton.`\
+https://www.nytimes.com/2026/10/15/us/politics/james-talarico-fundraising-texas-senate.html
+
+**Homeownership Drifts Further Out of Reach as Rates Rise**\
+`Mortgage rates have pushed above 7 percent and home prices remain elevated, hurting the prospects of would-be buyers.`\
+https://www.nytimes.com/2026/10/15/business/economy/housing-market-mortgage-rates.html
+
 **More Than 30 Children Killed After School Roof Collapse in Pakistan**\
 `A roof collapsed at a school in Peshawar, Pakistan, killing more than 30 children and one teacher, the local authorities said.`\
 https://www.nytimes.com/video/world/asia/100000011215427/pakistan-school-roof-collapse-children-deaths.html
