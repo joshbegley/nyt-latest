@@ -1,3 +1,11 @@
+**Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
+`Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
+https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
+
+**Dwarkesh Patel: A.I. Will Be Autonomous in Three Years**\
+`A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
+https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
+
 **Silicon Valley Is Worried**\
 `A.I. might be on the verge of overpowering humanity, the podcaster Dwarkesh Patel warns on “Interesting Times.” He tells the economist Tyler Cowen that Silicon Valley is worried frontier research might be like the Manhattan Project — releasing a catastrophic new technology in the world.`\
 https://www.nytimes.com/video/opinion/100000011206847/silicon-valley-is-worried.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.ht
 https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
 
 **Venezuela’s Opposition Leader Breaks With Trump Over Oil Deal**\
-`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you think.”`\
+`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
 https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
 
 **Justice Department Sues California Over Voter Rolls**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/15/movies/once-upon-a-time-in-harlem-review.html
 **How We Reported on the Cornell Case**\
 `In our first edition of The Backstory, a new newsletter about Times journalism, we’re diving into coverage of a rape allegation and talking to a critic who says we’re not tough enough on Trump.`\
 https://www.nytimes.com/2026/10/15/insider/backstory-newsletter-trump-cornell.html
-
-**NYC School Aide Says He Paid Bus Fare Before MTA Officers Tackled Him**\
-`A Brooklyn school aide said transit workers assaulted him after asking whether he had paid. The incident was captured on a deli’s surveillance camera.`\
-https://www.nytimes.com/2026/10/15/nyregion/mta-bus-assault-kyle-taylor-nyc.html
-
-**Violent Protests in Albania**\
-`Opposition to a luxury resort project linked to Jared Kushner has collided with rising discontent over corruption and the cost of living.`\
-https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html
 
