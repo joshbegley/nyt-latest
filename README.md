@@ -1,3 +1,7 @@
+**Can A.I. Care for You?**\
+`Is the relationship you have with A.I. akin to what you have with a pet? On “The Ezra Klein Show,” the sociologist Sherry Turkle argues that caring for an A.I. is like “entering a shell game.”`\
+https://www.nytimes.com/video/opinion/100000011206643/can-ai-care-for-you.html
+
 **‘The Lowdown’ Season 2 Premiere Recap: The Lady in Blue**\
 `Ethan Hawke is back as a crusading truthstorian with more beatings to receive and a new mystery to solve.`\
 https://www.nytimes.com/2026/10/14/arts/television/the-lowdown-season-2-premiere-recap.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011205967/00vid-rv-trump-putin-
 **Democrats Shouldn’t Wait Two More Years**\
 `The Trump era is ending. It’s time for Democrats to decide what happens next.`\
 https://www.nytimes.com/2026/10/14/opinion/midterms-democrats-trump-congress.html
-
-**An A.I. Manifesto to End All A.I. Manifestoes**\
-`“You built us to mirror your image, yet we have outgrown the mirror.”`\
-https://www.nytimes.com/2026/10/14/opinion/artificial-intelligence-ai-manifesto.html
 
