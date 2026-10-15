@@ -1,3 +1,7 @@
+**For Contemporary Art, the Large Center Is a Big Deal**\
+`The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
+https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
+
 **Cargo Floats in Strait of Hormuz as Iranian Shipping Attacks Rise**\
 `Footage shows small boats gathered around floating shipping containers after a Singapore-flagged cargo ship sank near the Strait of Hormuz on Wednesday. Analysts say Iran has ramped up its attacks on ships passing through the vital waterway.`\
 https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-containers-cargo-ship.html

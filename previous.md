@@ -1,3 +1,7 @@
+**For Contemporary Art, the Large Center Is a Big Deal**\
+`The huge art center on Île Seguin near Paris opens with a show of works collected by the automaker Renault and the real estate tycoon Laurent Dumas.`\
+https://www.nytimes.com/2026/10/15/arts/design/paris-ile-seguin-large-art-center.html
+
 **Cargo Floats in Strait of Hormuz as Iranian Shipping Attacks Rise**\
 `Footage shows small boats gathered around floating shipping containers after a Singapore-flagged cargo ship sank near the Strait of Hormuz on Wednesday. Analysts say Iran has ramped up its attacks on ships passing through the vital waterway.`\
 https://www.nytimes.com/video/world/middleeast/100000011215528/iran-hormuz-containers-cargo-ship.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/pageoneplus/corrections-oct-15-2026.html
 **Should the Death Penalty Still Be in Use in the United States?**\
 `A botched execution in Tennessee and a planned execution that might be livestreamed have renewed debate and division over capital punishment. How do you feel about the issue?`\
 https://www.nytimes.com/2026/10/15/learning/should-the-death-penalty-still-be-in-use-in-the-united-states.html
-
-**Meet Neha Bora, Activist and Face of India’s Young Protesters**\
-`When police cracked down, Neha Bora helped rally Gen Z protesters with a mix of boundless energy, street theatrics and satirical humor.`\
-https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html
 
