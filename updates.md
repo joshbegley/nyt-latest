@@ -1,3 +1,11 @@
+**Theocracy Is Not What I Want for Israel**\
+`Israeli voters have an opportunity to end the stranglehold the ultra-Orthodox have on some aspects of society.`\
+https://www.nytimes.com/2026/10/15/opinion/israel-elections-ultra-orthodox-jewish.html
+
+**France Is on the Brink**\
+`A fiscal crisis threatens to bring the country to ruin.`\
+https://www.nytimes.com/2026/10/15/opinion/france-protests-debt-budget.html
+
 **Katie Zacharia Is Trump’s New Press Secretary. But Is She a Lawyer?**\
 `Katie Zacharia told The New York Times that the confusion over her legal credentials is the result of one big misunderstanding.`\
 https://www.nytimes.com/2026/10/14/us/politics/trump-press-secretary-katie-zacharia-lawyer.html
