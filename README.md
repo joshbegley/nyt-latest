@@ -1,3 +1,35 @@
+**The Sexual Abuse Crisis in Paris’s Public Schools**\
+`A surge of abuse accusations has led Parisian authorities to acknowledge a “collective failure” to prevent sexual offenders from working in schools.`\
+https://www.nytimes.com/2026/10/16/world/europe/paris-schools-abuse-crisis.html
+
+**Quote of the Day: Superfan Gets a Second Chance to Leave It All Out on the Field**\
+`Quotation of the Day for Friday, October 16, 2026.`\
+https://www.nytimes.com/2026/10/16/pageoneplus/quote-of-the-day-superfan-gets-a-second-chance-to-leave-it-all-out-on-the-field.html
+
+**A Shared Heritage, and an Amazing Coincidence, Proved a Strong Foundation**\
+`Mary Nikols and Andoni Tsouchlarakis met on a trip to Crete. As their romance blossomed, they discovered their families had crossed paths decades earlier in Utah.`\
+https://www.nytimes.com/2026/10/16/style/mary-nikols-andoni-tsouchlarakis-wedding.html
+
+**My Late Fiancé Never Knew He Had a Daughter**\
+`And I couldn’t believe a piece of him still existed in this world.`\
+https://www.nytimes.com/2026/10/16/style/modern-love-my-fiance-never-knew-he-had-a-daughter.html
+
+**The First Date Was a Dud, So They Tried Again**\
+`Dr. Jake Perlson and Ethan Wise hit it off after matching on a dating app seven years ago, but were underwhelmed after a first in-person meeting.`\
+https://www.nytimes.com/2026/10/16/style/ethan-wise-jake-perlson-wedding.html
+
+**El Niño Threatens Global Sugar Supply**\
+`A poor sugarcane crop in India, the world’s second-largest producer, is hurting consumers and farmers — plus undermining the country’s energy security goals.`\
+https://www.nytimes.com/2026/10/16/climate/india-sugarcane-production-sugar-prices.html
+
+**He Asked Her Out the Old School Way**\
+`“It definitely made a difference that he called me,” Kristen Smith said of her first date with Oliver Gray.`\
+https://www.nytimes.com/2026/10/16/style/kristen-smith-oliver-gray-wedding.html
+
+**On This Day, Oct. 16: In 1964, China detonated its first atomic bomb.**\
+`In 1964, China detonated its first atomic bomb.`\
+https://www.nytimes.com/2026/10/16/learning/on-this-day-oct-16-china-atomic-bomb.html
+
 **At High-Powered Dinner, Lots of Love for Tisch, Less for Mayor**\
 `Police Commissioner Jessica Tisch received a standing ovation at the Alfred E. Smith dinner and joked about calls for Mayor Zohran Mamdani to fire her.`\
 https://www.nytimes.com/2026/10/15/nyregion/tisch-mamdani-alfred-e-smith-dinner.html
@@ -157,36 +189,4 @@ https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
 **Ms., Martians and Guacamole: Their First Time in The Times**\
 `Our reporters share a compendium of debuts, discoveries and (sometimes overdue) appearances in the paper.`\
 https://www.nytimes.com/2026/10/15/us/175-anniversary-history-corrections-pulitzer-martian.html
-
-**Where to Eat Like You’re in Hawaii (From 5,000 Miles Away)**\
-`Hawaiian food is scarce in New York City, but not so scarce that you can’t find some great options.`\
-https://www.nytimes.com/2026/10/15/dining/hawaiian-food-nyc.html
-
-**Many Figures Opposed Hegseth’s Plan to Livestream Fort Hood Shooter’s Execution**\
-`A retired general, a Catholic archbishop for the military and one of Maj. Nidal Malik Hasan’s victims were among those who had spoken out.`\
-https://www.nytimes.com/2026/10/15/us/politics/hegseth-livestream-execution-hasan.html
-
-**Gusty Winds, Hot Temperatures and Dry Air Raise Wildfire Risk in California**\
-`Red flag warnings were in effect across the state, but the most worrisome weather conditions were expected in Los Angeles and Ventura Counties.`\
-https://www.nytimes.com/2026/10/15/weather/california-fire-weather-winds.html
-
-**Trump Administration Sues California Over Voter Rolls**\
-`The lawsuit seeks to temporarily block the state from counting mail ballots of voters it claims are likely noncitizens, opening a new front in the administration’s legal fights with election officials.`\
-https://www.nytimes.com/2026/10/15/us/politics/trump-administration-california-voter-rolls.html
-
-**6 Members of South Africa’s Biggest Party Are Killed in Shootings**\
-`The two shootings took place only a few weeks before pivotal, nationwide local elections, and as the party, the A.N.C., is embroiled in a dispute over the eligibility of more than 100 candidates.`\
-https://www.nytimes.com/2026/10/15/world/africa/south-africa-anc-campaign-election.html
-
-**Mira Nair Hosts an Intimate Diwali Dinner**\
-`Authors, filmmakers, artists and writers gathered at Passerine this week to celebrate the Hindu festival. Several voiced support for the bubbling youth democracy movement in India.`\
-https://www.nytimes.com/2026/10/15/style/mira-nair-diwali-dinner-salman-rushdie.html
-
-**20 Hours After Falling Overboard, Cruise Passenger Is Rescued Near Greece**\
-`According to Greek officials, the woman told her rescuers she had jumped off the ship because she “wanted to disembark.”`\
-https://www.nytimes.com/2026/10/15/travel/cruise-passenger-overboard-rescue-greece.html
-
-**‘The Full Monty’ Is Postponed as ‘Rhinoceros’ Comes to Broadway**\
-`John Turturro, Tatiana Maslany and Tony Shalhoub will star in a spring production of the satirical Ionesco drama.`\
-https://www.nytimes.com/2026/10/15/theater/full-monty-postponed-rhinoceros-broadway.html
 
