@@ -1,3 +1,7 @@
+**M.L.B. Playoff Ads With Sydney Sweeney and Megan Fox Draw Backlash**\
+`Commercials with Sydney Sweeney promoting a gambling platform and Megan Fox endorsing male enhancement have rankled fans, and even athletes. Who is in charge?`\
+https://www.nytimes.com/2026/10/16/business/media/mlb-playoffs-commercials-sydney-sweeney-novig.html
+
 **Netflix Scrambles to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
 `Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
 https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html

@@ -1,3 +1,7 @@
+**M.L.B. Playoff Ads With Sydney Sweeney and Megan Fox Draw Backlash**\
+`Commercials with Sydney Sweeney promoting a gambling platform and Megan Fox endorsing male enhancement have rankled fans, and even athletes. Who is in charge?`\
+https://www.nytimes.com/2026/10/16/business/media/mlb-playoffs-commercials-sydney-sweeney-novig.html
+
 **Netflix Scrambles to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
 `Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
 https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.
 **Zara Larsson on Pop Going Global**\
 `Zara Larsson chats about the globalization of pop fame and whether she feels the needs to “make it” in America.`\
 https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going-global.html
-
-**Zara Larsson Won’t Abandon Her Politics for Fame**\
-`Zara Larsson refuses to censor her political beliefs for money or fame. The Swedish pop singer has spoken out on issues like abortion rights and Palestine, and she shares with Popcast why she refuses to sacrifice her integrity no matter how lucrative the opportunity.`\
-https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon-her-politics-for-fame.html
 
