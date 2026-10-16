@@ -1,3 +1,7 @@
+**Park Service Will Let Alaska Hunters Bait Bears With Doughnuts**\
+`The National Park Service is reviving a practice that was banned by the Biden administration and condemned by conservationists.`\
+https://www.nytimes.com/2026/10/16/climate/bear-baiting-hunting-alaska.html
+
 **Bystander Who Killed School Shooter Is Father of 2 Students**\
 `Also, the White House press secretary is ousted after five days. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-secretary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
 **The Glaciers Are Collapsing. This Is What We Must Do.**\
 `A glacier monitoring system could give communities in Nepal not 13 minutes, but hours or days to evacuate.`\
 https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-nepal.html
-
-**Slow-Cooker Chili for a Crowd (or Just You and Your Freezer)**\
-`And more popular recipes from the week.`\
-https://www.nytimes.com/2026/10/16/dining/slow-cooker-chili-for-a-crowd-or-just-you-and-your-freezer.html
 
