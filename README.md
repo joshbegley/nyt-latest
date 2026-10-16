@@ -1,3 +1,19 @@
+**Robot trainers**\
+`Plus, young voters, Parisian schools and a lot of math.`\
+https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
+
+**Is This the Breaking Point for Trump and Zelensky?**\
+`Where the two presidents’ war of words will end is anybody’s guess. But if it continues, it could threaten the crucial operational help that Ukraine still gets from the United States.`\
+https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
+
+**The Glaciers Are Collapsing. We Deserve a Warning.**\
+`A glacier monitoring system could give communities in Nepal not 13 minutes, but hours or days to evacuate.`\
+https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-nepal.html
+
+**Slow-Cooker Chili for a Crowd (or Just You and Your Freezer)**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/16/dining/slow-cooker-chili-for-a-crowd-or-just-you-and-your-freezer.html
+
 **What Critics Think About Nathan Fielder’s ‘Bonkers’ Elizabeth Holmes Movie**\
 `“You Can See Everything” has been described as “bonkers.” Our critics have their own thoughts, and we’d like to hear your reactions, too.`\
 https://www.nytimes.com/2026/10/16/movies/nathan-fielder-elizabeth-holmes-billy-evans.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/16/movies/ken-russell-the-devils-re-release.html
 **Why Is No One Doing Anything About Affordability?**\
 `Can 1990s-style politics make a comeback?`\
 https://www.nytimes.com/2026/10/16/opinion/affordability-republicans-democrats.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/10/16/arts/new-movies-this-week-critics.html
-
-**Documentary on Leonard Peltier Uses A.I. to Mixed Effect**\
-`In their film on the case of the convicted American Indian Movement activist, the directors couldn’t interview their subject. Their solution wasn’t ideal.`\
-https://www.nytimes.com/2026/10/16/movies/free-leonard-peltier-documentary-review.html
-
-**This Texas Region Flipped for Trump. Will It Stay Red?**\
-`With control of the Senate at stake, Mara Gay traveled to this Texas border region to hear from voters.`\
-https://www.nytimes.com/2026/10/16/opinion/texas-border-voters-midterms-trump.html
-
-**Book Review: ‘Bogland,’ by Merritt R. Turetsky**\
-`In “Bogland,” Merritt R. Turetsky argues for the importance of that least glamorous of terrains, the bog.`\
-https://www.nytimes.com/2026/10/16/books/review/bogland-merritt-turetsky.html
 
