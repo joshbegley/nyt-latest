@@ -1,3 +1,7 @@
+**16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
+`The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
+https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
+
 **Why No One Can Look Away From Elizabeth Holmes**\
 `Full Episode #217`\
 https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-from-elizabeth-holmes.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-cou
 **Book Review: ‘Pandemic Architecture,’ by Penny Hardy**\
 `Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
 https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
-
-**Citizen Science Groups Grapple With the Rise of A.I. Slop**\
-`Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
-https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
 

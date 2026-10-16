@@ -1,3 +1,7 @@
+**16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
+`The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
+https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
+
 **Man Charged in Fatal Fentanyl Overdose and Rape of FIT Student**\
 `The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
