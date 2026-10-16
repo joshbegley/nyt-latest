@@ -1,3 +1,11 @@
+**The G.O.P.’s Emphasis on Crime Isn’t Resonating With New York Voters**\
+`Four years ago, Republicans stressed fears of rising crime to flip four House seats in New York. But in this year’s midterms, the issue seems less salient.`\
+https://www.nytimes.com/2026/10/16/nyregion/republicans-long-island-congress-midterms.html
+
+**NYT Spelling Bee Answers for October 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/16/crosswords/spelling-bee-forum.html
+
 **City in Oregon Mourns After Deadly School Shooting**\
 `Residents of Bend attended a candlelight vigil after the shooting at Silver Rail Elementary School, in which three children and a teacher were killed.`\
 https://www.nytimes.com/2026/10/16/us/oregon-vigil-school-shooting.html
