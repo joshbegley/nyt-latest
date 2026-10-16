@@ -1,3 +1,11 @@
+**Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
+`The victim was shot once in the head in the early 1980s, the authorities said, and was identified after family members from Arkansas could provide a DNA match.`\
+https://www.nytimes.com/2026/10/15/us/lake-mead-body-identified-las-vegas.html
+
+**Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
+`The police in Bend, Ore., said the suspect was also killed, possibly by an armed bystander.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Trump’s Deal With Russia Inflames Ukraine War He Vowed to End**\
 `The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
 https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
