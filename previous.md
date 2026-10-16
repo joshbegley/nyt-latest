@@ -1,3 +1,7 @@
+**After Roller Coaster Death, Critics Call for Federal Oversight**\
+`Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
+https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
+
 **Ocasio-Cortez Gives $1 Million to El-Sayed Campaign in Michigan**\
 `Representative Alexandria Ocasio-Cortez, Democrat of New York, said she transferred a million dollars to Dr. Abdul El-Sayed’s Senate campaign in Michigan. Whoever wins the Michigan Senate race could determine which party controls the chamber.`\
 https://www.nytimes.com/video/us/politics/100000011219301/ocasio-cortez-gives-1-million-to-el-sayed-campaign-in-michigan.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/business/dealbook/fed-rates-warsh-inflation.h
 **‘The Headlines’ News Quiz: Oct. 16, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/16/podcasts/the-headlines/the-headlines-news-quiz-oct-16-2026.html
-
-**Why No One Can Look Away From Elizabeth Holmes**\
-`“I felt like there were some moments in the film where she was just brazenly lying.”`\
-https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
 
