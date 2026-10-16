@@ -1,3 +1,7 @@
+**Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
+`The victim was shot once in the head in the early 1980s, the authorities said, and was identified after family members from Arkansas could provide a DNA match.`\
+https://www.nytimes.com/2026/10/15/us/lake-mead-body-identified-las-vegas.html
+
 **Trump’s Deal With Russia Inflames Ukraine War He Vowed to End**\
 `The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
 https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
 **Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
-`The police in Bend, Ore., said the suspect, who was also dead, was killed, possibly by an armed bystander.`\
+`The police in Bend, Ore., said the suspect was also killed, possibly by an armed bystander.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mea
 **Who Is Ahead in New Mexico's 3rd Congressional District?**\
 `Track the latest polls in New Mexico's 3rd Congressional District.`\
 https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
-
-**Who Is Ahead in New Mexico's 1st Congressional District?**\
-`Track the latest polls in New Mexico's 1st Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-mexico-us-house-1-polls-2026.html
 
