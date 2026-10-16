@@ -1,3 +1,7 @@
+**This Texas Border Region Swung for Trump. What Do Voters Want Now?**\
+`With control of the Senate at stake, Mara Gay traveled to this Texas border region to hear from voters.`\
+https://www.nytimes.com/video/opinion/100000011194840/this-texas-border-region-swung-for-trump-what-do-voters-want-now.html
+
 **Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
 `Another child and teacher were critically injured in the shooting, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school

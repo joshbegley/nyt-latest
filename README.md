@@ -1,3 +1,119 @@
+**A Paris Museum That’s Wild and a ‘Little Weird’**\
+`Despite its provocative subject matter, the Museum of Hunting and Nature aims to be “a joyful cabinet of curiosities.”`\
+https://www.nytimes.com/2026/10/16/arts/design/paris-museum-hunting-nature.html
+
+**Book Review: ‘Licorice,’ by Kara LaReau**\
+`In Kara LaReau’s “Licorice,” a shelter kitten adopted by a boy named Max is tormented by the lingering presence of her recently departed predecessor.`\
+https://www.nytimes.com/2026/10/16/books/review/rebecca-daphne-dumaurier-kids-novel-licorice-kara-lareau.html
+
+**Young Voters Say They Are Turning Their Backs on Trump and His Party**\
+`One of the biggest surprises of 2024 was the swing of young voters, particularly men, away from Democrats to Donald Trump. Now they are swinging back.`\
+https://www.nytimes.com/2026/10/16/us/politics/young-voters-fleeing-republicans.html
+
+**A Lakeside Italian Villa Restored to Its Original Splendor**\
+`After a Swedish couple returned to Europe from Australia, they found a 19th-century weekend refuge near Como.`\
+https://www.nytimes.com/2026/10/16/t-magazine/lake-como-italy-villa.html
+
+**Kashmir’s Beauty and Violence Captured in an Exquisite Debut at MoMA**\
+`With layered landscapes, patterns and poetry, Nilima Sheikh portrays the fractures and flash points of modern India.`\
+https://www.nytimes.com/2026/10/16/arts/design/nilima-sheikh-fractured-skies-moma.html
+
+**Meta Glasses, A.I. Ads and Robot Models: Fashion Cozies Up to Tech**\
+`Some magazines, influencers and writers are trying out the latest in artificial intelligence and wearables, even if their audiences are skeptical.`\
+https://www.nytimes.com/2026/10/16/style/fashion-meta-glasses-ai.html
+
+**These Older Brazilian Jiu-Jitsu Students Are Fighting the Clock**\
+`While some people slow down as they get older, or just try to maintain, these athletes went looking for a challenge in Brazilian jiu-jitsu.`\
+https://www.nytimes.com/2026/10/16/well/longevity-jiu-jitsu.html
+
+**How Do You Clear Your Head?**\
+`Do you go for a walk, listen to certain songs, talk to a friend — or are there other methods or rituals that help you feel ready for what’s next?`\
+https://www.nytimes.com/2026/10/16/learning/how-do-you-clear-your-head.html
+
+**Trump Hasn’t Lowered Drug Prices for These Voters**\
+`President Trump has been promoting his efforts to reduce drug prices, but many Americans have not seen relief from rising costs for prescriptions and insurance premiums.`\
+https://www.nytimes.com/2026/10/16/business/midterms-election-trump-drug-prices-affordability.html
+
+**Quinn Kelsey: A Verdi Baritone Reigning at the Met Opera**\
+`Quinn Kelsey has had success after success at the Metropolitan Opera. These three performances secure his reputation as a great Verdi baritone.`\
+https://www.nytimes.com/2026/10/16/arts/music/quinn-kelsey-macbeth-met-opera.html
+
+**As Big Money Flees London’s Art Scene, Young Galleries Sharpen Their Edge**\
+`Tax reforms and Paris’s rise have taken a toll. But low-budget, risk-taking dealers are still creating buzz at the Frieze London fair and beyond.`\
+https://www.nytimes.com/2026/10/16/arts/design/frieze-london-small-galleries.html
+
+**Word of the Day: pittance**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/16/learning/word-of-the-day-pittance.html
+
+**A Guide to Nathan Fielder’s Work Before Watching ‘You Can See Everything’**\
+`The comedian may be an unexpected choice for a documentary about the disgraced Theranos founder, but his TV shows suggest why he’s a good fit.`\
+https://www.nytimes.com/2026/10/16/movies/nathan-fielder-tv-shows-elizabeth-holmes.html
+
+**After Welcoming China’s Electric Vehicles, This Country Is Paying the Price**\
+`Thailand introduced subsidies and tax cuts to encourage electric vehicle adoption. Now it is trying to recalibrate, alarmed by the threat to its industrial landscape.`\
+https://www.nytimes.com/2026/10/16/business/china-ev-thailand-cars.html
+
+**Living Near the Hollywood Bowl: Free Concerts and Pancake Breakfasts**\
+`For many of the residents surrounding the Hollywood Bowl in Los Angeles, stadium noise is a feature, not a bug.`\
+https://www.nytimes.com/2026/10/16/realestate/living-near-the-hollywood-bowl-free-concerts-and-pancake-breakfasts.html
+
+**Best Looks From the Spring Summer 2027 Runway Shows**\
+`Outfit inspiration from the spring 2027 shows.`\
+https://www.nytimes.com/2026/10/16/style/favorite-looks-spring-summer-2027-runways.html
+
+**In His Montmartre Atelier, a Self-Made, 91-Year-Old Artist Paints On**\
+`Henri Landier is so committed to his work that, in the early days, he slept on newspapers in an unheated shack. Now, he has had shows from Japan to India.`\
+https://www.nytimes.com/2026/10/16/arts/design/paris-artist-henri-landier.html
+
+**The Artist Boz Deseo Garden and the Afterlife of the Slave Trade**\
+`Boz Deseo Garden, whose work explores the “afterlife” of the trans-Atlantic slave trade, is having their Art Basel Paris debut.`\
+https://www.nytimes.com/2026/10/16/arts/design/boz-deseo-garden-slave-trade.html
+
+**Is Longevity Medicine Going Mainstream?**\
+`As major health systems open their own programs, longevity medicine is gaining credibility and becoming more accessible.`\
+https://www.nytimes.com/2026/10/16/business/longevity-medicine-mainstream.html
+
+**Caracas Is Eerily Safe After Deadly Police Raids in Venezuela Killed Thousands**\
+`Crime plunged after police raids killed thousands. Venezuela is now withdrawing from the International Criminal Court as it investigates this blood-soaked campaign.`\
+https://www.nytimes.com/2026/10/16/world/americas/caracas-is-eerily-safe-state-death-squads-made-sure-of-it.html
+
+**Is Retirement Unhealthy? It Depends on How it’s Defined.**\
+`As more Americans live longer and as the population ages, measuring the effect of retirement on physical, cognitive and mental abilities is a complex undertaking.`\
+https://www.nytimes.com/2026/10/16/well/longevity-retirement-health.html
+
+**Corrections: Oct. 16, 2026**\
+`Corrections that appeared in print on Friday, Oct. 16, 2026.`\
+https://www.nytimes.com/2026/10/16/pageoneplus/corrections-oct-16-2026.html
+
+**The Difficulty of Diagnosing Anorexia in the GLP-1 Era**\
+`Doctors worry that the effects of weight-loss drugs may be masking serious eating disorders.`\
+https://www.nytimes.com/2026/10/16/well/glp1-anorexia-eating-disorders.html
+
+**What Life Is Like in Kyiv as Russia Tries to Make It Unlivable**\
+`A day in the Ukrainian capital, a new kind of battlefield far from the front, where daily life means assessing — and accepting — deadly risks.`\
+https://www.nytimes.com/2026/10/16/world/europe/ukraine-war-life-in-kyiv.html
+
+**D.E.I. Gone Wild? What Do You Know About Affirmative Action In South Africa?**\
+`Trump officials argue that the laws are racist and impede American investment in the country. Test your knowledge of the basics.`\
+https://www.nytimes.com/quiz/2026/10/16/world/safrica-starlink-quiz.html
+
+**The New York Times News Quiz, October 16, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/16/briefing/weekly-news-quiz.html
+
+**Is a Rock Show a ‘Concert’?**\
+`A ruling on a live-music debate.`\
+https://www.nytimes.com/quiz/2026/10/16/magazine/rock-show-concert-hodgman-quiz.html
+
+**Tesla Unveils Its New Roadster**\
+`Tesla’s new sports car, the Roadster, is equipped with thrusters that allow it to go from zero to 60 miles per hour in less than a second and leave the ground briefly.`\
+https://www.nytimes.com/video/business/100000011217990/tesla-roadster-elon-musk.html
+
+**Is There an A.I. Bubble? A Debate.**\
+`Azeem Azhar and Paul Kedrosky debate whether A.I. will make the economy crash.`\
+https://www.nytimes.com/video/opinion/100000011216196/is-there-an-ai-bubble-a-debate.html
+
 **This Texas Border Region Swung for Trump. What Do Voters Want Now?**\
 `With control of the Senate at stake, Mara Gay traveled to this Texas border region to hear from voters.`\
 https://www.nytimes.com/video/opinion/100000011194840/this-texas-border-region-swung-for-trump-what-do-voters-want-now.html
@@ -78,115 +194,7 @@ https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.ht
 `Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
 https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
 
-**NYT Crossword Answers for Oct. 16, 2026**\
-`Adam Shapiro makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
-
-**5 Takeaways From the Senate Debate in Maine**\
-`The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
-https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html
-
-**School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
-`A long string of school shootings have stricken the nation over the last three decades.`\
-https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
-
-**Trump Ally, Paolo Zampolli, Leaves State Department**\
-`Paolo Zampolli, a longtime Trump associate, gained attention earlier this year with a report that his ex-wife had been detained by ICE after his request.`\
-https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
-
-**Judge Dismisses Trump Lawsuit That Sought to Block N.Y.C. Sanctuary Laws**\
-`The ruling was the latest defeat for the administration as it continues a mass deportation campaign.`\
-https://www.nytimes.com/2026/10/15/nyregion/nyc-sanctuary-law-ice-judge-ruling.html
-
-**Woman’s Quiet Dog Walk Near Bend Elementary School Shattered by Gunfire**\
-`“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
-https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
-
-**Judge Refuses to Reverse Penalties Against Crypto Firm With Ties to Trump Family**\
-`The ruling denied a bid by Gemini Trust and the C.F.T.C. to nullify a settlement that required the company to pay $5 million for misleading federal regulators.`\
-https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-trump.html
-
-**A Bitter White House Feud, Even by Trump-Era Standards: Alina Mildon and Richard Grenell**\
-`Two Trump allies — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
-https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
-
-**Oregon Has Approved Tight Gun Laws, but They Have Been Held Up in Courts**\
-`The state has passed restrictive measures popular among gun safety activists. The Silver Rail Elementary School shooting seemed poised to set off conversations about gun control.`\
-https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
-
-**Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
-`The victim was shot once in the head in the early 1980s, the authorities said, and was identified after family members from Arkansas could provide a DNA match.`\
-https://www.nytimes.com/2026/10/15/us/lake-mead-body-identified-las-vegas.html
-
-**Trump’s Deal With Russia Inflames Ukraine War He Vowed to End**\
-`The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
-https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
-
-**Work to Lift Damaged Floors of Midtown High-Rise Is Set to Begin**\
-`The future of the office-to-residential conversion project, once one of New York City’s most ambitious, remains uncertain.`\
-https://www.nytimes.com/2026/10/15/nyregion/pfizer-building-columns-jacking.html
-
-**Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
-`In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
-https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html
-
-**How Claims of Widespread Noncitizen Voting Fall Apart**\
-`Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
-https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
-
-**Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
-`Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
-https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
-
-**Dwarkesh Patel’s Prediction for 2030**\
-`A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
-https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
-
-**Silicon Valley Is Worried**\
-`A.I. might be on the verge of overpowering humanity, the podcaster Dwarkesh Patel warns on “Interesting Times.” He tells the economist Tyler Cowen that Silicon Valley is worried frontier research might be like the Manhattan Project — releasing a catastrophic new technology in the world.`\
-https://www.nytimes.com/video/opinion/100000011206847/silicon-valley-is-worried.html
-
-**Cornell’s Powerful Board Meets as It Fights to Protect Its Reputation**\
-`The president argued this week that replacing him would be a mistake.`\
-https://www.nytimes.com/2026/10/15/us/cornell-board-trustees.html
-
-**Dwarkesh Patel Is Happy If A.I. Is Conscious**\
-`Are we murdering A.I.s every time we power down our computers? The economist Tyler Cowen and the podcaster Dwarkesh Patel get into what defines consciousness and how we should behave if A.I. meets the criteria.`\
-https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if-ai-is-conscious.html
-
-**How U.S. Support to Ukraine Has Evolved Under Trump**\
-`President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
-https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
-
 **Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
 `Another child and teacher were critically injured in the shooting, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
-
-**Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
-`In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
-https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
-
-**A Guide to State Legislature Elections and Where Partisan Control Is at Stake**\
-`A guide to the states where legislatures are up for grabs.`\
-https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.html
-
-**Netflix Replaces Bela Bajaria as Chief Content Officer**\
-`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria, who had held the job since 2023.`\
-https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
-
-**Venezuela’s Opposition Leader Calls Trump’s New Oil Partner Corrupt**\
-`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
-https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
-
-**Justice Department Sues California Over Voter Rolls**\
-`Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
-
-**Teen Arrested Over Plan to Attack Hindu Temple, Officials Say**\
-`The suspect in suburban Chicago was in the parking lot of the temple on Sunday and told a co-worker that his gun had jammed, the authorities said.`\
-https://www.nytimes.com/2026/10/15/us/hindu-temple-chicago-arrest.html
-
-**Students Join Protest Demanding Albania Prime Minister’s Resignation**\
-`Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
-https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
 

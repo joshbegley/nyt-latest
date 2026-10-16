@@ -1,3 +1,7 @@
+**This Texas Border Region Swung for Trump. What Do Voters Want Now?**\
+`With control of the Senate at stake, Mara Gay traveled to this Texas border region to hear from voters.`\
+https://www.nytimes.com/video/opinion/100000011194840/this-texas-border-region-swung-for-trump-what-do-voters-want-now.html
+
 **Fish, Oil and Corruption: 6 Takeaways From Alaska’s Senate Debate**\
 `The Republican incumbent, Dan Sullivan, and his Democratic challenger, Mary Peltola, veered from serious discussion of high prices and economic challenges to blistering personal attacks.`\
 https://www.nytimes.com/2026/10/16/us/politics/alaska-senate-debate-peltola-sullivan.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/us/hindu-temple-chicago-arrest.html
 **Students Join Protest Demanding Albania Prime Minister’s Resignation**\
 `Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
 https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
-
-**Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
-`A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
-https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
 
