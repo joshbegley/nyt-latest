@@ -1,3 +1,23 @@
+**MAGA’s Midterm Defectors**\
+`Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
+
+**A.I.-Generated Ads Flood the Midterms, and Teenager Kills 4 at Oregon Elementary School**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-headlines/ai-ads-midterms-oregon-elementary-school-shooting.html
+
+**NYT Connections Answers for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/connections-companion-1224.html
+
+**NYT Strands Hints for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/strands-sidekick-958.html
+
+**Today’s Wordle Hints for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/wordle-review-1946.html
+
 **The Arab Kingmaker in Israel’s Election Who Wants a Partnership With Jews**\
 `Mansour Abbas, a dentist-turned-lawmaker, helped oust Benjamin Netanyahu once before. Now, he and a Jewish ex-police commander have teamed up to try to do it again.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html

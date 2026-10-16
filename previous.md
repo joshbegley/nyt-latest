@@ -1,3 +1,23 @@
+**MAGA’s Midterm Defectors**\
+`Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
+
+**A.I.-Generated Ads Flood the Midterms, and Teenager Kills 4 at Oregon Elementary School**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-headlines/ai-ads-midterms-oregon-elementary-school-shooting.html
+
+**NYT Connections Answers for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/connections-companion-1224.html
+
+**NYT Strands Hints for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/strands-sidekick-958.html
+
+**Today’s Wordle Hints for October 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/16/crosswords/wordle-review-1946.html
+
 **The Arab Kingmaker in Israel’s Election Who Wants a Partnership With Jews**\
 `Mansour Abbas, a dentist-turned-lawmaker, helped oust Benjamin Netanyahu once before. Now, he and a Jewish ex-police commander have teamed up to try to do it again.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/16/learning/how-do-you-clear-your-head.html
 **Trump Hasn’t Lowered Drug Prices for These Voters**\
 `President Trump has been promoting his efforts to reduce drug prices, but many Americans have not seen relief from rising costs for prescriptions and insurance premiums.`\
 https://www.nytimes.com/2026/10/16/business/midterms-election-trump-drug-prices-affordability.html
-
-**Quinn Kelsey: A Verdi Baritone Reigning at the Met Opera**\
-`Quinn Kelsey has had success after success at the Metropolitan Opera. These three performances secure his reputation as a great Verdi baritone.`\
-https://www.nytimes.com/2026/10/16/arts/music/quinn-kelsey-macbeth-met-opera.html
-
-**As Big Money Flees London’s Art Scene, Young Galleries Sharpen Their Edge**\
-`Tax reforms and Paris’s rise have taken a toll. But low-budget, risk-taking dealers are still creating buzz at the Frieze London fair and beyond.`\
-https://www.nytimes.com/2026/10/16/arts/design/frieze-london-small-galleries.html
-
-**Word of the Day: pittance**\
-`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/16/learning/word-of-the-day-pittance.html
-
-**A Guide to Nathan Fielder’s Work Before Watching ‘You Can See Everything’**\
-`The comedian may be an unexpected choice for a documentary about the disgraced Theranos founder, but his TV shows suggest why he’s a good fit.`\
-https://www.nytimes.com/2026/10/16/movies/nathan-fielder-tv-shows-elizabeth-holmes.html
-
-**After Welcoming China’s Electric Vehicles, This Country Is Paying the Price**\
-`Thailand introduced subsidies and tax cuts to encourage electric vehicle adoption. Now it is trying to recalibrate, alarmed by the threat to its industrial landscape.`\
-https://www.nytimes.com/2026/10/16/business/china-ev-thailand-cars.html
 
