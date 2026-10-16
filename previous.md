@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
 https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 
 **The Year Zara Larsson Unlocked Pop Superstardom**\
-`She broke out at 10, but the Swedish pop star has unlocked a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
+`She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
 https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
 
 **Choose Your Favorite Home in Coastal Uruguay for Under $500,000**\

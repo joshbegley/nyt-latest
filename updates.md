@@ -1,3 +1,7 @@
+**The Year Zara Larsson Unlocked Pop Superstardom**\
+`She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
+https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
+
 **Japan’s Prime Minister Says She Is Busier Than Male Predecessors**\
 `Japan’s first female prime minister, Sanae Takaichi, said she was busier than her male predecessors because of the time she had to spend on makeup, bathing, cooking and other chores.`\
 https://www.nytimes.com/video/world/asia/100000011218094/japan-female-prime-minister-takaichi-gender-comments.html
