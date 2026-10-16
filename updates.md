@@ -1,3 +1,7 @@
+**Why No One Can Look Away From Elizabeth Holmes**\
+`Full Episode #217`\
+https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-from-elizabeth-holmes.html
+
 **Sean ‘Diddy’ Combs Transferred to Prison in Pennsylvania**\
 `The music mogul, who was sentenced last year to more than four years for prostitution-related offenses, had been held in a federal prison in New Jersey.`\
 https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-pennsylvania.html
