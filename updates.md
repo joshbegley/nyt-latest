@@ -1,3 +1,15 @@
+**Fear Itself: What Has America Come To?**\
+`Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
+https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
+
+**Flashback: Your Weekly History Quiz, Oct. 17, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
+
+**Man Charged in Fatal Fentanyl Overdose and Rape of College Student in NYC**\
+`The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
+https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
+
 **Which Designers Should Go Where?**\
 `A bit of fantasy football, but with big luxury brands.`\
 https://www.nytimes.com/2026/10/16/style/the-fashions-designers-departures.html
