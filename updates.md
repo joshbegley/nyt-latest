@@ -1,3 +1,15 @@
+**Why the Anthropic and OpenAI I.P.O.s Are Unusual**\
+`Anthropic and OpenAI are both preparing to go public with valuations in the trillions. But are these companies really worth that much? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he’s skeptical.`\
+https://www.nytimes.com/video/opinion/100000011216277/why-the-anthropic-and-openai-ipos-are-unusual.html
+
+**No, Really — Is A.I. a Bubble?**\
+`Is A.I. a bubble? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he thinks the market is bound to pop.`\
+https://www.nytimes.com/video/opinion/100000011216290/no-really-is-ai-a-bubble.html
+
+**Teacher Killed in Oregon School Shooting Was Working Her ‘Dream Job,’ Family Says**\
+`Megan Lambert graduated from high school in the district where she taught. She died in a classroom with Rhoam Summer and two other children when a shooter attacked.`\
+https://www.nytimes.com/2026/10/16/us/bend-school-shooting-victims-megan-lambert-rhoam-summer.html
+
 **Slain Teacher Loved Work, Volleyball and the Underdog, Her Family Says**\
 `Megan Lambert graduated from high school in the district where she taught. She died in a classroom with Rhoam Summer and two other children when a shooter attacked.`\
 https://www.nytimes.com/2026/10/16/us/bend-school-shooting-victims-megan-lambert-rhoam-summer.html
