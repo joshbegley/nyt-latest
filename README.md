@@ -119,7 +119,7 @@ https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-l
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
 
 **Katie Zacharia, Trump’s New Press Secretary, Is Ousted After 5 Days**\
-`Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+`Her abrupt departure came after she was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
 https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
 
 **Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
