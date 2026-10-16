@@ -1,3 +1,7 @@
+**Live Updates: Oregon City Grieves as Police Investigate Deadly School Shooting**\
+`A teenager shot his way into Silver Rail Elementary School in Bend, killing a teacher and three children, ages 5, 8 and 11. An armed bystander shot the assailant dead, the police said.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Parents Struggle to Help Their Children After School Killings in Oregon**\
 `The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
 https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
