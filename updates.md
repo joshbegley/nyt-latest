@@ -1,3 +1,7 @@
+**Trump’s Deal With Russia Inflames Ukraine War He Vowed to End**\
+`The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
+https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
+
 **Trump’s Deal With Russia Inflames War He Vowed to Swiftly End**\
 `The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
 https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
