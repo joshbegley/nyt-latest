@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/16/us/oregon-school-shooting-suspect.html
 https://www.nytimes.com/2026/10/16/us/politics/rfk-jr-vaccines.html
 
 **Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
-`The Norte fire in Orange County was growing quickly on Friday afternoon. Officials urged residents to evacuate.`\
+`The Norte fire was growing quickly on Friday afternoon. Officials ordered thousands of residents to evacuate.`\
 https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
 
 **Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
