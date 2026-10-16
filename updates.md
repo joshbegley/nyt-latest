@@ -1,3 +1,7 @@
+**You’ve Found a Long-Lost CD. Can You Still Get Your Money?**\
+`The bank was required to hold the certificate of deposit only for a limited time, and now has no record of the money. Experts offer tips to avoid having this happen to you.`\
+https://www.nytimes.com/2026/10/16/your-money/cd-bank-lost-money.html
+
 **3 Tools to Help Keep Your Anger in Check**\
 `It may feel justified in the moment, but yelling at your loved ones rarely gets you what you want.`\
 https://www.nytimes.com/2026/10/16/well/anger-temper-tools.html
