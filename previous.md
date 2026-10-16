@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jacks
 https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
 
 **Trump Ally, Paolo Zampolli, Leaves State Department**\
-`Paolo Zampolli, a close friend and ally of President Trump’s, gained attention when his ex-wife was detained by ICE after his request.`\
+`Paolo Zampolli, a longtime Trump associate, gained attention earlier this year with a report that his ex-wife had been detained by ICE after his request.`\
 https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
 
 **Judge Dismisses Trump Lawsuit That Sought to Block N.Y.C. Sanctuary Laws**\

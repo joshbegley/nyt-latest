@@ -1,3 +1,7 @@
+**Trump Ally, Paolo Zampolli, Leaves State Department**\
+`Paolo Zampolli, a longtime Trump associate, gained attention earlier this year with a report that his ex-wife had been detained by ICE after his request.`\
+https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
+
 **5 Takeaways From the Senate Debate in Maine**\
 `The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
 https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html

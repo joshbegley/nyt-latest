@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 16, 2026**\
+`Adam Shapiro makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
+
 **5 Takeaways From the Senate Debate in Maine**\
 `The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
 https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitis
 **Hurricane Trudy is the Latest in an Unusual Pacific Hurricane Season**\
 `The Pacific Ocean is seeing more storms, and stronger storms, than usual. Here’s what’s going on (and how it all traces back to El Niño).`\
 https://www.nytimes.com/2026/10/15/weather/hurricane-trudy-pacific-season-facts-records.html
-
-**Mamdani Taps His Social Media Charm on Behalf of Hochul, a Crucial Ally**\
-`Mayor Zohran Mamdani’s first campaign video for Gov. Kathy Hochul, in which he attacks her Republican rival, Bruce Blakeman, has some of the mayor’s hallmark appeal, but a bit less pizazz.`\
-https://www.nytimes.com/2026/10/15/nyregion/hochul-mamdani-blakeman-election-campaign-ny-governor.html
 
