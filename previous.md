@@ -1,3 +1,7 @@
+**Japan’s Prime Minister Says She Is Busier Than Male Predecessors**\
+`Japan’s first female prime minister, Sanae Takaichi, said she was busier than her male predecessors because of the time she had to spend on makeup, bathing, cooking and other chores.`\
+https://www.nytimes.com/video/world/asia/100000011218094/japan-female-prime-minister-takaichi-gender-comments.html
+
 **You’ve Found a Long-Lost CD. Can You Still Get Your Money?**\
 `The bank was required to hold the certificate of deposit only for a limited time, and now has no record of the money. Experts offer tips to avoid having this happen to you.`\
 https://www.nytimes.com/2026/10/16/your-money/cd-bank-lost-money.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-cou
 `Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
 https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
 
-**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
-`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
-https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
-
 **Citizen Science Groups Grapple With the Rise of A.I. Slop**\
 `Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
 https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
+
+**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
+`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
+https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 
 **The Year Zara Larsson Unlocked Pop Superstardom**\
 `She broke out at 10, but the Swedish pop star has unlocked a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/books/review/rebecca-daphne-dumaurier-kids-no
 **Young Voters Say They Are Turning Their Backs on Trump and His Party**\
 `One of the biggest surprises of 2024 was the swing of young voters, particularly men, away from Democrats to Donald Trump. Now they are swinging back.`\
 https://www.nytimes.com/2026/10/16/us/politics/young-voters-fleeing-republicans.html
-
-**A Lakeside Italian Villa Restored to Its Original Splendor**\
-`After a Swedish couple returned to Europe from Australia, they found a 19th-century weekend refuge near Como.`\
-https://www.nytimes.com/2026/10/16/t-magazine/lake-como-italy-villa.html
 
