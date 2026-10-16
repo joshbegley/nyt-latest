@@ -1,3 +1,7 @@
+**Most of Ken Paxton’s Money Can Be Traced to One Man: Elon Musk**\
+`The world’s richest person, who has become the biggest known midterm donor, gave $158 million to a group that quickly spent that much to help Mr. Paxton’s Senate bid in Texas.`\
+https://www.nytimes.com/2026/10/16/us/politics/elon-musk-ken-paxton-texas-senate-race.html
+
 **What We Know About the School Shooting in Bend, Oregon**\
 `A teenager opened fire at the Silver Rail Elementary School, killing three children and one teacher. The shooter was killed by an armed bystander.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-victims-suspect.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/us/politics/100000011216401/trump-fort-hood-shoote
 **America’s Most Expensive Senate Race**\
 `The Senate showdown in Texas shows why Donald Trump and the Republican Party are worried about the midterm elections.`\
 https://www.nytimes.com/2026/10/15/world/us-midterms-texas-zelensky-ukraine.html
-
-**Understanding a Home’s Fire Risk**\
-`The ratings on real estate sites that try to convey the risk of burning in a wildfire may overcomplicate or misrepresent the risk.`\
-https://www.nytimes.com/2026/10/15/climate/fire-risk-scores.html
 
