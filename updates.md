@@ -1,3 +1,7 @@
+**Man Who Confronted Oregon School Shooter Is a Parent at Silver Rail Elementary**\
+`The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
+https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
+
 **The Leap Second Has Been Canceled**\
 `Earth’s rotation subtly changes the length of the day. Now our clocks won’t change with it — at least not for a very long time.`\
 https://www.nytimes.com/2026/10/16/science/leap-second-abolished-vote.html

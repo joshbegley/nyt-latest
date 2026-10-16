@@ -30,7 +30,7 @@ https://www.nytimes.com/video/world/europe/100000011218459/zelensky-trump-scapeg
 `Masked Israeli settlers attacked Palestinians and beat the American journalist Heidi Levine as they stormed an olive grove during the annual harvest in the Israeli-occupied West Bank`\
 https://www.nytimes.com/video/world/middleeast/100000011218215/settlers-attack-journalist-west-bank-israel.html
 
-**‘He’s a Dad.’ Parent Heard Shots and Rushed to Stop the Gunman.**\
+**Man Who Confronted Oregon School Shooter Is a Parent at Silver Rail Elementary**\
 `The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
 https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
 
