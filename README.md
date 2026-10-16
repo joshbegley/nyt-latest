@@ -38,9 +38,9 @@ https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 `The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
 
-**Which Designers Should Go Where?**\
-`A bit of fantasy football, but with big luxury brands.`\
-https://www.nytimes.com/2026/10/16/style/the-fashions-designers-departures.html
+**Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
+`After change-ups at Calvin Klein and Alexander McQueen, we played a bit of fantasy football with big luxury brands.`\
+https://www.nytimes.com/2026/10/16/style/calvin-klein-alexander-mcqueen-designers.html
 
 **Queens Woman Accused of Killing 5-Year-Old Daughter**\
 `It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
