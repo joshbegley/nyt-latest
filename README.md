@@ -1,3 +1,7 @@
+**Trump Returns to Dalton for a Rescue Mission in Georgia**\
+`Plus, Katie Zacharia’s ouster, A.O.C. on the trail, and another tense debate in Maine.`\
+https://www.nytimes.com/2026/10/16/us/politics/trump-rally-dalton-georgia.html
+
 **Oregon Has No Criminal Law Meant to Punish Parents in School Shootings**\
 `The boy who attacked a school in Bend is said to have used his mother’s gun. Some states have passed measures to address similar situations.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-parental-responsibility.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon
 **Parents Struggle to Help Their Children After School Killings in Oregon**\
 `The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
 https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
-
-**Robot trainers**\
-`Plus, young voters, Parisian schools and a lot of math.`\
-https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
 

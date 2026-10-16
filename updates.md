@@ -1,3 +1,11 @@
+**Oregon Has No Criminal Law Meant to Punish Parents in School Shootings**\
+`The boy who attacked a school in Bend is said to have used his mother’s gun. Some states have passed measures to address similar situations.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-parental-responsibility.html
+
+**Karri Is Making Hits With Drake's Old Playbook**\
+`Our critic Jon Caramanica explores how Karri, a rising R&B artist from the Bay Area, channels the late 2000s and early 2010s sound of Drake and The Weeknd in his song “Summer In Manila (Oakland Pt. 3).”`\
+https://www.nytimes.com/video/podcasts/100000011219851/karri-is-making-hits-with-drakes-old-playbook.html
+
 **Park Service Will Let Alaska Hunters Bait Bears With Doughnuts**\
 `The National Park Service is reviving a practice that was banned by the Biden administration and condemned by conservationists.`\
 https://www.nytimes.com/2026/10/16/climate/bear-baiting-hunting-alaska.html
