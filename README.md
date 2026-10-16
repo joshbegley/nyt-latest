@@ -1,3 +1,11 @@
+**A Former Rome Reporter on the Pope’s Health and Legacy**\
+`For a former Rome bureau chief, Pope Leo’s lung cancer diagnosis prompted pressing questions about life and legacy.`\
+https://www.nytimes.com/2026/10/16/insider/pope-leo-xiv-lung-cancer-vatican-legacy.html
+
+**Overlooked No More: Harry Lew, the Basketball Player Who Refused to Be Sidelined**\
+`He broke a racial barrier in basketball just 11 years after the sport was invented, but his achievement went largely unrecognized.`\
+https://www.nytimes.com/2026/10/16/obituaries/harry-lew-overlooked.html
+
 **Meta Withdraws $25 Million from Its Midterms Push**\
 `The company outlined a $65 million budget last year when it embarked on an effort to elect state politicians friendly to the A.I. industry.`\
 https://www.nytimes.com/2026/10/16/technology/meta-midterms-funding.html
@@ -139,7 +147,7 @@ https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
 https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 
 **Man Charged in Fatal Fentanyl Overdose and Rape of FIT Student**\
-`The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
+`The student was attending the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
 
 **Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/10/16/world/middleeast/saudi-arabia-houthi-attack-f
 **Ocasio-Cortez Transfers $1 Million to Help El-Sayed in Michigan Senate Race**\
 `The transfer represents an unusually large amount for a House member to give to a Senate race.`\
 https://www.nytimes.com/2026/10/16/us/politics/aoc-el-sayed-million-transfer-midterms.html
-
-**‘Memoirs of Amorous Gentlemen’ Review: Duncan Sheik’s Tale of Eros**\
-`This new musical aims to tell a sexy story about perversions and pleasures but ends up blandly nodding at eroticism.`\
-https://www.nytimes.com/2026/10/16/theater/memoirs-of-amorous-gentlemen-review-duncan-sheik.html
 
