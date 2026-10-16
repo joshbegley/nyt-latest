@@ -1,3 +1,7 @@
+**Why No One Can Look Away From Elizabeth Holmes**\
+`“I felt like there were some moments in the film where she was just brazenly lying.”`\
+https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
+
 **Handcuffs in Schools**\
 `Let’s look at what happens when school police arrest children.`\
 https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/10/16/nyregion/open-house-weekend-the-paradise.html
 https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-county.html
 
 **Book Review: ‘Pandemic Architecture,’ by Penny Hardy**\
-`Penny Hardy photographed the restaurant sheds that cropped up across New York City in 2020. Only a fraction of them remain today.`\
+`Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
 https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
 
 **Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/style/fashion-meta-glasses-ai.html
 **These Older Brazilian Jiu-Jitsu Students Are Fighting the Clock**\
 `While some people slow down as they get older, or just try to maintain, these athletes went looking for a challenge in Brazilian jiu-jitsu.`\
 https://www.nytimes.com/2026/10/16/well/longevity-jiu-jitsu.html
-
-**How Do You Clear Your Head?**\
-`Do you go for a walk, listen to certain songs, talk to a friend — or are there other methods or rituals that help you feel ready for what’s next?`\
-https://www.nytimes.com/2026/10/16/learning/how-do-you-clear-your-head.html
 

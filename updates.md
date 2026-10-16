@@ -1,3 +1,11 @@
+**Why No One Can Look Away From Elizabeth Holmes**\
+`“I felt like there were some moments in the film where she was just brazenly lying.”`\
+https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
+
+**Book Review: ‘Pandemic Architecture,’ by Penny Hardy**\
+`Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
+https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
+
 **Handcuffs in Schools**\
 `Let’s look at what happens when school police arrest children.`\
 https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
