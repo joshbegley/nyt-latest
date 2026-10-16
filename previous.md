@@ -1,4 +1,4 @@
-**A Quiet Dog Walk Is Shattered by the Sound of Gunfire**\
+**Woman’s Quiet Dog Walk Near Bend Elementary School Shattered by Gunfire**\
 `“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
 https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
 
@@ -58,7 +58,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 `President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
-**Live Updates: 3 Children and 1 Teacher Killed in Shooting at Oregon Elementary School**\
+**Live Updates: Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
 `Another child and teacher were critically injured, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
