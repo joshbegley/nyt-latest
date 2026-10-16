@@ -2,7 +2,7 @@
 `Earth’s rotation subtly changes the length of the day. Now our clocks won’t change with it — at least not for a very long time.`\
 https://www.nytimes.com/2026/10/16/science/leap-second-abolished-vote.html
 
-**After Roller Coaster Death, Critics Call for Federal Oversight**\
+**After Six Flags Roller Coaster Death, Critics Call for Federal Oversight**\
 `Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
 https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
 

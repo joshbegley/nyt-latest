@@ -1,3 +1,7 @@
+**The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
+`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old. Outside experts were skeptical but intrigued, especially by the black residue in the jars.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
+
 **The Leap Second Has Been Canceled**\
 `Earth’s rotation subtly changes the length of the day. Now our clocks won’t change with it — at least not for a very long time.`\
 https://www.nytimes.com/2026/10/16/science/leap-second-abolished-vote.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011218094/japan-female-prime-mini
 **You’ve Found a Long-Lost CD. Can You Still Get Your Money?**\
 `The bank was required to hold the certificate of deposit only for a limited time, and now has no record of the money. Experts offer tips to avoid having this happen to you.`\
 https://www.nytimes.com/2026/10/16/your-money/cd-bank-lost-money.html
-
-**When Will the Fed Move on Rates?**\
-`Kevin Warsh, the central bank’s chairman, suggested he wouldn’t push to raise borrowing rates this month. But persistent inflation may force the Fed’s hand.`\
-https://www.nytimes.com/2026/10/16/business/dealbook/fed-rates-warsh-inflation.html
 

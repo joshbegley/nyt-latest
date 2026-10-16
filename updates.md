@@ -1,3 +1,7 @@
+**After Six Flags Roller Coaster Death, Critics Call for Federal Oversight**\
+`Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
+https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
+
 **Man Who Confronted Oregon School Shooter Is a Parent at Silver Rail Elementary**\
 `The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
 https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
