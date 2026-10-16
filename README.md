@@ -1,3 +1,7 @@
+**City in Oregon Mourns After Deadly School Shooting**\
+`Residents of Bend attended a candlelight vigil after the shooting at Silver Rail Elementary School, in which three children and a teacher were killed.`\
+https://www.nytimes.com/2026/10/16/us/oregon-vigil-school-shooting.html
+
 **Why Bad News in the Bond Market May Be Good News for Investors**\
 `In the contrarian logic of investing, rising interest rates have made bonds much more attractive, our columnist says.`\
 https://www.nytimes.com/2026/10/16/business/bonds-investors-interest-rates.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/style/hilary-swank-pregnancy.html
 **Senators Demand Investigation Into Ukraine Satellite Disruption**\
 `Republicans joined Democrats in calling on the Pentagon’s inspector general to look into whether the Trump administration was responsible for the interruption.`\
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-satellite-intelligence-investigation-senate.html
-
-**More Trump Allies Aided Pro-Russian Balkan Government**\
-`The daughter of the president’s chief of staff joined an American businessman in Republika Srpska as he explored a gas pipeline. And six current and former campaign advisers recently traveled there for an election.`\
-https://www.nytimes.com/2026/10/15/us/politics/trump-russia-srpska-elections-wiles.html
 
