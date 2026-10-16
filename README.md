@@ -1,3 +1,7 @@
+**Oregon Elementary School Shooting Leaves Four Dead**\
+`Three children and a teacher were killed in a shooting at an elementary school in Bend, Ore., on Thursday. The shooter was also dead, the police said.`\
+https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.html
+
 **In Michigan Senate Race, Ocasio-Cortez Joins El-Sayed on Trail in Trump Country**\
 `Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
 https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/theater/full-monty-postponed-rhinoceros-broad
 **Land Acknowledgments Aren’t Just Woke, They’re Right**\
 `Often, they are not just lip service, but part of a useful response to Native American needs.`\
 https://www.nytimes.com/2026/10/15/opinion/land-acknowledgments-native-americans.html
-
-**How Trump Is Trying to Assert Control Over the Election**\
-`Many election officials fear that the Trump administration is laying the groundwork to challenge the midterm results in November if they do not favor Republicans. Our White House correspondent Zolan Kanno-Youngs describes what the administration is doing.`\
-https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-control-over-the-election.html
 
