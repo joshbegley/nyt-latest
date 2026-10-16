@@ -1,4 +1,8 @@
-**Slain Teacher Loved Work, Volleyball and the Underdog, Her Family Says**\
+**No, Really — Is A.I. a Bubble?**\
+`Is A.I. a bubble? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he thinks the market is bound to pop.`\
+https://www.nytimes.com/video/opinion/100000011216290/no-really-is-ai-a-bubble.html
+
+**Teacher Killed in Oregon School Shooting Was Working Her ‘Dream Job,’ Family Says**\
 `Megan Lambert graduated from high school in the district where she taught. She died in a classroom with Rhoam Summer and two other children when a shooter attacked.`\
 https://www.nytimes.com/2026/10/16/us/bend-school-shooting-victims-megan-lambert-rhoam-summer.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-p
 **Fear Itself: What Has America Come To?**\
 `Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
 https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
-
-**Flashback: Your Weekly History Quiz, Oct. 17, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 

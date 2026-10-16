@@ -1,3 +1,7 @@
+**Slain Teacher Loved Work, Volleyball and the Underdog, Her Family Says**\
+`Megan Lambert graduated from high school in the district where she taught. She died in a classroom with Rhoam Summer and two other children when a shooter attacked.`\
+https://www.nytimes.com/2026/10/16/us/bend-school-shooting-victims-megan-lambert-rhoam-summer.html
+
 **What the A.I. Labs Know That We Don’t**\
 `“I expect A.I.s to beat humans at A.I. research within nine months,” a researcher at Anthropic recently told the podcaster Dwarkesh Patel. On “Interesting Times,” Patel makes the case that if the labs really believe that, they should make the evidence public.`\
 https://www.nytimes.com/video/opinion/100000011218973/what-the-ai-labs-know-that-we-dont.html
