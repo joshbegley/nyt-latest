@@ -1,3 +1,11 @@
+**Behind a White House Feud That Is Bitter Even by Trump-Era Standards**\
+`Two allies of President Trump — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
+https://www.nytimes.com/2026/10/15/us/politics/behind-a-white-house-feud-that-is-bitter-even-by-trump-era-standards.html
+
+**Oregon’s Gun Laws Are Tight, by American Standards**\
+`In recent years, Oregon has passed restrictive measures popular among gun safety activists nationwide.`\
+https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
+
 **Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
 `The victim was shot once in the head in the early 1980s, the authorities said, and was identified after family members from Arkansas could provide a DNA match.`\
 https://www.nytimes.com/2026/10/15/us/lake-mead-body-identified-las-vegas.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/15/us/senators-election-officials-mail-suspiciou
 **Houthi Missiles Strike Government Headquarters in Yemen**\
 `Five people were killed when the Houthi militia struck the Maashiq Palace in Aden, a Yemeni minister said.`\
 https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html
-
-**Jocelyn Bioh Tackles Beauty Standards in ‘School Girls’**\
-`Jocelyn Bioh’s “School Girls; or The African Mean Girls Play” has audiences laughing, but also wrestles with weighty topics like colorism.`\
-https://www.nytimes.com/2026/10/15/theater/jocelyn-bioh-school-girls-african-mean-girls.html
-
-**Who Is Ahead in New Mexico's 3rd Congressional District?**\
-`Track the latest polls in New Mexico's 3rd Congressional District.`\
-https://www.nytimes.com/interactive/polls/new-mexico-us-house-3-polls-2026.html
 

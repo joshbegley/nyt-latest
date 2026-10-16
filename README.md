@@ -1,6 +1,6 @@
 **Behind a White House Feud That Is Bitter Even by Trump-Era Standards**\
 `Two allies of President Trump — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
-https://www.nytimes.com/2026/10/15/us/politics/behind-a-white-house-feud-that-is-bitter-even-by-trump-era-standards.html
+https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
 
 **Oregon’s Gun Laws Are Tight, by American Standards**\
 `In recent years, Oregon has passed restrictive measures popular among gun safety activists nationwide.`\
