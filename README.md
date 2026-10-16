@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
 
 **U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
 `Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
-https://www.nytimes.com/2026/10/16/business/us-budget-deficit-nears-2-trillion-a-reality-check-for-trumps-cost-cutting.html
+https://www.nytimes.com/2026/10/16/business/us-budget-deficit.html
 
 **How to Build a Skin Care Routine for Mature Skin**\
 `Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
