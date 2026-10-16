@@ -1,3 +1,11 @@
+**Trump Ally, Paolo Zampolli, Leaves State Department**\
+`Paolo Zampolli, a close friend and ally of President Trump’s, gained attention when his ex-wife was detained by ICE after his request.`\
+https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
+
+**Judge Dismisses Trump Lawsuit That Sought to Block N.Y.C. Sanctuary Laws**\
+`The ruling was the latest defeat for the administration as it continues a mass deportation campaign.`\
+https://www.nytimes.com/2026/10/15/nyregion/nyc-sanctuary-law-ice-judge-ruling.html
+
 **Woman’s Quiet Dog Walk Near Bend Elementary School Shattered by Gunfire**\
 `“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
 https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/15/us/politics/fired-fbi-agents-lawsuit-kash-pat
 **Second Ebola Infection Announced in Kenya**\
 `The case is likely to raise alarms in the country and increase scrutiny of the government’s surveillance measures.`\
 https://www.nytimes.com/2026/10/15/world/africa/kenya-ebola-infections.html
-
-**Why Zara Larsson Refuses to Censor Herself – or Dim Her Joy**\
-`Watch the full conversation with Zara Larsson. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011212156/why-zara-larsson-refuses-to-censor-herself-or-dim-her-joy.html
-
-**Trump’s Attacks on Voting Raise Fears He Will Try to Challenge Midterm Results**\
-`Election officials say they worry the administration could use its own unsubstantiated claims to contest the vote in November.`\
-https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.html
 
