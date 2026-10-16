@@ -1,3 +1,7 @@
+**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
+`Power companies shut off tens of thousands of homes and businesses preemptively on Friday.`\
+https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
+
 **Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
 `In the latest surge of violence, settlers targeted Palestinians during the olive harvest, a cultural touchstone and economic lifeline in the Israeli-occupied area.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-post-palestinians.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 **Unboxing Wu-Tang Clan’s Secret Album**\
 `Method Man had never actually heard it, until now.`\
 https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html
-
-**Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
-`The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of President Prabowo Subianto.`\
-https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
 
