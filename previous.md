@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/16/business/bonds-investors-interest-rates.html
 `The Federal Reserve chairman said technological change was complicating the outlook for central banks as policymakers grapple with persistent inflation risks.`\
 https://www.nytimes.com/2026/10/16/business/warsh-fed-imf-bangkok.html
 
-**Most of Ken Paxton’s Money Can Be Traced to One Man: Elon Musk**\
+**Elon Musk Spends Heavily to Back Ken Paxton’s Senate Bid in Texas**\
 `The world’s richest person, who has become the biggest known midterm donor, gave $158 million to a group that quickly spent that much to help Mr. Paxton’s Senate bid in Texas.`\
 https://www.nytimes.com/2026/10/16/us/politics/elon-musk-ken-paxton-texas-senate-race.html
 

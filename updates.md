@@ -1,3 +1,7 @@
+**Elon Musk Spends Heavily to Back Ken Paxton’s Senate Bid in Texas**\
+`The world’s richest person, who has become the biggest known midterm donor, gave $158 million to a group that quickly spent that much to help Mr. Paxton’s Senate bid in Texas.`\
+https://www.nytimes.com/2026/10/16/us/politics/elon-musk-ken-paxton-texas-senate-race.html
+
 **The G.O.P.’s Emphasis on Crime Isn’t Resonating With New York Voters**\
 `Four years ago, Republicans stressed fears of rising crime to flip four House seats in New York. But in this year’s midterms, the issue seems less salient.`\
 https://www.nytimes.com/2026/10/16/nyregion/republicans-long-island-congress-midterms.html
