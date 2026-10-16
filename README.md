@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/10/15/opinion/land-acknowledgments-native-americans
 `Many election officials fear that the Trump administration is laying the groundwork to challenge the midterm results in November if they do not favor Republicans. Our White House correspondent Zolan Kanno-Youngs describes what the administration is doing.`\
 https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-control-over-the-election.html
 
-**Dublin Hotel Accused of Revoking Bookings for an Event to Combat Antisemitism**\
-`A leader of the Jewish community in Ireland said a hotel canceled a deal for 70 rooms when it learned they were reserved for guests attending the international forum.`\
-https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitism.html
-
