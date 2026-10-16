@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
 `Representative Alexandria Ocasio-Cortez, Democrat of New York, said she transferred a million dollars to Dr. Abdul El-Sayed’s Senate campaign in Michigan. Whoever wins the Michigan Senate race could determine which party controls the chamber.`\
 https://www.nytimes.com/video/us/politics/100000011219301/ocasio-cortez-gives-1-million-to-el-sayed-campaign-in-michigan.html
 
-**Katie Zacharia is Fired After 5 Days as White House Press Secretary**\
-`Katie Zacharia has been fired after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
+**Katie Zacharia Is Forced Out After 5 Days as White House Press Secretary**\
+`Katie Zacharia has been forced out after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
 https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
 
 **Fashion Designers Bid Farewell for This Season**\
@@ -119,7 +119,7 @@ https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-l
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
 
 **Katie Zacharia, Trump’s New Press Secretary, Is Ousted After 5 Days**\
-`Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+`Her abrupt departure came after she was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
 https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
 
 **Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\

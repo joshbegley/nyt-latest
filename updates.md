@@ -1,3 +1,11 @@
+**Katie Zacharia Is Forced Out After 5 Days as White House Press Secretary**\
+`Katie Zacharia has been forced out after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
+https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
+
+**Katie Zacharia, Trump’s New Press Secretary, Is Ousted After 5 Days**\
+`Her abrupt departure came after she was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
+
 **The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
 `Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old, with black residue inside. Outside experts were skeptical but intrigued.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html

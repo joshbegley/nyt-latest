@@ -1,3 +1,15 @@
+**Bystander Who Killed School Shooter Is Father of 2 Students**\
+`Also, the White House press secretary is ousted after five days. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-secretary.html
+
+**Whispering Phantoms and Shadowy Scares in Two Inventive Plays**\
+`The Off Broadway shows “A Ghost in Your Ear” and “The 4th Witch” use aural and visual tricks to give you the seasonal spooks.`\
+https://www.nytimes.com/2026/10/16/theater/ghost-in-your-ear-4th-witch.html
+
+**Appeals Court Questions Justice Dept. Claim that Trump Owns White House Records**\
+`A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
+https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
+
 **A Former Rome Reporter on the Pope’s Health and Legacy**\
 `For a former Rome bureau chief, Pope Leo’s lung cancer diagnosis prompted pressing questions about life and legacy.`\
 https://www.nytimes.com/2026/10/16/insider/pope-leo-xiv-lung-cancer-vatican-legacy.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-
 **Slow-Cooker Chili for a Crowd (or Just You and Your Freezer)**\
 `And more popular recipes from the week.`\
 https://www.nytimes.com/2026/10/16/dining/slow-cooker-chili-for-a-crowd-or-just-you-and-your-freezer.html
-
-**What Critics Think About Nathan Fielder’s ‘Bonkers’ Elizabeth Holmes Movie**\
-`“You Can See Everything” has been described as “bonkers.” Our critics have their own thoughts, and we’d like to hear your reactions in the comments, too.`\
-https://www.nytimes.com/2026/10/16/movies/nathan-fielder-elizabeth-holmes-billy-evans.html
-
-**Houthi Attacks on Saudi Arabia Put In Doubt Kingdom’s Sports and Business Events**\
-`The Iran-backed group’s attacks have disrupted sports tournaments and threatened business events that the kingdom has long used to attract investment and raise its profile.`\
-https://www.nytimes.com/2026/10/16/world/middleeast/saudi-arabia-houthi-attack-fii-events.html
-
-**Ocasio-Cortez Transfers $1 Million to Help El-Sayed in Michigan Senate Race**\
-`The transfer represents an unusually large amount for a House member to give to a Senate race.`\
-https://www.nytimes.com/2026/10/16/us/politics/aoc-el-sayed-million-transfer-midterms.html
 
