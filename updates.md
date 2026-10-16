@@ -1,3 +1,11 @@
+**RFK Jr. Pledged to Advance Anti-Vaccine Group’s Goals. Here’s What He’s Doing.**\
+`The health secretary is quietly taking steps that public health experts fear will reduce immunization rates further.`\
+https://www.nytimes.com/2026/10/16/us/politics/kennedy-vaccines.html
+
+**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
+`Power companies shut off tens of thousands of homes and businesses preemptively on Friday.`\
+https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
+
 **Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
 `In the latest surge of violence, settlers targeted Palestinians during the olive harvest, a cultural touchstone and economic lifeline in the Israeli-occupied area.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-post-palestinians.html
