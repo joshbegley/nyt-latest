@@ -1,3 +1,11 @@
+**N.I.H. Hospital Board Rebukes Kennedy Over New Vaccine Injury Clinic**\
+`The board that oversees the N.I.H. Clinical Center voted unanimously to support a statement accusing Health Secretary Robert F. Kennedy Jr. of undermining trust in the hospital’s work.`\
+https://www.nytimes.com/2026/10/16/us/politics/kennedy-nih-hospital-board-rebuke.html
+
+**‘He’s a Dad.’ Parent Heard Shots and Rushed to Stop the Gunman.**\
+`The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
+https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
+
 **Zelensky’s Silent Answer To Trump Scapegoat Question**\
 `Ukraine’s President, Volodymyr Zelensky, was asked on Friday if President Trump was using him as a scapegoat for various domestic and foreign issues Trump faces. He answered with a silent smile.`\
 https://www.nytimes.com/video/world/europe/100000011218459/zelensky-trump-scapegoat-question.html
