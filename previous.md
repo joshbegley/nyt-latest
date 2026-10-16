@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
 
 **What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
-`The gunman entered the school by shooting through a locked door and was eventually stopped by a bystander, raising questions about what more schools can do to protect children.`\
+`The gunman who killed four in Bend, Ore., entered an elementary school by shooting through a locked door, raising questions about what more schools can do to protect children.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
 
 **Russia Appears to Step Up Efforts to Influence U.S. Voters**\

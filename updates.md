@@ -1,3 +1,7 @@
+**What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
+`The gunman who killed four in Bend, Ore., entered an elementary school by shooting through a locked door, raising questions about what more schools can do to protect children.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
+
 **Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
 `Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
 https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
