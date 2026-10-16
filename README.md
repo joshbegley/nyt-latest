@@ -1,3 +1,7 @@
+**Fish, Oil and Corruption: 6 Takeaways From Alaska’s Senate Debate**\
+`The Republican incumbent, Dan Sullivan, and his Democratic challenger, Mary Peltola, veered from serious discussion of high prices and economic challenges to blistering personal attacks.`\
+https://www.nytimes.com/2026/10/16/us/politics/alaska-senate-debate-peltola-sullivan.html
+
 **The G.O.P.’s Emphasis on Crime Isn’t Resonating With New York Voters**\
 `Four years ago, Republicans stressed fears of rising crime to flip four House seats in New York. But in this year’s midterms, the issue seems less salient.`\
 https://www.nytimes.com/2026/10/16/nyregion/republicans-long-island-congress-midterms.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/europe/100000011215818/albania-student-prote
 **Luna, a Dog Who Was Lost in Yellowstone for a Month, Is Found Safe**\
 `A 10-year-old Jack Russell Terrier/Chihuahua mix, Luna lost half her weight but was otherwise healthy after several weeks in Yellowstone National Park.`\
 https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
-
-**ICE Agents Who Rammed a Worker in Houston Were Chasing a Dead Man, Family Says**\
-`ICE agents rammed a man during a pursuit in Houston, leaving him with a shattered leg. But a bulletin of the target shows a man who died in 2017, his daughter said.`\
-https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
 
