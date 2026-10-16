@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-guns-governor-race.ht
 https://www.nytimes.com/2026/10/16/arts/television/timothy-busfield-indictment-dismissed.html
 
 **The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
-`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old. Outside experts were skeptical but intrigued, especially by the black residue in the jars.`\
+`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old, with black residue inside. Outside experts were skeptical but intrigued.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
 
 **The Leap Second Has Been Canceled**\
