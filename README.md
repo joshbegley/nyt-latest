@@ -1,3 +1,15 @@
+**He Mapped Yard Shrines, Sidewalk Altars and Flowerpots**\
+`The cultural historian Joseph Sciorra, who has died, helped bring “a fieldworker’s eye and an archivist’s discipline” to his studies of Italian American culture.`\
+https://www.nytimes.com/2026/10/16/nyregion/joseph-sciorra-dead.html
+
+**Bend Shooting Likely to Heighten Gun Debate in Oregon Governor’s Race**\
+`The contest between the Democratic incumbent and her Republican challenger is on edge.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-guns-governor-race.html
+
+**Child Sexual Abuse Charges Against Timothy Busfield Dismissed**\
+`Prosecutors in New Mexico had secured an indictment of the actor and director on charges he made sexual contact with a child actor. He had pleaded not guilty.`\
+https://www.nytimes.com/2026/10/16/arts/television/timothy-busfield-indictment-dismissed.html
+
 **The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
 `Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old. Outside experts were skeptical but intrigued, especially by the black residue in the jars.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
@@ -51,7 +63,7 @@ https://www.nytimes.com/2026/10/16/us/oregon-school-shooting-suspect.html
 https://www.nytimes.com/2026/10/16/us/politics/rfk-jr-vaccines.html
 
 **Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
-`Power companies shut off tens of thousands of homes and businesses preemptively on Friday.`\
+`The Norte fire in Orange County was growing quickly on Friday afternoon. Officials urged residents to evacuate.`\
 https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
 
 **Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/16/theater/memoirs-of-amorous-gentlemen-review-d
 **Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
 `A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
 https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html
-
-**Japan Mistakenly Issues Warning for Strongest Ever Earthquake**\
-`Officials on Friday withdrew an alert sent when they believed a 9.9-magnitude earthquake had taken place. In the end, the tremor was hardly felt.`\
-https://www.nytimes.com/2026/10/16/world/asia/japan-earthquake-warning-false-alarm.html
-
-**Japan’s Prime Minister Says She Is Busier Than Male Predecessors**\
-`Japan’s first female prime minister, Sanae Takaichi, said she was busier than her male predecessors because of the time she had to spend on makeup, bathing, cooking and other chores.`\
-https://www.nytimes.com/video/world/asia/100000011218094/japan-female-prime-minister-takaichi-gender-comments.html
-
-**You’ve Found a Long-Lost CD. Can You Still Get Your Money?**\
-`The bank was required to hold the certificate of deposit only for a limited time, and now has no record of the money. Experts offer tips to avoid having this happen to you.`\
-https://www.nytimes.com/2026/10/16/your-money/cd-bank-lost-money.html
 
