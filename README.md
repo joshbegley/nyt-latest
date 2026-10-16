@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-
 `Two Trump allies — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
 https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
 
-**Oregon’s Gun Laws Are Tight, by American Standards**\
-`In recent years, Oregon has passed restrictive measures popular among gun safety activists nationwide.`\
+**Oregon Has Approved Tight Gun Laws, but They Have Been Held Up in Courts**\
+`The state has passed restrictive measures popular among gun safety activists. The Silver Rail Elementary School shooting seemed poised to set off conversations about gun control.`\
 https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
 
 **Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
