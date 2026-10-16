@@ -1,3 +1,11 @@
+**5 Takeaways From the Senate Debate in Maine**\
+`The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
+https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html
+
+**School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
+`A long string of school shootings have stricken the nation over the last three decades.`\
+https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
+
 **School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
 `A long string of school shootings have stricken the nation over the last three decades.`\
 https://www.nytimes.com/2026/10/15/us/the-school-shooting-in-oregon-adds-silver-rail-elementary-to-a-grim-list.html

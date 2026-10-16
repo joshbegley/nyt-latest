@@ -1,6 +1,10 @@
+**5 Takeaways From the Senate Debate in Maine**\
+`The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
+https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html
+
 **School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
 `A long string of school shootings have stricken the nation over the last three decades.`\
-https://www.nytimes.com/2026/10/15/us/the-school-shooting-in-oregon-adds-silver-rail-elementary-to-a-grim-list.html
+https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
 
 **Trump Ally, Paolo Zampolli, Leaves State Department**\
 `Paolo Zampolli, a close friend and ally of President Trump’s, gained attention when his ex-wife was detained by ICE after his request.`\
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/10/15/weather/hurricane-trudy-pacific-season-facts-
 **Mamdani Taps His Social Media Charm on Behalf of Hochul, a Crucial Ally**\
 `Mayor Zohran Mamdani’s first campaign video for Gov. Kathy Hochul, in which he attacks her Republican rival, Bruce Blakeman, has some of the mayor’s hallmark appeal, but a bit less pizazz.`\
 https://www.nytimes.com/2026/10/15/nyregion/hochul-mamdani-blakeman-election-campaign-ny-governor.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/10/15/books/review/new-recommended-books.html
-
-**Fired FBI Agents Who Worked on Trump Investigation Sue Patel and Others**\
-`The lawsuit also suggests that a motivating factor for the dismissals was the intense scrutiny of the F.B.I. director, Kash Patel, after he went to the Olympics in Milan.`\
-https://www.nytimes.com/2026/10/15/us/politics/fired-fbi-agents-lawsuit-kash-patel-trump.html
 
