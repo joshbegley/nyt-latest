@@ -1,3 +1,7 @@
+**Japan Mistakenly Issues Warning for Strongest Ever Earthquake**\
+`Officials on Friday withdrew an alert sent when they believed a 9.9-magnitude earthquake had taken place. In the end, the tremor was hardly felt.`\
+https://www.nytimes.com/2026/10/16/world/asia/japan-earthquake-warning-false-alarm.html
+
 **Japan’s Prime Minister Says She Is Busier Than Male Predecessors**\
 `Japan’s first female prime minister, Sanae Takaichi, said she was busier than her male predecessors because of the time she had to spend on makeup, bathing, cooking and other chores.`\
 https://www.nytimes.com/video/world/asia/100000011218094/japan-female-prime-minister-takaichi-gender-comments.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/arts/design/paris-museum-hunting-nature.html
 **Book Review: ‘Licorice,’ by Kara LaReau**\
 `In Kara LaReau’s “Licorice,” a shelter kitten adopted by a boy named Max is tormented by the lingering presence of her recently departed predecessor.`\
 https://www.nytimes.com/2026/10/16/books/review/rebecca-daphne-dumaurier-kids-novel-licorice-kara-lareau.html
-
-**Young Voters Say They Are Turning Their Backs on Trump and His Party**\
-`One of the biggest surprises of 2024 was the swing of young voters, particularly men, away from Democrats to Donald Trump. Now they are swinging back.`\
-https://www.nytimes.com/2026/10/16/us/politics/young-voters-fleeing-republicans.html
 
