@@ -1,3 +1,7 @@
+**Live Updates: Police Investigate Deadly Shooting at Oregon Elementary School**\
+`A teenager shot his way into the Silver Rail Elementary School, killing three children, ages 5, 8 and 11, and a teacher. An armed bystander shot him dead, the police said.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **When Will the Fed Move on Rates?**\
 `Kevin Warsh, the central bank’s chairman, suggested he wouldn’t push to raise borrowing rates this month. But persistent inflation may force the Fed’s hand.`\
 https://www.nytimes.com/2026/10/16/business/dealbook/fed-rates-warsh-inflation.html

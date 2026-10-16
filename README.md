@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/10/16/climate/biodiversity-cop-yerevan.html
 
 **3 Tools to Help Keep Your Anger in Check**\
 `It may feel justified in the moment, but yelling at your loved ones rarely gets you what you want.`\
-https://www.nytimes.com/2026/10/16/well/3-tools-to-help-keep-your-anger-in-check.html
+https://www.nytimes.com/2026/10/16/well/anger-temper-tools.html
 
 **Is There an A.I. Bubble? A Debate.**\
 `Azeem Azhar and Paul Kedrosky debate whether A.I. will make the economy crash.`\
