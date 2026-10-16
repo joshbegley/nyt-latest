@@ -1,3 +1,11 @@
+**Judge Refuses to Reverse Penalties Against Crypto Firm With Ties to Trump Family**\
+`The ruling denied a bid by Gemini Trust and the C.F.T.C. to nullify a settlement that required the company to pay $5 million for misleading federal regulators.`\
+https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-trump.html
+
+**Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
+`Officials are providing an update about the shooting on Thursday at Silver Rail Elementary School in Bend, Ore.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Behind a White House Feud That Is Bitter Even by Trump-Era Standards**\
 `Two allies of President Trump — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
 https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
