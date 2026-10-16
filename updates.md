@@ -1,3 +1,11 @@
+**Trump Returns to Dalton for a Rescue Mission in Georgia**\
+`Plus, Katie Zacharia’s ouster, A.O.C. on the trail, and another tense debate in Maine.`\
+https://www.nytimes.com/2026/10/16/us/politics/trump-rally-dalton-georgia.html
+
+**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
+`The Norte fire was growing quickly on Friday afternoon. Officials ordered thousands of residents to evacuate.`\
+https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
+
 **Oregon Has No Criminal Law Meant to Punish Parents in School Shootings**\
 `The boy who attacked a school in Bend is said to have used his mother’s gun. Some states have passed measures to address similar situations.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-parental-responsibility.html
