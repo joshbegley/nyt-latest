@@ -1,3 +1,7 @@
+**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
+`The Norte fire in Orange County grew quickly on Friday afternoon. Officials ordered thousands of residents to evacuate.`\
+https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
+
 **Why the Anthropic and OpenAI I.P.O.s Are Unusual**\
 `Anthropic and OpenAI are both preparing to go public with valuations in the trillions. But are these companies really worth that much? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he’s skeptical.`\
 https://www.nytimes.com/video/opinion/100000011216277/why-the-anthropic-and-openai-ipos-are-unusual.html
