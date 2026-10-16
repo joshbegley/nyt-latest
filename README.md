@@ -1,3 +1,11 @@
+**Zara Larsson on Pop Going Global**\
+`Zara Larsson chats about the globalization of pop fame and whether she feels the needs to “make it” in America.`\
+https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going-global.html
+
+**Zara Larsson Won’t Abandon Her Politics for Fame**\
+`Zara Larsson refuses to censor her political beliefs for money or fame. The Swedish pop singer has spoken out on issues like abortion rights and Palestine, and she shares with Popcast why she refuses to sacrifice her integrity no matter how lucrative the opportunity.`\
+https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon-her-politics-for-fame.html
+
 **Parents Struggle to Help Their Children After School Killings in Oregon**\
 `The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
 https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/16/arts/nyc-free-fall-activities-kids-family.htm
 **Avalanche of G.O.P. Cash Keeps the Party Competitive Despite Its Problems**\
 `Republican Senate and House candidates are being out-raised by their Democratic rivals, but the party has received a huge boost from groups tied to Elon Musk and President Trump.`\
 https://www.nytimes.com/2026/10/16/us/avalanche-of-gop-cash-keeps-the-party-competitive-despite-its-problems.html
-
-**How Americans Feel About Socialism: What Polls and Primary Elections Show**\
-`Public opinion polls and recent primary results have shown that socialism is growing in popularity, even as there’s disagreement on what it means.`\
-https://www.nytimes.com/2026/10/16/us/elections/socialism-americans-polls-election-politics.html
-
-**In 1971, This Film Was a Scandal. In 2026, It’s a Respected Period Piece.**\
-`“Ken Russell’s The Devils” was deemed shocking for scenes with orgiastic nuns and a debauched priest. But its serious aims are clear in a new restoration.`\
-https://www.nytimes.com/2026/10/16/movies/ken-russell-the-devils-re-release.html
 
