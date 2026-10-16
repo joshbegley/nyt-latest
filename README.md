@@ -1,3 +1,11 @@
+**The G.O.P.’s Emphasis on Crime Isn’t Resonating With New York Voters**\
+`Four years ago, Republicans stressed fears of rising crime to flip four House seats in New York. But in this year’s midterms, the issue seems less salient.`\
+https://www.nytimes.com/2026/10/16/nyregion/republicans-long-island-congress-midterms.html
+
+**NYT Spelling Bee Answers for October 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/16/crosswords/spelling-bee-forum.html
+
 **City in Oregon Mourns After Deadly School Shooting**\
 `Residents of Bend attended a candlelight vigil after the shooting at Silver Rail Elementary School, in which three children and a teacher were killed.`\
 https://www.nytimes.com/2026/10/16/us/oregon-vigil-school-shooting.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/15/us/lost-dog-found-yellowstone-luna.html
 **ICE Agents Who Rammed a Worker in Houston Were Chasing a Dead Man, Family Says**\
 `ICE agents rammed a man during a pursuit in Houston, leaving him with a shattered leg. But a bulletin of the target shows a man who died in 2017, his daughter said.`\
 https://www.nytimes.com/2026/10/15/us/ice-pursuit-houston-dead-man.html
-
-**Hilary Swank Is Having Her Third Child at 52**\
-`The “Million Dollar Baby” star joins a growing cohort of celebrities having children later in life.`\
-https://www.nytimes.com/2026/10/15/style/hilary-swank-pregnancy.html
-
-**Senators Demand Investigation Into Ukraine Satellite Disruption**\
-`Republicans joined Democrats in calling on the Pentagon’s inspector general to look into whether the Trump administration was responsible for the interruption.`\
-https://www.nytimes.com/2026/10/15/us/politics/ukraine-satellite-intelligence-investigation-senate.html
 
