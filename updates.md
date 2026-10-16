@@ -1,3 +1,15 @@
+**Houthi Attacks on Saudi Arabia Put In Doubt Kingdom’s Sports and Business Events**\
+`The Iran-backed group’s attacks have disrupted sports tournaments and threatened business events that the kingdom has long used to attract investment and raise its profile.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/saudi-arabia-houthi-attack-fii-events.html
+
+**Ocasio-Cortez Transfers $1 Million to Help El-Sayed in Michigan Senate Race**\
+`The transfer represents an unusually large amount for a House member to give to a Senate race.`\
+https://www.nytimes.com/2026/10/16/us/politics/aoc-el-sayed-million-transfer-midterms.html
+
+**‘Memoirs of Amorous Gentlemen’ Review: Duncan Sheik’s Tale of Eros**\
+`This new musical aims to tell a sexy story about perversions and pleasures but ends up blandly nodding at eroticism.`\
+https://www.nytimes.com/2026/10/16/theater/memoirs-of-amorous-gentlemen-review-duncan-sheik.html
+
 **Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
 `A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
 https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html

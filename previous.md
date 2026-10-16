@@ -1,3 +1,15 @@
+**Houthi Attacks on Saudi Arabia Put In Doubt Kingdom’s Sports and Business Events**\
+`The Iran-backed group’s attacks have disrupted sports tournaments and threatened business events that the kingdom has long used to attract investment and raise its profile.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/saudi-arabia-houthi-attack-fii-events.html
+
+**Ocasio-Cortez Transfers $1 Million to Help El-Sayed in Michigan Senate Race**\
+`The transfer represents an unusually large amount for a House member to give to a Senate race.`\
+https://www.nytimes.com/2026/10/16/us/politics/aoc-el-sayed-million-transfer-midterms.html
+
+**‘Memoirs of Amorous Gentlemen’ Review: Duncan Sheik’s Tale of Eros**\
+`This new musical aims to tell a sexy story about perversions and pleasures but ends up blandly nodding at eroticism.`\
+https://www.nytimes.com/2026/10/16/theater/memoirs-of-amorous-gentlemen-review-duncan-sheik.html
+
 **Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
 `A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
 https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/16/books/review/bogland-merritt-turetsky.html
 **Lufthansa’s Final A346 Flight Marks the End of an Aviation Love Story**\
 `Lufthansa’s quirky plane, with its extra-long fuselage, four engines and restrooms down a flight of stairs, has a devoted following. Now, the carrier, one of few still flying the model, is taking it out of service.`\
 https://www.nytimes.com/2026/10/16/travel/lufthansa-a340-600-airbus-retires.html
-
-**Are These Workers Training Robots to Replace Them?**\
-`More American workers are strapping cameras to their bodies to collect data in order to help train robots. The New York Times met with several of them to find out why, and what this could mean for the future of work.`\
-https://www.nytimes.com/video/technology/100000011193946/robots-training-work.html
-
-**$137 Million in A.I.-Generated Ads Flood the Midterms**\
-`Republicans have used A.I.-generated content more often than Democrats, ranging from subtle enhancements to convincing deepfakes.`\
-https://www.nytimes.com/2026/10/16/us/politics/midterm-elections-ai-generated-ads.html
-
-**‘I’m on a War Footing’: Terry Tao and the Crisis in Math**\
-`The Fields Medalist and celebrated mathematician is on the front lines of a debate about artificial intelligence and the future of his field.`\
-https://www.nytimes.com/2026/10/16/us/math-ai-terence-tao.html
 
