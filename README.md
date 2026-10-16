@@ -1,3 +1,7 @@
+**Why the Anthropic and OpenAI I.P.O.s Are Unusual**\
+`Anthropic and OpenAI are both preparing to go public with valuations in the trillions. But are these companies really worth that much? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he’s skeptical.`\
+https://www.nytimes.com/video/opinion/100000011216277/why-the-anthropic-and-openai-ipos-are-unusual.html
+
 **No, Really — Is A.I. a Bubble?**\
 `Is A.I. a bubble? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he thinks the market is bound to pop.`\
 https://www.nytimes.com/video/opinion/100000011216290/no-really-is-ai-a-bubble.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-
 **Sean ‘Diddy’ Combs Transferred to Prison in Pennsylvania**\
 `The music mogul, who was sentenced last year to more than four years for prostitution-related offenses, had been held in a federal prison in New Jersey.`\
 https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-pennsylvania.html
-
-**Fear Itself: What Has America Come To?**\
-`Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
-https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
 
