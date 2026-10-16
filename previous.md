@@ -1,3 +1,7 @@
+**Sean ‘Diddy’ Combs Transferred to Prison in Pennsylvania**\
+`The music mogul, who was sentenced last year to more than four years for prostitution-related offenses, had been held in a federal prison in New Jersey.`\
+https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-pennsylvania.html
+
 **Fear Itself: What Has America Come To?**\
 `Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
 https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
 **Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
 `After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
 https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
-
-**The Year Zara Larsson Unlocked Pop Superstardom**\
-`She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
-https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
 

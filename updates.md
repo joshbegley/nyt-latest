@@ -1,3 +1,7 @@
+**Sean ‘Diddy’ Combs Transferred to Prison in Pennsylvania**\
+`The music mogul, who was sentenced last year to more than four years for prostitution-related offenses, had been held in a federal prison in New Jersey.`\
+https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-pennsylvania.html
+
 **Live Updates: Oregon Community Grieves as Police Investigate Deadly School Shooting**\
 `A teenager shot his way into Silver Rail Elementary School in Bend, where he killed a teacher and three children, ages 5, 8 and 11. An armed bystander shot the assailant dead, the police said.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
