@@ -1,3 +1,7 @@
+**Japan Mistakenly Issues Warning for Strongest Ever Earthquake**\
+`Officials on Friday withdrew an alert sent when they believed a 9.9-magnitude earthquake had taken place. In the end, the tremor was hardly felt.`\
+https://www.nytimes.com/2026/10/16/world/asia/japan-earthquake-warning-false-alarm.html
+
 **The Year Zara Larsson Unlocked Pop Superstardom**\
 `She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
 https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
