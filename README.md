@@ -186,11 +186,11 @@ https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-cou
 `Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
 https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
 
-**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
-`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
-https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
-
 **Citizen Science Groups Grapple With the Rise of A.I. Slop**\
 `Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
 https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
+
+**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
+`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
+https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 
