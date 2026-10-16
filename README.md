@@ -1,10 +1,14 @@
+**Ocasio-Cortez Gives $1 Million to El-Sayed Campaign in Michigan**\
+`Representative Alexandria Ocasio-Cortez, Democrat of New York, said she transferred a million dollars to Dr. Abdul El-Sayed’s Senate campaign in Michigan. Whoever wins the Michigan Senate race could determine which party controls the chamber.`\
+https://www.nytimes.com/video/us/politics/100000011219301/ocasio-cortez-gives-1-million-to-el-sayed-campaign-in-michigan.html
+
 **Katie Zacharia is Fired After 5 Days as White House Press Secretary**\
 `Katie Zacharia has been fired after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
 https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
 
 **Fashion Designers Bid Farewell for This Season**\
 `Designers and their fashion farewells.`\
-https://www.nytimes.com/2026/10/16/style/paris-bids-au-revoir-until-next-season.html
+https://www.nytimes.com/2026/10/16/style/paris-fashion-week.html
 
 **N.I.H. Hospital Board Rebukes Kennedy Over New Vaccine Injury Clinic**\
 `The board that oversees the N.I.H. Clinical Center voted unanimously to support a statement accusing Health Secretary Robert F. Kennedy Jr. of undermining trust in the hospital’s work.`\
@@ -32,7 +36,7 @@ https://www.nytimes.com/2026/10/16/us/oregon-school-shooting-suspect.html
 
 **RFK Jr. Pledged to Advance Anti-Vaccine Group’s Goals. Here’s What He’s Doing.**\
 `The health secretary is quietly taking steps that public health experts fear will reduce immunization rates further.`\
-https://www.nytimes.com/2026/10/16/us/politics/kennedy-vaccines.html
+https://www.nytimes.com/2026/10/16/us/politics/rfk-jr-vaccines.html
 
 **Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
 `Power companies shut off tens of thousands of homes and businesses preemptively on Friday.`\
@@ -78,8 +82,8 @@ https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-l
 `Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
 
-**Katie Zacharia, Trump’s New Press Secretary, Is Fired After 5 Days**\
-`The ouster came as Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+**Katie Zacharia, Trump’s New Press Secretary, Is Ousted After 5 Days**\
+`Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
 https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
 
 **Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
@@ -147,7 +151,7 @@ https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-
 https://www.nytimes.com/2026/10/16/dining/slow-cooker-chili-for-a-crowd-or-just-you-and-your-freezer.html
 
 **What Critics Think About Nathan Fielder’s ‘Bonkers’ Elizabeth Holmes Movie**\
-`“You Can See Everything” has been described as “bonkers.” Our critics have their own thoughts, and we’d like to hear your reactions, too.`\
+`“You Can See Everything” has been described as “bonkers.” Our critics have their own thoughts, and we’d like to hear your reactions in the comments, too.`\
 https://www.nytimes.com/2026/10/16/movies/nathan-fielder-elizabeth-holmes-billy-evans.html
 
 **Houthi Attacks on Saudi Arabia Put In Doubt Kingdom’s Sports and Business Events**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/podcasts/the-headlines/the-headlines-news-qui
 **Why No One Can Look Away From Elizabeth Holmes**\
 `“I felt like there were some moments in the film where she was just brazenly lying.”`\
 https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
-
-**Handcuffs in Schools**\
-`Let’s look at what happens when school police arrest children.`\
-https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
 
