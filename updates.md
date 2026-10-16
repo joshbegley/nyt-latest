@@ -1,3 +1,7 @@
+**Oregon Elementary School Shooting Leaves Four Dead**\
+`Three children and a teacher were killed in a shooting at an elementary school in Bend, Ore., on Thursday. The shooter was also dead, the police said.`\
+https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.html
+
 **In Michigan Senate Race, Ocasio-Cortez Joins El-Sayed on Trail in Trump Country**\
 `Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
 https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
