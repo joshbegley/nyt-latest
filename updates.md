@@ -1,3 +1,15 @@
+**Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
+`In the latest surge of violence, settlers targeted Palestinians during the olive harvest, a cultural touchstone and economic lifeline in the Israeli-occupied area.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-post-palestinians.html
+
+**The Local: Ilhan Omar and an Endless Race**\
+`Omar turns raid into cash, and an ultramarathoner has his biggest competition yet.`\
+https://www.nytimes.com/2026/10/16/briefing/mark-dowdle-ilhan-omar.html
+
+**U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
+`Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
+https://www.nytimes.com/2026/10/16/business/us-budget-deficit.html
+
 **What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
 `The gunman who killed four in Bend, Ore., entered an elementary school by shooting through a locked door, raising questions about what more schools can do to protect children.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html

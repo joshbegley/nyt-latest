@@ -1,3 +1,11 @@
+**Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
+`In the latest surge of violence, settlers targeted Palestinians during the olive harvest, a cultural touchstone and economic lifeline in the Israeli-occupied area.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-post-palestinians.html
+
+**The Local: Ilhan Omar and an Endless Race**\
+`Omar turns raid into cash, and an ultramarathoner has his biggest competition yet.`\
+https://www.nytimes.com/2026/10/16/briefing/mark-dowdle-ilhan-omar.html
+
 **Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
 `Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
 https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
@@ -16,7 +24,7 @@ https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
 
 **U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
 `Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
-https://www.nytimes.com/2026/10/16/business/us-budget-deficit-nears-2-trillion-a-reality-check-for-trumps-cost-cutting.html
+https://www.nytimes.com/2026/10/16/business/us-budget-deficit.html
 
 **How to Build a Skin Care Routine for Mature Skin**\
 `Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.
 **Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
 `The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of President Prabowo Subianto.`\
 https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
-
-**Trump’s Attempt to Deport Ilhan Omar Is Another Leap Toward the Abyss**\
-`This is more than just another persecution of one of the president’s political enemies.`\
-https://www.nytimes.com/2026/10/16/opinion/ilhan-omar-deportation-trump.html
-
-**Nations Meet in Armenia as Goal to Protect Nature Remains Out of Reach**\
-`The United Nations is convening delegates from nearly 200 countries to try to make progress on pledges to protect plants, animals and ecosystems.`\
-https://www.nytimes.com/2026/10/16/climate/biodiversity-cop-yerevan.html
 
