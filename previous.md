@@ -1,3 +1,7 @@
+**Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
+`A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
+https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html
+
 **Japan Mistakenly Issues Warning for Strongest Ever Earthquake**\
 `Officials on Friday withdrew an alert sent when they believed a 9.9-magnitude earthquake had taken place. In the end, the tremor was hardly felt.`\
 https://www.nytimes.com/2026/10/16/world/asia/japan-earthquake-warning-false-alarm.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/10/16/us/politics/midterm-elections-ai-generated-ad
 **‘I’m on a War Footing’: Terry Tao and the Crisis in Math**\
 `The Fields Medalist and celebrated mathematician is on the front lines of a debate about artificial intelligence and the future of his field.`\
 https://www.nytimes.com/2026/10/16/us/math-ai-terence-tao.html
-
-**A Paris Museum That’s Wild and a ‘Little Weird’**\
-`Despite its provocative subject matter, the Museum of Hunting and Nature aims to be “a joyful cabinet of curiosities.”`\
-https://www.nytimes.com/2026/10/16/arts/design/paris-museum-hunting-nature.html
-
-**Book Review: ‘Licorice,’ by Kara LaReau**\
-`In Kara LaReau’s “Licorice,” a shelter kitten adopted by a boy named Max is tormented by the lingering presence of her recently departed predecessor.`\
-https://www.nytimes.com/2026/10/16/books/review/rebecca-daphne-dumaurier-kids-novel-licorice-kara-lareau.html
 

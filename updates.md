@@ -1,3 +1,7 @@
+**Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
+`A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
+https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html
+
 **Japan Mistakenly Issues Warning for Strongest Ever Earthquake**\
 `Officials on Friday withdrew an alert sent when they believed a 9.9-magnitude earthquake had taken place. In the end, the tremor was hardly felt.`\
 https://www.nytimes.com/2026/10/16/world/asia/japan-earthquake-warning-false-alarm.html
