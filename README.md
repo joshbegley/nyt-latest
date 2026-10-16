@@ -1,3 +1,7 @@
+**These Factors Could Limit the Knicks in Their Title Defense**\
+`Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
+https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
+
 **Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
 `Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/us/what-we-know-no-kings-vote-early.html
 **Want to Address Sexual Assault? Make Fraternities Admit Women.**\
 `A fellow college president warned that the blowback from my decision would end my presidency. Instead, it produced some extraordinary conversations.`\
 https://www.nytimes.com/2026/10/16/opinion/fraternities-cornell-men-women.html
-
-**Is Anyone Actually in Charge of the Democratic Party? And Does It Matter?**\
-`This year’s midterm elections are a test of whether a party can be a success and a failure at the same time.`\
-https://www.nytimes.com/2026/10/16/magazine/democratic-party-midterms.html
 
