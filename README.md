@@ -1,3 +1,11 @@
+**Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
+`Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
+https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
+
+**What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
+`The gunman entered the school by shooting through a locked door and was eventually stopped by a bystander, raising questions about what more schools can do to protect children.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
+
 **Russia Appears to Step Up Efforts to Influence U.S. Voters**\
 `One campaign has created social media posts focusing on U.S. support for Israel to sow discord ahead of the midterm elections.`\
 https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midterms.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/16/opinion/ilhan-omar-deportation-trump.html
 **Nations Meet in Armenia as Goal to Protect Nature Remains Out of Reach**\
 `The United Nations is convening delegates from nearly 200 countries to try to make progress on pledges to protect plants, animals and ecosystems.`\
 https://www.nytimes.com/2026/10/16/climate/biodiversity-cop-yerevan.html
-
-**3 Tools to Help Keep Your Anger in Check**\
-`It may feel justified in the moment, but yelling at your loved ones rarely gets you what you want.`\
-https://www.nytimes.com/2026/10/16/well/anger-temper-tools.html
-
-**Is There an A.I. Bubble? A Debate.**\
-`Azeem Azhar and Paul Kedrosky debate whether A.I. will make the economy crash.`\
-https://www.nytimes.com/2026/10/16/opinion/ezra-klein-podcast-azeem-azhar-paul-kedrosky.html
 
