@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Oct. 16, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-headlines/the-headlines-news-quiz-oct-16-2026.html
+
 **Why No One Can Look Away From Elizabeth Holmes**\
 `“I felt like there were some moments in the film where she was just brazenly lying.”`\
 https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/arts/design/nilima-sheikh-fractured-skies-mom
 **Meta Glasses, A.I. Ads and Robot Models: Fashion Cozies Up to Tech**\
 `Some magazines, influencers and writers are trying out the latest in artificial intelligence and wearables, even if their audiences are skeptical.`\
 https://www.nytimes.com/2026/10/16/style/fashion-meta-glasses-ai.html
-
-**These Older Brazilian Jiu-Jitsu Students Are Fighting the Clock**\
-`While some people slow down as they get older, or just try to maintain, these athletes went looking for a challenge in Brazilian jiu-jitsu.`\
-https://www.nytimes.com/2026/10/16/well/longevity-jiu-jitsu.html
 
