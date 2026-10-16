@@ -1,3 +1,7 @@
+**Netflix Scrambles to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
+`Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
+https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html
+
 **Trump Returns to Dalton for a Rescue Mission in Georgia**\
 `Plus, Katie Zacharia’s ouster, A.O.C. on the trail, and another tense debate in Maine.`\
 https://www.nytimes.com/2026/10/16/us/politics/trump-rally-dalton-georgia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going
 **Zara Larsson Won’t Abandon Her Politics for Fame**\
 `Zara Larsson refuses to censor her political beliefs for money or fame. The Swedish pop singer has spoken out on issues like abortion rights and Palestine, and she shares with Popcast why she refuses to sacrifice her integrity no matter how lucrative the opportunity.`\
 https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon-her-politics-for-fame.html
-
-**Parents Struggle to Help Their Children After School Killings in Oregon**\
-`The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
-https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
 

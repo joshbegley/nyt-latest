@@ -1,3 +1,7 @@
+**Netflix Scrambles to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
+`Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
+https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html
+
 **Trump Returns to Dalton for a Rescue Mission in Georgia**\
 `Plus, Katie Zacharia’s ouster, A.O.C. on the trail, and another tense debate in Maine.`\
 https://www.nytimes.com/2026/10/16/us/politics/trump-rally-dalton-georgia.html
