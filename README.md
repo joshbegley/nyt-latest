@@ -1,3 +1,7 @@
+**Which Designers Should Go Where?**\
+`A bit of fantasy football, but with big luxury brands.`\
+https://www.nytimes.com/2026/10/16/style/the-fashions-designers-departures.html
+
 **Queens Woman Accused of Killing 5-Year-Old Daughter**\
 `It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
 https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/podcasts/tbr-critics-picks.html
 **Elon Musk Is Pouring Cash Into the Midterms**\
 `This quarter’s campaign finance report shows that the world’s richest man is the top political donor of this midterm election. Our reporter Theodore Schleifer explains how Elon Musk came back from a brief rift with President Trump and Republicans to become a central player in the party’s campaign to hold Congress.`\
 https://www.nytimes.com/video/us/elections/100000011202745/elon-musk-is-pouring-cash-into-the-midterms.html
-
-**22 Free, Fun Things to Do With Your Kids in NYC This Fall**\
-`While Halloween and the Day of the Dead provide many ways to celebrate, this season offers other reasons to gather, too. Better yet, these events don’t cost a dime.`\
-https://www.nytimes.com/2026/10/16/arts/nyc-free-fall-activities-kids-family.html
 
