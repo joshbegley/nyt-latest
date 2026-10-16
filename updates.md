@@ -1,3 +1,7 @@
+**Fish, Oil and Corruption: 6 Takeaways From Alaska’s Senate Debate**\
+`The Republican incumbent, Dan Sullivan, and his Democratic challenger, Mary Peltola, veered from serious discussion of high prices and economic challenges to blistering personal attacks.`\
+https://www.nytimes.com/2026/10/16/us/politics/alaska-senate-debate-peltola-sullivan.html
+
 **Elon Musk Spends Heavily to Back Ken Paxton’s Senate Bid in Texas**\
 `The world’s richest person, who has become the biggest known midterm donor, gave $158 million to a group that quickly spent that much to help Mr. Paxton’s Senate bid in Texas.`\
 https://www.nytimes.com/2026/10/16/us/politics/elon-musk-ken-paxton-texas-senate-race.html
