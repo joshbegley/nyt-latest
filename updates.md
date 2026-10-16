@@ -1,3 +1,35 @@
+**The Sexual Abuse Crisis in Paris’s Public Schools**\
+`A surge of abuse accusations has led Parisian authorities to acknowledge a “collective failure” to prevent sexual offenders from working in schools.`\
+https://www.nytimes.com/2026/10/16/world/europe/paris-schools-abuse-crisis.html
+
+**Quote of the Day: Superfan Gets a Second Chance to Leave It All Out on the Field**\
+`Quotation of the Day for Friday, October 16, 2026.`\
+https://www.nytimes.com/2026/10/16/pageoneplus/quote-of-the-day-superfan-gets-a-second-chance-to-leave-it-all-out-on-the-field.html
+
+**A Shared Heritage, and an Amazing Coincidence, Proved a Strong Foundation**\
+`Mary Nikols and Andoni Tsouchlarakis met on a trip to Crete. As their romance blossomed, they discovered their families had crossed paths decades earlier in Utah.`\
+https://www.nytimes.com/2026/10/16/style/mary-nikols-andoni-tsouchlarakis-wedding.html
+
+**My Late Fiancé Never Knew He Had a Daughter**\
+`And I couldn’t believe a piece of him still existed in this world.`\
+https://www.nytimes.com/2026/10/16/style/modern-love-my-fiance-never-knew-he-had-a-daughter.html
+
+**The First Date Was a Dud, So They Tried Again**\
+`Dr. Jake Perlson and Ethan Wise hit it off after matching on a dating app seven years ago, but were underwhelmed after a first in-person meeting.`\
+https://www.nytimes.com/2026/10/16/style/ethan-wise-jake-perlson-wedding.html
+
+**El Niño Threatens Global Sugar Supply**\
+`A poor sugarcane crop in India, the world’s second-largest producer, is hurting consumers and farmers — plus undermining the country’s energy security goals.`\
+https://www.nytimes.com/2026/10/16/climate/india-sugarcane-production-sugar-prices.html
+
+**He Asked Her Out the Old School Way**\
+`“It definitely made a difference that he called me,” Kristen Smith said of her first date with Oliver Gray.`\
+https://www.nytimes.com/2026/10/16/style/kristen-smith-oliver-gray-wedding.html
+
+**On This Day, Oct. 16: In 1964, China detonated its first atomic bomb.**\
+`In 1964, China detonated its first atomic bomb.`\
+https://www.nytimes.com/2026/10/16/learning/on-this-day-oct-16-china-atomic-bomb.html
+
 **Oregon Has Approved Tight Gun Laws, but They Have Been Held Up in Courts**\
 `The state has passed restrictive measures popular among gun safety activists. The Silver Rail Elementary School shooting seemed poised to set off conversations about gun control.`\
 https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
