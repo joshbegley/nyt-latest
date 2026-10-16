@@ -1,3 +1,7 @@
+**The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
+`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old, with black residue inside. Outside experts were skeptical but intrigued.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
+
 **A Former Rome Reporter on the Pope’s Health and Legacy**\
 `For a former Rome bureau chief, Pope Leo’s lung cancer diagnosis prompted pressing questions about life and legacy.`\
 https://www.nytimes.com/2026/10/16/insider/pope-leo-xiv-lung-cancer-vatican-legacy.html
