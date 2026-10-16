@@ -1,3 +1,11 @@
+**Zelensky’s Silent Answer To Trump Scapegoat Question**\
+`Ukraine’s President, Volodymyr Zelensky, was asked on Friday if President Trump was using him as a scapegoat for various domestic and foreign issues Trump faces. He answered with a silent smile.`\
+https://www.nytimes.com/video/world/europe/100000011218459/zelensky-trump-scapegoat-question.html
+
+**‘He’s a Dad.’ Parent Heard Shots and Rushed to Stop the Gunman.**\
+`The father of two girls at Silver Rail Elementary School, who confronted shooter, was grateful for the support of the community and has asked for privacy.`\
+https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
+
 **Israeli Settlers Attack Palestinians and Washington Post Photographer**\
 `Masked Israeli settlers attacked Palestinians and beat the American journalist Heidi Levine as they stormed an olive grove during the annual harvest in the Israeli-occupied West Bank`\
 https://www.nytimes.com/video/world/middleeast/100000011218215/settlers-attack-journalist-west-bank-israel.html
