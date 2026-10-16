@@ -1,3 +1,7 @@
+**Which Designers Should Go Where?**\
+`A bit of fantasy football, but with big luxury brands.`\
+https://www.nytimes.com/2026/10/16/style/the-fashions-designers-departures.html
+
 **Queens Woman Accused of Killing 5-Year-Old Daughter**\
 `It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
 https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
