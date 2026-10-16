@@ -1,3 +1,11 @@
+**Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
+`Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
+https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
+
+**Katie Zacharia, Trump’s New Press Secretary, Is Fired After 5 Days**\
+`The ouster came as Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
+
 **Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
 `Concerns about the state’s immigration dragnet may keep the itinerant labor force at home, threatening Hurricane Isaias recovery efforts.`\
 https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.html

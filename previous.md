@@ -1,3 +1,11 @@
+**Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
+`Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
+https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
+
+**Katie Zacharia, Trump’s New Press Secretary, Is Fired After 5 Days**\
+`The ouster came as Ms. Zacharia was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
+https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
+
 **Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
 `Concerns about the state’s immigration dragnet may keep the itinerant labor force at home, threatening Hurricane Isaias recovery efforts.`\
 https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/16/opinion/fraternities-cornell-men-women.html
 **Is Anyone Actually in Charge of the Democratic Party? And Does It Matter?**\
 `This year’s midterm elections are a test of whether a party can be a success and a failure at the same time.`\
 https://www.nytimes.com/2026/10/16/magazine/democratic-party-midterms.html
-
-**This Weekend, See an ‘Extravaganza of Ornament’ in the Bronx**\
-`On Open House weekend, the hundreds of attractions around the city include the Paradise Theater, second only to Radio City Music Hall in size and splendor.`\
-https://www.nytimes.com/2026/10/16/nyregion/open-house-weekend-the-paradise.html
-
-**How the ‘Other Maine’ Has Helped Shape a Senate Race**\
-`Both Senator Susan Collins, a Republican, and Troy Jackson, her Democratic challenger, grew up in Aroostook County, a vast, isolated northern wilderness. Those roots have helped define them.`\
-https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-county.html
 
