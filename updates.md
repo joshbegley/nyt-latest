@@ -1,3 +1,15 @@
+**The Arab Kingmaker in Israel’s Election Who Wants a Partnership With Jews**\
+`Mansour Abbas, a dentist-turned-lawmaker, helped oust Benjamin Netanyahu once before. Now, he and a Jewish ex-police commander have teamed up to try to do it again.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html
+
+**Japan’s Leader Says She Loses Hours to Makeup and Chores. Opinions Abound.**\
+`Sanae Takaichi said she has a busier schedule than her male predecessors, a nod to the disproportionate share of household tasks in Japan that fall to women.`\
+https://www.nytimes.com/2026/10/16/world/asia/japan-women-makeup-chores.html
+
+**Live Updates: Police Investigate Deadly Shooting at Oregon Elementary School**\
+`A teenager shot his way into the Silver Rail Elementary School, killing three children and a teacher before an armed bystander shot him dead, the police said.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Unboxing Wu-Tang Clan’s Secret Album**\
 `Method Man had never actually heard it, until now.`\
 https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html

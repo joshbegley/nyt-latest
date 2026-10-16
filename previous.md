@@ -1,3 +1,15 @@
+**The Arab Kingmaker in Israel’s Election Who Wants a Partnership With Jews**\
+`Mansour Abbas, a dentist-turned-lawmaker, helped oust Benjamin Netanyahu once before. Now, he and a Jewish ex-police commander have teamed up to try to do it again.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html
+
+**Japan’s Leader Says She Loses Hours to Makeup and Chores. Opinions Abound.**\
+`Sanae Takaichi said she has a busier schedule than her male predecessors, a nod to the disproportionate share of household tasks in Japan that fall to women.`\
+https://www.nytimes.com/2026/10/16/world/asia/japan-women-makeup-chores.html
+
+**Live Updates: Police Investigate Deadly Shooting at Oregon Elementary School**\
+`A teenager shot his way into the Silver Rail Elementary School, killing three children and a teacher before an armed bystander shot him dead, the police said.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Unboxing Wu-Tang Clan’s Secret Album**\
 `Method Man had never actually heard it, until now.`\
 https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/16/movies/nathan-fielder-tv-shows-elizabeth-holm
 **After Welcoming China’s Electric Vehicles, This Country Is Paying the Price**\
 `Thailand introduced subsidies and tax cuts to encourage electric vehicle adoption. Now it is trying to recalibrate, alarmed by the threat to its industrial landscape.`\
 https://www.nytimes.com/2026/10/16/business/china-ev-thailand-cars.html
-
-**Living Near the Hollywood Bowl: Free Concerts and Pancake Breakfasts**\
-`For many of the residents surrounding the Hollywood Bowl in Los Angeles, stadium noise is a feature, not a bug.`\
-https://www.nytimes.com/2026/10/16/realestate/living-near-the-hollywood-bowl-free-concerts-and-pancake-breakfasts.html
-
-**Best Looks From the Spring Summer 2027 Runway Shows**\
-`Outfit inspiration from the spring 2027 shows.`\
-https://www.nytimes.com/2026/10/16/style/favorite-looks-spring-summer-2027-runways.html
-
-**In His Montmartre Atelier, a Self-Made, 91-Year-Old Artist Paints On**\
-`Henri Landier is so committed to his work that, in the early days, he slept on newspapers in an unheated shack. Now, he has had shows from Japan to India.`\
-https://www.nytimes.com/2026/10/16/arts/design/paris-artist-henri-landier.html
 
