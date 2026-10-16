@@ -1,3 +1,7 @@
+**RFK Jr. Pledged to Advance Anti-Vaccine Group’s Goals. Here’s What He’s Doing.**\
+`The health secretary is quietly taking steps that public health experts fear will reduce immunization rates further.`\
+https://www.nytimes.com/2026/10/16/us/politics/kennedy-vaccines.html
+
 **Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
 `Power companies shut off tens of thousands of homes and businesses preemptively on Friday.`\
 https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/world/asia/japan-women-makeup-chores.html
 **Live Updates: Bystander Who Killed Oregon School Shooter Is Father of Two Students**\
 `The armed man who shot the 16-year-old assailant at Silver Rail Elementary School in Bend intervened after the teenager, who was armed with a shotgun, killed a teacher and three children. Investigators have searched the suspect’s home.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
-
-**Unboxing Wu-Tang Clan’s Secret Album**\
-`Method Man had never actually heard it, until now.`\
-https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html
 
