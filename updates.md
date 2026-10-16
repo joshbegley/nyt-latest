@@ -1,3 +1,19 @@
+**Israeli Settlers Attack Palestinians and Washington Post Photographer**\
+`Masked Israeli settlers attacked Palestinians and beat the American journalist Heidi Levine as they stormed an olive grove during the annual harvest in the Israeli-occupied West Bank`\
+https://www.nytimes.com/video/world/middleeast/100000011218215/settlers-attack-journalist-west-bank-israel.html
+
+**‘He’s a Dad.’ Parent Heard Shots and Rushed to Stop Gunman**\
+`The father of two girls at Silver Rail Elementary School, who confronted shooter, was grateful for the support of the community and has asked for privacy.`\
+https://www.nytimes.com/2026/10/16/us/hes-a-dad-parent-heard-shots-and-rushed-to-stop-gunman.html
+
+**New from Serial: METRO with Sarah Koenig**\
+`Stories about New York City and its most fascinating raw material: New Yorkers.`\
+https://www.nytimes.com/2026/10/16/podcasts/metro-with-sarah-koenig.html
+
+**What We Know About the Shooter at an Oregon School**\
+`He was 16 years old and used a pump-action shotgun registered to his mother.`\
+https://www.nytimes.com/2026/10/16/us/oregon-school-shooting-suspect.html
+
 **RFK Jr. Pledged to Advance Anti-Vaccine Group’s Goals. Here’s What He’s Doing.**\
 `The health secretary is quietly taking steps that public health experts fear will reduce immunization rates further.`\
 https://www.nytimes.com/2026/10/16/us/politics/kennedy-vaccines.html
