@@ -1,3 +1,15 @@
+**A Quiet Dog Walk Is Shattered by the Sound of Gunfire**\
+`“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
+https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
+
+**A Bitter White House Feud, Even by Trump-Era Standards: Alina Mildon and Richard Grenell**\
+`Two allies of President Trump — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
+https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
+
+**Live Updates: 3 Children and 1 Teacher Killed in Shooting at Oregon Elementary School**\
+`Another child and teacher were critically injured, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Judge Refuses to Reverse Penalties Against Crypto Firm With Ties to Trump Family**\
 `The ruling denied a bid by Gemini Trust and the C.F.T.C. to nullify a settlement that required the company to pay $5 million for misleading federal regulators.`\
 https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-trump.html
