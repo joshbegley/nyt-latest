@@ -1,3 +1,7 @@
+**In Michigan Senate Race, Ocasio-Cortez Joins El-Sayed on Trail in Trump Country**\
+`Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
+https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
+
 **NYT Crossword Answers for Oct. 16, 2026**\
 `Adam Shapiro makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011205817/how-trump-is-trying-to-assert-c
 **Dublin Hotel Accused of Revoking Bookings for an Event to Combat Antisemitism**\
 `A leader of the Jewish community in Ireland said a hotel canceled a deal for 70 rooms when it learned they were reserved for guests attending the international forum.`\
 https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitism.html
-
-**Hurricane Trudy is the Latest in an Unusual Pacific Hurricane Season**\
-`The Pacific Ocean is seeing more storms, and stronger storms, than usual. Here’s what’s going on (and how it all traces back to El Niño).`\
-https://www.nytimes.com/2026/10/15/weather/hurricane-trudy-pacific-season-facts-records.html
 
