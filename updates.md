@@ -1,3 +1,11 @@
+**These Factors Could Limit the Knicks in Their Title Defense**\
+`Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
+https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
+
+**Live Updates: Bystander Who Killed Oregon School Shooter Was Father of Two Students, His Mother Says**\
+`The armed man who shot the 16-year-old assailant at Silver Rail Elementary School in Bend intervened after the teenager, who was armed with a shotgun, killed a teacher and three children. Investigators have searched the suspect’s home.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
 `Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
