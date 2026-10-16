@@ -1,3 +1,7 @@
+**Man Charged in Fatal Fentanyl Overdose and Rape of FIT Student**\
+`The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
+https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
+
 **Why No One Can Look Away From Elizabeth Holmes**\
 `Full Episode #217`\
 https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-from-elizabeth-holmes.html
