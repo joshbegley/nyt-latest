@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 16, 2026**\
+`Adam Shapiro makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
+
 **Trump Ally, Paolo Zampolli, Leaves State Department**\
 `Paolo Zampolli, a longtime Trump associate, gained attention earlier this year with a report that his ex-wife had been detained by ICE after his request.`\
 https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
