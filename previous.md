@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html
 `Sanae Takaichi said she has a busier schedule than her male predecessors, a nod to the disproportionate share of household tasks in Japan that fall to women.`\
 https://www.nytimes.com/2026/10/16/world/asia/japan-women-makeup-chores.html
 
-**Live Updates: Oregon City Grieves as Police Investigate Deadly School Shooting**\
+**Live Updates: Oregon Community Grieves as Police Investigate Deadly School Shooting**\
 `A teenager shot his way into Silver Rail Elementary School in Bend, killing a teacher and three children, ages 5, 8 and 11. An armed bystander shot the assailant dead, the police said.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 

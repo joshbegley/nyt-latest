@@ -1,3 +1,7 @@
+**Live Updates: Oregon Community Grieves as Police Investigate Deadly School Shooting**\
+`A teenager shot his way into Silver Rail Elementary School in Bend, killing a teacher and three children, ages 5, 8 and 11. An armed bystander shot the assailant dead, the police said.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Fear Itself: What Has America Come To?**\
 `Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
 https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
