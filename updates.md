@@ -1,3 +1,11 @@
+**What the A.I. Labs Know That We Don’t**\
+`“I expect A.I.s to beat humans at A.I. research within nine months,” a researcher at Anthropic recently told the podcaster Dwarkesh Patel. On “Interesting Times,” Patel makes the case that if the labs really believe that, they should make the evidence public.`\
+https://www.nytimes.com/video/opinion/100000011218973/what-the-ai-labs-know-that-we-dont.html
+
+**When a Social Media Mob Came for Cornell’s Jane Doe**\
+`After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
+https://www.nytimes.com/2026/10/16/nyregion/cornell-jane-doe-internet-doxing.html
+
 **Trump Administration Restricts Drone Activity Along U.S.-Mexico Border**\
 `The new restrictions ban unauthorized drone flights within a nautical mile of the southern border, up to 400 feet in the air.`\
 https://www.nytimes.com/2026/10/16/us/politics/drones-border-restrictions.html

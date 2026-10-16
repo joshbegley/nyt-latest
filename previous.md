@@ -1,10 +1,14 @@
+**What the A.I. Labs Know That We Don’t**\
+`“I expect A.I.s to beat humans at A.I. research within nine months,” a researcher at Anthropic recently told the podcaster Dwarkesh Patel. On “Interesting Times,” Patel makes the case that if the labs really believe that, they should make the evidence public.`\
+https://www.nytimes.com/video/opinion/100000011218973/what-the-ai-labs-know-that-we-dont.html
+
 **Trump Administration Restricts Drone Activity Along U.S.-Mexico Border**\
 `The new restrictions ban unauthorized drone flights within a nautical mile of the southern border, up to 400 feet in the air.`\
 https://www.nytimes.com/2026/10/16/us/politics/drones-border-restrictions.html
 
 **When a Social Media Mob Came for Cornell’s Jane Doe**\
 `After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
-https://www.nytimes.com/2026/10/16/realestate/cornell-jane-doe-internet-doxing.html
+https://www.nytimes.com/2026/10/16/nyregion/cornell-jane-doe-internet-doxing.html
 
 **M.L.B. Playoff Ads With Sydney Sweeney and Megan Fox Draw Backlash**\
 `Commercials with Sydney Sweeney promoting a gambling platform and Megan Fox endorsing male enhancement have rankled fans, and even athletes. Who is in charge?`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 **Man Charged in Fatal Fentanyl Overdose and Rape of FIT Student**\
 `The student was attending the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
-
-**Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
-`After change-ups at two big luxury brands, we fantasized about who should go where.`\
-https://www.nytimes.com/2026/10/16/style/calvin-klein-alexander-mcqueen-designers.html
 
