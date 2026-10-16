@@ -1,3 +1,7 @@
+**The Leap Second Has Been Canceled**\
+`Earth’s rotation subtly changes the length of the day. Now our clocks won’t change with it — at least not for a very long time.`\
+https://www.nytimes.com/2026/10/16/science/leap-second-abolished-vote.html
+
 **After Roller Coaster Death, Critics Call for Federal Oversight**\
 `Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
 https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/your-money/cd-bank-lost-money.html
 **When Will the Fed Move on Rates?**\
 `Kevin Warsh, the central bank’s chairman, suggested he wouldn’t push to raise borrowing rates this month. But persistent inflation may force the Fed’s hand.`\
 https://www.nytimes.com/2026/10/16/business/dealbook/fed-rates-warsh-inflation.html
-
-**‘The Headlines’ News Quiz: Oct. 16, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/16/podcasts/the-headlines/the-headlines-news-quiz-oct-16-2026.html
 
