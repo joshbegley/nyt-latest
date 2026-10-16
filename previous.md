@@ -1,3 +1,7 @@
+**Fashion Designers Bid Farewell for This Season**\
+`Designers and their fashion farewells.`\
+https://www.nytimes.com/2026/10/16/style/paris-bids-au-revoir-until-next-season.html
+
 **N.I.H. Hospital Board Rebukes Kennedy Over New Vaccine Injury Clinic**\
 `The board that oversees the N.I.H. Clinical Center voted unanimously to support a statement accusing Health Secretary Robert F. Kennedy Jr. of undermining trust in the hospital’s work.`\
 https://www.nytimes.com/2026/10/16/us/politics/kennedy-nih-hospital-board-rebuke.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
 **MAGA’s Midterm Defectors**\
 `Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
 https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
-
-**A.I.-Generated Ads Flood the Midterms, and Teenager Kills 4 at Oregon Elementary School**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/10/16/podcasts/the-headlines/ai-ads-midterms-oregon-elementary-school-shooting.html
 
