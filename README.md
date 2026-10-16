@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 
-**Man Charged in Fatal Fentanyl Overdose and Rape of College Student in NYC**\
+**Man Charged in Fatal Fentanyl Overdose and Rape of FIT Student**\
 `The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
 
