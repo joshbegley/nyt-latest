@@ -1,3 +1,7 @@
+**Queens Woman Accused of Killing 5-Year-Old Daughter**\
+`It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
+https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
+
 **Zara Larsson on Pop Going Global**\
 `Zara Larsson chats about the globalization of pop fame and whether she feels the needs to “make it” in America.`\
 https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going-global.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
 `Where the two presidents’ war of words will end is anybody’s guess. But if it continues, it could threaten the crucial operational help that Ukraine still gets from the United States.`\
 https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
 
-**The Glaciers Are Collapsing. We Deserve a Warning.**\
+**The Glaciers Are Collapsing. This Is What We Must Do.**\
 `A glacier monitoring system could give communities in Nepal not 13 minutes, but hours or days to evacuate.`\
 https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-nepal.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/elections/100000011202745/elon-musk-is-pouring-
 **22 Free, Fun Things to Do With Your Kids in NYC This Fall**\
 `While Halloween and the Day of the Dead provide many ways to celebrate, this season offers other reasons to gather, too. Better yet, these events don’t cost a dime.`\
 https://www.nytimes.com/2026/10/16/arts/nyc-free-fall-activities-kids-family.html
-
-**Avalanche of G.O.P. Cash Keeps the Party Competitive Despite Its Problems**\
-`Republican Senate and House candidates are being out-raised by their Democratic rivals, but the party has received a huge boost from groups tied to Elon Musk and President Trump.`\
-https://www.nytimes.com/2026/10/16/us/avalanche-of-gop-cash-keeps-the-party-competitive-despite-its-problems.html
 
