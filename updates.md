@@ -1,3 +1,15 @@
+**U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
+`Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
+https://www.nytimes.com/2026/10/16/business/us-budget-deficit-nears-2-trillion-a-reality-check-for-trumps-cost-cutting.html
+
+**Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
+`After change-ups at two big luxury brands, we fantasized about who should go where.`\
+https://www.nytimes.com/2026/10/16/style/calvin-klein-alexander-mcqueen-designers.html
+
+**Live Updates: Bystander Who Killed Oregon School Shooter Is Father of Two Students**\
+`The armed man who shot the 16-year-old assailant at Silver Rail Elementary School in Bend intervened after the teenager, who was armed with a shotgun, killed a teacher and three children. Investigators have searched the suspect’s home.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **How to Build a Skin Care Routine for Mature Skin**\
 `Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
 https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
