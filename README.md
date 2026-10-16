@@ -1,3 +1,7 @@
+**How to Build a Skin Care Routine for Mature Skin**\
+`Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
+https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
+
 **These Factors Could Limit the Knicks in Their Title Defense**\
 `Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
 https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/travel/expedia-lawsuit-hotel-prices.html
 **‘No Kings’ Events This Weekend: What We Know**\
 `Organizers are hoping to promote early voting ahead of the midterm elections in this latest round of nationwide demonstrations that have previously focused on President Trump.`\
 https://www.nytimes.com/2026/10/16/us/what-we-know-no-kings-vote-early.html
-
-**Want to Address Sexual Assault? Make Fraternities Admit Women.**\
-`A fellow college president warned that the blowback from my decision would end my presidency. Instead, it produced some extraordinary conversations.`\
-https://www.nytimes.com/2026/10/16/opinion/fraternities-cornell-men-women.html
 
