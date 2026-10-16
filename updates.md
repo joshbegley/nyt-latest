@@ -1,3 +1,7 @@
+**Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
+`Another child and teacher were critically injured in the shooting, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
+https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
+
 **Fish, Oil and Corruption: 6 Takeaways From Alaska’s Senate Debate**\
 `The Republican incumbent, Dan Sullivan, and his Democratic challenger, Mary Peltola, veered from serious discussion of high prices and economic challenges to blistering personal attacks.`\
 https://www.nytimes.com/2026/10/16/us/politics/alaska-senate-debate-peltola-sullivan.html

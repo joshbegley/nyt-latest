@@ -154,8 +154,8 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 `President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
-**Live Updates: Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
-`Another child and teacher were critically injured, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
+**Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
+`Another child and teacher were critically injured in the shooting, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
