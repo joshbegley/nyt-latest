@@ -1,3 +1,11 @@
+**When a Social Media Mob Came for Cornell’s Jane Doe**\
+`After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
+https://www.nytimes.com/2026/10/16/realestate/cornell-jane-doe-internet-doxing.html
+
+**Netflix Hurries to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
+`Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
+https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html
+
 **M.L.B. Playoff Ads With Sydney Sweeney and Megan Fox Draw Backlash**\
 `Commercials with Sydney Sweeney promoting a gambling platform and Megan Fox endorsing male enhancement have rankled fans, and even athletes. Who is in charge?`\
 https://www.nytimes.com/2026/10/16/business/media/mlb-playoffs-commercials-sydney-sweeney-novig.html
