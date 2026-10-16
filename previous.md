@@ -1,3 +1,7 @@
+**Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
+`Concerns about the state’s immigration dragnet may keep the itinerant labor force at home, threatening Hurricane Isaias recovery efforts.`\
+https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.html
+
 **16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
 `The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
 https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/nyregion/open-house-weekend-the-paradise.html
 **How the ‘Other Maine’ Has Helped Shape a Senate Race**\
 `Both Senator Susan Collins, a Republican, and Troy Jackson, her Democratic challenger, grew up in Aroostook County, a vast, isolated northern wilderness. Those roots have helped define them.`\
 https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-county.html
-
-**Book Review: ‘Pandemic Architecture,’ by Penny Hardy**\
-`Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
-https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
 

@@ -1,3 +1,7 @@
+**Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
+`Concerns about the state’s immigration dragnet may keep the itinerant labor force at home, threatening Hurricane Isaias recovery efforts.`\
+https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.html
+
 **16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
 `The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
 https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
