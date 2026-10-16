@@ -1,3 +1,7 @@
+**Handcuffs in Schools**\
+`Let’s look at what happens when school police arrest children.`\
+https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
+
 **MAGA’s Midterm Defectors**\
 `Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
 https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/well/longevity-jiu-jitsu.html
 **How Do You Clear Your Head?**\
 `Do you go for a walk, listen to certain songs, talk to a friend — or are there other methods or rituals that help you feel ready for what’s next?`\
 https://www.nytimes.com/2026/10/16/learning/how-do-you-clear-your-head.html
-
-**Trump Hasn’t Lowered Drug Prices for These Voters**\
-`President Trump has been promoting his efforts to reduce drug prices, but many Americans have not seen relief from rising costs for prescriptions and insurance premiums.`\
-https://www.nytimes.com/2026/10/16/business/midterms-election-trump-drug-prices-affordability.html
 
