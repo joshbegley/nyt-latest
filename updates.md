@@ -1,3 +1,7 @@
+**What We Know About the School Shooting in Bend, Oregon**\
+`A teenager opened fire at the Silver Rail Elementary School, killing three children and one teacher. The shooter was killed by an armed bystander.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-victims-suspect.html
+
 **The Sexual Abuse Crisis in Paris’s Public Schools**\
 `A surge of abuse accusations has led Parisian authorities to acknowledge a “collective failure” to prevent sexual offenders from working in schools.`\
 https://www.nytimes.com/2026/10/16/world/europe/paris-schools-abuse-crisis.html
