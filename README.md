@@ -1,8 +1,12 @@
+**A Quiet Dog Walk Is Shattered by the Sound of Gunfire**\
+`“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
+https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
+
 **Judge Refuses to Reverse Penalties Against Crypto Firm With Ties to Trump Family**\
 `The ruling denied a bid by Gemini Trust and the C.F.T.C. to nullify a settlement that required the company to pay $5 million for misleading federal regulators.`\
 https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-trump.html
 
-**Behind a White House Feud That Is Bitter Even by Trump-Era Standards**\
+**A Bitter White House Feud, Even by Trump-Era Standards: Alina Mildon and Richard Grenell**\
 `Two allies of President Trump — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
 https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
 
@@ -55,7 +59,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
 **Live Updates: 3 Children and 1 Teacher Killed in Shooting at Oregon Elementary School**\
-`The police in Bend, Ore., said the suspect was also killed, possibly by an armed bystander.`\
+`Another child and teacher were critically injured, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011212156/why-zara-larsson-refuses-
 **Trump’s Attacks on Voting Raise Fears He Will Try to Challenge Midterm Results**\
 `Election officials say they worry the administration could use its own unsubstantiated claims to contest the vote in November.`\
 https://www.nytimes.com/2026/10/15/us/politics/trumps-attacks-voting-midterms.html
-
-**‘Suspicious Substances’ Sent to Senators and State Election Officials**\
-`Federal law enforcement officials said they were investigating a series of letters mailed to members of Congress and secretaries of state in recent days.`\
-https://www.nytimes.com/2026/10/15/us/senators-election-officials-mail-suspicious-substances.html
 
