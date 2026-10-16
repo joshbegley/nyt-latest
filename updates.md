@@ -1,3 +1,19 @@
+**Queens Woman Accused of Killing 5-Year-Old Daughter**\
+`It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
+https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
+
+**Zara Larsson on Pop Going Global**\
+`Zara Larsson chats about the globalization of pop fame and whether she feels the needs to “make it” in America.`\
+https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going-global.html
+
+**Zara Larsson Won’t Abandon Her Politics for Fame**\
+`Zara Larsson refuses to censor her political beliefs for money or fame. The Swedish pop singer has spoken out on issues like abortion rights and Palestine, and she shares with Popcast why she refuses to sacrifice her integrity no matter how lucrative the opportunity.`\
+https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon-her-politics-for-fame.html
+
+**The Glaciers Are Collapsing. This Is What We Must Do.**\
+`A glacier monitoring system could give communities in Nepal not 13 minutes, but hours or days to evacuate.`\
+https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-nepal.html
+
 **Live Updates: Oregon City Grieves as Police Investigate Deadly School Shooting**\
 `A teenager shot his way into Silver Rail Elementary School in Bend, killing a teacher and three children, ages 5, 8 and 11. An armed bystander shot the assailant dead, the police said.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school

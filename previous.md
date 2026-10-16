@@ -1,3 +1,15 @@
+**Queens Woman Accused of Killing 5-Year-Old Daughter**\
+`It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
+https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
+
+**Zara Larsson on Pop Going Global**\
+`Zara Larsson chats about the globalization of pop fame and whether she feels the needs to “make it” in America.`\
+https://www.nytimes.com/video/podcasts/100000011212161/zara-larsson-on-pop-going-global.html
+
+**Zara Larsson Won’t Abandon Her Politics for Fame**\
+`Zara Larsson refuses to censor her political beliefs for money or fame. The Swedish pop singer has spoken out on issues like abortion rights and Palestine, and she shares with Popcast why she refuses to sacrifice her integrity no matter how lucrative the opportunity.`\
+https://www.nytimes.com/video/podcasts/100000011212164/zara-larsson-wont-abandon-her-politics-for-fame.html
+
 **Parents Struggle to Help Their Children After School Killings in Oregon**\
 `The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
 https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
 `Where the two presidents’ war of words will end is anybody’s guess. But if it continues, it could threaten the crucial operational help that Ukraine still gets from the United States.`\
 https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
 
-**The Glaciers Are Collapsing. We Deserve a Warning.**\
+**The Glaciers Are Collapsing. This Is What We Must Do.**\
 `A glacier monitoring system could give communities in Nepal not 13 minutes, but hours or days to evacuate.`\
 https://www.nytimes.com/2026/10/16/opinion/disaster-climate-glaciers-evacuation-nepal.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/us/elections/100000011202745/elon-musk-is-pouring-
 **22 Free, Fun Things to Do With Your Kids in NYC This Fall**\
 `While Halloween and the Day of the Dead provide many ways to celebrate, this season offers other reasons to gather, too. Better yet, these events don’t cost a dime.`\
 https://www.nytimes.com/2026/10/16/arts/nyc-free-fall-activities-kids-family.html
-
-**Avalanche of G.O.P. Cash Keeps the Party Competitive Despite Its Problems**\
-`Republican Senate and House candidates are being out-raised by their Democratic rivals, but the party has received a huge boost from groups tied to Elon Musk and President Trump.`\
-https://www.nytimes.com/2026/10/16/us/avalanche-of-gop-cash-keeps-the-party-competitive-despite-its-problems.html
-
-**How Americans Feel About Socialism: What Polls and Primary Elections Show**\
-`Public opinion polls and recent primary results have shown that socialism is growing in popularity, even as there’s disagreement on what it means.`\
-https://www.nytimes.com/2026/10/16/us/elections/socialism-americans-polls-election-politics.html
-
-**In 1971, This Film Was a Scandal. In 2026, It’s a Respected Period Piece.**\
-`“Ken Russell’s The Devils” was deemed shocking for scenes with orgiastic nuns and a debauched priest. But its serious aims are clear in a new restoration.`\
-https://www.nytimes.com/2026/10/16/movies/ken-russell-the-devils-re-release.html
 
