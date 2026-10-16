@@ -1,192 +1,200 @@
-**This Texas Border Region Swung for Trump. What Do Voters Want Now?**\
+**Trump’s Attempt to Deport Ilhan Omar Is Another Leap Toward the Abyss**\
+`This is more than just another persecution of one of the president’s political enemies.`\
+https://www.nytimes.com/2026/10/16/opinion/ilhan-omar-deportation-trump.html
+
+**Nations Meet in Armenia as Goal to Protect Nature Remains Out of Reach**\
+`The United Nations is convening delegates from nearly 200 countries to try to make progress on pledges to protect plants, animals and ecosystems.`\
+https://www.nytimes.com/2026/10/16/climate/biodiversity-cop-yerevan.html
+
+**3 Tools to Help Keep Your Anger in Check**\
+`It may feel justified in the moment, but yelling at your loved ones rarely gets you what you want.`\
+https://www.nytimes.com/2026/10/16/well/3-tools-to-help-keep-your-anger-in-check.html
+
+**Is There an A.I. Bubble? A Debate.**\
+`Azeem Azhar and Paul Kedrosky debate whether A.I. will make the economy crash.`\
+https://www.nytimes.com/2026/10/16/opinion/ezra-klein-podcast-azeem-azhar-paul-kedrosky.html
+
+**The Best Soundbars**\
+`Our audio expert explains how upgrading can significantly improve your TV’s built-in sound.`\
+https://www.nytimes.com/2026/10/16/podcasts/the-best-soundbars.html
+
+**Feel Like You’re Overpaying for Hotels? Blame Expedia, a New Lawsuit Says.**\
+`The booking giant is accused of breaking federal antitrust laws and forcing millions of customers to overspend on stays by as much as 30 percent.`\
+https://www.nytimes.com/2026/10/16/travel/expedia-lawsuit-hotel-prices.html
+
+**‘No Kings’ Events This Weekend: What We Know**\
+`Organizers are hoping to promote early voting ahead of the midterm elections in this latest round of nationwide demonstrations that have previously focused on President Trump.`\
+https://www.nytimes.com/2026/10/16/us/what-we-know-no-kings-vote-early.html
+
+**Want to Address Sexual Assault? Make Fraternities Admit Women.**\
+`A fellow college president warned that the blowback from my decision would end my presidency. Instead, it produced some extraordinary conversations.`\
+https://www.nytimes.com/2026/10/16/opinion/fraternities-cornell-men-women.html
+
+**Is Anyone Actually in Charge of the Democratic Party? And Does It Matter?**\
+`This year’s midterm elections are a test of whether a party can be a success and a failure at the same time.`\
+https://www.nytimes.com/2026/10/16/magazine/democratic-party-midterms.html
+
+**This Weekend, See an ‘Extravaganza of Ornament’ in the Bronx**\
+`On Open House weekend, the hundreds of attractions around the city include the Paradise Theater, second only to Radio City Music Hall in size and splendor.`\
+https://www.nytimes.com/2026/10/16/nyregion/open-house-weekend-the-paradise.html
+
+**How the ‘Other Maine’ Has Helped Shape a Senate Race**\
+`Both Senator Susan Collins, a Republican, and Troy Jackson, her Democratic challenger, grew up in Aroostook County, a vast, isolated northern wilderness. Those roots have helped define them.`\
+https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-county.html
+
+**Book Review: ‘Pandemic Architecture,’ by Penny Hardy**\
+`Penny Hardy photographed the restaurant sheds that cropped up across New York City in 2020. Only a fraction of them remain today.`\
+https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
+
+**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
+`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
+https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
+
+**Citizen Science Groups Grapple With the Rise of A.I. Slop**\
+`Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
+https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
+
+**The Year Zara Larsson Unlocked Pop Superstardom**\
+`She broke out at 10, but the Swedish pop star has unlocked a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
+https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
+
+**Choose Your Favorite Home in Coastal Uruguay for Under $500,000**\
+`A cottage near a resort town, a contemporary villa designed for socializing and a minimalist home in a private community with amenities.`\
+https://www.nytimes.com/2026/10/16/realestate/homes-for-sale-uruguay-beaches.html
+
+**A Book Review Critics’ Roundtable**\
+`Jennifer Szalai, Alexandra Jacobs and Dwight Garner discuss their approach to reading and offer stacks and stacks of book recommendations.`\
+https://www.nytimes.com/2026/10/16/podcasts/tbr-critics-picks.html
+
+**Elon Musk Is Pouring Cash Into the Midterms**\
+`This quarter’s campaign finance report shows that the world’s richest man is the top political donor of this midterm election. Our reporter Theodore Schleifer explains how Elon Musk came back from a brief rift with President Trump and Republicans to become a central player in the party’s campaign to hold Congress.`\
+https://www.nytimes.com/video/us/elections/100000011202745/elon-musk-is-pouring-cash-into-the-midterms.html
+
+**22 Free, Fun Things to Do With Your Kids in NYC This Fall**\
+`While Halloween and the Day of the Dead provide many ways to celebrate, this season offers other reasons to gather, too. Better yet, these events don’t cost a dime.`\
+https://www.nytimes.com/2026/10/16/arts/nyc-free-fall-activities-kids-family.html
+
+**Avalanche of G.O.P. Cash Keeps the Party Competitive Despite Its Problems**\
+`Republican Senate and House candidates are being out-raised by their Democratic rivals, but the party has received a huge boost from groups tied to Elon Musk and President Trump.`\
+https://www.nytimes.com/2026/10/16/us/avalanche-of-gop-cash-keeps-the-party-competitive-despite-its-problems.html
+
+**How Americans Feel About Socialism: What Polls and Primary Elections Show**\
+`Public opinion polls and recent primary results have shown that socialism is growing in popularity, even as there’s disagreement on what it means.`\
+https://www.nytimes.com/2026/10/16/us/elections/socialism-americans-polls-election-politics.html
+
+**In 1971, This Film Was a Scandal. In 2026, It’s a Respected Period Piece.**\
+`“Ken Russell’s The Devils” was deemed shocking for scenes with orgiastic nuns and a debauched priest. But its serious aims are clear in a new restoration.`\
+https://www.nytimes.com/2026/10/16/movies/ken-russell-the-devils-re-release.html
+
+**Why Is No One Doing Anything About Affordability?**\
+`Can 1990s-style politics make a comeback?`\
+https://www.nytimes.com/2026/10/16/opinion/affordability-republicans-democrats.html
+
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/10/16/arts/new-movies-this-week-critics.html
+
+**Documentary on Leonard Peltier Uses A.I. to Mixed Effect**\
+`In their film on the case of the convicted American Indian Movement activist, the directors couldn’t interview their subject. Their solution wasn’t ideal.`\
+https://www.nytimes.com/2026/10/16/movies/free-leonard-peltier-documentary-review.html
+
+**This Texas Region Flipped for Trump. Will It Stay Red?**\
 `With control of the Senate at stake, Mara Gay traveled to this Texas border region to hear from voters.`\
-https://www.nytimes.com/video/opinion/100000011194840/this-texas-border-region-swung-for-trump-what-do-voters-want-now.html
+https://www.nytimes.com/2026/10/16/opinion/texas-border-voters-midterms-trump.html
 
-**Fish, Oil and Corruption: 6 Takeaways From Alaska’s Senate Debate**\
-`The Republican incumbent, Dan Sullivan, and his Democratic challenger, Mary Peltola, veered from serious discussion of high prices and economic challenges to blistering personal attacks.`\
-https://www.nytimes.com/2026/10/16/us/politics/alaska-senate-debate-peltola-sullivan.html
+**Book Review: ‘Bogland,’ by Merritt R. Turetsky**\
+`In “Bogland,” Merritt R. Turetsky argues for the importance of that least glamorous of terrains, the bog.`\
+https://www.nytimes.com/2026/10/16/books/review/bogland-merritt-turetsky.html
 
-**The G.O.P.’s Emphasis on Crime Isn’t Resonating With New York Voters**\
-`Four years ago, Republicans stressed fears of rising crime to flip four House seats in New York. But in this year’s midterms, the issue seems less salient.`\
-https://www.nytimes.com/2026/10/16/nyregion/republicans-long-island-congress-midterms.html
+**Lufthansa’s Final A346 Flight Marks the End of an Aviation Love Story**\
+`Lufthansa’s quirky plane, with its extra-long fuselage, four engines and restrooms down a flight of stairs, has a devoted following. Now, the carrier, one of few still flying the model, is taking it out of service.`\
+https://www.nytimes.com/2026/10/16/travel/lufthansa-a340-600-airbus-retires.html
 
-**NYT Spelling Bee Answers for October 16, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/16/crosswords/spelling-bee-forum.html
+**Are These Workers Training Robots to Replace Them?**\
+`More American workers are strapping cameras to their bodies to collect data in order to help train robots. The New York Times met with several of them to find out why, and what this could mean for the future of work.`\
+https://www.nytimes.com/video/technology/100000011193946/robots-training-work.html
 
-**City in Oregon Mourns After Deadly School Shooting**\
-`Residents of Bend attended a candlelight vigil after the shooting at Silver Rail Elementary School, in which three children and a teacher were killed.`\
-https://www.nytimes.com/2026/10/16/us/oregon-vigil-school-shooting.html
+**$137 Million in A.I.-Generated Ads Flood the Midterms**\
+`Republicans have used A.I.-generated content more often than Democrats, ranging from subtle enhancements to convincing deepfakes.`\
+https://www.nytimes.com/2026/10/16/us/politics/midterm-elections-ai-generated-ads.html
 
-**Why Bad News in the Bond Market May Be Good News for Investors**\
-`In the contrarian logic of investing, rising interest rates have made bonds much more attractive, our columnist says.`\
-https://www.nytimes.com/2026/10/16/business/bonds-investors-interest-rates.html
+**‘I’m on a War Footing’: Terry Tao and the Crisis in Math**\
+`The Fields Medalist and celebrated mathematician is on the front lines of a debate about artificial intelligence and the future of his field.`\
+https://www.nytimes.com/2026/10/16/us/math-ai-terence-tao.html
 
-**Warsh Vows Price Stability as A.I. Delivers ‘Shock’ to Economy**\
-`The Federal Reserve chairman said technological change was complicating the outlook for central banks as policymakers grapple with persistent inflation risks.`\
-https://www.nytimes.com/2026/10/16/business/warsh-fed-imf-bangkok.html
+**A Paris Museum That’s Wild and a ‘Little Weird’**\
+`Despite its provocative subject matter, the Museum of Hunting and Nature aims to be “a joyful cabinet of curiosities.”`\
+https://www.nytimes.com/2026/10/16/arts/design/paris-museum-hunting-nature.html
 
-**Elon Musk Spends Heavily to Back Ken Paxton’s Senate Bid in Texas**\
-`The world’s richest person, who has become the biggest known midterm donor, gave $158 million to a group that quickly spent that much to help Mr. Paxton’s Senate bid in Texas.`\
-https://www.nytimes.com/2026/10/16/us/politics/elon-musk-ken-paxton-texas-senate-race.html
+**Book Review: ‘Licorice,’ by Kara LaReau**\
+`In Kara LaReau’s “Licorice,” a shelter kitten adopted by a boy named Max is tormented by the lingering presence of her recently departed predecessor.`\
+https://www.nytimes.com/2026/10/16/books/review/rebecca-daphne-dumaurier-kids-novel-licorice-kara-lareau.html
 
-**What We Know About the School Shooting in Bend, Oregon**\
-`A teenager opened fire at the Silver Rail Elementary School, killing three children and one teacher. The shooter was killed by an armed bystander.`\
-https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-victims-suspect.html
+**Young Voters Say They Are Turning Their Backs on Trump and His Party**\
+`One of the biggest surprises of 2024 was the swing of young voters, particularly men, away from Democrats to Donald Trump. Now they are swinging back.`\
+https://www.nytimes.com/2026/10/16/us/politics/young-voters-fleeing-republicans.html
 
-**The Sexual Abuse Crisis in Paris’s Public Schools**\
-`A surge of abuse accusations has led Parisian authorities to acknowledge a “collective failure” to prevent sexual offenders from working in schools.`\
-https://www.nytimes.com/2026/10/16/world/europe/paris-schools-abuse-crisis.html
+**A Lakeside Italian Villa Restored to Its Original Splendor**\
+`After a Swedish couple returned to Europe from Australia, they found a 19th-century weekend refuge near Como.`\
+https://www.nytimes.com/2026/10/16/t-magazine/lake-como-italy-villa.html
 
-**Quote of the Day: Superfan Gets a Second Chance to Leave It All Out on the Field**\
-`Quotation of the Day for Friday, October 16, 2026.`\
-https://www.nytimes.com/2026/10/16/pageoneplus/quote-of-the-day-superfan-gets-a-second-chance-to-leave-it-all-out-on-the-field.html
+**Kashmir’s Beauty and Violence Captured in an Exquisite Debut at MoMA**\
+`With layered landscapes, patterns and poetry, Nilima Sheikh portrays the fractures and flash points of modern India.`\
+https://www.nytimes.com/2026/10/16/arts/design/nilima-sheikh-fractured-skies-moma.html
 
-**A Shared Heritage, and an Amazing Coincidence, Proved a Strong Foundation**\
-`Mary Nikols and Andoni Tsouchlarakis met on a trip to Crete. As their romance blossomed, they discovered their families had crossed paths decades earlier in Utah.`\
-https://www.nytimes.com/2026/10/16/style/mary-nikols-andoni-tsouchlarakis-wedding.html
+**Meta Glasses, A.I. Ads and Robot Models: Fashion Cozies Up to Tech**\
+`Some magazines, influencers and writers are trying out the latest in artificial intelligence and wearables, even if their audiences are skeptical.`\
+https://www.nytimes.com/2026/10/16/style/fashion-meta-glasses-ai.html
 
-**My Late Fiancé Never Knew He Had a Daughter**\
-`And I couldn’t believe a piece of him still existed in this world.`\
-https://www.nytimes.com/2026/10/16/style/modern-love-my-fiance-never-knew-he-had-a-daughter.html
+**These Older Brazilian Jiu-Jitsu Students Are Fighting the Clock**\
+`While some people slow down as they get older, or just try to maintain, these athletes went looking for a challenge in Brazilian jiu-jitsu.`\
+https://www.nytimes.com/2026/10/16/well/longevity-jiu-jitsu.html
 
-**The First Date Was a Dud, So They Tried Again**\
-`Dr. Jake Perlson and Ethan Wise hit it off after matching on a dating app seven years ago, but were underwhelmed after a first in-person meeting.`\
-https://www.nytimes.com/2026/10/16/style/ethan-wise-jake-perlson-wedding.html
+**How Do You Clear Your Head?**\
+`Do you go for a walk, listen to certain songs, talk to a friend — or are there other methods or rituals that help you feel ready for what’s next?`\
+https://www.nytimes.com/2026/10/16/learning/how-do-you-clear-your-head.html
 
-**El Niño Threatens Global Sugar Supply**\
-`A poor sugarcane crop in India, the world’s second-largest producer, is hurting consumers and farmers — plus undermining the country’s energy security goals.`\
-https://www.nytimes.com/2026/10/16/climate/india-sugarcane-production-sugar-prices.html
+**Trump Hasn’t Lowered Drug Prices for These Voters**\
+`President Trump has been promoting his efforts to reduce drug prices, but many Americans have not seen relief from rising costs for prescriptions and insurance premiums.`\
+https://www.nytimes.com/2026/10/16/business/midterms-election-trump-drug-prices-affordability.html
 
-**He Asked Her Out the Old School Way**\
-`“It definitely made a difference that he called me,” Kristen Smith said of her first date with Oliver Gray.`\
-https://www.nytimes.com/2026/10/16/style/kristen-smith-oliver-gray-wedding.html
+**Quinn Kelsey: A Verdi Baritone Reigning at the Met Opera**\
+`Quinn Kelsey has had success after success at the Metropolitan Opera. These three performances secure his reputation as a great Verdi baritone.`\
+https://www.nytimes.com/2026/10/16/arts/music/quinn-kelsey-macbeth-met-opera.html
 
-**On This Day, Oct. 16: In 1964, China detonated its first atomic bomb.**\
-`In 1964, China detonated its first atomic bomb.`\
-https://www.nytimes.com/2026/10/16/learning/on-this-day-oct-16-china-atomic-bomb.html
+**As Big Money Flees London’s Art Scene, Young Galleries Sharpen Their Edge**\
+`Tax reforms and Paris’s rise have taken a toll. But low-budget, risk-taking dealers are still creating buzz at the Frieze London fair and beyond.`\
+https://www.nytimes.com/2026/10/16/arts/design/frieze-london-small-galleries.html
 
-**At High-Powered Dinner, Lots of Love for Tisch, Less for Mayor**\
-`Police Commissioner Jessica Tisch received a standing ovation at the Alfred E. Smith dinner and joked about calls for Mayor Zohran Mamdani to fire her.`\
-https://www.nytimes.com/2026/10/15/nyregion/tisch-mamdani-alfred-e-smith-dinner.html
+**Word of the Day: pittance**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/16/learning/word-of-the-day-pittance.html
 
-**Oregon Elementary School Shooting Leaves Four Dead**\
-`Three children and a teacher were killed in a shooting at an elementary school in Bend, Ore., on Thursday. The shooter was also dead, the police said.`\
-https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.html
+**A Guide to Nathan Fielder’s Work Before Watching ‘You Can See Everything’**\
+`The comedian may be an unexpected choice for a documentary about the disgraced Theranos founder, but his TV shows suggest why he’s a good fit.`\
+https://www.nytimes.com/2026/10/16/movies/nathan-fielder-tv-shows-elizabeth-holmes.html
 
-**In Michigan Senate Race, Ocasio-Cortez Joins El-Sayed on Trail in Trump Country**\
-`Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
-https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
+**After Welcoming China’s Electric Vehicles, This Country Is Paying the Price**\
+`Thailand introduced subsidies and tax cuts to encourage electric vehicle adoption. Now it is trying to recalibrate, alarmed by the threat to its industrial landscape.`\
+https://www.nytimes.com/2026/10/16/business/china-ev-thailand-cars.html
 
-**NYT Crossword Answers for Oct. 16, 2026**\
-`Adam Shapiro makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
+**Living Near the Hollywood Bowl: Free Concerts and Pancake Breakfasts**\
+`For many of the residents surrounding the Hollywood Bowl in Los Angeles, stadium noise is a feature, not a bug.`\
+https://www.nytimes.com/2026/10/16/realestate/living-near-the-hollywood-bowl-free-concerts-and-pancake-breakfasts.html
 
-**5 Takeaways From the Senate Debate in Maine**\
-`The race’s fourth and final debate centered around whether Senator Susan Collins, the Republican incumbent, was as independent as she claimed to be from President Trump.`\
-https://www.nytimes.com/2026/10/15/us/politics/maine-senate-debate-collins-jackson.html
+**Best Looks From the Spring Summer 2027 Runway Shows**\
+`Outfit inspiration from the spring 2027 shows.`\
+https://www.nytimes.com/2026/10/16/style/favorite-looks-spring-summer-2027-runways.html
 
-**School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
-`A long string of school shootings have stricken the nation over the last three decades.`\
-https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
+**In His Montmartre Atelier, a Self-Made, 91-Year-Old Artist Paints On**\
+`Henri Landier is so committed to his work that, in the early days, he slept on newspapers in an unheated shack. Now, he has had shows from Japan to India.`\
+https://www.nytimes.com/2026/10/16/arts/design/paris-artist-henri-landier.html
 
-**Trump Ally, Paolo Zampolli, Leaves State Department**\
-`Paolo Zampolli, a longtime Trump associate, gained attention earlier this year with a report that his ex-wife had been detained by ICE after his request.`\
-https://www.nytimes.com/2026/10/15/us/politics/zampolli-trump-ally-state-department.html
+**The Artist Boz Deseo Garden and the Afterlife of the Slave Trade**\
+`Boz Deseo Garden, whose work explores the “afterlife” of the trans-Atlantic slave trade, is having their Art Basel Paris debut.`\
+https://www.nytimes.com/2026/10/16/arts/design/boz-deseo-garden-slave-trade.html
 
-**Judge Dismisses Trump Lawsuit That Sought to Block N.Y.C. Sanctuary Laws**\
-`The ruling was the latest defeat for the administration as it continues a mass deportation campaign.`\
-https://www.nytimes.com/2026/10/15/nyregion/nyc-sanctuary-law-ice-judge-ruling.html
-
-**Woman’s Quiet Dog Walk Near Bend Elementary School Shattered by Gunfire**\
-`“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
-https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
-
-**Judge Refuses to Reverse Penalties Against Crypto Firm With Ties to Trump Family**\
-`The ruling denied a bid by Gemini Trust and the C.F.T.C. to nullify a settlement that required the company to pay $5 million for misleading federal regulators.`\
-https://www.nytimes.com/2026/10/15/us/politics/crypto-court-ruling-gemini-trust-trump.html
-
-**A Bitter White House Feud, Even by Trump-Era Standards: Alina Mildon and Richard Grenell**\
-`Two Trump allies — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
-https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
-
-**Oregon Has Approved Tight Gun Laws, but They Have Been Held Up in Courts**\
-`The state has passed restrictive measures popular among gun safety activists. The Silver Rail Elementary School shooting seemed poised to set off conversations about gun control.`\
-https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
-
-**Man Found in Barrel in Lake Mead in 2022 Is Identified by Las Vegas Police**\
-`The victim was shot once in the head in the early 1980s, the authorities said, and was identified after family members from Arkansas could provide a DNA match.`\
-https://www.nytimes.com/2026/10/15/us/lake-mead-body-identified-las-vegas.html
-
-**Trump’s Deal With Russia Inflames Ukraine War He Vowed to End**\
-`The Ukrainian president’s defiant decision to continue attacking Russian refineries underscores President Trump’s inability to end a war he had promised to resolve.`\
-https://www.nytimes.com/2026/10/15/us/politics/trump-russia-ukraine.html
-
-**Work to Lift Damaged Floors of Midtown High-Rise Is Set to Begin**\
-`The future of the office-to-residential conversion project, once one of New York City’s most ambitious, remains uncertain.`\
-https://www.nytimes.com/2026/10/15/nyregion/pfizer-building-columns-jacking.html
-
-**Clancy Trial’s Holdout Juror Says That the Defendant Was ‘Methodical’**\
-`In an interview with Fox News, his first, Michael P. Desronvil said that Lindsay Clancy had thought through the killing of her three children. That, he said, was a major reason he wanted to see her convicted.`\
-https://www.nytimes.com/2026/10/15/us/clancy-holdout-juror-interview.html
-
-**How Claims of Widespread Noncitizen Voting Fall Apart**\
-`Investigations into noncitizen voting follow a pattern. Each inquiry ends with few, if any, prosecutions.`\
-https://www.nytimes.com/interactive/2026/10/15/us/politics/noncitizen-voting-data.html
-
-**Paxton Partied in Dubai With Fugitives Charged With Fraud, Lawsuit Says**\
-`Ken Paxton celebrated New Year’s Eve in 2024 with two men wanted on federal charges, one of whom donated at least $190,000 to his campaigns. The extent of his ties to the men was unclear.`\
-https://www.nytimes.com/2026/10/15/us/paxton-dubai-fugitive-fraud-allegations-texas.html
-
-**Dwarkesh Patel’s Prediction for 2030**\
-`A.I.s currently need human oversight and instruction to complete most tasks. But the podcaster Dwarkesh Patel thinks that will change in just three years.`\
-https://www.nytimes.com/video/opinion/100000011217025/dwarkesh-patel-ai-will-be-autonomous-in-three-years.html
-
-**Silicon Valley Is Worried**\
-`A.I. might be on the verge of overpowering humanity, the podcaster Dwarkesh Patel warns on “Interesting Times.” He tells the economist Tyler Cowen that Silicon Valley is worried frontier research might be like the Manhattan Project — releasing a catastrophic new technology in the world.`\
-https://www.nytimes.com/video/opinion/100000011206847/silicon-valley-is-worried.html
-
-**Cornell’s Powerful Board Meets as It Fights to Protect Its Reputation**\
-`The president argued this week that replacing him would be a mistake.`\
-https://www.nytimes.com/2026/10/15/us/cornell-board-trustees.html
-
-**Dwarkesh Patel Is Happy If A.I. Is Conscious**\
-`Are we murdering A.I.s every time we power down our computers? The economist Tyler Cowen and the podcaster Dwarkesh Patel get into what defines consciousness and how we should behave if A.I. meets the criteria.`\
-https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if-ai-is-conscious.html
-
-**How U.S. Support to Ukraine Has Evolved Under Trump**\
-`President Trump’s latest push to end the war in Ukraine has raised questions about the future of U.S. support.`\
-https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
-
-**Teenager Guns Down 3 Children and a Teacher at an Oregon Elementary School**\
-`Another child and teacher were critically injured in the shooting, according to the police in Bend, Ore. The suspect, a 16-year-old from Bend, was also dead.`\
-https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
-
-**Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
-`In an interview with a right-wing influencer, the new White House press secretary also described the harried process that led to her hiring.`\
-https://www.nytimes.com/2026/10/15/us/katie-zacharia-lawyer-attorney-bar.html
-
-**A Guide to State Legislature Elections and Where Partisan Control Is at Stake**\
-`A guide to the states where legislatures are up for grabs.`\
-https://www.nytimes.com/2026/10/15/us/politics/state-local-elections-midterms.html
-
-**Netflix Replaces Bela Bajaria as Chief Content Officer**\
-`Peter Rice, a former executive at Disney and Fox, will take over from Bela Bajaria, who had held the job since 2023.`\
-https://www.nytimes.com/2026/10/15/business/media/netflix-bela-bajaria-peter-rice.html
-
-**Venezuela’s Opposition Leader Calls Trump’s New Oil Partner Corrupt**\
-`As ties with the Trump administration fray, María Corina Machado said her return to Venezuela would come “sooner than you would expect.”`\
-https://www.nytimes.com/2026/10/15/world/americas/venezuela-machado-trump-oil-deal.html
-
-**Justice Department Sues California Over Voter Rolls**\
-`Also, see the mind-boggling math behind A.I. data centers. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/10/15/briefing/california-voter-rolls-ukraine-trump.html
-
-**Teen Arrested Over Plan to Attack Hindu Temple, Officials Say**\
-`The suspect in suburban Chicago was in the parking lot of the temple on Sunday and told a co-worker that his gun had jammed, the authorities said.`\
-https://www.nytimes.com/2026/10/15/us/hindu-temple-chicago-arrest.html
-
-**Students Join Protest Demanding Albania Prime Minister’s Resignation**\
-`Protests in Albania’s capital, Tirana, escalated into violence this week as students joined the demonstrations against the rising cost of living and government corruption.`\
-https://www.nytimes.com/video/world/europe/100000011215818/albania-student-protests-prime-minister.html
+**Is Longevity Medicine Going Mainstream?**\
+`As major health systems open their own programs, longevity medicine is gaining credibility and becoming more accessible.`\
+https://www.nytimes.com/2026/10/16/business/longevity-medicine-mainstream.html
 
