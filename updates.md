@@ -1,3 +1,7 @@
+**City in Oregon Mourns After Deadly School Shooting**\
+`Residents of Bend attended a candlelight vigil after the shooting at Silver Rail Elementary School, in which three children and a teacher were killed.`\
+https://www.nytimes.com/2026/10/16/us/oregon-vigil-school-shooting.html
+
 **Why Bad News in the Bond Market May Be Good News for Investors**\
 `In the contrarian logic of investing, rising interest rates have made bonds much more attractive, our columnist says.`\
 https://www.nytimes.com/2026/10/16/business/bonds-investors-interest-rates.html
