@@ -1,3 +1,23 @@
+**Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
+`Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
+https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
+
+**What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
+`The gunman entered the school by shooting through a locked door and was eventually stopped by a bystander, raising questions about what more schools can do to protect children.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
+
+**Russia Appears to Step Up Efforts to Influence U.S. Voters**\
+`One campaign has created social media posts focusing on U.S. support for Israel to sow discord ahead of the midterm elections.`\
+https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midterms.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a French seaside comedy, a true-crime docudrama from Mexico, a mordant satire from Iran and more.`\
+https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
+
+**Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
+`The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of President Prabowo Subianto.`\
+https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
+
 **U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
 `Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
 https://www.nytimes.com/2026/10/16/business/us-budget-deficit-nears-2-trillion-a-reality-check-for-trumps-cost-cutting.html

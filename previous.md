@@ -1,3 +1,19 @@
+**Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
+`Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
+https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
+
+**What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
+`The gunman entered the school by shooting through a locked door and was eventually stopped by a bystander, raising questions about what more schools can do to protect children.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
+
+**Russia Appears to Step Up Efforts to Influence U.S. Voters**\
+`One campaign has created social media posts focusing on U.S. support for Israel to sow discord ahead of the midterm elections.`\
+https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midterms.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a French seaside comedy, a true-crime docudrama from Mexico, a mordant satire from Iran and more.`\
+https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
+
 **U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
 `Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
 https://www.nytimes.com/2026/10/16/business/us-budget-deficit-nears-2-trillion-a-reality-check-for-trumps-cost-cutting.html
@@ -167,7 +183,7 @@ https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html
 
 **Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
-`The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of Indonesian President Prabowo Subianto.`\
+`The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of President Prabowo Subianto.`\
 https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
 
 **Trump’s Attempt to Deport Ilhan Omar Is Another Leap Toward the Abyss**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/16/opinion/ilhan-omar-deportation-trump.html
 **Nations Meet in Armenia as Goal to Protect Nature Remains Out of Reach**\
 `The United Nations is convening delegates from nearly 200 countries to try to make progress on pledges to protect plants, animals and ecosystems.`\
 https://www.nytimes.com/2026/10/16/climate/biodiversity-cop-yerevan.html
-
-**3 Tools to Help Keep Your Anger in Check**\
-`It may feel justified in the moment, but yelling at your loved ones rarely gets you what you want.`\
-https://www.nytimes.com/2026/10/16/well/anger-temper-tools.html
-
-**Is There an A.I. Bubble? A Debate.**\
-`Azeem Azhar and Paul Kedrosky debate whether A.I. will make the economy crash.`\
-https://www.nytimes.com/2026/10/16/opinion/ezra-klein-podcast-azeem-azhar-paul-kedrosky.html
-
-**The Best Soundbars**\
-`Our audio expert explains how upgrading can significantly improve your TV’s built-in sound.`\
-https://www.nytimes.com/2026/10/16/podcasts/the-best-soundbars.html
-
-**Feel Like You’re Overpaying for Hotels? Blame Expedia, a New Lawsuit Says.**\
-`The booking giant is accused of breaking federal antitrust laws and forcing millions of customers to overspend on stays by as much as 30 percent.`\
-https://www.nytimes.com/2026/10/16/travel/expedia-lawsuit-hotel-prices.html
 
