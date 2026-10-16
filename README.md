@@ -1,3 +1,11 @@
+**Fear Itself: What Has America Come To?**\
+`Readers respond to a front-page article about how public officials face threats and are living in fear. Also: An echo of 1938; the human role in A.I.`\
+https://www.nytimes.com/2026/10/16/opinion/public-officials-threats-fear.html
+
+**Flashback: Your Weekly History Quiz, Oct. 17, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
+
 **Man Charged in Fatal Fentanyl Overdose and Rape of College Student in NYC**\
 `The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 **The Year Zara Larsson Unlocked Pop Superstardom**\
 `She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
 https://www.nytimes.com/2026/10/16/arts/music/zara-larsson-popcast-interview.html
-
-**Choose Your Favorite Home in Coastal Uruguay for Under $500,000**\
-`A cottage near a resort town, a contemporary villa designed for socializing and a minimalist home in a private community with amenities.`\
-https://www.nytimes.com/2026/10/16/realestate/homes-for-sale-uruguay-beaches.html
-
-**A Book Review Critics’ Roundtable**\
-`Jennifer Szalai, Alexandra Jacobs and Dwight Garner discuss their approach to reading and offer stacks and stacks of book recommendations.`\
-https://www.nytimes.com/2026/10/16/podcasts/tbr-critics-picks.html
 
