@@ -1,3 +1,7 @@
+**What Critics Think About Nathan Fielder’s ‘Bonkers’ Elizabeth Holmes Movie**\
+`“You Can See Everything” has been described as “bonkers.” Our critics have their own thoughts, and we’d like to hear your reactions, too.`\
+https://www.nytimes.com/2026/10/16/movies/nathan-fielder-elizabeth-holmes-billy-evans.html
+
 **Houthi Attacks on Saudi Arabia Put In Doubt Kingdom’s Sports and Business Events**\
 `The Iran-backed group’s attacks have disrupted sports tournaments and threatened business events that the kingdom has long used to attract investment and raise its profile.`\
 https://www.nytimes.com/2026/10/16/world/middleeast/saudi-arabia-houthi-attack-fii-events.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/2026/10/16/us/maine-senate-collins-jackson-aroostook-cou
 `Penny Hardy photographed the restaurant sheds that cropped up across the city in 2020. Only a fraction of them remain today.`\
 https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hardy.html
 
-**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
-`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
-https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
-
 **Citizen Science Groups Grapple With the Rise of A.I. Slop**\
 `Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
 https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
+
+**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
+`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
+https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 
 **The Year Zara Larsson Unlocked Pop Superstardom**\
 `She broke out at 10, but the Swedish pop star has reached a new level with the success of her “Midnight Sun” album, popular remixes and TikTok virality.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/opinion/texas-border-voters-midterms-trump.ht
 **Book Review: ‘Bogland,’ by Merritt R. Turetsky**\
 `In “Bogland,” Merritt R. Turetsky argues for the importance of that least glamorous of terrains, the bog.`\
 https://www.nytimes.com/2026/10/16/books/review/bogland-merritt-turetsky.html
-
-**Lufthansa’s Final A346 Flight Marks the End of an Aviation Love Story**\
-`Lufthansa’s quirky plane, with its extra-long fuselage, four engines and restrooms down a flight of stairs, has a devoted following. Now, the carrier, one of few still flying the model, is taking it out of service.`\
-https://www.nytimes.com/2026/10/16/travel/lufthansa-a340-600-airbus-retires.html
 
