@@ -1,6 +1,6 @@
 **School Shooting in Oregon Adds Silver Rail Elementary to Grim List**\
 `A long string of school shootings have stricken the nation over the last three decades.`\
-https://www.nytimes.com/2026/10/15/us/the-school-shooting-in-oregon-adds-silver-rail-elementary-to-a-grim-list.html
+https://www.nytimes.com/2026/10/15/us/school-shootings-usa-oregon-silver-rail.html
 
 **Trump Ally, Paolo Zampolli, Leaves State Department**\
 `Paolo Zampolli, a close friend and ally of President Trump’s, gained attention when his ex-wife was detained by ICE after his request.`\
