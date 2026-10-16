@@ -1,3 +1,15 @@
+**Bystander Who Killed School Shooter Is Father of 2 Students**\
+`Also, the White House press secretary is ousted after five days. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-secretary.html
+
+**Whispering Phantoms and Shadowy Scares in Two Inventive Plays**\
+`The Off Broadway shows “A Ghost in Your Ear” and “The 4th Witch” use aural and visual tricks to give you the seasonal spooks.`\
+https://www.nytimes.com/2026/10/16/theater/ghost-in-your-ear-4th-witch.html
+
+**Appeals Court Questions Justice Dept. Claim that Trump Owns White House Records**\
+`A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
+https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
+
 **Katie Zacharia Is Forced Out After 5 Days as White House Press Secretary**\
 `Katie Zacharia has been forced out after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
 https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
