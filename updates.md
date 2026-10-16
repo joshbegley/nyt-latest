@@ -1,3 +1,7 @@
+**A Bitter White House Feud, Even by Trump-Era Standards: Alina Mildon and Richard Grenell**\
+`Two Trump allies — Alina Habba Mildon and Richard Grenell — are locked in a raging dispute that has its roots in the battle for a share of the spoils in Venezuela.`\
+https://www.nytimes.com/2026/10/15/us/politics/alina-habba-mildon-richard-grenell-trump.html
+
 **A Quiet Dog Walk Is Shattered by the Sound of Gunfire**\
 `“It’s just something that we live with here in America,” said Leah Schwartz, who heard the violence in Bend, Ore. “It’s exhausting.”`\
 https://www.nytimes.com/2026/10/15/us/bend-school-shooting-witness.html
