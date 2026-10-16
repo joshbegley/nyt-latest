@@ -1,3 +1,7 @@
+**How to Build a Skin Care Routine for Mature Skin**\
+`Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
+https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
+
 **These Factors Could Limit the Knicks in Their Title Defense**\
 `Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
 https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
@@ -38,9 +42,9 @@ https://www.nytimes.com/interactive/2026/10/16/upshot/flashback.html
 `The student was a woman at the Fashion Institute of Technology, when a man, according to prosecutors, provided her and her roommate with fentanyl in a dorm room.`\
 https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.html
 
-**Which Designers Should Go Where?**\
-`A bit of fantasy football, but with big luxury brands.`\
-https://www.nytimes.com/2026/10/16/style/the-fashions-designers-departures.html
+**Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
+`After change-ups at Calvin Klein and Alexander McQueen, we played a bit of fantasy football with big luxury brands.`\
+https://www.nytimes.com/2026/10/16/style/calvin-klein-alexander-mcqueen-designers.html
 
 **Queens Woman Accused of Killing 5-Year-Old Daughter**\
 `It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/travel/expedia-lawsuit-hotel-prices.html
 **‘No Kings’ Events This Weekend: What We Know**\
 `Organizers are hoping to promote early voting ahead of the midterm elections in this latest round of nationwide demonstrations that have previously focused on President Trump.`\
 https://www.nytimes.com/2026/10/16/us/what-we-know-no-kings-vote-early.html
-
-**Want to Address Sexual Assault? Make Fraternities Admit Women.**\
-`A fellow college president warned that the blowback from my decision would end my presidency. Instead, it produced some extraordinary conversations.`\
-https://www.nytimes.com/2026/10/16/opinion/fraternities-cornell-men-women.html
 
