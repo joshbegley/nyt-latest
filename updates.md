@@ -1,3 +1,23 @@
+**He Mapped Yard Shrines, Sidewalk Altars and Flowerpots**\
+`The cultural historian Joseph Sciorra, who has died, helped bring “a fieldworker’s eye and an archivist’s discipline” to his studies of Italian American culture.`\
+https://www.nytimes.com/2026/10/16/nyregion/joseph-sciorra-dead.html
+
+**Bend Shooting Likely to Heighten Gun Debate in Oregon Governor’s Race**\
+`The contest between the Democratic incumbent and her Republican challenger is on edge.`\
+https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-guns-governor-race.html
+
+**Child Sexual Abuse Charges Against Timothy Busfield Dismissed**\
+`Prosecutors in New Mexico had secured an indictment of the actor and director on charges he made sexual contact with a child actor. He had pleaded not guilty.`\
+https://www.nytimes.com/2026/10/16/arts/television/timothy-busfield-indictment-dismissed.html
+
+**The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
+`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old. Outside experts were skeptical but intrigued, especially by the black residue in the jars.`\
+https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
+
+**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
+`The Norte fire in Orange County was growing quickly on Friday afternoon. Officials urged residents to evacuate.`\
+https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
+
 **After Six Flags Roller Coaster Death, Critics Call for Federal Oversight**\
 `Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
 https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html

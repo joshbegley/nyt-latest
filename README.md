@@ -1,3 +1,7 @@
+**Meta Withdraws $25 Million from Its Midterms Push**\
+`The company outlined a $65 million budget last year when it embarked on an effort to elect state politicians friendly to the A.I. industry.`\
+https://www.nytimes.com/2026/10/16/technology/meta-midterms-funding.html
+
 **He Mapped Yard Shrines, Sidewalk Altars and Flowerpots**\
 `The cultural historian Joseph Sciorra, who has died, helped bring “a fieldworker’s eye and an archivist’s discipline” to his studies of Italian American culture.`\
 https://www.nytimes.com/2026/10/16/nyregion/joseph-sciorra-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/us/politics/aoc-el-sayed-million-transfer-mid
 **‘Memoirs of Amorous Gentlemen’ Review: Duncan Sheik’s Tale of Eros**\
 `This new musical aims to tell a sexy story about perversions and pleasures but ends up blandly nodding at eroticism.`\
 https://www.nytimes.com/2026/10/16/theater/memoirs-of-amorous-gentlemen-review-duncan-sheik.html
-
-**Deadly School Roof Collapse in Pakistan Raises Questions Over Regulation**\
-`A roof collapse that killed 32 children and a teacher in northwest Pakistan has prompted safety inspections of schools across the region.`\
-https://www.nytimes.com/2026/10/16/world/asia/pakistan-peshawar-school-roof-collapse.html
 
