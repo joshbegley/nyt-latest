@@ -1,3 +1,7 @@
+**Katie Zacharia is Fired After 5 Days as White House Press Secretary**\
+`Katie Zacharia has been fired after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
+https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
+
 **Fashion Designers Bid Farewell for This Season**\
 `Designers and their fashion farewells.`\
 https://www.nytimes.com/2026/10/16/style/paris-bids-au-revoir-until-next-season.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/podcasts/hardfork-elizabeth-holmes.html
 **Handcuffs in Schools**\
 `Let’s look at what happens when school police arrest children.`\
 https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
-
-**MAGA’s Midterm Defectors**\
-`Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
-https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
 
