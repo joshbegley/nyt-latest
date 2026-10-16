@@ -1,3 +1,7 @@
+**Unboxing Wu-Tang Clan’s Secret Album**\
+`Method Man had never actually heard it, until now.`\
+https://www.nytimes.com/2026/10/16/podcasts/unboxing-wu-tang-clans-secret-album.html
+
 **Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
 `The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of Indonesian President Prabowo Subianto.`\
 https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/style/favorite-looks-spring-summer-2027-runwa
 **In His Montmartre Atelier, a Self-Made, 91-Year-Old Artist Paints On**\
 `Henri Landier is so committed to his work that, in the early days, he slept on newspapers in an unheated shack. Now, he has had shows from Japan to India.`\
 https://www.nytimes.com/2026/10/16/arts/design/paris-artist-henri-landier.html
-
-**The Artist Boz Deseo Garden and the Afterlife of the Slave Trade**\
-`Boz Deseo Garden, whose work explores the “afterlife” of the trans-Atlantic slave trade, is having their Art Basel Paris debut.`\
-https://www.nytimes.com/2026/10/16/arts/design/boz-deseo-garden-slave-trade.html
 

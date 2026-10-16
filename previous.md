@@ -1,3 +1,7 @@
+**Indonesian Stocks Plunge as MSCI Threatens to Drop Market from Indexes**\
+`The potential downgrade by MSCI, an influential index provider, adds to a deepening crisis of investor confidence in the economic policies of Indonesian President Prabowo Subianto.`\
+https://www.nytimes.com/2026/10/16/business/indonesia-stocks-economy.html
+
 **Trump’s Attempt to Deport Ilhan Omar Is Another Leap Toward the Abyss**\
 `This is more than just another persecution of one of the president’s political enemies.`\
 https://www.nytimes.com/2026/10/16/opinion/ilhan-omar-deportation-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/arts/design/paris-artist-henri-landier.html
 **The Artist Boz Deseo Garden and the Afterlife of the Slave Trade**\
 `Boz Deseo Garden, whose work explores the “afterlife” of the trans-Atlantic slave trade, is having their Art Basel Paris debut.`\
 https://www.nytimes.com/2026/10/16/arts/design/boz-deseo-garden-slave-trade.html
-
-**Is Longevity Medicine Going Mainstream?**\
-`As major health systems open their own programs, longevity medicine is gaining credibility and becoming more accessible.`\
-https://www.nytimes.com/2026/10/16/business/longevity-medicine-mainstream.html
 
