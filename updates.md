@@ -1,3 +1,7 @@
+**At High-Powered Dinner, Lots of Love for Tisch, Less for Mayor**\
+`Police Commissioner Jessica Tisch received a standing ovation at the Alfred E. Smith dinner and joked about calls for Mayor Zohran Mamdani to fire her.`\
+https://www.nytimes.com/2026/10/15/nyregion/tisch-mamdani-alfred-e-smith-dinner.html
+
 **Oregon Elementary School Shooting Leaves Four Dead**\
 `Three children and a teacher were killed in a shooting at an elementary school in Bend, Ore., on Thursday. The shooter was also dead, the police said.`\
 https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.html

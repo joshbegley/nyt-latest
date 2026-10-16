@@ -1,3 +1,7 @@
+**At High-Powered Dinner, Lots of Love for Tisch, Less for Mayor**\
+`Police Commissioner Jessica Tisch received a standing ovation at the Alfred E. Smith dinner and joked about calls for Mayor Zohran Mamdani to fire her.`\
+https://www.nytimes.com/2026/10/15/nyregion/tisch-mamdani-alfred-e-smith-dinner.html
+
 **Oregon Elementary School Shooting Leaves Four Dead**\
 `Three children and a teacher were killed in a shooting at an elementary school in Bend, Ore., on Thursday. The shooter was also dead, the police said.`\
 https://www.nytimes.com/video/us/100000011217792/bend-oregon-shooting-presser.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/15/travel/cruise-passenger-overboard-rescue-gree
 **‘The Full Monty’ Is Postponed as ‘Rhinoceros’ Comes to Broadway**\
 `John Turturro, Tatiana Maslany and Tony Shalhoub will star in a spring production of the satirical Ionesco drama.`\
 https://www.nytimes.com/2026/10/15/theater/full-monty-postponed-rhinoceros-broadway.html
-
-**Land Acknowledgments Aren’t Just Woke, They’re Right**\
-`Often, they are not just lip service, but part of a useful response to Native American needs.`\
-https://www.nytimes.com/2026/10/15/opinion/land-acknowledgments-native-americans.html
 
