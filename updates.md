@@ -1,3 +1,7 @@
+**Parents Struggle to Help Their Children After School Killings in Oregon**\
+`The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
+https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
+
 **The Rupturing Trump-Zelensky Relationship Stands to Hurt Ukraine and Its European Allies**\
 `Where the two presidents’ war of words will end is anybody’s guess. But if it continues, it could threaten the crucial operational help that Ukraine still gets from the United States.`\
 https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
