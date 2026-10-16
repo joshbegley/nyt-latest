@@ -1,3 +1,7 @@
+**Why No One Can Look Away From Elizabeth Holmes**\
+`Full Episode #217`\
+https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-from-elizabeth-holmes.html
+
 **Sean ‘Diddy’ Combs Transferred to Prison in Pennsylvania**\
 `The music mogul, who was sentenced last year to more than four years for prostitution-related offenses, had been held in a federal prison in New Jersey.`\
 https://www.nytimes.com/2026/10/16/arts/music/diddy-sean-combs-prison-transfer-pennsylvania.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/books/review/pandemic-architecture-penny-hard
 **Citizen Science Groups Grapple With the Rise of A.I. Slop**\
 `Facing a flood of A.I. slop, groups bent on democratizing science create new checks and balances.`\
 https://www.nytimes.com/2026/10/16/science/citizen-science-ai-slop.html
-
-**Bruiser the Elk Left His Herd for a Washington Island and Made It Home**\
-`After swimming across chilly waters to Whidbey Island in Washington State, the solitary elk charmed residents for more than a decade with his antics. He died at 15 to 18 years old.`\
-https://www.nytimes.com/2026/10/16/us/elk-whidbey-island-bruiser-dead.html
 
