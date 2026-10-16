@@ -1,3 +1,7 @@
+**Trump Administration Restricts Drone Activity Along U.S.-Mexico Border**\
+`The new restrictions ban unauthorized drone flights within a nautical mile of the southern border, up to 400 feet in the air.`\
+https://www.nytimes.com/2026/10/16/us/politics/drones-border-restrictions.html
+
 **When a Social Media Mob Came for Cornell’s Jane Doe**\
 `After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
 https://www.nytimes.com/2026/10/16/realestate/cornell-jane-doe-internet-doxing.html

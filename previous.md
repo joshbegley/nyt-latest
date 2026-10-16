@@ -1,3 +1,7 @@
+**Trump Administration Restricts Drone Activity Along U.S.-Mexico Border**\
+`The new restrictions ban unauthorized drone flights within a nautical mile of the southern border, up to 400 feet in the air.`\
+https://www.nytimes.com/2026/10/16/us/politics/drones-border-restrictions.html
+
 **When a Social Media Mob Came for Cornell’s Jane Doe**\
 `After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
 https://www.nytimes.com/2026/10/16/realestate/cornell-jane-doe-internet-doxing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/nyregion/nyc-fentanyl-overdose-rape-charges.h
 **Who Should Fill the Open Roles at Calvin Klein and Alexander McQueen?**\
 `After change-ups at two big luxury brands, we fantasized about who should go where.`\
 https://www.nytimes.com/2026/10/16/style/calvin-klein-alexander-mcqueen-designers.html
-
-**Queens Woman Accused of Killing 5-Year-Old Daughter**\
-`It was not clear what happened at the home of the girl, Fabiana Cabello, but a relative said she was a friendly child who helped her great-grandmother and hugged strangers.`\
-https://www.nytimes.com/2026/10/16/nyregion/woman-charged-daughter-death-queens.html
 
