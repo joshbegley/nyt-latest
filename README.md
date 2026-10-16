@@ -55,7 +55,7 @@ https://www.nytimes.com/video/opinion/100000011206829/dwarkesh-patel-is-happy-if
 https://www.nytimes.com/2026/10/15/us/politics/ukraine-us-aid-trump.html
 
 **Live Updates: 3 Children and 1 Adult Killed in Shooting at Oregon Elementary School**\
-`The police in Bend, Ore., said the suspect was also killed, possibly by an armed bystander.`\
+`Officials are providing an update about the shooting on Thursday at Silver Rail Elementary School in Bend, Ore.`\
 https://www.nytimes.com/live/2026/10/15/us/bend-oregon-shooting-school
 
 **Katie Zacharia Admits Failing Bar, but Defends Calling Herself a Lawyer**\
