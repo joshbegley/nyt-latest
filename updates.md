@@ -1,3 +1,7 @@
+**When Will the Fed Move on Rates?**\
+`Kevin Warsh, the central bank’s chairman, suggested he wouldn’t push to raise borrowing rates this month. But persistent inflation may force the Fed’s hand.`\
+https://www.nytimes.com/2026/10/16/business/dealbook/fed-rates-warsh-inflation.html
+
 **‘The Headlines’ News Quiz: Oct. 16, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/16/podcasts/the-headlines/the-headlines-news-quiz-oct-16-2026.html
