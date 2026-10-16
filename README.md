@@ -1,3 +1,7 @@
+**Parents Struggle to Help Their Children After School Killings in Oregon**\
+`The city of Bend is grappling with the shooting at Silver Rail Elementary, which killed three children and a teacher.`\
+https://www.nytimes.com/2026/10/16/us/parents-children-shooting-trauma.html
+
 **Robot trainers**\
 `Plus, young voters, Parisian schools and a lot of math.`\
 https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/16/us/elections/socialism-americans-polls-electi
 **In 1971, This Film Was a Scandal. In 2026, It’s a Respected Period Piece.**\
 `“Ken Russell’s The Devils” was deemed shocking for scenes with orgiastic nuns and a debauched priest. But its serious aims are clear in a new restoration.`\
 https://www.nytimes.com/2026/10/16/movies/ken-russell-the-devils-re-release.html
-
-**Why Is No One Doing Anything About Affordability?**\
-`Can 1990s-style politics make a comeback?`\
-https://www.nytimes.com/2026/10/16/opinion/affordability-republicans-democrats.html
 

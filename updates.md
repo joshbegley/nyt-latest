@@ -1,3 +1,7 @@
+**The Rupturing Trump-Zelensky Relationship Stands to Hurt Ukraine and Its European Allies**\
+`Where the two presidents’ war of words will end is anybody’s guess. But if it continues, it could threaten the crucial operational help that Ukraine still gets from the United States.`\
+https://www.nytimes.com/2026/10/16/world/europe/trump-zelensky-ukraine-war.html
+
 **Robot trainers**\
 `Plus, young voters, Parisian schools and a lot of math.`\
 https://www.nytimes.com/2026/10/16/briefing/robot-trainers.html
