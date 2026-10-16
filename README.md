@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/16/world/middleeast/israel-mansour-abbas.html
 https://www.nytimes.com/2026/10/16/world/asia/japan-women-makeup-chores.html
 
 **Live Updates: Police Investigate Deadly Shooting at Oregon Elementary School**\
-`A teenager shot his way into the Silver Rail Elementary School, killing three children and a teacher before an armed bystander shot him dead, the police said.`\
+`A teenager shot his way into the Silver Rail Elementary School, killing three children, ages 5, 8 and 11, and a teacher. An armed bystander shot him dead, the police said.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 
 **Unboxing Wu-Tang Clan’s Secret Album**\
