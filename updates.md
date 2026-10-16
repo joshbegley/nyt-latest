@@ -1,3 +1,7 @@
+**Handcuffs in Schools**\
+`Let’s look at what happens when school police arrest children.`\
+https://www.nytimes.com/2026/10/16/briefing/handcuffs-in-schools.html
+
 **MAGA’s Midterm Defectors**\
 `Iowa is seemingly at the center of the pushback against President Trump as the state grapples with the impact of both tariffs and higher fuel costs.`\
 https://www.nytimes.com/2026/10/16/podcasts/the-daily/iowa-farmer-republicans-midterms-trump.html
