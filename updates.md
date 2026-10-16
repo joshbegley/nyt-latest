@@ -1,3 +1,7 @@
+**In Michigan Senate Race, Ocasio-Cortez Joins El-Sayed on Trail in Trump Country**\
+`Representative Alexandria Ocasio-Cortez campaigned with Dr. Abdul El-Sayed in a swath of Michigan including areas won by President Trump, making a progressive pitch in a key Senate race.`\
+https://www.nytimes.com/2026/10/15/us/politics/ocasio-cortez-el-sayed-michigan-vance-trump-senate.html
+
 **NYT Crossword Answers for Oct. 16, 2026**\
 `Adam Shapiro makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/10/15/crosswords/daily-puzzle-2026-10-16.html
