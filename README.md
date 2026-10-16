@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/16/us/politics/midterm-elections-ai-generated-ad
 `The Fields Medalist and celebrated mathematician is on the front lines of a debate about artificial intelligence and the future of his field.`\
 https://www.nytimes.com/2026/10/16/us/math-ai-terence-tao.html
 
-**A Paris Museum That’s Wild and a ‘Little Weird’**\
-`Despite its provocative subject matter, the Museum of Hunting and Nature aims to be “a joyful cabinet of curiosities.”`\
-https://www.nytimes.com/2026/10/16/arts/design/paris-museum-hunting-nature.html
-
