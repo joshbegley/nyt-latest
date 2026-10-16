@@ -1,3 +1,7 @@
+**Oregon Has Approved Tight Gun Laws, but They Have Been Held Up in Courts**\
+`The state has passed restrictive measures popular among gun safety activists. The Silver Rail Elementary School shooting seemed poised to set off conversations about gun control.`\
+https://www.nytimes.com/2026/10/15/us/oregon-gun-control-laws.html
+
 **At High-Powered Dinner, Lots of Love for Tisch, Less for Mayor**\
 `Police Commissioner Jessica Tisch received a standing ovation at the Alfred E. Smith dinner and joked about calls for Mayor Zohran Mamdani to fire her.`\
 https://www.nytimes.com/2026/10/15/nyregion/tisch-mamdani-alfred-e-smith-dinner.html
