@@ -1,3 +1,15 @@
+**How the Billionaire Owner of Two Sports Teams Spends a Day Chasing Wins**\
+`Laurie M. Tisch, an owner of the New York Giants and Gotham F.C., spends her time on art, family and both kinds of football.`\
+https://www.nytimes.com/interactive/2026/10/17/nyregion/routine-laurie-tisch.html
+
+**He Was a Top Voice on Palestinian Liberation. Filmgoers Are Listening.**\
+`A new documentary on Edward Said, the Palestinian American literary critic and activist who taught for decades at Columbia, brought New Yorkers together in a fraught political moment.`\
+https://www.nytimes.com/2026/10/17/nyregion/edward-said-documentary-new-york-film-festival.html
+
+**NYT Spelling Bee Answers for October 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/17/crosswords/spelling-bee-forum.html
+
 **Uncertainty Over Pope’s Health Fuels Familiar Debate Over Vatican’s Candor**\
 `By announcing his lung condition himself, Leo has been more forthcoming than many popes. But mysteries remain, prompting scrutiny of papal statements for hidden meaning.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-vatican-transparency-cancer.html
