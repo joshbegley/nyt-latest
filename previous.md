@@ -1,3 +1,7 @@
+**After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
+`Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
+https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
+
 **Guam Braces for an ‘Extremely Dangerous’ Super Typhoon Champi**\
 `The storm rapidly intensified as it barreled toward Guam on Saturday, generating wind gusts of up to 175 miles per hour.`\
 https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
 `After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
 https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
 
-**Dispute Between Trump Allies Centers on Payment From Congo**\
+**Dispute Between Trump Allies Centers on Millions Transferred From Congo**\
 `The White House inquiry is focused on diverging accounts from Richard Grenell and Alina Habba Mildon about a $17 million transfer from a government account in the African country to a Texas defense firm.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-allies-grenell-mildon-congo.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
 **Lana Del Rey’s Country Duet and 9 More Songs We're Talking About**\
 `The singer joins Zach Bryan’s new single, Olivia Rodrigo teams up with Chappell Roan, Fireboy DML vows longevity and more.`\
 https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rodrigo-new-songs.html
-
-**Corrections: Oct. 17, 2026**\
-`Corrections that appeared in print on Saturday, Oct. 17, 2026.`\
-https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
 
