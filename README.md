@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/10/17/business/trump-russia-sanctions-congress.html
 `The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
 https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html
 
-**Israeli Settlers Attack Palestinians and Diplomats in West Bank**\
+**Israeli Settlers Attack Palestinians and European Officials in West Bank**\
 `Extremists assaulted residents and broke a European diplomatic vehicle’s window, witnesses said, as settler violence surges in the territory during the olive harvest.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html
 

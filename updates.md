@@ -1,3 +1,7 @@
+**New Round of ‘No Kings’ Rallies Focuses on Getting Out the Vote**\
+`With midterm elections approaching, organizers of the demonstrations known for their anti-Trump sentiment are urging people to vote early.`\
+https://www.nytimes.com/2026/10/17/us/no-kings-early-voting-midterms.html
+
 **How Do You Talk to an Elementary Schooler About a Shooting?**\
 `Parents in Bend, Ore., are struggling to help their children cope after a teenage shooter killed three students and a teacher at Silver Rail Elementary School on Thursday.`\
 https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementary-schooler-about-a-shooting.html
