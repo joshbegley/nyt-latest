@@ -1,3 +1,7 @@
+**A Reporter Who Saw Covid Coming Has Died**\
+`Helen Branswell recognized the threat of the pandemic ahead of the vast majority of journalists and even medical experts. She was 69.`\
+https://www.nytimes.com/2026/10/17/health/helen-branswell-dead.html
+
 **Susan Collins Says Rival’s ‘Oh, Shut Up’ Comment Reflects How He Treats Women**\
 `Ms. Collins, a Republican running in a crucial race, called the debate remark by her opponent, Troy Jackson, “very telling.” Mr. Jackson has defended his comment, and his campaign said Ms. Collins had run a campaign based on personal attacks.`\
 https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
