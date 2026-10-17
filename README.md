@@ -1,3 +1,7 @@
+**How Do You Talk to an Elementary Schooler About a Shooting?**\
+`Parents in Bend, Ore., are struggling to help their children cope after a teenage shooter killed three students and a teacher at Silver Rail Elementary School on Thursday.`\
+https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementary-schooler-about-a-shooting.html
+
 **Paxton Hits the Road, Looking to Rally Texas Republicans**\
 `Ken Paxton’s bus tour of Texas comes as polls have shown the race for Senate is increasingly close. His rival, James Talarico, is scheduled to kick off a similar tour on Sunday.`\
 https://www.nytimes.com/2026/10/17/us/paxton-bus-tour-texas-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/design/mona-lisa-flight-path-pilot.html
 **In Netflix’s ‘East of Eden,’ Florence Pugh’s Cathy Ames Is Recognizably Human**\
 `Zoe Kazan and Florence Pugh’s nuanced take on the Netflix show’s villain has rankled Steinbeck purists by making her a human being.`\
 https://www.nytimes.com/2026/10/17/arts/television/east-of-eden-florence-pugh-cathy.html
-
-**Bono and the Edge on Their ‘Drug of Choice’**\
-`What drives these rockers in their work as members of U2? They discussed the question on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011211149/bono-and-the-edge-on-their-drug-of-choice.html
 
