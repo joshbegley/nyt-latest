@@ -1,4 +1,4 @@
-**Two Killed, Including Child, as Truck Plows Through Wichita, Kan. Soccer Game**\
+**2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
 `A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. Multiple other people were injured and the driver was in custody.`\
 https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
 
