@@ -1,3 +1,15 @@
+**Florida Man Killed by Alligator While Fishing Near Lake Apopka in Winter Garden**\
+`The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
+https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html
+
+**Israeli Settlers Attack Palestinians and Diplomats in West Bank**\
+`Extremists assaulted residents and broke a European diplomatic vehicle’s window, witnesses said, as settler violence surges in the territory during the olive harvest.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html
+
+**Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
+`Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflects how he treats women. Mr. Jackson has defended his comment, and his campaign said Ms. Collins had run a campaign based on personal attacks.`\
+https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
+
 **Unrest Mars Day of Protest in France, as Student Movement Turns National**\
 `Riots broke out in several French cities alongside peaceful marches of tens of thousands of people demonstrating against rising living costs and poor school conditions.`\
 https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html
