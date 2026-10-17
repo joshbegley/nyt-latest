@@ -1,3 +1,35 @@
+**Banter and Booze at the Best Book Parties of the Year**\
+`Each October, the international publishing business descends on Frankfurt, Germany, for days of dealing and long nights of partying.`\
+https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
+
+**Now Playing: Our Marriage**\
+`Something old, something new, something short-form: Wedding trailers are a cinematic way to tell your love story, along with its happy ending.`\
+https://www.nytimes.com/2026/10/17/style/wedding-trailers-social-media.html
+
+**Book Review: ‘Redemption,’ by Lawrence Wright**\
+`In “Redemption,” the Pulitzer Prize winner Lawrence Wright asks whether people sentenced to die in Texas should have a second chance.`\
+https://www.nytimes.com/2026/10/17/books/review/redemption-lawrence-wright.html
+
+**She Signed Her Painting in 1548. Nearly 500 Years Later, It Finally Goes on Show.**\
+`Long overshadowed by her father and overlooked by historians, the 16th-century pioneer Catharina van Hemessen is now getting her due.`\
+https://www.nytimes.com/2026/10/17/arts/design/catharina-van-hemessen.html
+
+**$10 a Gallon at This Gas Station by the Sea**\
+`Drive along a meandering highway through Big Sur in California, and you could happen upon this roadside stop. Maybe you won’t notice the prices.`\
+https://www.nytimes.com/2026/10/17/us/10-gallon-gas-station.html
+
+**Finding a Foothold for a Growing Network of Deportees in Jamaica**\
+`A nonprofit in Jamaica is helping a growing network of deportees from the U.S. find a foothold in their country of origin.`\
+https://www.nytimes.com/2026/10/17/headway/a-recent-deportee-aims-to-make-americas-loss-jamaicas-gain.html
+
+**Book Review: ‘Every Story Is a Love Story,’ by Imbolo Mbue**\
+`In “Every Story Is a Love Story,” a widower develops complicated feelings for the woman who upended his life.`\
+https://www.nytimes.com/2026/10/17/books/review/every-story-is-a-love-story-imbolo-mbue.html
+
+**Ukraine’s Front Line Is Now a ‘Kill Zone’**\
+`The “kill zone” on the front lines of Russia’s war in Ukraine is unlike anything soldiers have faced. Our correspondent Constant Méheut describes soldiers’ experiences there. The Armed Forces of Ukraine provided footage inside the kill zone at our request.`\
+https://www.nytimes.com/video/world/europe/100000011105137/ukraines-front-line-is-now-a-kill-zone.html
+
 **How the Billionaire Owner of Two Sports Teams Spends a Day Chasing Wins**\
 `Laurie M. Tisch, an owner of the New York Giants and Gotham F.C., spends her time on art, family and both kinds of football.`\
 https://www.nytimes.com/interactive/2026/10/17/nyregion/routine-laurie-tisch.html

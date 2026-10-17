@@ -1,3 +1,123 @@
+**Lana Del Rey’s Country Duet and 9 More Songs We're Talking About**\
+`The singer joins Zach Bryan’s new single, Olivia Rodrigo teams up with Chappell Roan, Fireboy DML vows longevity and more.`\
+https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rodrigo-new-songs.html
+
+**Corrections: Oct. 17, 2026**\
+`Corrections that appeared in print on Saturday, Oct. 17, 2026.`\
+https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
+
+**Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
+`To celebrate, Boy Throb made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
+https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
+
+**Trump Revives 2020 Election Conspiracies, With Help From the Federal Government**\
+`Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
+https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
+
+**The Reporter Who Exposed Elizabeth Holmes on Nathan Fielder’s Documentary**\
+`Ms. Holmes handed the makers of “You Can See Everything” — and the rest of the world — a microscope with which to observe and dissect her lies.`\
+https://www.nytimes.com/2026/10/17/business/theranos-fraud-elizabeth-holmes-documentary.html
+
+**Corporate Tax Revenue Falls Even as Profits Soar Under Trump**\
+`The annual decline was about $70 billion. Companies are writing off billions in A.I. investments, taking advantage of tax cuts that President Trump signed into law.`\
+https://www.nytimes.com/2026/10/17/business/trump-corporate-tax-revenue.html
+
+**A Mona Lisa Etched Into Oklahoma’s Skies by a Pilot and His Plane**\
+`Benjamin McDaniel, known as the Pilot Picasso, has drawn some of the most elaborate designs in the sky: a world map, a “Lord of The Rings” homage and now, a da Vinci.`\
+https://www.nytimes.com/2026/10/17/arts/design/mona-lisa-flight-path-pilot.html
+
+**In Netflix’s ‘East of Eden,’ Florence Pugh’s Cathy Ames Is Recognizably Human**\
+`Zoe Kazan and Florence Pugh’s nuanced take on the Netflix show’s villain has rankled Steinbeck purists by making her a human being.`\
+https://www.nytimes.com/2026/10/17/arts/television/east-of-eden-florence-pugh-cathy.html
+
+**Bono and the Edge on Their ‘Drug of Choice’**\
+`What drives these rockers in their work as members of U2? They discussed the question on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011211149/bono-and-the-edge-on-their-drug-of-choice.html
+
+**Bono on Republicans: ‘I Want to Invite Them Back’**\
+`On “The Interview,” Bono, the lead singer for U2, shared some thoughts on conservatives and the political situation in the U.S.`\
+https://www.nytimes.com/video/podcasts/100000011213343/bono-on-republicans-i-want-to-invite-them-back.html
+
+**‘It’s Unconscionable’: Bono on the DOGE Cuts and Loss of Human Lives**\
+`Bono, the lead singer for U2, has been an activist and philanthropist for decades. He discussed the cuts to foreign aid work made by the Trump administration on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011211152/its-unconscionable-bono-on-the-doge-cuts-and-loss-of-human-lives.html
+
+**What Is the Purpose of U2 Right Now?**\
+`On “The Interview,” Bono and the Edge talked about what has kept U2 going, 50 years after the band came together at a Dublin high school.`\
+https://www.nytimes.com/video/podcasts/100000011211144/what-is-the-purpose-of-u2-right-now.html
+
+**The Edge and Bono on Their First Memories of Each Other**\
+`The members of U2 met as teenagers at Mount Temple Comprehensive School in Dublin. The Edge talked about his fondness for explosives and his early impression of Bono on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011211139/the-edge-and-bono-on-their-first-memories-of-each-other.html
+
+**50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
+`Bono and the Edge speak with David Marchese about their long working relationship, friendship and what their band U2 still means — both to them and to the world.`\
+https://www.nytimes.com/video/podcasts/100000011211133/50-years-in-whats-the-point-of-u2-bono-and-the-edge-have-answers.html
+
+**Who Is Billy Evans, Elizabeth Holmes’s Fiancé and the Antagonist of ‘You Can See Everything’?**\
+`The romantic partner of the disgraced Theranos founder emerges as a key figure in “You Can See Everything.” Here’s what we know about him.`\
+https://www.nytimes.com/2026/10/17/movies/billy-evans-elizabeth-holmes-nathan-fielder.html
+
+**For a Mere $2 Million, You Could Own Three Books That Unlocked the Universe**\
+`At Sotheby’s, a feast of rare science books includes volumes from Copernicus, Galileo and Newton that together revolutionized human understanding of the cosmos.`\
+https://www.nytimes.com/2026/10/17/science/sothebys-science-books-auction.html
+
+**Can Cereal Be Healthy? Big Companies Are Trying.**\
+`As more Americans turn away from the snap, crackle and sugar, the industry is trying to capitalize on our current obsession with wellness.`\
+https://www.nytimes.com/2026/10/17/dining/breakfast-cereal-healthy.html
+
+**How Drones Created a Kill Zone in the Ukraine War**\
+`The front line in Ukraine has blurred into a miles-wide wasteland where drones fill the sky and neither side holds firm control.`\
+https://www.nytimes.com/interactive/2026/10/17/world/europe/ukraine-russia-war-drones-kill-zone.html
+
+**Inside the NYC Ballet’s Rare Revival of Balanchine’s ‘Pithoprakta’**\
+`In “Pithoprakta,” a rarely seen work by George Balanchine at City Ballet, Suzanne Farrell brings a tense and eerie dance back to life. It’s a laboratory for new movement.`\
+https://www.nytimes.com/2026/10/17/arts/dance/nyc-ballet-balanchine-suzanne-farrell-pithoprakta.html
+
+**How Pennsylvania Explains the Forces Shaping the Midterms**\
+`Four battleground congressional districts in the state reveal fault lines that are echoing nationwide.`\
+https://www.nytimes.com/2026/10/17/us/politics/how-pennsylvania-explains-the-forces-shaping-the-midterms.html
+
+**It’s Time to Shop Medicare, and This Year, It’s Extra Important**\
+`Be sure to read your mail this fall — big changes to prescription drug plans and Medicare Advantage provider networks are coming, and could cost you more.`\
+https://www.nytimes.com/2026/10/17/business/medicare-coverage-retirement.html
+
+**Blurring the Line Between 3 Dimensions and 2**\
+`Torkwase Dyson’s latest paintings have a celestial depth  that’s often reserved for sculpture.`\
+https://www.nytimes.com/2026/10/17/arts/design/torkwase-dyson.html
+
+**I’m Looking to Downsize. Is Prefab Housing the Way to Go?**\
+`The construction timeline for these homes, built in a factory and then delivered to a site, is often shorter, but that doesn’t mean it’s necessarily cheaper.`\
+https://www.nytimes.com/2026/10/17/realestate/im-looking-to-downsize-is-prefab-housing-the-way-to-go.html
+
+**When a Gun Owner Shows Early Signs of Dementia**\
+`Public health experts are finding ways to encourage firearm safety practices for older adults who own guns, especially when there are indications of cognitive decline.`\
+https://www.nytimes.com/2026/10/17/well/family/firearms-elderly-dementia-risks-prevention.html
+
+**Hegseth Singled Out in Democrats’ Campaign Attacks for War and High Prices**\
+`Cabinet members are seldom major figures in campaigns, but the defense secretary’s forays into politics and his bravado in defense of an unpopular war have made him a target.`\
+https://www.nytimes.com/2026/10/17/us/elections/hegseth-singled-out-in-democrats-campaign-attacks-for-war-and-high-prices.html
+
+**What Pennsylvania Reveals About the Midterms**\
+`In Pennsylvania, four congressional districts exemplify the types of seats that Democrats are aiming to flip. Our national political correspondent Shane Goldmacher explains.`\
+https://www.nytimes.com/video/us/politics/100000011200802/what-pennsylvania-reveals-about-the-midterms.html
+
+**Weak Links Start to Show in A.I. Borrowing**\
+`Debt trouble at CoreWeave, Oracle and SoftBank raises questions about whether there is broader trouble with the data center build-out.`\
+https://www.nytimes.com/2026/10/17/business/weak-links-start-to-show-in-ai-borrowing.html
+
+**Enviably Green Bags for Fall**\
+`Bright Kelly and rich forest hues are unexpected yet easy to wear.`\
+https://www.nytimes.com/2026/10/17/t-magazine/green-handbags.html
+
+**Two Nights at Saint Vitus, the Metal Mecca of Brooklyn**\
+`Over two nights at Saint Vitus, the newly reopened venue, generations of metalheads made their pilgrimage.`\
+https://www.nytimes.com/2026/10/17/arts/music/saint-vitus-brooklyn-metal.html
+
+**Valor Mortis Upends the Soulslike Genre in First Person**\
+`With its first-person camera, Valor Mortis gives fans of the masochistic Soulslike genre a more intimate view of the action.`\
+https://www.nytimes.com/2026/10/17/arts/valor-mortis-game.html
+
 **Banter and Booze at the Best Book Parties of the Year**\
 `Each October, the international publishing business descends on Frankfurt, Germany, for days of dealing and long nights of partying.`\
 https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
@@ -77,124 +197,4 @@ https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
 **Justice Department Seeks to Disqualify Judge Overseeing Golf Course Lawsuit**\
 `Escalating a standoff with Judge Ana C. Reyes, the Justice Department demanded that she recuse herself from a case in which she had ordered several Trump officials to testify.`\
 https://www.nytimes.com/2026/10/16/us/politics/justice-department-disqualify-judge-golf-lawsuit.html
-
-**School Shooting in Bend, Ore., Has Heroes and Pain, But Few Answers**\
-`The city of Bend, Ore., is praising those who worked to stop the gunman at Silver Rail Elementary School. The authorities are searching for answers.`\
-https://www.nytimes.com/2026/10/16/us/bend-shooting-hero-teacher-dad.html
-
-**Congressional Staff Open Letters Containing Suspicious Substances**\
-`The incidents, the first of which was reported on Thursday, came as election officials have reported a growing number of threats directed at them.`\
-https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspicious-substances.html
-
-**Displaying Finesse**\
-`August Miller’s refined Saturday puzzle can handle a tough crowd.`\
-https://www.nytimes.com/2026/10/16/crosswords/daily-puzzle-2026-10-17.html
-
-**Trump Signs Order Exempting Russia From Sanctions Law**\
-`The sanctions were part of a measure that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
-https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
-
-**Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\
-`While the powerful board appeared to back campus administration, some students protested against the backdrop of homecoming weekend.`\
-https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html
-
-**Ilhan Omar’s Sister’s Phone Was Seized Before Search of Lawmaker’s Home**\
-`A criminal investigation into the lawmaker’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
-https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
-
-**David Sabatini, an M.I.T. Scientist, Wins $6 Million in Sexual Harassment Defamation Suit**\
-`David Sabatini, once a prominent scientist at M.I.T., sued a former colleague who accused him of inappropriate behavior. A jury found in his favor.`\
-https://www.nytimes.com/2026/10/16/us/mit-scientist-sexual-harassment-defamation-lawsuit-david-sabatini.html
-
-**School Shootings Have Dropped Lately, but Gun Violence Remains Above Pre-Covid Levels**\
-`One data scientist who tracks gun violence in schools says he is encouraged that people have become more vigilant about spotting warning signs.`\
-https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
-
-**California Says D.O.J. System for Identifying Noncitizens Is Sloppy**\
-`State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
-https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
-
-**Why the Anthropic and OpenAI I.P.O.s Are Unusual**\
-`Anthropic and OpenAI are both preparing to go public with valuations in the trillions. But are these companies really worth that much? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he’s skeptical.`\
-https://www.nytimes.com/video/opinion/100000011216277/why-the-anthropic-and-openai-ipos-are-unusual.html
-
-**No, Really — Is A.I. a Bubble?**\
-`Is A.I. a bubble? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he thinks the market is bound to pop.`\
-https://www.nytimes.com/video/opinion/100000011216290/no-really-is-ai-a-bubble.html
-
-**Teacher Killed in Oregon School Shooting Was Working Her ‘Dream Job,’ Family Says**\
-`Megan Lambert graduated from high school in the district where she taught. She died in a classroom with Rhoam Summer and two other children when a shooter attacked.`\
-https://www.nytimes.com/2026/10/16/us/bend-school-shooting-victims-megan-lambert-rhoam-summer.html
-
-**What the A.I. Labs Know That We Don’t**\
-`“I expect A.I.s to beat humans at A.I. research within nine months,” a researcher at Anthropic recently told the podcaster Dwarkesh Patel. On “Interesting Times,” Patel makes the case that if the labs really believe that, they should make the evidence public.`\
-https://www.nytimes.com/video/opinion/100000011218973/what-the-ai-labs-know-that-we-dont.html
-
-**Trump Administration Restricts Drone Activity Along U.S.-Mexico Border**\
-`The new restrictions ban unauthorized drone flights within a nautical mile of the southern border, up to 400 feet in the air.`\
-https://www.nytimes.com/2026/10/16/us/politics/drones-border-restrictions.html
-
-**When a Social Media Mob Came for Cornell’s Jane Doe**\
-`After a former student named seven men in a lawsuit saying they had sexually assaulted her, a movement gained steam online to reveal her identity.`\
-https://www.nytimes.com/2026/10/16/nyregion/cornell-jane-doe-internet-doxing.html
-
-**M.L.B. Playoff Ads With Sydney Sweeney and Megan Fox Draw Backlash**\
-`Commercials with Sydney Sweeney promoting a gambling platform and Megan Fox endorsing male enhancement have rankled fans, and even athletes. Who is in charge?`\
-https://www.nytimes.com/2026/10/16/business/media/mlb-playoffs-commercials-sydney-sweeney-novig.html
-
-**Netflix Hurries to Rewrite Its Narrative With Layoffs and a Sudden Firing**\
-`Despite strong revenues and profits, the streaming service cut 1,000 jobs and jettisoned its chief content officer. Drops in the stock price and viewer engagement are to blame.`\
-https://www.nytimes.com/2026/10/16/business/media/netflix-layoffs-bela-bajaria.html
-
-**Trump Returns to Dalton for a Rescue Mission in Georgia**\
-`Plus, Katie Zacharia’s ouster, A.O.C. on the trail, and another tense debate in Maine.`\
-https://www.nytimes.com/2026/10/16/us/politics/trump-rally-dalton-georgia.html
-
-**Oregon Has No Criminal Law Meant to Punish Parents in School Shootings**\
-`The boy who attacked a school in Bend is said to have used his mother’s gun. Some states have passed measures to address similar situations.`\
-https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-parental-responsibility.html
-
-**Karri Is Making Hits With Drake's Old Playbook**\
-`Our critic Jon Caramanica explores how Karri, a rising R&B artist from the Bay Area, channels the late 2000s and early 2010s sound of Drake and The Weeknd in his song “Summer In Manila (Oakland Pt. 3).”`\
-https://www.nytimes.com/video/podcasts/100000011219851/karri-is-making-hits-with-drakes-old-playbook.html
-
-**Park Service Will Let Alaska Hunters Bait Bears With Doughnuts**\
-`The National Park Service is reviving a practice that was banned by the Biden administration and condemned by conservationists.`\
-https://www.nytimes.com/2026/10/16/climate/bear-baiting-hunting-alaska.html
-
-**Bystander Who Killed School Shooter Is Father of 2 Students**\
-`Also, the White House press secretary is ousted after five days. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-secretary.html
-
-**Whispering Phantoms and Shadowy Scares in Two Inventive Plays**\
-`The Off Broadway shows “A Ghost in Your Ear” and “The 4th Witch” use aural and visual tricks to give you the seasonal spooks.`\
-https://www.nytimes.com/2026/10/16/theater/ghost-in-your-ear-4th-witch.html
-
-**Appeals Court Questions Justice Dept. Claim That Trump Owns White House Records**\
-`A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
-https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
-
-**A Former Rome Reporter on the Pope’s Health and Legacy**\
-`For a former Rome bureau chief, Pope Leo’s lung cancer diagnosis prompted pressing questions about life and legacy.`\
-https://www.nytimes.com/2026/10/16/insider/pope-leo-xiv-lung-cancer-vatican-legacy.html
-
-**Overlooked No More: Harry Lew, the Basketball Player Who Refused to Be Sidelined**\
-`He broke a racial barrier in basketball just 11 years after the sport was invented, but his achievement went largely unrecognized.`\
-https://www.nytimes.com/2026/10/16/obituaries/harry-lew-overlooked.html
-
-**Meta Withdraws $25 Million from Its Midterms Push**\
-`The company outlined a $65 million budget last year when it embarked on an effort to elect state politicians friendly to the A.I. industry.`\
-https://www.nytimes.com/2026/10/16/technology/meta-midterms-funding.html
-
-**He Mapped Yard Shrines, Sidewalk Altars and Flowerpots**\
-`The cultural historian Joseph Sciorra, who has died, helped bring “a fieldworker’s eye and an archivist’s discipline” to his studies of Italian American culture.`\
-https://www.nytimes.com/2026/10/16/nyregion/joseph-sciorra-dead.html
-
-**Bend Shooting Likely to Heighten Gun Debate in Oregon Governor’s Race**\
-`The contest between the Democratic incumbent and her Republican challenger is on edge.`\
-https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-guns-governor-race.html
-
-**Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
-`The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
-https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 
