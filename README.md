@@ -1,3 +1,7 @@
+**Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
+`Senator Bernie Sanders of Vermont has made a point of investing in Republican-leaning states. He rallied in Tampa for Ms. Nixon, the underdog Democratic nominee for Florida Senate.`\
+https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florida-senate.html
+
 **Tell Me About Yourself!**\
 `Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
 https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
 **Pope Leo Leaves Hospital, Days After Lung Cancer Surgery**\
 `Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
-
-**Paper Towns**\
-`We’re all temporary citizens of makeshift communities created by happenstance.`\
-https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
 
