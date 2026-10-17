@@ -1,3 +1,7 @@
+**Protests Sweep Across France**\
+`More than half a million people joined protests in France on Saturday as a student-focused movement converged with a broader one against rising prices.`\
+https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across-france.html
+
 **In Midterm Campaign’s Final Stretch, Trump Can’t Stop Praising Men’s Bodies**\
 `As he stumps for midterm candidates, the president has been especially eager to talk about the physical appearance of some men.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
