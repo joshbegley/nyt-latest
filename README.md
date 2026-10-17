@@ -1,3 +1,7 @@
+**Indian Gen Z Protest Leader Is Released on Bail After Arrest**\
+`Abhijeet Dipke, the founder of the Cockroach Janta Party, was detained on his way to a protest called to demand the resignation of India’s top election official.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-abhijeet-dipke-cockroach-janta-party.html
+
 **Our Reporter Witnesses Attacks on Palestinian Farmers**\
 `The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers. “The Call” is a new video series that reaches on-the-ground New York Times reporters and newsmakers in the middle of the biggest stories of the day.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011219777/our-reporter-witnesses-attacks-on-palestinian-farmers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/design/torkwase-dyson.html
 **I’m Looking to Downsize. Is Prefab Housing the Way to Go?**\
 `The construction timeline for these homes, built in a factory and then delivered to a site, is often shorter, but that doesn’t mean it’s necessarily cheaper.`\
 https://www.nytimes.com/2026/10/17/realestate/im-looking-to-downsize-is-prefab-housing-the-way-to-go.html
-
-**When a Gun Owner Shows Early Signs of Dementia**\
-`Public health experts are finding ways to encourage firearm safety practices for older adults who own guns, especially when there are indications of cognitive decline.`\
-https://www.nytimes.com/2026/10/17/well/family/firearms-elderly-dementia-risks-prevention.html
 
