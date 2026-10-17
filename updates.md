@@ -1,3 +1,19 @@
+**Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
+`New clashes were reported as the Houthis put more pressure on Taiz, a strategically located city connecting the government-held south of the country and the Red Sea.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
+
+**No Onions? No Problem.**\
+`This caramelized fennel pasta delivers those sweet, caramelized notes, only without any alliums.`\
+https://www.nytimes.com/2026/10/17/dining/no-onions-no-problem.html
+
+**‘I Am Much Better, Thank You’: Pope Leo Leaves Hospital, Days After Lung Surgery**\
+`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
+
+**Weak Links Start to Show in A.I. Borrowing**\
+`Debt trouble at CoreWeave, Oracle and SoftBank raises questions about whether there is broader trouble with the data center build-out.`\
+https://www.nytimes.com/2026/10/17/business/ai-debt-coreweave-oracle-softbank.html
+
 **A Reporter Who Saw Covid Coming Has Died**\
 `Helen Branswell recognized the threat of the pandemic ahead of the vast majority of journalists and even medical experts. She was 69.`\
 https://www.nytimes.com/2026/10/17/health/helen-branswell-dead.html
