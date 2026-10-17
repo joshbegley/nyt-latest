@@ -1,3 +1,7 @@
+**Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
+`Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
+https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
+
 **States Are Stepping Up as the New Antitrust Enforcers**\
 `With the Trump administration taking a relaxed approach, attorneys general around the country have ramped up their scrutiny of mergers.`\
 https://www.nytimes.com/2026/10/17/business/dealbook/state-antitrust-enforcement.html
@@ -182,19 +186,15 @@ https://www.nytimes.com/2026/10/17/business/weak-links-start-to-show-in-ai-borro
 `Bright Kelly and rich forest hues are unexpected yet easy to wear.`\
 https://www.nytimes.com/2026/10/17/t-magazine/green-handbags.html
 
-**Two Nights at Saint Vitus, the Metal Mecca of Brooklyn**\
-`Over two nights at Saint Vitus, the newly reopened venue, generations of metalheads made their pilgrimage.`\
-https://www.nytimes.com/2026/10/17/arts/music/saint-vitus-brooklyn-metal.html
-
 **Valor Mortis Upends the Soulslike Genre in First Person**\
 `With its first-person camera, Valor Mortis gives fans of the masochistic Soulslike genre a more intimate view of the action.`\
 https://www.nytimes.com/2026/10/17/arts/valor-mortis-game.html
 
+**Two Nights at Saint Vitus, the Metal Mecca of Brooklyn**\
+`Over two nights at Saint Vitus, the newly reopened venue, generations of metalheads made their pilgrimage.`\
+https://www.nytimes.com/2026/10/17/arts/music/saint-vitus-brooklyn-metal.html
+
 **Banter and Booze at the Best Book Parties of the Year**\
 `Each October, the international publishing business descends on Frankfurt, Germany, for days of dealing and long nights of partying.`\
 https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
-
-**Now Playing: Our Marriage**\
-`Something old, something new, something short-form: Wedding trailers are a cinematic way to tell your love story, along with its happy ending.`\
-https://www.nytimes.com/2026/10/17/style/wedding-trailers-social-media.html
 
