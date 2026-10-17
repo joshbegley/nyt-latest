@@ -1,3 +1,15 @@
+**School Shooting in Bend, Ore., Has Heroes and Pain, But Few Answers**\
+`The city of Bend, Ore., is praising those who worked to stop the gunman at Silver Rail Elementary School. The authorities are searching for answers.`\
+https://www.nytimes.com/2026/10/16/us/bend-shooting-hero-teacher-dad.html
+
+**Ilhan Omar’s Sister’s Phone Was Seized Before Search of Lawmaker’s Home**\
+`A criminal investigation into the lawmaker’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
+https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
+
+**Oregon Shooting Updates: Attacker Was a Former Special Ed Student at the School**\
+`The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **Congressional Staff Open Letters Containing Suspicious Substances**\
 `The incidents, the first of which was reported on Thursday, came as election officials have reported a growing number of threats directed at them.`\
 https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspicious-substances.html
