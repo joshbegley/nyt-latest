@@ -1,3 +1,7 @@
+**Ilhan Omar’s Sister’s Phone was Seized Before Search of Lawmaker’s Home**\
+`A criminal investigation into the Minnesota representative’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
+https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
+
 **David Sabatini, an M.I.T. Scientist, Wins $6 Million in Sexual Harassment Defamation Suit**\
 `David Sabatini, once a prominent scientist at M.I.T., sued a former colleague who accused him of inappropriate behavior. A jury found in his favor.`\
 https://www.nytimes.com/2026/10/16/us/mit-scientist-sexual-harassment-defamation-lawsuit-david-sabatini.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-l
 **Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
 `Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
 https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
-
-**Katie Zacharia, Trump’s New Press Secretary, Is Ousted After 5 Days**\
-`Her abrupt departure came after she was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
-https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
 
 **Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
