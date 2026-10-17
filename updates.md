@@ -1,3 +1,7 @@
+**Unrest Mars Day of Protest in France, as Student Movement Turns National**\
+`Riots broke out in several French cities alongside peaceful marches of tens of thousands of people demonstrating against rising living costs and poor school conditions.`\
+https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html
+
 **Egypt’s President Says He Will Leave Office in 2030**\
 `President Abdel Fattah el-Sisi, who has so far ruled for over a dozen years, pledged to respect constitutional limits while also seeking parliamentary approval to help defend Saudi Arabia.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term-limits-2030.html
