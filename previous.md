@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measure
 `One campaign has created social media posts focusing on U.S. support for Israel to sow discord ahead of the midterm elections.`\
 https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midterms.html
 
-**Oregon Shooting Updates: Attacker Was a Former Special Ed Student at the School**\
+**Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 
