@@ -1,3 +1,11 @@
+**Congressional Staff Open Letters Containing Suspicious Substances**\
+`The incidents, the first of which was reported on Thursday, came as election officials have reported a growing number of threats directed at them.`\
+https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspicious-substances.html
+
+**Displaying Finesse**\
+`August Miller’s refined Saturday puzzle can handle a tough crowd.`\
+https://www.nytimes.com/2026/10/16/crosswords/daily-puzzle-2026-10-17.html
+
 **Trump Signs Order Exempting Russia From Sanctions Legislation**\
 `The sanctions were part of legislation that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
 https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midte
 **Five International Movies to Stream Now**\
 `This month’s picks include a French seaside comedy, a true-crime docudrama from Mexico, a mordant satire from Iran and more.`\
 https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
-
-**U.S. Budget Deficit Nears $2 Trillion, a Reality Check for Trump’s Cost Cutting**\
-`Higher interest rates are inflating borrowing costs as the Trump administration spends on the Iran war and tariff refunds.`\
-https://www.nytimes.com/2026/10/16/business/us-budget-deficit.html
-
-**How to Build a Skin Care Routine for Mature Skin**\
-`Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
-https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
 
 **Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
