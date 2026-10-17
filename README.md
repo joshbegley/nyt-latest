@@ -1,3 +1,7 @@
+**David Sabatini, an M.I.T. Scientist, Wins $6 Million in Sexual Harassment Defamation Suit**\
+`David Sabatini, once a prominent scientist at M.I.T., sued a former colleague who accused him of inappropriate behavior. A jury found in his favor.`\
+https://www.nytimes.com/2026/10/16/us/mit-scientist-sexual-harassment-defamation-lawsuit-david-sabatini.html
+
 **School Shootings Have Dropped Lately, but Gun Violence Remains Above Pre-Covid Levels**\
 `One data scientist who tracks gun violence in schools says he is encouraged that people have become more vigilant about spotting warning signs.`\
 https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchi
 `Her abrupt departure came after she was shadowed by questions about how she had presented her legal career and handled her first press briefing.`\
 https://www.nytimes.com/2026/10/16/us/politics/katie-zacharia-fired-press-secretary.html
 
-**Key to Past Hurricane Cleanup, Some Immigrant Workers Fear Florida’s Raids**\
-`Concerns about the state’s immigration dragnet may keep the itinerant labor force at home, threatening Hurricane Isaias recovery efforts.`\
-https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.html
-
-**16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
-`The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
-https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
+**Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
+`The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 
