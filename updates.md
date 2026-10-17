@@ -1,3 +1,7 @@
+**17 Dead, Dozens Injured After Stampede at Indian Religious Event**\
+`It was not clear what had caused the stampede, which are relatively common in India. Police detained the event’s organizers and the on-duty police officers.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
+
 **Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
 `Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflected how he treated women. Mr. Jackson defended his comment.`\
 https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
