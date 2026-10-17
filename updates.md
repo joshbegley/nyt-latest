@@ -1,3 +1,7 @@
+**Craig Symonds, Prizewinning Military Historian, Is Dead**\
+`A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
+https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
+
 **Peter Nagy, Visionary Artist Turned Art Dealer, Dies at 66**\
 `After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
 https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
