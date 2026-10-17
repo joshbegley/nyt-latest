@@ -1,3 +1,7 @@
+**Indian Gen Z Protest Leader Is Released on Bail After Arrest**\
+`Abhijeet Dipke, the founder of the Cockroach Janta Party, was detained on his way to a protest called to demand the resignation of India’s top election official.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-abhijeet-dipke-cockroach-janta-party.html
+
 **Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
 `New clashes were reported as the Houthis put more pressure on Taiz, a city connecting the government-held south of the country and the Red Sea.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
