@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
 `Sex, video games and grandparents on the campaign trail.`\
 https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters.html
 
-**‘If Slaughterhouses Had Glass Walls’**\
+**A Great Moral Blind Spot of Our Age**\
 `An undercover video offers a grim tableau of where our meat comes from.`\
 https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
 
