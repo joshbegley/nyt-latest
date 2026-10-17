@@ -1,3 +1,7 @@
+**Telling the Secrets of Nazi Vienna**\
+`A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
+https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
+
 **Dispute Between Trump Allies Centers on Payment From Congo**\
 `The White House inquiry is focused on diverging accounts from Richard Grenell and Alina Habba Mildon about a $17 million transfer from a government account in the African country to a Texas defense firm.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-allies-grenell-mildon-congo.html
