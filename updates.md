@@ -1,3 +1,7 @@
+**2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
+`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. Multiple other people were injured and the driver was in custody.`\
+https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
+
 **Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
 `Senator Bernie Sanders of Vermont has made a point of investing in Republican-leaning states. He rallied in Tampa for Ms. Nixon, the underdog Democratic nominee for Florida Senate.`\
 https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florida-senate.html

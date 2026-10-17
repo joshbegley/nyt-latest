@@ -1,3 +1,7 @@
+**2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
+`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. Multiple other people were injured and the driver was in custody.`\
+https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
+
 **Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
 `Senator Bernie Sanders of Vermont has made a point of investing in Republican-leaning states. He rallied in Tampa for Ms. Nixon, the underdog Democratic nominee for Florida Senate.`\
 https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florida-senate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
 **Today’s Wordle Hints for October 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
-
-**Pope Leo Leaves Hospital, Days After Lung Cancer Surgery**\
-`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
-https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
 
