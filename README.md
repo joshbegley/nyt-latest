@@ -1,3 +1,7 @@
+**Protests Sweep Across France**\
+`More than half a million people joined protests in France on Saturday as a student-focused movement converged with a broader one against rising prices.`\
+https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across-france.html
+
 **In Midterm Campaign’s Final Stretch, Trump Can’t Stop Praising Men’s Bodies**\
 `As he stumps for midterm candidates, the president has been especially eager to talk about the physical appearance of some men.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/crosswords/connections-companion-1225.html
 **A Calgary Crowd Rallies for Canada as Alberta’s Vote on Secession Nears**\
 `Prime Minister Mark Carney was among the speakers calling for a united Canada and warning about the dangers of division.`\
 https://www.nytimes.com/2026/10/17/world/canada/alberta-referendum-separation-smith.html
-
-**NYT Strands Hints for October 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
-https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
 
