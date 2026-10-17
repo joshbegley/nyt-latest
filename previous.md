@@ -1,3 +1,7 @@
+**Dispute Between Trump Allies Centers on Payment From Congo**\
+`The White House inquiry is focused on diverging accounts from Richard Grenell and Alina Habba Mildon about a $17 million transfer from a government account in the African country to a Texas defense firm.`\
+https://www.nytimes.com/2026/10/17/us/politics/trump-allies-grenell-mildon-congo.html
+
 **Pope Discharged From Hospital After Lung Surgery**\
 `Pope Leo XIV was discharged on Saturday from a hospital in Rome after surgery, roughly three days earlier than the Vatican had initially suggested he would leave.`\
 https://www.nytimes.com/video/world/europe/100000011220460/pope-leo-discharged-hospital.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/17/world/europe/ukraine-russia-war-d
 **Inside the NYC Ballet’s Rare Revival of Balanchine’s ‘Pithoprakta’**\
 `In “Pithoprakta,” a rarely seen work by George Balanchine at City Ballet, Suzanne Farrell brings a tense and eerie dance back to life. It’s a laboratory for new movement.`\
 https://www.nytimes.com/2026/10/17/arts/dance/nyc-ballet-balanchine-suzanne-farrell-pithoprakta.html
-
-**How Pennsylvania Explains the Forces Shaping the Midterms**\
-`Four battleground congressional districts in the state reveal fault lines that are echoing nationwide.`\
-https://www.nytimes.com/2026/10/17/us/politics/pennsylvania-midterm-elections-house-races.html
 
