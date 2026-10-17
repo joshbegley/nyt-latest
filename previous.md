@@ -1,3 +1,7 @@
+**States Are Stepping Up as the New Antitrust Enforcers**\
+`With the Trump administration taking a relaxed approach, attorneys general around the country have ramped up their scrutiny of mergers.`\
+https://www.nytimes.com/2026/10/17/business/dealbook/state-antitrust-enforcement.html
+
 **Steve Buscemi’s Greats**\
 `The actor Steve Buscemi discusses everything from the greatest concert he’s ever seen to his favorite sweet treat.`\
 https://www.nytimes.com/video/t-magazine/100000011209918/steve-buscemis-greats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
 **Now Playing: Our Marriage**\
 `Something old, something new, something short-form: Wedding trailers are a cinematic way to tell your love story, along with its happy ending.`\
 https://www.nytimes.com/2026/10/17/style/wedding-trailers-social-media.html
-
-**Book Review: ‘Redemption,’ by Lawrence Wright**\
-`In “Redemption,” the Pulitzer Prize winner Lawrence Wright asks whether people sentenced to die in Texas should have a second chance.`\
-https://www.nytimes.com/2026/10/17/books/review/redemption-lawrence-wright.html
 

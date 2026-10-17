@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/17/magazine/friend-mental-illness-emergency-ethi
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/17/crosswords/connections-companion-1225.html
 
-**A Calgary Crowd Rallies for Canada as Alberta’s Vote on Succession Nears**\
+**A Calgary Crowd Rallies for Canada as Alberta’s Vote on Secession Nears**\
 `Prime Minister Mark Carney was among the speakers calling for a united Canada and warning about the dangers of division.`\
 https://www.nytimes.com/2026/10/17/world/canada/alberta-referendum-separation-smith.html
 
