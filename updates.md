@@ -1,3 +1,15 @@
+**Congressional Staff Open Letters Containing Suspicious Substances**\
+`The incidents, the first of which was reported on Thursday, came as election officials have reported a growing number of threats directed at them.`\
+https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspicious-substances.html
+
+**Displaying Finesse**\
+`August Miller’s refined Saturday puzzle can handle a tough crowd.`\
+https://www.nytimes.com/2026/10/16/crosswords/daily-puzzle-2026-10-17.html
+
+**Trump Signs Order Exempting Russia From Sanctions Legislation**\
+`The sanctions were part of legislation that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
+https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
+
 **Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\
 `While the powerful board appeared to back campus administration, some students protested against the backdrop of homecoming weekend.`\
 https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html

@@ -1,3 +1,7 @@
+**School Shooting in Bend, Ore., Has Heroes and Pain, But Few Answers**\
+`The city of Bend, Ore., is praising those who worked to stop the gunman at Silver Rail Elementary School. The authorities are searching for answers.`\
+https://www.nytimes.com/2026/10/16/us/bend-shooting-hero-teacher-dad.html
+
 **Congressional Staff Open Letters Containing Suspicious Substances**\
 `The incidents, the first of which was reported on Thursday, came as election officials have reported a growing number of threats directed at them.`\
 https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspicious-substances.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
 https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html
 
 **Ilhan Omar’s Sister’s Phone Was Seized Before Search of Lawmaker’s Home**\
-`A criminal investigation into the Minnesota representative’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
+`A criminal investigation into the lawmaker’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
 https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
 
 **David Sabatini, an M.I.T. Scientist, Wins $6 Million in Sexual Harassment Defamation Suit**\
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measure
 `One campaign has created social media posts focusing on U.S. support for Israel to sow discord ahead of the midterm elections.`\
 https://www.nytimes.com/2026/10/16/us/politics/russian-influence-campaigns-midterms.html
 
-**Five International Movies to Stream Now**\
-`This month’s picks include a French seaside comedy, a true-crime docudrama from Mexico, a mordant satire from Iran and more.`\
-https://www.nytimes.com/2026/10/16/movies/international-movies-streaming.html
-
-**Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
+**Oregon Shooting Updates: Attacker Was a Former Special Ed Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
 
