@@ -1,3 +1,7 @@
+**Paper Towns**\
+`We’re all temporary citizens of makeshift communities created by happenstance.`\
+https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
+
 **50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
 `The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
 https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/asia/100000011204367/japan-dancing-salaryman
 **Teacher Wrestled Shotgun Away From Oregon School Shooter**\
 `A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
 https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
-
-**A Wayward Shark Becomes a Celebrity in South Korea**\
-`Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
-https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
 
