@@ -1,3 +1,7 @@
+**50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
+`The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
+https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
+
 **Lana Del Rey’s Country Duet and 9 More Songs We're Talking About**\
 `The singer joins Zach Bryan’s new single, Olivia Rodrigo teams up with Chappell Roan, Fireboy DML vows longevity and more.`\
 https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rodrigo-new-songs.html
