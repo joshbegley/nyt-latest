@@ -1,3 +1,7 @@
+**Peter Nagy, Visionary Artist Turned Art Dealer, Dies at 66**\
+`After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
+https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
+
 **Telling the Secrets of Nazi Vienna**\
 `A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
 https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
