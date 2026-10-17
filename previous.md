@@ -1,4 +1,8 @@
-**Ilhan Omar’s Sister’s Phone was Seized Before Search of Lawmaker’s Home**\
+**Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\
+`While the powerful board appeared to back campus administration, some students protested against the backdrop of homecoming weekend.`\
+https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html
+
+**Ilhan Omar’s Sister’s Phone Was Seized Before Search of Lawmaker’s Home**\
 `A criminal investigation into the Minnesota representative’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
 https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
 
@@ -70,7 +74,7 @@ https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-se
 `The Off Broadway shows “A Ghost in Your Ear” and “The 4th Witch” use aural and visual tricks to give you the seasonal spooks.`\
 https://www.nytimes.com/2026/10/16/theater/ghost-in-your-ear-4th-witch.html
 
-**Appeals Court Questions Justice Dept. Claim that Trump Owns White House Records**\
+**Appeals Court Questions Justice Dept. Claim That Trump Owns White House Records**\
 `A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
 https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
 **These Factors Could Limit the Knicks in Their Title Defense**\
 `Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
 https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
-
-**Gods, Demons and Milk Maids: Dancing a Sea of Indian Stories**\
-`Nrityagram Dance Ensemble at the Joyce Theater and Sreelakshmy Govardhanan at Danspace exemplified clear storytelling in two forms of Indian dance.`\
-https://www.nytimes.com/2026/10/16/arts/dance/nrityagram-surupa-sen-odissi-kuchipudi.html
 
 **Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\

@@ -1,3 +1,15 @@
+**Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\
+`While the powerful board appeared to back campus administration, some students protested against the backdrop of homecoming weekend.`\
+https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html
+
+**Ilhan Omar’s Sister’s Phone Was Seized Before Search of Lawmaker’s Home**\
+`A criminal investigation into the Minnesota representative’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
+https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
+
+**Appeals Court Questions Justice Dept. Claim That Trump Owns White House Records**\
+`A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
+https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
+
 **Ilhan Omar’s Sister’s Phone was Seized Before Search of Lawmaker’s Home**\
 `A criminal investigation into the Minnesota representative’s immigration process advanced after federal investigators reviewed family text messages from a seized phone.`\
 https://www.nytimes.com/2026/10/16/us/politics/ilhan-omar-investigation-phone.html
