@@ -1,3 +1,27 @@
+**Uncertainty Over Pope’s Health Fuels Familiar Debate Over Vatican’s Candor**\
+`By announcing his lung condition himself, Leo has been more forthcoming than many popes. But mysteries remain, prompting scrutiny of papal statements for hidden meaning.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-vatican-transparency-cancer.html
+
+**Quote of the Day: Caracas Is Eerily Safe. State Death Squads Have Made Sure of it.**\
+`Quotation of the Day for Saturday, October 17, 2026.`\
+https://www.nytimes.com/2026/10/17/pageoneplus/quote-of-the-day-caracas-is-eerily-safe-state-death-squads-have-made-sure-of-it.html
+
+**How Bally Bagayoko, a 53-Year-Old Mayor, Became the Face of France’s Youth Protests**\
+`Bally Bagayoko, the mayor of a working-class suburb near Paris, has been a regular presence at student demonstrations, prompting both applause and condemnation.`\
+https://www.nytimes.com/2026/10/17/france-protests-mayor-bally-bagayoko.html
+
+**Japan’s ‘Dancing Salaryman’ Can’t Stop Grooving**\
+`Toru Utsumi, 60, works as a management consultant, but on his days off, he has become a global internet star — despite some local disapproval.`\
+https://www.nytimes.com/2026/10/17/world/asia/japan-dancing-salaryman.html
+
+**On This Day, Oct. 17: In 1931, Al Capone was convicted of income tax evasion.**\
+`In 1931, the mobster Al Capone was convicted of income tax evasion. He was later sentenced to 11 years in prison.`\
+https://www.nytimes.com/2026/10/17/learning/on-this-day-oct-17-al-capone.html
+
+**Dancing Salaryman Pokes Fun at Japan’s Buttoned-Down Culture**\
+`Toru Utsumi has won more than a million fans on TikTok and Instagram with short, fancy-free videos.`\
+https://www.nytimes.com/video/world/asia/100000011204367/japan-dancing-salaryman-tohru-dance.html
+
 **Trump Signs Order Exempting Russia From Sanctions Law**\
 `The sanctions were part of a measure that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
 https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html

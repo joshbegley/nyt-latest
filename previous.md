@@ -1,3 +1,27 @@
+**Uncertainty Over Pope’s Health Fuels Familiar Debate Over Vatican’s Candor**\
+`By announcing his lung condition himself, Leo has been more forthcoming than many popes. But mysteries remain, prompting scrutiny of papal statements for hidden meaning.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-vatican-transparency-cancer.html
+
+**Quote of the Day: Caracas Is Eerily Safe. State Death Squads Have Made Sure of it.**\
+`Quotation of the Day for Saturday, October 17, 2026.`\
+https://www.nytimes.com/2026/10/17/pageoneplus/quote-of-the-day-caracas-is-eerily-safe-state-death-squads-have-made-sure-of-it.html
+
+**How Bally Bagayoko, a 53-Year-Old Mayor, Became the Face of France’s Youth Protests**\
+`Bally Bagayoko, the mayor of a working-class suburb near Paris, has been a regular presence at student demonstrations, prompting both applause and condemnation.`\
+https://www.nytimes.com/2026/10/17/france-protests-mayor-bally-bagayoko.html
+
+**Japan’s ‘Dancing Salaryman’ Can’t Stop Grooving**\
+`Toru Utsumi, 60, works as a management consultant, but on his days off, he has become a global internet star — despite some local disapproval.`\
+https://www.nytimes.com/2026/10/17/world/asia/japan-dancing-salaryman.html
+
+**On This Day, Oct. 17: In 1931, Al Capone was convicted of income tax evasion.**\
+`In 1931, the mobster Al Capone was convicted of income tax evasion. He was later sentenced to 11 years in prison.`\
+https://www.nytimes.com/2026/10/17/learning/on-this-day-oct-17-al-capone.html
+
+**Dancing Salaryman Pokes Fun at Japan’s Buttoned-Down Culture**\
+`Toru Utsumi has won more than a million fans on TikTok and Instagram with short, fancy-free videos.`\
+https://www.nytimes.com/video/world/asia/100000011204367/japan-dancing-salaryman-tohru-dance.html
+
 **Teacher Wrestled Shotgun Away From Oregon School Shooter**\
 `A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
 https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
@@ -169,30 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000011218215/settlers-attack-j
 **Man Who Confronted Oregon School Shooter Is a Parent at Silver Rail Elementary**\
 `The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
 https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
-
-**New from Serial: METRO with Sarah Koenig**\
-`Stories about New York City and its most fascinating raw material: New Yorkers.`\
-https://www.nytimes.com/2026/10/16/podcasts/metro-with-sarah-koenig.html
-
-**What We Know About the Shooter at an Oregon School**\
-`He was 16 years old and used a pump-action shotgun registered to his mother.`\
-https://www.nytimes.com/2026/10/16/us/oregon-school-shooting-suspect.html
-
-**RFK Jr. Pledged to Advance Anti-Vaccine Group’s Goals. Here’s What He’s Doing.**\
-`The health secretary is quietly taking steps that public health experts fear will reduce immunization rates further.`\
-https://www.nytimes.com/2026/10/16/us/politics/rfk-jr-vaccines.html
-
-**Firefighters Race to Control California Wildfires as Winds Threaten to Spark More**\
-`The Norte fire in Orange County grew quickly on Friday afternoon. Officials ordered thousands of residents to evacuate.`\
-https://www.nytimes.com/2026/10/16/weather/malibu-wildfire-wind-california.html
-
-**Israeli Settlers Attack Palestinians and Washington Post Journalist in West Bank**\
-`In the latest surge of violence, settlers targeted Palestinians during the olive harvest, a cultural touchstone and economic lifeline in the Israeli-occupied area.`\
-https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-post-palestinians.html
-
-**The Local: Ilhan Omar and an Endless Race**\
-`Omar turns raid into cash, and an ultramarathoner has his biggest competition yet.`\
-https://www.nytimes.com/2026/10/16/briefing/mark-dowdle-ilhan-omar.html
 
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
