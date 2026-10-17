@@ -1,3 +1,7 @@
+**Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
+`Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
+https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
+
 **Pope Leo Leaves Hospital, Days After Lung Surgery**\
 `Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
