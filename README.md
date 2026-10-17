@@ -1,3 +1,11 @@
+**Florida Man Killed by Alligator While Fishing Near Lake Apopka in Winter Garden**\
+`The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
+https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html
+
+**Israeli Settlers Attack Palestinians and Diplomats in West Bank**\
+`Extremists assaulted residents and broke a European diplomatic vehicle’s window, witnesses said, as settler violence surges in the territory during the olive harvest.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html
+
 **Unrest Mars Day of Protest in France, as Student Movement Turns National**\
 `Riots broke out in several French cities alongside peaceful marches of tens of thousands of people demonstrating against rising living costs and poor school conditions.`\
 https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011211152/its-unconscionable-bono-o
 **What Is the Purpose of U2 Right Now?**\
 `On “The Interview,” Bono and the Edge talked about what has kept U2 going, 50 years after the band came together at a Dublin high school.`\
 https://www.nytimes.com/video/podcasts/100000011211144/what-is-the-purpose-of-u2-right-now.html
-
-**The Edge and Bono on Their First Memories of Each Other**\
-`The members of U2 met as teenagers at Mount Temple Comprehensive School in Dublin. The Edge talked about his fondness for explosives and his early impression of Bono on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011211139/the-edge-and-bono-on-their-first-memories-of-each-other.html
-
-**50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
-`Bono and the Edge speak with David Marchese about their long working relationship, friendship and what their band U2 still means — both to them and to the world.`\
-https://www.nytimes.com/video/podcasts/100000011211133/50-years-in-whats-the-point-of-u2-bono-and-the-edge-have-answers.html
 
