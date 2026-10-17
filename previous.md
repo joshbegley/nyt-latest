@@ -1,3 +1,7 @@
+**Mexican Judge Sentences 3 Men to 159 Years Each in Surfer Killings**\
+`The men were charged in the murders of two Australians and an American who were on a camping and surf vacation in Mexico.`\
+https://www.nytimes.com/2026/10/17/world/americas/mexican-judge-sentences-3-men-to-159-years-each-in-surfer-killings.html
+
 **Cliff Hagan, Master of the Hook Shot, Dies at 94**\
 `Inducted into the Basketball Hall of Fame in 1978, he led Kentucky to a national title in 1951 and the St. Louis Hawks to a league championship in 1958.`\
 https://www.nytimes.com/2026/10/17/sports/cliff-hagan-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
 **Trump Revives 2020 Election Conspiracy Theories as Midterms Loom**\
 `Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
 https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
-
-**The Reporter Who Exposed Elizabeth Holmes on Nathan Fielder’s Documentary**\
-`Ms. Holmes handed the makers of “You Can See Everything” — and the rest of the world — a microscope with which to observe and dissect her lies.`\
-https://www.nytimes.com/2026/10/17/business/theranos-fraud-elizabeth-holmes-documentary.html
 
