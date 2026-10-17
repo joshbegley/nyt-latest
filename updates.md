@@ -1,3 +1,31 @@
+**Why My Grandparents Still Loved the Country That Rejected Them**\
+`A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
+https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
+
+**The Cringiest and Craftiest 2026 Midterm Ads**\
+`Sex, video games and grandparents on the campaign trail.`\
+https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters.html
+
+**‘If Slaughterhouses Had Glass Walls’**\
+`An undercover video offers a grim tableau of where our meat comes from.`\
+https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
+
+**Jane Doe’s Least Bad Option**\
+`Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
+https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html
+
+**Trump’s Bubble Is About to Burst**\
+`The president’s crazy actions have Democrats on the cusp of victory — and they’ll be coming for him.`\
+https://www.nytimes.com/2026/10/17/opinion/trump-photo-zacharia-harp-doug-mills.html
+
+**Why I Canceled Russian Culture for Myself**\
+`A Russified education did not forbid access to my own culture, it just quietly weakened my instinct to reach for it.`\
+https://www.nytimes.com/2026/10/17/opinion/ukraine-russian-culture.html
+
+**End Gerrymandering**\
+`A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
+https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
+
 **The Cringiest and Craftiest 2026 Midterm Ads**\
 `Sex, video games and grandparents on the campaign trail.`\
 https://www.nytimes.com/video/opinion/100000011216101/the-cringiest-and-craftiest-2026-midterm-ads.html

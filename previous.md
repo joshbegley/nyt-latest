@@ -1,3 +1,31 @@
+**Why My Grandparents Still Loved the Country That Rejected Them**\
+`A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
+https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
+
+**The Cringiest and Craftiest 2026 Midterm Ads**\
+`Sex, video games and grandparents on the campaign trail.`\
+https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters.html
+
+**‘If Slaughterhouses Had Glass Walls’**\
+`An undercover video offers a grim tableau of where our meat comes from.`\
+https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
+
+**Jane Doe’s Least Bad Option**\
+`Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
+https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html
+
+**Trump’s Bubble Is About to Burst**\
+`The president’s crazy actions have Democrats on the cusp of victory — and they’ll be coming for him.`\
+https://www.nytimes.com/2026/10/17/opinion/trump-photo-zacharia-harp-doug-mills.html
+
+**Why I Canceled Russian Culture for Myself**\
+`A Russified education did not forbid access to my own culture, it just quietly weakened my instinct to reach for it.`\
+https://www.nytimes.com/2026/10/17/opinion/ukraine-russian-culture.html
+
+**End Gerrymandering**\
+`A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
+https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
+
 **The Cringiest and Craftiest 2026 Midterm Ads**\
 `Sex, video games and grandparents on the campaign trail.`\
 https://www.nytimes.com/video/opinion/100000011216101/the-cringiest-and-craftiest-2026-midterm-ads.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/17/books/review/redemption-lawrence-wright.html
 **She Signed Her Painting in 1548. Nearly 500 Years Later, It Finally Goes on Show.**\
 `Long overshadowed by her father and overlooked by historians, the 16th-century pioneer Catharina van Hemessen is now getting her due.`\
 https://www.nytimes.com/2026/10/17/arts/design/catharina-van-hemessen.html
-
-**$10 a Gallon at This Gas Station by the Sea**\
-`Drive along a meandering highway through Big Sur in California, and you could happen upon this roadside stop. Maybe you won’t notice the prices.`\
-https://www.nytimes.com/2026/10/17/us/10-gallon-gas-station.html
-
-**Finding a Foothold for a Growing Network of Deportees in Jamaica**\
-`A nonprofit in Jamaica is helping a growing network of deportees from the U.S. find a foothold in their country of origin.`\
-https://www.nytimes.com/2026/10/17/headway/a-recent-deportee-aims-to-make-americas-loss-jamaicas-gain.html
-
-**Book Review: ‘Every Story Is a Love Story,’ by Imbolo Mbue**\
-`In “Every Story Is a Love Story,” a widower develops complicated feelings for the woman who upended his life.`\
-https://www.nytimes.com/2026/10/17/books/review/every-story-is-a-love-story-imbolo-mbue.html
-
-**Ukraine’s Front Line Is Now a ‘Kill Zone’**\
-`The “kill zone” on the front lines of Russia’s war in Ukraine is unlike anything soldiers have faced. Our correspondent Constant Méheut describes soldiers’ experiences there. The Armed Forces of Ukraine provided footage inside the kill zone at our request.`\
-https://www.nytimes.com/video/world/europe/100000011105137/ukraines-front-line-is-now-a-kill-zone.html
-
-**How the Billionaire Owner of Two Sports Teams Spends a Day Chasing Wins**\
-`Laurie M. Tisch, an owner of the New York Giants and Gotham F.C., spends her time on art, family and both kinds of football.`\
-https://www.nytimes.com/interactive/2026/10/17/nyregion/routine-laurie-tisch.html
-
-**He Was a Top Voice on Palestinian Liberation. Filmgoers Are Listening.**\
-`A new documentary on Edward Said, the Palestinian American literary critic and activist who taught for decades at Columbia, brought New Yorkers together in a fraught political moment.`\
-https://www.nytimes.com/2026/10/17/nyregion/edward-said-documentary-new-york-film-festival.html
-
-**NYT Spelling Bee Answers for October 17, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/17/crosswords/spelling-bee-forum.html
 
