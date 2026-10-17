@@ -1,3 +1,7 @@
+**Susan Collins Says Rival’s ‘Oh, Shut Up’ Comment Reflects How He Treats Women**\
+`Ms. Collins, a Republican running in a crucial race, called the debate remark by her opponent, Troy Jackson, “very telling.” Mr. Jackson has defended his comment, and his campaign said Ms. Collins had run a campaign based on personal attacks.`\
+https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
+
 **Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
 `Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
 https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/valor-mortis-game.html
 **Two Nights at Saint Vitus, the Metal Mecca of Brooklyn**\
 `Over two nights at Saint Vitus, the newly reopened venue, generations of metalheads made their pilgrimage.`\
 https://www.nytimes.com/2026/10/17/arts/music/saint-vitus-brooklyn-metal.html
-
-**Banter and Booze at the Best Book Parties of the Year**\
-`Each October, the international publishing business descends on Frankfurt, Germany, for days of dealing and long nights of partying.`\
-https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
 

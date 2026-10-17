@@ -1,3 +1,7 @@
+**Susan Collins Says Rival’s ‘Oh, Shut Up’ Comment Reflects How He Treats Women**\
+`Ms. Collins, a Republican running in a crucial race, called the debate remark by her opponent, Troy Jackson, “very telling.” Mr. Jackson has defended his comment, and his campaign said Ms. Collins had run a campaign based on personal attacks.`\
+https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
+
 **How to End Gerrymandering**\
 `A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
 https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
