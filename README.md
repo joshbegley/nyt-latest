@@ -1,3 +1,7 @@
+**Trump Signs Order Exempting Russia From Sanctions Legislation**\
+`The sanctions were part of legislation that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
+https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
+
 **Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\
 `While the powerful board appeared to back campus administration, some students protested against the backdrop of homecoming weekend.`\
 https://www.nytimes.com/2026/10/16/nyregion/cornell-trustees-board.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/16/business/us-budget-deficit.html
 **How to Build a Skin Care Routine for Mature Skin**\
 `Expert advice from the actress Taraji P. Henson, the dancer Wendy Whelan and the aesthetician Teresa Tarmey.`\
 https://www.nytimes.com/2026/10/16/t-magazine/mature-skin-care-routine.html
-
-**These Factors Could Limit the Knicks in Their Title Defense**\
-`Joe Vardon, an N.B.A. writer for The Athletic, breaks down the lingering questions the New York Knicks must answer this season.`\
-https://www.nytimes.com/video/the-athletic/100000011217314/these-factors-could-limit-the-knicks-in-their-title-defense.html
 
 **Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
