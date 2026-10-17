@@ -1,3 +1,7 @@
+**Tell Me About Yourself!**\
+`Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
+https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
+
 **Super Typhoon Champi Passes Within 10 Miles of Guam**\
 `The storm rapidly intensified as it barreled toward Guam on Saturday, coming within 10 miles of the island.`\
 https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html

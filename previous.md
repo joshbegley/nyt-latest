@@ -1,3 +1,7 @@
+**Tell Me About Yourself!**\
+`Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
+https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
+
 **17 Dead, Dozens Injured After Stampede at Indian Religious Event**\
 `Such deadly crowd events are relatively common in India, and it was unclear what caused this one. Authorities detained the event’s organizer and others involved.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.htm
 **Paper Towns**\
 `We’re all temporary citizens of makeshift communities created by happenstance.`\
 https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
-
-**50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
-`The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
-https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
 
