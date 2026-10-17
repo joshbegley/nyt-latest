@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters
 `An undercover video offers a grim tableau of where our meat comes from.`\
 https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
 
-**Jane Doe’s Least Bad Option**\
+**This Is One of the Saddest Facts About the Cornell Rape Case**\
 `Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
 https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html
 

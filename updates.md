@@ -1,3 +1,7 @@
+**This Is One of the Saddest Facts About the Cornell Rape Case**\
+`Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
+https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html
+
 **A Calgary Crowd Rallies for Canada as Alberta’s Vote on Secession Nears**\
 `Prime Minister Mark Carney was among the speakers calling for a united Canada and warning about the dangers of division.`\
 https://www.nytimes.com/2026/10/17/world/canada/alberta-referendum-separation-smith.html
