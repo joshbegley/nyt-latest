@@ -1,3 +1,11 @@
+**Israeli Settlers Attack Palestinian Olive Farmers in the West Bank**\
+`The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011219640/israeli-settlers-attack-palestinian-olive-farmers-in-the-west-bank.html
+
+**Pope Leo Leaves Hospital, Days After Lung Cancer Surgery**\
+`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
+
 **Trump Revives 2020 Election Conspiracy Theories as Midterms Loom**\
 `Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
 https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
