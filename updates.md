@@ -1,3 +1,7 @@
+**School Shootings Have Dropped Lately, but One Number Is on the Rise**\
+`“Near-misses” are increasing, one data scientist says, and gun violence at schools remains far above prepandemic levels.`\
+https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
+
 **California Says Government System for Identifying Noncitizens Is Sloppy**\
 `State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
 https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
