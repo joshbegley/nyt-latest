@@ -1,3 +1,7 @@
+**Pope Leo Leaves Hospital, Days After Lung Surgery**\
+`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
+
 **Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
 `The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
 https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
