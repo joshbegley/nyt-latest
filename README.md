@@ -1,3 +1,7 @@
+**A Wayward Shark Becomes a Celebrity in South Korea**\
+`Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
+https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
+
 **Justice Department Seeks to Disqualify Judge Overseeing Golf Course Lawsuit**\
 `Escalating a standoff with Judge Ana C. Reyes, the Justice Department demanded that she recuse herself from a case in which she had ordered several Trump officials to testify.`\
 https://www.nytimes.com/2026/10/16/us/politics/justice-department-disqualify-judge-golf-lawsuit.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/16/briefing/mark-dowdle-ilhan-omar.html
 **Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
 `Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
 https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
-
-**What Measures Keep Students Safe? Prevention, Not Defenses, Experts Say**\
-`The gunman who killed four in Bend, Ore., entered an elementary school by shooting through a locked door, raising questions about what more schools can do to protect children.`\
-https://www.nytimes.com/2026/10/16/us/bend-oregon-school-shooting-safety-measures-prevention-defenses.html
 
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
