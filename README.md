@@ -1,3 +1,11 @@
+**What to Know About the Violent Protests in Albania**\
+`Student demonstrations over education converged with broader protests against rising living costs and a luxury development linked to Jared Kushner, President Trump’s son-in-law.`\
+https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html
+
+**Five Free Movies to Stream Now**\
+`As we approach Halloween, this month’s selections center if not all on pure horror, then on the ethos of dread telling you things are not right.`\
+https://www.nytimes.com/2026/10/17/movies/five-free-movies-to-stream-now.html
+
 **Indian Gen Z Protest Leader Is Released on Bail After Arrest**\
 `Abhijeet Dipke, the founder of the Cockroach Janta Party, was detained on his way to a protest called to demand the resignation of India’s top election official.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-abhijeet-dipke-cockroach-janta-party.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/17/us/politics/pennsylvania-midterm-elections-ho
 **It’s Time to Shop Medicare, and This Year, It’s Extra Important**\
 `Be sure to read your mail this fall — big changes to prescription drug plans and Medicare Advantage provider networks are coming, and could cost you more.`\
 https://www.nytimes.com/2026/10/17/business/medicare-coverage-retirement.html
-
-**Blurring the Line Between 3 Dimensions and 2**\
-`Torkwase Dyson’s latest paintings have a celestial depth  that’s often reserved for sculpture.`\
-https://www.nytimes.com/2026/10/17/arts/design/torkwase-dyson.html
-
-**I’m Looking to Downsize. Is Prefab Housing the Way to Go?**\
-`The construction timeline for these homes, built in a factory and then delivered to a site, is often shorter, but that doesn’t mean it’s necessarily cheaper.`\
-https://www.nytimes.com/2026/10/17/realestate/im-looking-to-downsize-is-prefab-housing-the-way-to-go.html
 
