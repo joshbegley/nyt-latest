@@ -1,3 +1,7 @@
+**Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
+`The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
+https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
+
 **This Is One of the Saddest Facts About the Cornell Rape Case**\
 `Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
 https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html

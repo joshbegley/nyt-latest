@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rod
 https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
 
 **Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
-`To celebrate, Boy Throb made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
+`The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
 https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
 
 **Trump Revives 2020 Election Conspiracies, With Help From the Federal Government**\
