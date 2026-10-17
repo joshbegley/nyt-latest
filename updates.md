@@ -1,3 +1,11 @@
+**David Sabatini, an M.I.T. Scientist, Wins $6 Million in Sexual Harassment Defamation Suit**\
+`David Sabatini, once a prominent scientist at M.I.T., sued a former colleague who accused him of inappropriate behavior. A jury found in his favor.`\
+https://www.nytimes.com/2026/10/16/us/mit-scientist-sexual-harassment-defamation-lawsuit-david-sabatini.html
+
+**Live Updates: Teacher Battled Oregon School Shooter, Slowing Deadly Attack**\
+`The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
+https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
+
 **California Says D.O.J. System for Identifying Noncitizens Is Sloppy**\
 `State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
 https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
