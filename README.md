@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/17/opinion/trump-photo-zacharia-harp-doug-mills.
 `A Russified education did not forbid access to my own culture, it just quietly weakened my instinct to reach for it.`\
 https://www.nytimes.com/2026/10/17/opinion/ukraine-russian-culture.html
 
-**End Gerrymandering**\
+**How to End Gerrymandering**\
 `A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
 https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
 
