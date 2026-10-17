@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/10/17/opinion/elon-musk-republican-politics.html
 https://www.nytimes.com/video/podcasts/the-daily/100000011219640/israeli-settlers-attack-palestinian-olive-farmers-in-the-west-bank.html
 
 **Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
-`New clashes were reported as the Houthis put more pressure on Taiz, a strategically located city connecting the government-held south of the country and the Red Sea.`\
+`New clashes were reported as the Houthis put more pressure on Taiz, a city connecting the government-held south of the country and the Red Sea.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
 
 **No Onions? No Problem.**\

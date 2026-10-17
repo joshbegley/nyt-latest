@@ -1,3 +1,7 @@
+**Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
+`New clashes were reported as the Houthis put more pressure on Taiz, a city connecting the government-held south of the country and the Red Sea.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
+
 **Our Reporter Witnesses Attacks on Palestinian Farmers**\
 `The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers. “The Call” is a new video series that reaches on-the-ground New York Times reporters and newsmakers in the middle of the biggest stories of the day.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011219777/our-reporter-witnesses-attacks-on-palestinian-farmers.html
