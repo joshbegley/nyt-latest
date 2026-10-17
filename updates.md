@@ -1,3 +1,11 @@
+**Trump Revives 2020 Election Conspiracy Theories as Midterms Loom**\
+`Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
+https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
+
+**How Pennsylvania Explains the Forces Shaping the Midterms**\
+`Four battleground congressional districts in the state reveal fault lines that are echoing nationwide.`\
+https://www.nytimes.com/2026/10/17/us/politics/pennsylvania-midterm-elections-house-races.html
+
 **Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
 `New clashes were reported as the Houthis put more pressure on Taiz, a strategically located city connecting the government-held south of the country and the Red Sea.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html

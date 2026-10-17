@@ -1,3 +1,7 @@
+**Israeli Settlers Attack Palestinian Olive Farmers in the West Bank**\
+`The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011219640/israeli-settlers-attack-palestinian-olive-farmers-in-the-west-bank.html
+
 **Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
 `New clashes were reported as the Houthis put more pressure on Taiz, a strategically located city connecting the government-held south of the country and the Red Sea.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
 
-**‘I Am Much Better, Thank You’: Pope Leo Leaves Hospital, Days After Lung Surgery**\
+**Pope Leo Leaves Hospital, Days After Lung Cancer Surgery**\
 `Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/elections/hegseth-singled-out-in-democrats
 **What Pennsylvania Reveals About the Midterms**\
 `In Pennsylvania, four congressional districts exemplify the types of seats that Democrats are aiming to flip. Our national political correspondent Shane Goldmacher explains.`\
 https://www.nytimes.com/video/us/politics/100000011200802/what-pennsylvania-reveals-about-the-midterms.html
-
-**Weak Links Start to Show in A.I. Borrowing**\
-`Debt trouble at CoreWeave, Oracle and SoftBank raises questions about whether there is broader trouble with the data center build-out.`\
-https://www.nytimes.com/2026/10/17/business/ai-debt-coreweave-oracle-softbank.html
 

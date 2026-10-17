@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
 `The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
 https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
 
-**Trump Revives 2020 Election Conspiracies, With Help From the Federal Government**\
+**Trump Revives 2020 Election Conspiracy Theories as Midterms Loom**\
 `Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
 https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
 
@@ -168,7 +168,7 @@ https://www.nytimes.com/2026/10/17/arts/dance/nyc-ballet-balanchine-suzanne-farr
 
 **How Pennsylvania Explains the Forces Shaping the Midterms**\
 `Four battleground congressional districts in the state reveal fault lines that are echoing nationwide.`\
-https://www.nytimes.com/2026/10/17/us/politics/how-pennsylvania-explains-the-forces-shaping-the-midterms.html
+https://www.nytimes.com/2026/10/17/us/politics/pennsylvania-midterm-elections-house-races.html
 
 **It’s Time to Shop Medicare, and This Year, It’s Extra Important**\
 `Be sure to read your mail this fall — big changes to prescription drug plans and Medicare Advantage provider networks are coming, and could cost you more.`\
