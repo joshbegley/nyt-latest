@@ -1,3 +1,7 @@
+**In Midterm Campaign’s Final Stretch, Trump Can’t Stop Praising Men’s Bodies**\
+`As he stumps for midterm candidates, the president has been especially eager to talk about the physical appearance of some men.`\
+https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
+
 **2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
 `A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. Multiple other people were injured and the driver was in custody.`\
 https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/world/canada/alberta-referendum-separation-sm
 **NYT Strands Hints for October 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
-
-**Today’s Wordle Hints for October 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
-https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
 
