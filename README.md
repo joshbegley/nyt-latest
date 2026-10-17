@@ -1,3 +1,7 @@
+**50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
+`The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
+https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
+
 **Lana Del Rey’s Country Duet and 9 More Songs We're Talking About**\
 `The singer joins Zach Bryan’s new single, Olivia Rodrigo teams up with Chappell Roan, Fireboy DML vows longevity and more.`\
 https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rodrigo-new-songs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.
 **A Wayward Shark Becomes a Celebrity in South Korea**\
 `Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
 https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
-
-**Justice Department Seeks to Disqualify Judge Overseeing Golf Course Lawsuit**\
-`Escalating a standoff with Judge Ana C. Reyes, the Justice Department demanded that she recuse herself from a case in which she had ordered several Trump officials to testify.`\
-https://www.nytimes.com/2026/10/16/us/politics/justice-department-disqualify-judge-golf-lawsuit.html
 
