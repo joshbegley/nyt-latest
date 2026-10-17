@@ -1,3 +1,11 @@
+**Egypt’s President Says He Will Leave Office in 2030**\
+`President Abdel Fattah el-Sisi, who has so far ruled for over a dozen years, pledged to respect constitutional limits while also seeking parliamentary approval to help defend Saudi Arabia.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term-limits-2030.html
+
+**U.S. Floats Lifeline to Russia: Allowing More Gas Sales to Europe**\
+`The Trump administration is pitching the idea as part of a peace deal with Ukraine, but Europe is wary and critics say Russia would be strengthened.`\
+https://www.nytimes.com/2026/10/17/us/politics/russia-gas-trump.html
+
 **Craig Symonds, Prizewinning Military Historian, Is Dead**\
 `A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
 https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011211133/50-years-in-whats-the-poi
 **Who Is Billy Evans, Elizabeth Holmes’s Fiancé and the Antagonist of ‘You Can See Everything’?**\
 `The romantic partner of the disgraced Theranos founder emerges as a key figure in “You Can See Everything.” Here’s what we know about him.`\
 https://www.nytimes.com/2026/10/17/movies/billy-evans-elizabeth-holmes-nathan-fielder.html
-
-**For a Mere $2 Million, You Could Own Three Books That Unlocked the Universe**\
-`At Sotheby’s, a feast of rare science books includes volumes from Copernicus, Galileo and Newton that together revolutionized human understanding of the cosmos.`\
-https://www.nytimes.com/2026/10/17/science/sothebys-science-books-auction.html
-
-**Can Cereal Be Healthy? Big Companies Are Trying.**\
-`As more Americans turn away from the snap, crackle and sugar, the industry is trying to capitalize on our current obsession with wellness.`\
-https://www.nytimes.com/2026/10/17/dining/breakfast-cereal-healthy.html
 

@@ -1,3 +1,11 @@
+**Egypt’s President Says He Will Leave Office in 2030**\
+`President Abdel Fattah el-Sisi, who has so far ruled for over a dozen years, pledged to respect constitutional limits while also seeking parliamentary approval to help defend Saudi Arabia.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term-limits-2030.html
+
+**U.S. Floats Lifeline to Russia: Allowing More Gas Sales to Europe**\
+`The Trump administration is pitching the idea as part of a peace deal with Ukraine, but Europe is wary and critics say Russia would be strengthened.`\
+https://www.nytimes.com/2026/10/17/us/politics/russia-gas-trump.html
+
 **A Great Moral Blind Spot of Our Age**\
 `An undercover video offers a grim tableau of where our meat comes from.`\
 https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
