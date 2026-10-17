@@ -1,3 +1,7 @@
+**A Wayward Shark Becomes a Celebrity in South Korea**\
+`Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
+https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
+
 **Justice Department Seeks to Disqualify Judge Overseeing Golf Course Lawsuit**\
 `Escalating a standoff with Judge Ana C. Reyes, the Justice Department demanded that she recuse herself from a case in which she had ordered several Trump officials to testify.`\
 https://www.nytimes.com/2026/10/16/us/politics/justice-department-disqualify-judge-golf-lawsuit.html
