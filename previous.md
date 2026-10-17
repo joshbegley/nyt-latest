@@ -1,3 +1,7 @@
+**Steve Buscemi’s Greats**\
+`The actor Steve Buscemi discusses everything from the greatest concert he’s ever seen to his favorite sweet treat.`\
+https://www.nytimes.com/video/t-magazine/100000011209918/steve-buscemis-greats.html
+
 **Why My Grandparents Still Loved the Country That Rejected Them**\
 `A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
 https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/style/wedding-trailers-social-media.html
 **Book Review: ‘Redemption,’ by Lawrence Wright**\
 `In “Redemption,” the Pulitzer Prize winner Lawrence Wright asks whether people sentenced to die in Texas should have a second chance.`\
 https://www.nytimes.com/2026/10/17/books/review/redemption-lawrence-wright.html
-
-**She Signed Her Painting in 1548. Nearly 500 Years Later, It Finally Goes on Show.**\
-`Long overshadowed by her father and overlooked by historians, the 16th-century pioneer Catharina van Hemessen is now getting her due.`\
-https://www.nytimes.com/2026/10/17/arts/design/catharina-van-hemessen.html
 
