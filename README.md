@@ -1,3 +1,7 @@
+**17 Dead, Dozens Injured After Stampede at Indian Religious Event**\
+`It was not clear what had caused the stampede, which are relatively common in India. Police detained the event’s organizers and the on-duty police officers.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
+
 **After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
 `Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
 https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
 **50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
 `The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
 https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
-
-**Lana Del Rey’s Country Duet and 9 More Songs We're Talking About**\
-`The singer joins Zach Bryan’s new single, Olivia Rodrigo teams up with Chappell Roan, Fireboy DML vows longevity and more.`\
-https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rodrigo-new-songs.html
 

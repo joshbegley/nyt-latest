@@ -1,3 +1,7 @@
+**Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
+`Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflected how he treated women. Mr. Jackson defended his comment.`\
+https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
+
 **After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
 `Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
 https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html

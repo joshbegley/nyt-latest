@@ -115,7 +115,7 @@ https://www.nytimes.com/2026/10/17/dining/no-onions-no-problem.html
 https://www.nytimes.com/2026/10/17/health/helen-branswell-dead.html
 
 **Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
-`Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflects how he treats women. Mr. Jackson has defended his comment, and his campaign said Ms. Collins had run a campaign based on personal attacks.`\
+`Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflected how he treated women. Mr. Jackson defended his comment.`\
 https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
 
 **Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
