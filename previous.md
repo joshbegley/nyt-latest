@@ -1,3 +1,7 @@
+**Guam Braces for an ‘Extremely Dangerous’ Super Typhoon Champi**\
+`The storm rapidly intensified as it barreled toward Guam on Saturday, generating wind gusts of up to 175 miles per hour.`\
+https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
+
 **Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
 `Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
 https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementar
 https://www.nytimes.com/2026/10/17/us/paxton-bus-tour-texas-republicans.html
 
 **NYC Subway Shooting in Midtown Leaves Man Dead**\
-`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square.`\
+`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square. The Police Department said there have been no arrests.`\
 https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
 
 **Trump Offers Putin Economic Relief in Hopes That Russia Will Return the Favor**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/music/zach-bryan-lana-del-rey-olivia-rod
 **Corrections: Oct. 17, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 17, 2026.`\
 https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
-
-**Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
-`The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
-https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
 

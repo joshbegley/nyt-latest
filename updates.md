@@ -1,3 +1,11 @@
+**Guam Braces for an ‘Extremely Dangerous’ Super Typhoon Champi**\
+`The storm rapidly intensified as it barreled toward Guam on Saturday, generating wind gusts of up to 175 miles per hour.`\
+https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
+
+**NYC Subway Shooting in Midtown Leaves Man Dead**\
+`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square. The Police Department said there have been no arrests.`\
+https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
+
 **Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
 `Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
 https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
