@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
 
-**Vatican Says Pope Leo Will Leave Hospital on Saturday, Days After Lung Surgery**\
+**Pope Leo Leaves Hospital, Days After Lung Surgery**\
 `Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
 
