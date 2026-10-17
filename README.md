@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/10/16/briefing/oregon-shooting-white-house-press-se
 `The Off Broadway shows “A Ghost in Your Ear” and “The 4th Witch” use aural and visual tricks to give you the seasonal spooks.`\
 https://www.nytimes.com/2026/10/16/theater/ghost-in-your-ear-4th-witch.html
 
-**Appeals Court Questions Justice Dept. Claim that Trump Owns White House Records**\
+**Appeals Court Questions Justice Dept. Claim That Trump Owns White House Records**\
 `A three-judge panel appeared unconvinced by claims that a federal law requiring the president to preserve and hand over his presidential papers was unconstitutional.`\
 https://www.nytimes.com/2026/10/16/us/politics/appeals-court-trump-presidential-records.html
 
