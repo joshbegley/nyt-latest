@@ -1,3 +1,7 @@
+**How to End Gerrymandering**\
+`A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
+https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
+
 **Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
 `Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
 https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
