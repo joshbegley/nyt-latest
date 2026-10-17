@@ -1,3 +1,7 @@
+**Craig Symonds, Prizewinning Military Historian, Is Dead**\
+`A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
+https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
+
 **Peter Nagy, Visionary Artist Turned Art Dealer, Dies at 66**\
 `After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
 https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/science/sothebys-science-books-auction.html
 **Can Cereal Be Healthy? Big Companies Are Trying.**\
 `As more Americans turn away from the snap, crackle and sugar, the industry is trying to capitalize on our current obsession with wellness.`\
 https://www.nytimes.com/2026/10/17/dining/breakfast-cereal-healthy.html
-
-**How Drones Created a Kill Zone in the Ukraine War**\
-`The front line in Ukraine has blurred into a miles-wide wasteland where drones fill the sky and neither side holds firm control.`\
-https://www.nytimes.com/interactive/2026/10/17/world/europe/ukraine-russia-war-drones-kill-zone.html
 
