@@ -2,7 +2,7 @@
 `One data scientist who tracks gun violence in schools says he is encouraged that people have become more vigilant about spotting warning signs.`\
 https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
 
-**California Says Government System for Identifying Noncitizens Is Sloppy**\
+**California Says D.O.J. System for Identifying Noncitizens Is Sloppy**\
 `State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
 https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
 
