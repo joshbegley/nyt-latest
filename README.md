@@ -1,3 +1,7 @@
+**School Shootings Have Dropped Lately, but One Number Is on the Rise**\
+`“Near-misses” are increasing, one data scientist says, and gun violence at schools remains far above prepandemic levels.`\
+https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
+
 **California Says Government System for Identifying Noncitizens Is Sloppy**\
 `State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
 https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/16/us/immigration-ice-agents-hurricane-repairs.h
 **16 People Rescued in Pacific Ocean Off Mexico, U.S. Coast Guard Says**\
 `The agency said a major rescue operation was underway near the coast of Baja California after it received reports of 27 people in the water.`\
 https://www.nytimes.com/2026/10/16/world/americas/baja-california-mexico-rescue-coast-guard.html
-
-**Why No One Can Look Away From Elizabeth Holmes**\
-`Full Episode #217`\
-https://www.nytimes.com/video/podcasts/100000011217926/why-no-one-can-look-away-from-elizabeth-holmes.html
 

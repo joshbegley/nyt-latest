@@ -1,3 +1,7 @@
+**California Says Government System for Identifying Noncitizens Is Sloppy**\
+`State and local officials said that they received thousands of names lacking key identifying information, and that many of the names were paired with addresses over which they had no jurisdiction.`\
+https://www.nytimes.com/2026/10/16/us/elections/california-election-voters-trump-administration.html
+
 **Why the Anthropic and OpenAI I.P.O.s Are Unusual**\
 `Anthropic and OpenAI are both preparing to go public with valuations in the trillions. But are these companies really worth that much? On “The Ezra Klein Show,” the venture capitalist Paul Kedrosky explains why he’s skeptical.`\
 https://www.nytimes.com/video/opinion/100000011216277/why-the-anthropic-and-openai-ipos-are-unusual.html
