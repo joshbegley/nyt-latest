@@ -1,3 +1,7 @@
+**Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
+`Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
+https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
+
 **Mexican Judge Sentences 3 Men to 159 Years Each in Surfer Killings**\
 `The men were charged in the murders of two Australians and an American who were on a camping and surf vacation in Mexico.`\
 https://www.nytimes.com/2026/10/17/world/americas/mexican-judge-sentences-3-men-to-159-years-each-in-surfer-killings.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/pageoneplus/corrections-oct-17-2026.html
 **Boy Throb, a Very Online Boy Band, Holds a Concert to Celebrate a Member’s Visa**\
 `The extremely online group made its first live appearance as a foursome at the American Dream Mall in New Jersey.`\
 https://www.nytimes.com/2026/10/17/us/boy-throb-band-tiktok-performance.html
-
-**Trump Revives 2020 Election Conspiracy Theories as Midterms Loom**\
-`Voting rights advocates fear the Trump administration may use the federal government to cast doubt on the election, discourage participation or try to delegitimize results.`\
-https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump.html
 

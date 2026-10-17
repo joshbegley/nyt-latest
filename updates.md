@@ -1,3 +1,7 @@
+**Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
+`Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
+https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
+
 **Mexican Judge Sentences 3 Men to 159 Years Each in Surfer Killings**\
 `The men were charged in the murders of two Australians and an American who were on a camping and surf vacation in Mexico.`\
 https://www.nytimes.com/2026/10/17/world/americas/mexican-judge-sentences-3-men-to-159-years-each-in-surfer-killings.html
