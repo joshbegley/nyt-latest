@@ -1,5 +1,5 @@
 **17 Dead, Dozens Injured After Stampede at Indian Religious Event**\
-`It was not clear what had caused the stampede, which are relatively common in India. Police detained the event’s organizers and the on-duty police officers.`\
+`Such deadly crowd events are relatively common in India, and it was unclear what caused this one. Authorities detained the event’s organizer and others involved.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
 
 **After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
