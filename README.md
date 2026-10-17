@@ -1,3 +1,11 @@
+**Cliff Hagan, Master of the Hook Shot, Dies at 94**\
+`Inducted into the Basketball Hall of Fame in 1978, he led Kentucky to a national title in 1951 and the St. Louis Hawks to a league championship in 1958.`\
+https://www.nytimes.com/2026/10/17/sports/cliff-hagan-dead.html
+
+**Kenya Confirms Four New Ebola Cases**\
+`Seven Ebola infections have now been confirmed in Kenya, which before this month had never recorded cases of the deadly virus.`\
+https://www.nytimes.com/2026/10/17/world/africa/kenya-ebola.html
+
 **New Round of ‘No Kings’ Rallies Focuses on Getting Out the Vote**\
 `With midterm elections approaching, organizers of the demonstrations known for their anti-Trump sentiment are urging people to vote early.`\
 https://www.nytimes.com/2026/10/17/us/no-kings-early-voting-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/17/us/politics/election-fraud-conspiracies-trump
 **The Reporter Who Exposed Elizabeth Holmes on Nathan Fielder’s Documentary**\
 `Ms. Holmes handed the makers of “You Can See Everything” — and the rest of the world — a microscope with which to observe and dissect her lies.`\
 https://www.nytimes.com/2026/10/17/business/theranos-fraud-elizabeth-holmes-documentary.html
-
-**Corporate Tax Revenue Falls Even as Profits Soar Under Trump**\
-`The annual decline was about $70 billion. Companies are writing off billions in A.I. investments, taking advantage of tax cuts that President Trump signed into law.`\
-https://www.nytimes.com/2026/10/17/business/trump-corporate-tax-revenue.html
-
-**A Mona Lisa Etched Into Oklahoma’s Skies by a Pilot and His Plane**\
-`Benjamin McDaniel, known as the Pilot Picasso, has drawn some of the most elaborate designs in the sky: a world map, a “Lord of The Rings” homage and now, a da Vinci.`\
-https://www.nytimes.com/2026/10/17/arts/design/mona-lisa-flight-path-pilot.html
 
