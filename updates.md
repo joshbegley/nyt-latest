@@ -1,3 +1,7 @@
+**Teacher Wrestled Shotgun Away From Oregon School Shooter**\
+`A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
+https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
+
 **A Wayward Shark Becomes a Celebrity in South Korea**\
 `Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
 https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html

@@ -1,3 +1,7 @@
+**Teacher Wrestled Shotgun Away From Oregon School Shooter**\
+`A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
+https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
+
 **A Wayward Shark Becomes a Celebrity in South Korea**\
 `Stranded in a port waterway for weeks, the 10-foot fish has attracted more than a million spectators, while officials try to guide her back to open sea.`\
 https://www.nytimes.com/2026/10/16/world/asia/south-korea-busan-shark.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/16/world/middleeast/israeli-settlers-washington-
 **The Local: Ilhan Omar and an Endless Race**\
 `Omar turns raid into cash, and an ultramarathoner has his biggest competition yet.`\
 https://www.nytimes.com/2026/10/16/briefing/mark-dowdle-ilhan-omar.html
-
-**Pope Asks Putin for a Cease-Fire for a Ukrainian City Under Siege**\
-`Recovering from lung cancer surgery, Pope Leo XIV spoke with Vladimir V. Putin to make a plea for Oleshky, where mines and drones have trapped some 2,000 people who are at risk of starvation.`\
-https://www.nytimes.com/2026/10/16/world/europe/pope-leo-putin-ukraine-cease-fire.html
 
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
