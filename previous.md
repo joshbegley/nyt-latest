@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
 `Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
 https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
 
-**Guam Braces for an ‘Extremely Dangerous’ Super Typhoon Champi**\
-`The storm rapidly intensified as it barreled toward Guam on Saturday, generating wind gusts of up to 175 miles per hour.`\
+**Super Typhoon Champi Passes Within 10 Miles of Guam**\
+`The storm rapidly intensified as it barreled toward Guam on Saturday, coming within 10 miles of the island.`\
 https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
 
 **Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\

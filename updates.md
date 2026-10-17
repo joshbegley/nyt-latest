@@ -1,3 +1,7 @@
+**Super Typhoon Champi Passes Within 10 Miles of Guam**\
+`The storm rapidly intensified as it barreled toward Guam on Saturday, coming within 10 miles of the island.`\
+https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
+
 **17 Dead, Dozens Injured After Stampede at Indian Religious Event**\
 `Such deadly crowd events are relatively common in India, and it was unclear what caused this one. Authorities detained the event’s organizer and others involved.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
