@@ -1,3 +1,15 @@
+**How the Billionaire Owner of Two Sports Teams Spends a Day Chasing Wins**\
+`Laurie M. Tisch, an owner of the New York Giants and Gotham F.C., spends her time on art, family and both kinds of football.`\
+https://www.nytimes.com/interactive/2026/10/17/nyregion/routine-laurie-tisch.html
+
+**He Was a Top Voice on Palestinian Liberation. Filmgoers Are Listening.**\
+`A new documentary on Edward Said, the Palestinian American literary critic and activist who taught for decades at Columbia, brought New Yorkers together in a fraught political moment.`\
+https://www.nytimes.com/2026/10/17/nyregion/edward-said-documentary-new-york-film-festival.html
+
+**NYT Spelling Bee Answers for October 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/17/crosswords/spelling-bee-forum.html
+
 **Uncertainty Over Pope’s Health Fuels Familiar Debate Over Vatican’s Candor**\
 `By announcing his lung condition himself, Leo has been more forthcoming than many popes. But mysteries remain, prompting scrutiny of papal statements for hidden meaning.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-vatican-transparency-cancer.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/10/16/style/paris-fashion-week.html
 **N.I.H. Hospital Board Rebukes Kennedy Over New Vaccine Injury Clinic**\
 `The board that oversees the N.I.H. Clinical Center voted unanimously to support a statement accusing Health Secretary Robert F. Kennedy Jr. of undermining trust in the hospital’s work.`\
 https://www.nytimes.com/2026/10/16/us/politics/kennedy-nih-hospital-board-rebuke.html
-
-**Zelensky’s Silent Answer To Trump Scapegoat Question**\
-`Ukraine’s President, Volodymyr Zelensky, was asked on Friday if President Trump was using him as a scapegoat for various domestic and foreign issues Trump faces. He answered with a silent smile.`\
-https://www.nytimes.com/video/world/europe/100000011218459/zelensky-trump-scapegoat-question.html
-
-**Israeli Settlers Attack Palestinians and Washington Post Photographer**\
-`Masked Israeli settlers attacked Palestinians and beat the American journalist Heidi Levine as they stormed an olive grove during the annual harvest in the Israeli-occupied West Bank`\
-https://www.nytimes.com/video/world/middleeast/100000011218215/settlers-attack-journalist-west-bank-israel.html
-
-**Man Who Confronted Oregon School Shooter Is a Parent at Silver Rail Elementary**\
-`The father of two girls at Silver Rail Elementary School, who confronted the shooter, was grateful for the support of the community and has asked for privacy.`\
-https://www.nytimes.com/2026/10/16/us/oregon-shooting-bystander-kaylub-gianmaco.html
 
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
