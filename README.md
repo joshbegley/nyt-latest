@@ -1,3 +1,7 @@
+**U.S. Floats Lifeline to Russia: Allowing More Gas Sales to Europe**\
+`The Trump administration is pitching the idea as part of a peace deal with Ukraine, but Europe is wary and critics say Russia would be strengthened.`\
+https://www.nytimes.com/2026/10/17/us/politics/russia-gas-trump.html
+
 **Craig Symonds, Prizewinning Military Historian, Is Dead**\
 `A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
 https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/movies/billy-evans-elizabeth-holmes-nathan-fi
 **For a Mere $2 Million, You Could Own Three Books That Unlocked the Universe**\
 `At Sotheby’s, a feast of rare science books includes volumes from Copernicus, Galileo and Newton that together revolutionized human understanding of the cosmos.`\
 https://www.nytimes.com/2026/10/17/science/sothebys-science-books-auction.html
-
-**Can Cereal Be Healthy? Big Companies Are Trying.**\
-`As more Americans turn away from the snap, crackle and sugar, the industry is trying to capitalize on our current obsession with wellness.`\
-https://www.nytimes.com/2026/10/17/dining/breakfast-cereal-healthy.html
 

@@ -1,3 +1,7 @@
+**A Great Moral Blind Spot of Our Age**\
+`An undercover video offers a grim tableau of where our meat comes from.`\
+https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
+
 **Craig Symonds, Prizewinning Military Historian, Is Dead**\
 `A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
 https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
