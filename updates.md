@@ -1,3 +1,23 @@
+**What Do I Owe a Friend Whose Mental Illness Pulls Me Into Imagined Emergencies?**\
+`I don’t know how to establish boundaries with someone who may not be experiencing reality as I am.`\
+https://www.nytimes.com/2026/10/17/magazine/friend-mental-illness-emergency-ethics.html
+
+**NYT Connections Answers for October 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
+https://www.nytimes.com/2026/10/17/crosswords/connections-companion-1225.html
+
+**A Calgary Crowd Rallies for Canada as Alberta’s Vote on Succession Nears**\
+`Prime Minister Mark Carney was among the speakers calling for a united Canada and warning about the dangers of division.`\
+https://www.nytimes.com/2026/10/17/world/canada/alberta-referendum-separation-smith.html
+
+**NYT Strands Hints for October 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
+https://www.nytimes.com/2026/10/17/crosswords/strands-sidekick-959.html
+
+**Today’s Wordle Hints for October 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
+https://www.nytimes.com/2026/10/17/crosswords/wordle-review-1947.html
+
 **Vatican Says Pope Leo Will Leave Hospital on Saturday, Days After Lung Surgery**\
 `Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
 https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
