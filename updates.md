@@ -1,3 +1,19 @@
+**How Do You Talk to an Elementary Schooler About a Shooting?**\
+`Parents in Bend, Ore., are struggling to help their children cope after a teenage shooter killed three students and a teacher at Silver Rail Elementary School on Thursday.`\
+https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementary-schooler-about-a-shooting.html
+
+**Paxton Hits the Road, Looking to Rally Texas Republicans**\
+`Ken Paxton’s bus tour of Texas comes as polls have shown the race for Senate is increasingly close. His rival, James Talarico, is scheduled to kick off a similar tour on Sunday.`\
+https://www.nytimes.com/2026/10/17/us/paxton-bus-tour-texas-republicans.html
+
+**NYC Subway Shooting in Midtown Leaves Man Dead**\
+`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square.`\
+https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
+
+**Trump Offers Putin Economic Relief in Hopes That Russia Will Return the Favor**\
+`The Trump administration is ignoring the will of Congress and waiving new Russia sanctions amid fears that high energy prices will cost Republicans in next month’s elections.`\
+https://www.nytimes.com/2026/10/17/business/trump-russia-sanctions-congress.html
+
 **Florida Man Killed by Alligator While Fishing Near Lake Apopka in Winter Garden**\
 `The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
 https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html

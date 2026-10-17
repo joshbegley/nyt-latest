@@ -1,3 +1,7 @@
+**New Round of ‘No Kings’ Rallies Focuses on Getting Out the Vote**\
+`With midterm elections approaching, organizers of the demonstrations known for their anti-Trump sentiment are urging people to vote early.`\
+https://www.nytimes.com/2026/10/17/us/no-kings-early-voting-midterms.html
+
 **How Do You Talk to an Elementary Schooler About a Shooting?**\
 `Parents in Bend, Ore., are struggling to help their children cope after a teenage shooter killed three students and a teacher at Silver Rail Elementary School on Thursday.`\
 https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementary-schooler-about-a-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/business/trump-corporate-tax-revenue.html
 **A Mona Lisa Etched Into Oklahoma’s Skies by a Pilot and His Plane**\
 `Benjamin McDaniel, known as the Pilot Picasso, has drawn some of the most elaborate designs in the sky: a world map, a “Lord of The Rings” homage and now, a da Vinci.`\
 https://www.nytimes.com/2026/10/17/arts/design/mona-lisa-flight-path-pilot.html
-
-**In Netflix’s ‘East of Eden,’ Florence Pugh’s Cathy Ames Is Recognizably Human**\
-`Zoe Kazan and Florence Pugh’s nuanced take on the Netflix show’s villain has rankled Steinbeck purists by making her a human being.`\
-https://www.nytimes.com/2026/10/17/arts/television/east-of-eden-florence-pugh-cathy.html
 
