@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/10/16/us/politics/congressional-staff-letters-suspi
 `August Miller’s refined Saturday puzzle can handle a tough crowd.`\
 https://www.nytimes.com/2026/10/16/crosswords/daily-puzzle-2026-10-17.html
 
-**Trump Signs Order Exempting Russia From Sanctions Legislation**\
-`The sanctions were part of legislation that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
+**Trump Signs Order Exempting Russia From Sanctions Law**\
+`The sanctions were part of a measure that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
 https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
 
 **Cornell Board Presents United Front Amid Crisis Over Sexual Assault Allegations**\

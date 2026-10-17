@@ -1,3 +1,7 @@
+**Trump Signs Order Exempting Russia From Sanctions Law**\
+`The sanctions were part of a measure that was named after Senator Lindsey Graham, the South Carolina Republican who died in July.`\
+https://www.nytimes.com/2026/10/16/us/politics/trump-order-russia-sanctions.html
+
 **Teacher Wrestled Shotgun Away From Oregon School Shooter**\
 `A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
 https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
