@@ -1,3 +1,7 @@
+**Peter Nagy, Visionary Artist Turned Art Dealer, Dies at 66**\
+`After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
+https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
+
 **Dispute Between Trump Allies Centers on Payment From Congo**\
 `The White House inquiry is focused on diverging accounts from Richard Grenell and Alina Habba Mildon about a $17 million transfer from a government account in the African country to a Texas defense firm.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-allies-grenell-mildon-congo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/dining/breakfast-cereal-healthy.html
 **How Drones Created a Kill Zone in the Ukraine War**\
 `The front line in Ukraine has blurred into a miles-wide wasteland where drones fill the sky and neither side holds firm control.`\
 https://www.nytimes.com/interactive/2026/10/17/world/europe/ukraine-russia-war-drones-kill-zone.html
-
-**Inside the NYC Ballet’s Rare Revival of Balanchine’s ‘Pithoprakta’**\
-`In “Pithoprakta,” a rarely seen work by George Balanchine at City Ballet, Suzanne Farrell brings a tense and eerie dance back to life. It’s a laboratory for new movement.`\
-https://www.nytimes.com/2026/10/17/arts/dance/nyc-ballet-balanchine-suzanne-farrell-pithoprakta.html
 
