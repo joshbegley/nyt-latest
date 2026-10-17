@@ -1,3 +1,7 @@
+**Paper Towns**\
+`We’re all temporary citizens of makeshift communities created by happenstance.`\
+https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
+
 **50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
 `The longtime friends and creative partners on what U2 still means — and what would make them call it quits.`\
 https://www.nytimes.com/2026/10/17/magazine/bono-and-the-edge-interview.html
