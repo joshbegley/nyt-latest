@@ -1,3 +1,15 @@
+**Cliff Hagan, Master of the Hook Shot, Dies at 94**\
+`Inducted into the Basketball Hall of Fame in 1978, he led Kentucky to a national title in 1951 and the St. Louis Hawks to a league championship in 1958.`\
+https://www.nytimes.com/2026/10/17/sports/cliff-hagan-dead.html
+
+**Kenya Confirms Four New Ebola Cases**\
+`Seven Ebola infections have now been confirmed in Kenya, which before this month had never recorded cases of the deadly virus.`\
+https://www.nytimes.com/2026/10/17/world/africa/kenya-ebola.html
+
+**Israeli Settlers Attack Palestinians and European Officials in West Bank**\
+`Extremists assaulted residents and broke a European diplomatic vehicle’s window, witnesses said, as settler violence surges in the territory during the olive harvest.`\
+https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html
+
 **New Round of ‘No Kings’ Rallies Focuses on Getting Out the Vote**\
 `With midterm elections approaching, organizers of the demonstrations known for their anti-Trump sentiment are urging people to vote early.`\
 https://www.nytimes.com/2026/10/17/us/no-kings-early-voting-midterms.html
