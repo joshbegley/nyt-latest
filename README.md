@@ -1,3 +1,7 @@
+**Unrest Mars Day of Protest in France, as Student Movement Turns National**\
+`Riots broke out in several French cities alongside peaceful marches of tens of thousands of people demonstrating against rising living costs and poor school conditions.`\
+https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html
+
 **Egypt’s President Says He Will Leave Office in 2030**\
 `President Abdel Fattah el-Sisi, who has so far ruled for over a dozen years, pledged to respect constitutional limits while also seeking parliamentary approval to help defend Saudi Arabia.`\
 https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term-limits-2030.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011211139/the-edge-and-bono-on-thei
 **50 Years In, What’s the Point of U2? Bono and the Edge Have Answers.**\
 `Bono and the Edge speak with David Marchese about their long working relationship, friendship and what their band U2 still means — both to them and to the world.`\
 https://www.nytimes.com/video/podcasts/100000011211133/50-years-in-whats-the-point-of-u2-bono-and-the-edge-have-answers.html
-
-**Who Is Billy Evans, Elizabeth Holmes’s Fiancé and the Antagonist of ‘You Can See Everything’?**\
-`The romantic partner of the disgraced Theranos founder emerges as a key figure in “You Can See Everything.” Here’s what we know about him.`\
-https://www.nytimes.com/2026/10/17/movies/billy-evans-elizabeth-holmes-nathan-fielder.html
 
