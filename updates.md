@@ -1,3 +1,7 @@
+**Justice Department Seeks to Disqualify Judge Overseeing Golf Course Lawsuit**\
+`Escalating a standoff with Judge Ana C. Reyes, the Justice Department demanded that she recuse herself from a case in which she had ordered several Trump officials to testify.`\
+https://www.nytimes.com/2026/10/16/us/politics/justice-department-disqualify-judge-golf-lawsuit.html
+
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
 https://www.nytimes.com/live/2026/10/16/us/bend-oregon-shooting-school
