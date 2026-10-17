@@ -1,3 +1,7 @@
+**Pope Discharged From Hospital After Lung Surgery**\
+`Pope Leo XIV was discharged on Saturday from a hospital in Rome after surgery, roughly three days earlier than the Vatican had initially suggested he would leave.`\
+https://www.nytimes.com/video/world/europe/100000011220460/pope-leo-discharged-hospital.html
+
 **What to Know About the Violent Protests in Albania**\
 `Student demonstrations over education converged with broader protests against rising living costs and a luxury development linked to Jared Kushner, President Trump’s son-in-law.`\
 https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/dance/nyc-ballet-balanchine-suzanne-farr
 **How Pennsylvania Explains the Forces Shaping the Midterms**\
 `Four battleground congressional districts in the state reveal fault lines that are echoing nationwide.`\
 https://www.nytimes.com/2026/10/17/us/politics/pennsylvania-midterm-elections-house-races.html
-
-**It’s Time to Shop Medicare, and This Year, It’s Extra Important**\
-`Be sure to read your mail this fall — big changes to prescription drug plans and Medicare Advantage provider networks are coming, and could cost you more.`\
-https://www.nytimes.com/2026/10/17/business/medicare-coverage-retirement.html
 

@@ -1,3 +1,11 @@
+**What to Know About the Violent Protests in Albania**\
+`Student demonstrations over education converged with broader protests against rising living costs and a luxury development linked to Jared Kushner, President Trump’s son-in-law.`\
+https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html
+
+**Five Free Movies to Stream Now**\
+`As we approach Halloween, this month’s selections center if not all on pure horror, then on the ethos of dread telling you things are not right.`\
+https://www.nytimes.com/2026/10/17/movies/five-free-movies-to-stream-now.html
+
 **Indian Gen Z Protest Leader Is Released on Bail After Arrest**\
 `Abhijeet Dipke, the founder of the Cockroach Janta Party, was detained on his way to a protest called to demand the resignation of India’s top election official.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-abhijeet-dipke-cockroach-janta-party.html
