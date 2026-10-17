@@ -1,3 +1,11 @@
+**Our Reporter Witnesses Attacks on Palestinian Farmers**\
+`The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers. “The Call” is a new video series that reaches on-the-ground New York Times reporters and newsmakers in the middle of the biggest stories of the day.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011219777/our-reporter-witnesses-attacks-on-palestinian-farmers.html
+
+**Elon Musk Is Beyond the Pale**\
+`How is it possible that he is still part of the Republican mainstream?`\
+https://www.nytimes.com/2026/10/17/opinion/elon-musk-republican-politics.html
+
 **Israeli Settlers Attack Palestinian Olive Farmers in the West Bank**\
 `The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011219640/israeli-settlers-attack-palestinian-olive-farmers-in-the-west-bank.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/17/realestate/im-looking-to-downsize-is-prefab-h
 **When a Gun Owner Shows Early Signs of Dementia**\
 `Public health experts are finding ways to encourage firearm safety practices for older adults who own guns, especially when there are indications of cognitive decline.`\
 https://www.nytimes.com/2026/10/17/well/family/firearms-elderly-dementia-risks-prevention.html
-
-**Hegseth Singled Out in Democrats’ Campaign Attacks for War and High Prices**\
-`Cabinet members are seldom major figures in campaigns, but the defense secretary’s forays into politics and his bravado in defense of an unpopular war have made him a target.`\
-https://www.nytimes.com/2026/10/17/us/elections/hegseth-singled-out-in-democrats-campaign-attacks-for-war-and-high-prices.html
-
-**What Pennsylvania Reveals About the Midterms**\
-`In Pennsylvania, four congressional districts exemplify the types of seats that Democrats are aiming to flip. Our national political correspondent Shane Goldmacher explains.`\
-https://www.nytimes.com/video/us/politics/100000011200802/what-pennsylvania-reveals-about-the-midterms.html
 
