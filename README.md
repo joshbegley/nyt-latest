@@ -1,3 +1,15 @@
+**Paxton Hits the Road, Looking to Rally Texas Republicans**\
+`Ken Paxton’s bus tour of Texas comes as polls have shown the race for Senate is increasingly close. His rival, James Talarico, is scheduled to kick off a similar tour on Sunday.`\
+https://www.nytimes.com/2026/10/17/us/paxton-bus-tour-texas-republicans.html
+
+**NYC Subway Shooting in Midtown Leaves Man Dead**\
+`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square.`\
+https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
+
+**Trump Offers Putin Economic Relief in Hopes That Russia Will Return the Favor**\
+`The Trump administration is ignoring the will of Congress and waiving new Russia sanctions amid fears that high energy prices will cost Republicans in next month’s elections.`\
+https://www.nytimes.com/2026/10/17/business/trump-russia-sanctions-congress.html
+
 **Florida Man Killed by Alligator While Fishing Near Lake Apopka in Winter Garden**\
 `The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
 https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/17/arts/television/east-of-eden-florence-pugh-ca
 **Bono and the Edge on Their ‘Drug of Choice’**\
 `What drives these rockers in their work as members of U2? They discussed the question on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011211149/bono-and-the-edge-on-their-drug-of-choice.html
-
-**Bono on Republicans: ‘I Want to Invite Them Back’**\
-`On “The Interview,” Bono, the lead singer for U2, shared some thoughts on conservatives and the political situation in the U.S.`\
-https://www.nytimes.com/video/podcasts/100000011213343/bono-on-republicans-i-want-to-invite-them-back.html
-
-**‘It’s Unconscionable’: Bono on the DOGE Cuts and Loss of Human Lives**\
-`Bono, the lead singer for U2, has been an activist and philanthropist for decades. He discussed the cuts to foreign aid work made by the Trump administration on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011211152/its-unconscionable-bono-on-the-doge-cuts-and-loss-of-human-lives.html
-
-**What Is the Purpose of U2 Right Now?**\
-`On “The Interview,” Bono and the Edge talked about what has kept U2 going, 50 years after the band came together at a Dublin high school.`\
-https://www.nytimes.com/video/podcasts/100000011211144/what-is-the-purpose-of-u2-right-now.html
 
