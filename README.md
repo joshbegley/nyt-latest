@@ -1,3 +1,35 @@
+**Banter and Booze at the Best Book Parties of the Year**\
+`Each October, the international publishing business descends on Frankfurt, Germany, for days of dealing and long nights of partying.`\
+https://www.nytimes.com/2026/10/17/books/book-parties-frankfurt.html
+
+**Now Playing: Our Marriage**\
+`Something old, something new, something short-form: Wedding trailers are a cinematic way to tell your love story, along with its happy ending.`\
+https://www.nytimes.com/2026/10/17/style/wedding-trailers-social-media.html
+
+**Book Review: ‘Redemption,’ by Lawrence Wright**\
+`In “Redemption,” the Pulitzer Prize winner Lawrence Wright asks whether people sentenced to die in Texas should have a second chance.`\
+https://www.nytimes.com/2026/10/17/books/review/redemption-lawrence-wright.html
+
+**She Signed Her Painting in 1548. Nearly 500 Years Later, It Finally Goes on Show.**\
+`Long overshadowed by her father and overlooked by historians, the 16th-century pioneer Catharina van Hemessen is now getting her due.`\
+https://www.nytimes.com/2026/10/17/arts/design/catharina-van-hemessen.html
+
+**$10 a Gallon at This Gas Station by the Sea**\
+`Drive along a meandering highway through Big Sur in California, and you could happen upon this roadside stop. Maybe you won’t notice the prices.`\
+https://www.nytimes.com/2026/10/17/us/10-gallon-gas-station.html
+
+**Finding a Foothold for a Growing Network of Deportees in Jamaica**\
+`A nonprofit in Jamaica is helping a growing network of deportees from the U.S. find a foothold in their country of origin.`\
+https://www.nytimes.com/2026/10/17/headway/a-recent-deportee-aims-to-make-americas-loss-jamaicas-gain.html
+
+**Book Review: ‘Every Story Is a Love Story,’ by Imbolo Mbue**\
+`In “Every Story Is a Love Story,” a widower develops complicated feelings for the woman who upended his life.`\
+https://www.nytimes.com/2026/10/17/books/review/every-story-is-a-love-story-imbolo-mbue.html
+
+**Ukraine’s Front Line Is Now a ‘Kill Zone’**\
+`The “kill zone” on the front lines of Russia’s war in Ukraine is unlike anything soldiers have faced. Our correspondent Constant Méheut describes soldiers’ experiences there. The Armed Forces of Ukraine provided footage inside the kill zone at our request.`\
+https://www.nytimes.com/video/world/europe/100000011105137/ukraines-front-line-is-now-a-kill-zone.html
+
 **How the Billionaire Owner of Two Sports Teams Spends a Day Chasing Wins**\
 `Laurie M. Tisch, an owner of the New York Giants and Gotham F.C., spends her time on art, family and both kinds of football.`\
 https://www.nytimes.com/interactive/2026/10/17/nyregion/routine-laurie-tisch.html
@@ -161,38 +193,6 @@ https://www.nytimes.com/2026/10/16/nyregion/joseph-sciorra-dead.html
 **Bend Shooting Likely to Heighten Gun Debate in Oregon Governor’s Race**\
 `The contest between the Democratic incumbent and her Republican challenger is on edge.`\
 https://www.nytimes.com/2026/10/16/us/bend-oregon-shooting-guns-governor-race.html
-
-**Child Sexual Abuse Charges Against Timothy Busfield Dismissed**\
-`Prosecutors in New Mexico had secured an indictment of the actor and director on charges he made sexual contact with a child actor. He had pleaded not guilty.`\
-https://www.nytimes.com/2026/10/16/arts/television/timothy-busfield-indictment-dismissed.html
-
-**The World’s Oldest Shipwreck? Maybe, but ‘We’re All Excited by Maybe.’**\
-`Archaeologists said that they had found jars from a shipwreck as much as 4,700 years old, with black residue inside. Outside experts were skeptical but intrigued.`\
-https://www.nytimes.com/2026/10/16/world/middleeast/oldest-shipwreck-amphora-turkey.html
-
-**The Leap Second Has Been Canceled**\
-`Earth’s rotation subtly changes the length of the day. Now our clocks won’t change with it — at least not for a very long time.`\
-https://www.nytimes.com/2026/10/16/science/leap-second-abolished-vote.html
-
-**After Six Flags Roller Coaster Death, Critics Call for Federal Oversight**\
-`Regulation of amusement parks is left to the states, and deaths are rare. But some say stronger rules are needed.`\
-https://www.nytimes.com/2026/10/16/us/six-flags-roller-coaster-death.html
-
-**Ocasio-Cortez Gives $1 Million to El-Sayed Campaign in Michigan**\
-`Representative Alexandria Ocasio-Cortez, Democrat of New York, said she transferred a million dollars to Dr. Abdul El-Sayed’s Senate campaign in Michigan. Whoever wins the Michigan Senate race could determine which party controls the chamber.`\
-https://www.nytimes.com/video/us/politics/100000011219301/ocasio-cortez-gives-1-million-to-el-sayed-campaign-in-michigan.html
-
-**Katie Zacharia Is Forced Out After 5 Days as White House Press Secretary**\
-`Katie Zacharia has been forced out after five days as President Trump’s new press secretary, according to people familiar with the matter. Mr. Trump told reporters on Friday that he had encouraged her to “reconsider” the role.`\
-https://www.nytimes.com/video/us/politics/100000011219114/katie-zacharia-fired-press-secretary.html
-
-**Fashion Designers Bid Farewell for This Season**\
-`Designers and their fashion farewells.`\
-https://www.nytimes.com/2026/10/16/style/paris-fashion-week.html
-
-**N.I.H. Hospital Board Rebukes Kennedy Over New Vaccine Injury Clinic**\
-`The board that oversees the N.I.H. Clinical Center voted unanimously to support a statement accusing Health Secretary Robert F. Kennedy Jr. of undermining trust in the hospital’s work.`\
-https://www.nytimes.com/2026/10/16/us/politics/kennedy-nih-hospital-board-rebuke.html
 
 **Oregon Shooting Updates: Attacker Was a Former Special Education Student at the School**\
 `The police chief in Bend, Ore., said the 16-year-old assailant breached Silver Rail Elementary School’s security through a side entrance and fired as many as 15 rounds, killing a teacher and three children.`\
