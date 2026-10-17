@@ -1,3 +1,7 @@
+**School Shootings Have Dropped Lately, but Gun Violence Remains Above Pre-Covid Levels**\
+`One data scientist who tracks gun violence in schools says he is encouraged that people have become more vigilant about spotting warning signs.`\
+https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
+
 **School Shootings Have Dropped Lately, but One Number Is on the Rise**\
 `“Near-misses” are increasing, one data scientist says, and gun violence at schools remains far above prepandemic levels.`\
 https://www.nytimes.com/2026/10/16/us/bend-school-shooting-statistics.html
