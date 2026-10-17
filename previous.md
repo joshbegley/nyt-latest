@@ -1,3 +1,7 @@
+**Vatican Says Pope Leo Will Leave Hospital on Saturday, Days After Lung Surgery**\
+`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
+
 **Paper Towns**\
 `We’re all temporary citizens of makeshift communities created by happenstance.`\
 https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/learning/on-this-day-oct-17-al-capone.html
 **Dancing Salaryman Pokes Fun at Japan’s Buttoned-Down Culture**\
 `Toru Utsumi has won more than a million fans on TikTok and Instagram with short, fancy-free videos.`\
 https://www.nytimes.com/video/world/asia/100000011204367/japan-dancing-salaryman-tohru-dance.html
-
-**Teacher Wrestled Shotgun Away From Oregon School Shooter**\
-`A teacher wrestled a shotgun away from a 16-year-old who opened fire on a special education classroom at an Oregon elementary school, the police said on Friday. As they fought, an armed bystander shot the attacker dead.`\
-https://www.nytimes.com/video/us/100000011219079/oregon-school-shooting-teacher.html
 

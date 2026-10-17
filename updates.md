@@ -1,3 +1,7 @@
+**Vatican Says Pope Leo Will Leave Hospital on Saturday, Days After Lung Surgery**\
+`Leo XIV had been treated for lung cancer at Gemelli Hospital in Rome.`\
+https://www.nytimes.com/2026/10/17/world/europe/pope-leo-discharged-hospital.html
+
 **Paper Towns**\
 `We’re all temporary citizens of makeshift communities created by happenstance.`\
 https://www.nytimes.com/2026/10/17/briefing/jury-duty.html
