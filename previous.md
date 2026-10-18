@@ -192,7 +192,7 @@ https://www.nytimes.com/2026/10/18/pageoneplus/quote-of-the-day-the-elk-who-left
 
 **A House David Bowie Couldn’t Wait to Leave Is Becoming a Museum**\
 `If all goes to plan, Bowie’s childhood home in the London suburb of Bromley will become an attraction.`\
-https://www.nytimes.com/2026/10/18/realestate/a-house-david-bowie-couldnt-wait-to-leave-is-becoming-a-museum.html
+https://www.nytimes.com/2026/10/18/realestate/david-bowie-childhood-house-museum-london.html
 
 **The Man Who Taught Us How to Pay Attention**\
 `The works of the British art critic John Berger offer the antidote to our age of infinite scrolling.`\

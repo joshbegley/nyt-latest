@@ -1,3 +1,7 @@
+**A House David Bowie Couldn’t Wait to Leave Is Becoming a Museum**\
+`If all goes to plan, Bowie’s childhood home in the London suburb of Bromley will become an attraction.`\
+https://www.nytimes.com/2026/10/18/realestate/david-bowie-childhood-house-museum-london.html
+
 **Elizabeth Holmes Film Opens to Over 2,000 Sold-Out Shows**\
 `“You Can See Everything,” a documentary about the Theranos founder, made a big splash for a movie not yet in wide release. And Netflix had a box office milestone.`\
 https://www.nytimes.com/2026/10/18/business/media/box-office-elizabeth-holmes-netflix.html
