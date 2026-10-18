@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/10/18/pageoneplus/corrections-oct-18-2026.html
 https://www.nytimes.com/2026/10/18/books/review/emperor-of-nothing-larry-david-blake-harris.html
 
 **Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
-`Record heat, a rising demand for power and an electricity crisis are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
+`Record heat and a rising demand for electricity are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
 https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
 
 **Food Pantry Patrons Face ‘Too Much Month at the End of Their Money’**\

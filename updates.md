@@ -1,3 +1,7 @@
+**Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
+`Record heat and a rising demand for electricity are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
+https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
+
 **Pope Leo Addresses the Faithful a Day After Leaving the Hospital**\
 `“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
 https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
