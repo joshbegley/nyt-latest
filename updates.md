@@ -1,3 +1,11 @@
+**‘No Kings’ Rallies Focus on Early Voting Before Midterms**\
+`With midterm elections approaching, organizers of the “No Kings” demonstrations, known for their anti-Trump sentiment, urged people to vote early.`\
+https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting-midterms.html
+
+**Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
+`The defense minister said people were killed and injured at a base in Alberta, but officials did not offer details on the cause.`\
+https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
+
 **3 Charts That Explain the Economy as Voters Head to the Polls**\
 `Inflation is high, consumer spending is strong and seemingly everything depends on what happens with artificial intelligence.`\
 https://www.nytimes.com/2026/10/18/business/economy/economy-midterm-elections.html
