@@ -1,3 +1,7 @@
+**Elizabeth Holmes Film Opens to Over 2,000 Sold-Out Shows**\
+`“You Can See Everything,” a documentary about the Theranos founder, made a big splash for a movie not yet in wide release. And Netflix had a box office milestone.`\
+https://www.nytimes.com/2026/10/18/business/media/box-office-elizabeth-holmes-netflix.html
+
 **France in Shock After Largest Riots in Years**\
 `People in France woke up on Sunday to streets littered with shattered glass and images of burned-out government buildings after the country’s largest protests in years descended into violent riots.`\
 https://www.nytimes.com/video/world/europe/100000011221136/france-protests-riots-burning-fire.html
