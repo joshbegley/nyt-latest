@@ -1,3 +1,59 @@
+**3 Charts That Explain the Economy as Voters Head to the Polls**\
+`Inflation is high, consumer spending is strong and seemingly everything depends on what happens with artificial intelligence.`\
+https://www.nytimes.com/2026/10/18/business/economy/economy-midterm-elections.html
+
+**Across Farm Country, Economic Discontent Strains Republican Coalition**\
+`Farmers and ranchers have supported President Trump for a decade. But the war in Iran, tariffs and other administration policies have soured some on the G.O.P.`\
+https://www.nytimes.com/2026/10/18/us/politics/farmers-ranchers-trump-economic-stress.html
+
+**Legal Immigration Fell Sharply Under Trump Policies Adopted Early This Year**\
+`A freeze on visas made it all but impossible to immigrate from dozens of countries. Student and work visas also declined.`\
+https://www.nytimes.com/interactive/2026/10/18/us/trump-immigrant-visas-decline.html
+
+**The Future of the Amazon Rainforest Could Depend on Brazil's Election**\
+`Flávio Bolsonaro, the front runner in this month’s presidential runoff, is a strong advocate of environmental deregulation who has backed policies that scientists say could hurt the rainforest.`\
+https://www.nytimes.com/interactive/2026/10/18/world/americas/brazil-election-amazon-deforestation.html
+
+**Corrections: Oct. 18, 2026**\
+`Corrections that appeared in print on Sunday, Oct. 18, 2026.`\
+https://www.nytimes.com/2026/10/18/pageoneplus/corrections-oct-18-2026.html
+
+**Book Review: ‘Emperor of Nothing: The Making of Larry David,’ by Blake J. Smith**\
+`Thanks to begrudging cooperation from the comedian and writer, a new biography is suitably kvetchy, if a little too long and a little too nice.`\
+https://www.nytimes.com/2026/10/18/books/review/emperor-of-nothing-larry-david-blake-harris.html
+
+**Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
+`Record heat, a rising demand for power and an electricity crisis are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
+https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
+
+**Food Pantry Patrons Face ‘Too Much Month at the End of Their Money’**\
+`Food inflation, gas prices and cuts to federal benefits have created a “perfect storm” for food pantries, which have become vital parts of the family budget for millions of Americans.`\
+https://www.nytimes.com/2026/10/18/us/inflation-snap-benefit-cuts-families-food-pantry.html
+
+**Will Rural Voters Sit Out the Midterms?**\
+`Lisa Lerer, a national political correspondent, travels to a cattle auction in Calhan, Colo., to see if economic anxieties are affecting the loyalty of rural voters to the Republican Party.`\
+https://www.nytimes.com/video/us/politics/100000011202335/midterm-elections-us-rural-voters.html
+
+**Some MAHA Voters in Arizona Question Their G.O.P. Ties**\
+`MAHA’s alliance with MAGA had energized voters to support President Trump’s 2024 campaign. Now, some aren’t so sure.`\
+https://www.nytimes.com/2026/10/18/us/maha-voters-republican-split.html
+
+**United’s C.E.O. Says It Should Cost More Not to Sit in the Middle Seat**\
+`Scott Kirby of United Airlines said that “it’s expensive to fly airplanes” and that airfares may have further to rise.`\
+https://www.nytimes.com/2026/10/18/business/scott-kirby-united-airlines.html
+
+**Julia Louis-Dreyfus Realized She Was Famous While Giving Birth**\
+`Ahead of her Broadway debut in the drama “Other Desert Cities,” the actor Julia Louis-Dreyfus reflected on the role that became a defining part of her legacy and recalled the unexpected realities of fame.`\
+https://www.nytimes.com/video/arts/100000011145519/julia-louis-dreyfus-elaine-broadway.html
+
+**Savannah James, Wife of LeBron, Comes Off the Sidelines**\
+`After some two-dozen seasons of basketball, the wife of LeBron James is taking her own shot.`\
+https://www.nytimes.com/2026/10/18/style/savannah-james-lebron-james-76ers.html
+
+**America’s Answer to John le Carré**\
+`David McCloskey, a C.I.A. analyst turned spy novelist, has just released his fifth book, “London Station.”`\
+https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
+
 **France in Shock After Protests Devolve Into Riots**\
 `Centrist and leftist leaders blamed each other after anti-government protests devolved into chaos.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
@@ -141,60 +197,4 @@ https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term
 **U.S. Floats Lifeline to Russia: Allowing More Gas Sales to Europe**\
 `The Trump administration is pitching the idea as part of a peace deal with Ukraine, but Europe is wary and critics say Russia would be strengthened.`\
 https://www.nytimes.com/2026/10/17/us/politics/russia-gas-trump.html
-
-**Craig Symonds, Prizewinning Military Historian, Is Dead**\
-`A U.S. Naval Academy professor and prolific author, he emphasized the strategic importance of naval superiority since the Civil War.`\
-https://www.nytimes.com/2026/10/17/obituaries/craig-symonds-dead.html
-
-**Peter Nagy, Visionary Artist Turned Art Dealer, Dies at 66**\
-`After an early career in New York City, where he co-founded one of the first artist-run galleries, he fell in love with India and uprooted his life.`\
-https://www.nytimes.com/2026/10/17/arts/peter-nagy-dead.html
-
-**Dispute Between Trump Allies Centers on Millions Transferred From Congo**\
-`The White House inquiry is focused on diverging accounts from Richard Grenell and Alina Habba Mildon about a $17 million transfer from a government account in the African country to a Texas defense firm.`\
-https://www.nytimes.com/2026/10/17/us/politics/trump-allies-grenell-mildon-congo.html
-
-**Pope Discharged From Hospital After Lung Surgery**\
-`Pope Leo XIV was discharged on Saturday from a hospital in Rome after surgery, roughly three days earlier than the Vatican had initially suggested he would leave.`\
-https://www.nytimes.com/video/world/europe/100000011220460/pope-leo-discharged-hospital.html
-
-**What to Know About the Violent Protests in Albania**\
-`Student demonstrations over education converged with broader protests against rising living costs and a luxury development linked to Jared Kushner, President Trump’s son-in-law.`\
-https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html
-
-**Five Free Movies to Stream Now**\
-`As we approach Halloween, this month’s selections center if not all on pure horror, then on the ethos of dread telling you things are not right.`\
-https://www.nytimes.com/2026/10/17/movies/five-free-movies-to-stream-now.html
-
-**Indian Gen Z Protest Leader Is Released on Bail After Arrest**\
-`Abhijeet Dipke, the founder of the Cockroach Janta Party, was detained on his way to a protest called to demand the resignation of India’s top election official.`\
-https://www.nytimes.com/2026/10/17/world/asia/india-abhijeet-dipke-cockroach-janta-party.html
-
-**Our Reporter Witnesses Attacks on Palestinian Farmers**\
-`The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers. “The Call” is a new video series that reaches on-the-ground New York Times reporters and newsmakers in the middle of the biggest stories of the day.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011219777/our-reporter-witnesses-attacks-on-palestinian-farmers.html
-
-**Elon Musk Is Beyond the Pale**\
-`How is it possible that he is still part of the Republican mainstream?`\
-https://www.nytimes.com/2026/10/17/opinion/elon-musk-republican-politics.html
-
-**Israeli Settlers Attack Palestinian Olive Farmers in the West Bank**\
-`The annual olive harvest for Palestinian farmers in the occupied West Bank has become a yearly flashpoint for rising tensions and escalating violence. In this episode of “The Call,” Azam Ahmed, an international correspondent for The New York Times, calls the host Natalie Kitroeff after witnessing an attack on Oct. 16 by Israeli settlers on Palestinian olive farmers.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011219640/israeli-settlers-attack-palestinian-olive-farmers-in-the-west-bank.html
-
-**Yemen Fighting Rages as Civilian Toll From Houthi-Saudi Conflict Worsens**\
-`New clashes were reported as the Houthis put more pressure on Taiz, a city connecting the government-held south of the country and the Red Sea.`\
-https://www.nytimes.com/2026/10/17/world/middleeast/houthi-saudi-clashes-in-yemen.html
-
-**No Onions? No Problem.**\
-`This caramelized fennel pasta delivers those sweet, caramelized notes, only without any alliums.`\
-https://www.nytimes.com/2026/10/17/dining/no-onions-no-problem.html
-
-**A Reporter Who Saw Covid Coming Has Died**\
-`Helen Branswell recognized the threat of the pandemic ahead of the vast majority of journalists and even medical experts. She was 69.`\
-https://www.nytimes.com/2026/10/17/health/helen-branswell-dead.html
-
-**Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
-`Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflected how he treated women. Mr. Jackson defended his comment.`\
-https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
 
