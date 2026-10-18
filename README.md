@@ -1,3 +1,7 @@
+**Pope Leo Thanks the Faithful in Weekly Address a Day After Leaving Hospital**\
+`“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
+https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
+
 **Would You Press This Button?**\
 `We may not want it to, but A.I. is asking us how to live.`\
 https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
 **Super Typhoon Champi Passes Within 10 Miles of Guam**\
 `The storm rapidly intensified as it barreled toward Guam on Saturday, coming within 10 miles of the island.`\
 https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
-
-**Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
-`Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
-https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
 
