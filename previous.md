@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/18/podcasts/the-daily/elizabeth-holmes-and-natha
 `Unless we can regenerate the depth of the theological tradition alongside the depth of spiritual transformation, our churches deserve to be empty.`\
 https://www.nytimes.com/2026/10/18/opinion/religion-christ-systematic-theology-sarah-coakley.html
 
-**Three Scenarios for a Leaderless World**\
+**The Old World Order Is Over. This Is What Could Come Next.**\
 `Here are three scenarios for what the new global order might look like.`\
 https://www.nytimes.com/2026/10/18/opinion/america-world-order-democracy-trump.html
 
