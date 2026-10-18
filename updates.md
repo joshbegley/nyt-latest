@@ -1,3 +1,19 @@
+**How a Dominican Man Became an ICE Target Before the NYC Shooting**\
+`Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
+https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
+
+**Are ICE Officers Really Targeting the ‘Worst of the Worst’?**\
+`The homeland security secretary, Markwayne Mullin, has repeatedly said ICE agents are pursuing “the worst of the worst” criminals. But as Hamed Aleaziz, a reporter for The New York Times, explains, data shows that arrests of people with no criminal record have soared this summer.`\
+https://www.nytimes.com/video/us/politics/100000011205812/are-ice-officers-really-targeting-the-worst-of-the-worst.html
+
+**‘My Friend Pulled Out His Phone to Get a Picture.’**\
+`Getting the hang of things uptown, pausing for a praying mantis and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/18/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for October 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/18/crosswords/spelling-bee-forum.html
+
 **I Teach at a Business School. It’s Time to Shut Them Down.**\
 `Students come in with noble intentions and leave with flawed expertise.`\
 https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
