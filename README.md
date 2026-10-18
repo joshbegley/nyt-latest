@@ -1,3 +1,7 @@
+**U.S. Officials Condemn West Bank Attacks as Netanyahu Casts Doubt on Them**\
+`Prime Minister Benjamin Netanyahu of Israel has downplayed accounts of recent extremist attacks on Palestinians in the West Bank amid the annual olive harvest.`\
+https://www.nytimes.com/2026/10/18/world/middleeast/netanyahu-settler-attacks-west-bank-palestinians.html
+
 **This French City Was Rarely Linked With Unrest. Then Arsonists Attacked.**\
 `As unrest surged across France this weekend, the most surprising attack came in the quiet city of Limoges, where rioters set fire to the city hall.`\
 https://www.nytimes.com/2026/10/18/world/france-limoges-fire-arson-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-c
 **In India, the Scion of a Political Dynasty Tries to Seize His Moment**\
 `Rahul Gandhi is the descendant of three prime ministers. A surge of protests could give him a springboard to take on the nation’s current leader.`\
 https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html
-
-**Quote of the Day: The Elk Who Left His Herd and Enchanted an Island**\
-`Quotation of the Day for Sunday, October 18, 2026.`\
-https://www.nytimes.com/2026/10/18/pageoneplus/quote-of-the-day-the-elk-who-left-his-herd-and-enchanted-an-island.html
 
