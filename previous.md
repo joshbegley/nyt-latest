@@ -1,3 +1,7 @@
+**‘Saturday Night Live U.K.’ Lays Into Shane Gillis**\
+`Gillis has been sharply criticized for his jokes about women during his opening monologue as host of “Saturday Night Live” in New York on Oct. 10.`\
+https://www.nytimes.com/2026/10/18/arts/television/snl-uk-shane-gillis.html
+
 **At Cornell, a Subdued Scene on First Weekend of Fraternity Party Ban**\
 `The moratorium is among the safety measures that the university put in place following the uproar over a former student’s sexual assault lawsuit.`\
 https://www.nytimes.com/2026/10/18/nyregion/cornell-university-fraternity-party-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/18/us/trump-immigrant-visas-decline.
 **The Future of the Amazon Rainforest Could Depend on Brazil's Election**\
 `Flávio Bolsonaro, the front runner in this month’s presidential runoff, is a strong advocate of environmental deregulation who has backed policies that scientists say could hurt the rainforest.`\
 https://www.nytimes.com/interactive/2026/10/18/world/americas/brazil-election-amazon-deforestation.html
-
-**Corrections: Oct. 18, 2026**\
-`Corrections that appeared in print on Sunday, Oct. 18, 2026.`\
-https://www.nytimes.com/2026/10/18/pageoneplus/corrections-oct-18-2026.html
 
