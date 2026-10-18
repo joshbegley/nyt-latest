@@ -1,4 +1,12 @@
-**On the Campaign Trail, Trump Tries to Outrun a Bad Week in Washington**\
+**2028 Presidential ‘Shadow Primary’ Descends on the Midterm Elections**\
+`The schedule is especially packed in New Hampshire, an early presidential nominating state where there is a competitive Senate race Democrats are flocking to this month.`\
+https://www.nytimes.com/2026/10/18/us/politics/midterms-2028-presidential-race-democrats-republicans.html
+
+**Migrants From Ukraine and Sudan to Keep Deportation Protections for Now**\
+`Temporary Protected Status for the two countries was set to expire on Monday. The Trump administration said an announcement would be made “at the appropriate time.”`\
+https://www.nytimes.com/2026/10/18/us/politics/ukraine-sudan-tps-trump.html
+
+**Trump Hits Campaign Trail as White House Turmoil Weighs on GOP Midterm Prospects**\
 `As Trump rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
 https://www.nytimes.com/2026/10/18/us/trump-midterm-elections-republicans-approval-ratings.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/18/us/inflation-snap-benefit-cuts-families-food-
 **Will Rural Voters Sit Out the Midterms?**\
 `Lisa Lerer, a national political correspondent, travels to a cattle auction in Calhan, Colo., to see if economic anxieties are affecting the loyalty of rural voters to the Republican Party.`\
 https://www.nytimes.com/video/us/politics/100000011202335/midterm-elections-us-rural-voters.html
-
-**Some MAHA Voters in Arizona Question Their G.O.P. Ties**\
-`MAHA’s alliance with MAGA had energized voters to support President Trump’s 2024 campaign. Now, some aren’t so sure.`\
-https://www.nytimes.com/2026/10/18/us/maha-voters-republican-split.html
-
-**United’s C.E.O. Says It Should Cost More Not to Sit in the Middle Seat**\
-`Scott Kirby of United Airlines said that “it’s expensive to fly airplanes” and that airfares may have further to rise.`\
-https://www.nytimes.com/2026/10/18/business/scott-kirby-united-airlines.html
 
