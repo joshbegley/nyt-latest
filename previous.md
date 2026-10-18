@@ -1,3 +1,7 @@
+**Planet Earth and Brazil’s Election**\
+`The Amazon rainforest has been a crucial battleground in the country’s presidential runoff.`\
+https://www.nytimes.com/2026/10/18/world/amazon-brazil-election-climate-france-alberta.html
+
 **2028 Presidential ‘Shadow Primary’ Descends on the Midterm Elections**\
 `The schedule is especially packed in New Hampshire, an early presidential nominating state where there is a competitive Senate race Democrats are flocking to this month.`\
 https://www.nytimes.com/2026/10/18/us/politics/midterms-2028-presidential-race-democrats-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.h
 **Food Pantry Patrons Face ‘Too Much Month at the End of Their Money’**\
 `Food inflation, gas prices and cuts to federal benefits have created a “perfect storm” for food pantries, which have become vital parts of the family budget for millions of Americans.`\
 https://www.nytimes.com/2026/10/18/us/inflation-snap-benefit-cuts-families-food-pantry.html
-
-**Will Rural Voters Sit Out the Midterms?**\
-`Lisa Lerer, a national political correspondent, travels to a cattle auction in Calhan, Colo., to see if economic anxieties are affecting the loyalty of rural voters to the Republican Party.`\
-https://www.nytimes.com/video/us/politics/100000011202335/midterm-elections-us-rural-voters.html
 

@@ -1,3 +1,7 @@
+**Planet Earth and Brazil’s Election**\
+`The Amazon rainforest has been a crucial battleground in the country’s presidential runoff.`\
+https://www.nytimes.com/2026/10/18/world/amazon-brazil-election-climate-france-alberta.html
+
 **Albania’s Leader, Edi Rama, Denounces Violent Protests**\
 `Students upset by living and educational costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
 https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
