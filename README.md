@@ -1,3 +1,19 @@
+**How a Dominican Man Became an ICE Target Before the NYC Shooting**\
+`Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
+https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
+
+**Are ICE Officers Really Targeting the ‘Worst of the Worst’?**\
+`The homeland security secretary, Markwayne Mullin, has repeatedly said ICE agents are pursuing “the worst of the worst” criminals. But as Hamed Aleaziz, a reporter for The New York Times, explains, data shows that arrests of people with no criminal record have soared this summer.`\
+https://www.nytimes.com/video/us/politics/100000011205812/are-ice-officers-really-targeting-the-worst-of-the-worst.html
+
+**‘My Friend Pulled Out His Phone to Get a Picture.’**\
+`Getting the hang of things uptown, pausing for a praying mantis and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/18/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for October 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/18/crosswords/spelling-bee-forum.html
+
 **I Teach at a Business School. It’s Time to Shut Them Down.**\
 `Students come in with noble intentions and leave with flawed expertise.`\
 https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-u
 **Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
 `Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
 https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
-
-**States Are Stepping Up as the New Antitrust Enforcers**\
-`With the Trump administration taking a relaxed approach, attorneys general around the country have ramped up their scrutiny of mergers.`\
-https://www.nytimes.com/2026/10/17/business/dealbook/state-antitrust-enforcement.html
-
-**Steve Buscemi’s Greats**\
-`The actor Steve Buscemi discusses everything from the greatest concert he’s ever seen to his favorite sweet treat.`\
-https://www.nytimes.com/video/t-magazine/100000011209918/steve-buscemis-greats.html
-
-**Telling the Secrets of Nazi Vienna**\
-`A new history of World War II Vienna illustrates the specific devastation of a thriving Jewish city.`\
-https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
-
-**The Cringiest and Craftiest 2026 Midterm Ads**\
-`Sex, video games and grandparents on the campaign trail.`\
-https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters.html
 
