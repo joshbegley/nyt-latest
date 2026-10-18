@@ -1,3 +1,7 @@
+**Obama Defends Rep. Ilhan Omar Amid Trump Administration Inquiry**\
+`Federal agents searched Ms. Omar’s Washington home last week and issued subpoenas to some family members in search of evidence of fraud in immigration paperwork.`\
+https://www.nytimes.com/2026/10/18/us/politics/obama-ilhan-omar-trump-investigation-immigration.html
+
 **Albania’s Leader, Edi Rama, Denounces Violent Protests**\
 `Students upset by the cost of education and living costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
 https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
