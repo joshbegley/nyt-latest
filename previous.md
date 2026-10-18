@@ -1,10 +1,14 @@
+**At Cornell, a Subdued Scene on First Weekend of Fraternity Party Ban**\
+`The moratorium is among the safety measures that the university put in place following the uproar over a former student’s sexual assault lawsuit.`\
+https://www.nytimes.com/2026/10/18/nyregion/cornell-university-fraternity-party-ban.html
+
 **Alan Mandell, Star of ‘Godot’ and Other Beckett Plays, Dies at 98**\
 `An actor, producer and director, he also managed several theater companies. But he was best known for his performances in works by Samuel Beckett.`\
 https://www.nytimes.com/2026/10/18/obituaries/alan-mandell-dead.html
 
 **Key Players in the O.J. Simpson Trial**\
 `More than 30 years later, the people involved in what became known as the “trial of the century” are still household names.`\
-https://www.nytimes.com/2026/10/18/us/key-players-in-the-oj-simpson-trial.html
+https://www.nytimes.com/2026/10/18/us/oj-simpson-death-trial-key-players.html
 
 **Planet Earth and Brazil’s Election**\
 `The Amazon rainforest has been a crucial battleground in the country’s presidential runoff.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/18/world/americas/brazil-election-am
 **Corrections: Oct. 18, 2026**\
 `Corrections that appeared in print on Sunday, Oct. 18, 2026.`\
 https://www.nytimes.com/2026/10/18/pageoneplus/corrections-oct-18-2026.html
-
-**Book Review: ‘Emperor of Nothing: The Making of Larry David,’ by Blake J. Smith**\
-`Thanks to begrudging cooperation from the comedian and writer, a new biography is suitably kvetchy, if a little too long and a little too nice.`\
-https://www.nytimes.com/2026/10/18/books/review/emperor-of-nothing-larry-david-blake-harris.html
 

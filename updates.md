@@ -1,3 +1,11 @@
+**At Cornell, a Subdued Scene on First Weekend of Fraternity Party Ban**\
+`The moratorium is among the safety measures that the university put in place following the uproar over a former student’s sexual assault lawsuit.`\
+https://www.nytimes.com/2026/10/18/nyregion/cornell-university-fraternity-party-ban.html
+
+**Key Players in the O.J. Simpson Trial**\
+`More than 30 years later, the people involved in what became known as the “trial of the century” are still household names.`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-death-trial-key-players.html
+
 **Alan Mandell, Star of ‘Godot’ and Other Beckett Plays, Dies at 98**\
 `An actor, producer and director, he also managed several theater companies. But he was best known for his performances in works by Samuel Beckett.`\
 https://www.nytimes.com/2026/10/18/obituaries/alan-mandell-dead.html
