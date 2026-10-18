@@ -1,3 +1,7 @@
+**At Least 19 Dead After Stampede at Indian Religious Event**\
+`Such deadly crowd events are relatively common in India, and it was unclear what caused this one. The authorities detained the event’s organizer and others involved.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
+
 **France in Shock After Protests Devolve Into Riots**\
 `Centrist and leftist leaders blamed each other after anti-government protests devolved into chaos.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html

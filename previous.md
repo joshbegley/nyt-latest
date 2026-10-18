@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florid
 `Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
 https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
 
-**17 Dead and Dozens Injured After Stampede at Indian Religious Event**\
+**At Least 19 Dead After Stampede at Indian Religious Event**\
 `Such deadly crowd events are relatively common in India, and it was unclear what caused this one. The authorities detained the event’s organizer and others involved.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
 
