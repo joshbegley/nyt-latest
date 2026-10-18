@@ -1,3 +1,7 @@
+**Albania’s Leader, Edi Rama, Denounces Violent Protests**\
+`Students upset by the cost of education and living costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
+https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
+
 **Trump Outlines Rapid Plan to Close and Overhaul D.C. Golf Course**\
 `The plan to begin work transforming the course in four weeks injected fresh urgency into a federal lawsuit opposing changes to East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-golf-course-east-potomac-washington.html
