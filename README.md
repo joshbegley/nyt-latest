@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/10/18/style/nondisclosure-agreements-household-staf
 https://www.nytimes.com/2026/10/18/arts/television/chuck-lorre-book-sitcom.html
 
 **Carney Says Fire at Canadian Forces Base Wainwright in Alberta Killed 4 and Injured Dozens**\
-`Prime Minister Mark Carney said the “violent, fast-moving” fire on Saturday in the province of Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
+`Prime Minister Mark Carney said the “violent, fast-moving” fire on Saturday in Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
 https://www.nytimes.com/2026/10/18/world/canada/canadian-army-base-fire-kills-4.html
 
 **Taylor Swift’s Spooky Night Out at the Academy Museum Gala**\
