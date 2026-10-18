@@ -1,3 +1,7 @@
+**Key Players in the O.J. Simpson Trial**\
+`More than 30 years later, the people involved in what became known as the “trial of the century” are still household names.`\
+https://www.nytimes.com/2026/10/18/us/key-players-in-the-oj-simpson-trial.html
+
 **Planet Earth and Brazil’s Election**\
 `The Amazon rainforest has been a crucial battleground in the country’s presidential runoff.`\
 https://www.nytimes.com/2026/10/18/world/amazon-brazil-election-climate-france-alberta.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/books/review/emperor-of-nothing-larry-david-b
 **Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
 `Record heat and a rising demand for electricity are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
 https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
-
-**Food Pantry Patrons Face ‘Too Much Month at the End of Their Money’**\
-`Food inflation, gas prices and cuts to federal benefits have created a “perfect storm” for food pantries, which have become vital parts of the family budget for millions of Americans.`\
-https://www.nytimes.com/2026/10/18/us/inflation-snap-benefit-cuts-families-food-pantry.html
 

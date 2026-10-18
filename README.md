@@ -1,3 +1,7 @@
+**Alan Mandell, Star of ‘Godot’ and Other Beckett Plays, Dies at 98**\
+`An actor, producer and director, he also managed several theater companies. But he was best known for his performances in works by Samuel Beckett.`\
+https://www.nytimes.com/2026/10/18/obituaries/alan-mandell-dead.html
+
 **Key Players in the O.J. Simpson Trial**\
 `More than 30 years later, the people involved in what became known as the “trial of the century” are still household names.`\
 https://www.nytimes.com/2026/10/18/us/key-players-in-the-oj-simpson-trial.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/pageoneplus/corrections-oct-18-2026.html
 **Book Review: ‘Emperor of Nothing: The Making of Larry David,’ by Blake J. Smith**\
 `Thanks to begrudging cooperation from the comedian and writer, a new biography is suitably kvetchy, if a little too long and a little too nice.`\
 https://www.nytimes.com/2026/10/18/books/review/emperor-of-nothing-larry-david-blake-harris.html
-
-**Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
-`Record heat and a rising demand for electricity are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
-https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
 

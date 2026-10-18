@@ -1,3 +1,7 @@
+**Key Players in the O.J. Simpson Trial**\
+`More than 30 years later, the people involved in what became known as the “trial of the century” are still household names.`\
+https://www.nytimes.com/2026/10/18/us/key-players-in-the-oj-simpson-trial.html
+
 **Planet Earth and Brazil’s Election**\
 `The Amazon rainforest has been a crucial battleground in the country’s presidential runoff.`\
 https://www.nytimes.com/2026/10/18/world/amazon-brazil-election-climate-france-alberta.html
