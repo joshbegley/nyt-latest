@@ -1,3 +1,7 @@
+**17 Dead and Dozens Injured After Stampede at Indian Religious Event**\
+`Such deadly crowd events are relatively common in India, and it was unclear what caused this one. The authorities detained the event’s organizer and others involved.`\
+https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
+
 **How a Dominican Man Became an ICE Target Before the NYC Shooting**\
 `Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
 https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
