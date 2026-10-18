@@ -1,5 +1,9 @@
 **On the Campaign Trail, Trump Tries to Outrun a Bad Week in Washington**\
 `As Trump rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
+https://www.nytimes.com/2026/10/18/us/trump-midterm-elections-republicans-approval-ratings.html
+
+**On the Campaign Trail, Trump Tries to Outrun a Bad Week in Washington**\
+`As Trump rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
 https://www.nytimes.com/2026/10/18/us/on-the-campaign-trail-trump-tries-to-outrun-a-bad-week-in-washington.html
 
 **Driver Is Released After Plowing Onto Soccer Field in Wichita, Kan., Killing Two**\
