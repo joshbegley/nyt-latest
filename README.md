@@ -1,3 +1,7 @@
+**Albania’s Leader, Edi Rama, Denounces Violent Protests**\
+`Students upset by the cost of education and living costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
+https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
+
 **Trump Outlines Rapid Plan to Close and Overhaul D.C. Golf Course**\
 `The plan to begin work transforming the course in four weeks injected fresh urgency into a federal lawsuit opposing changes to East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-golf-course-east-potomac-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
 **France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
 `After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it largely subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
-
-**How a Dominican Man Became an ICE Target Before the NYC Shooting**\
-`Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
-https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
 
