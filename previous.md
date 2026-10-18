@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 19, 2026**\
+`It’s all in a day’s work for Michèle Govier.`\
+https://www.nytimes.com/2026/10/18/crosswords/daily-puzzle-2026-10-19.html
+
 **‘Saturday Night Live U.K.’ Lays Into Shane Gillis**\
 `Gillis has been sharply criticized for his jokes about women during his opening monologue as host of “Saturday Night Live” in New York on Oct. 10.`\
 https://www.nytimes.com/2026/10/18/arts/television/snl-uk-shane-gillis.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/us/politics/farmers-ranchers-trump-economic-s
 **Legal Immigration Fell Sharply Under Trump Policies Adopted Early This Year**\
 `A freeze on visas made it all but impossible to immigrate from dozens of countries. Student and work visas also declined.`\
 https://www.nytimes.com/interactive/2026/10/18/us/trump-immigrant-visas-decline.html
-
-**The Future of the Amazon Rainforest Could Depend on Brazil's Election**\
-`Flávio Bolsonaro, the front runner in this month’s presidential runoff, is a strong advocate of environmental deregulation who has backed policies that scientists say could hurt the rainforest.`\
-https://www.nytimes.com/interactive/2026/10/18/world/americas/brazil-election-amazon-deforestation.html
 
