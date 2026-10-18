@@ -1,3 +1,7 @@
+**I Teach at a Business School. It’s Time to Shut Them Down.**\
+`Students come in with noble intentions and leave with flawed expertise.`\
+https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
+
 **The Case Against Business School**\
 `Students come in with noble intentions and leave with flawed expertise.`\
 https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
