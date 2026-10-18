@@ -1,3 +1,7 @@
+**Trump Outlines Rapid Plan to Close and Overhaul D.C. Golf Course**\
+`The plan to begin work transforming the course in four weeks injected fresh urgency into a federal lawsuit opposing changes to East Potomac Golf Links.`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-golf-course-east-potomac-washington.html
+
 **NDAs: Now They’re for Butlers and Housekeepers, Too**\
 `A legal agreement once used mainly in business has become a tool for preventing household workers from talking about their wealthy employers.`\
 https://www.nytimes.com/2026/10/18/style/nondisclosure-agreements-household-staff.html
