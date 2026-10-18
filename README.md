@@ -1,3 +1,7 @@
+**Search Continues for 11 Passengers From Capsized Boat Off Mexico Coast**\
+`Sixteen people were rescued, but three had injuries consistent with shark bites. Eleven people are still missing.`\
+https://www.nytimes.com/2026/10/18/us/capsized-boat-survivors-sharks.html
+
 **NYT Crossword Answers for Oct. 19, 2026**\
 `It’s all in a day’s work for Michèle Govier.`\
 https://www.nytimes.com/2026/10/18/crosswords/daily-puzzle-2026-10-19.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/business/economy/economy-midterm-elections.ht
 **Across Farm Country, Economic Discontent Strains Republican Coalition**\
 `Farmers and ranchers have supported President Trump for a decade. But the war in Iran, tariffs and other administration policies have soured some on the G.O.P.`\
 https://www.nytimes.com/2026/10/18/us/politics/farmers-ranchers-trump-economic-stress.html
-
-**Legal Immigration Fell Sharply Under Trump Policies Adopted Early This Year**\
-`A freeze on visas made it all but impossible to immigrate from dozens of countries. Student and work visas also declined.`\
-https://www.nytimes.com/interactive/2026/10/18/us/trump-immigrant-visas-decline.html
 
