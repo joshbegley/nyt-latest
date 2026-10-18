@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/10/18/science/the-new-science-of-stuttering.html
 `After all these years, we found new developments in the O.J. Simpson case.`\
 https://www.nytimes.com/2026/10/18/briefing/ojs-accomplice.html
 
-**Ukraine Strikes Russian Oil Terminal, as Starshield Disruptions Persist**\
-`Ukrainian officials said the Pentagon and SpaceX have not yet responded to inquiries about disruptions to the U.S.-provided satellite internet service used by Ukrainian forces.`\
+**Zelensky Says Trump Risks ‘Historic Mistake’ If He Backs Russia**\
+`President Volodymyr Zelensky of Ukraine pressed Sunday for more information on possible restrictions to Starshield, a U.S.-provided satellite internet service used by the Ukrainian military.`\
 https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
 
 **Pope Leo Addresses the Faithful a Day After Leaving the Hospital**\
