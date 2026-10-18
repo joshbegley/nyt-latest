@@ -1,3 +1,11 @@
+**On the Campaign Trail, Trump Tries to Outrun a Bad Week in Washington**\
+`As Trump rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
+https://www.nytimes.com/2026/10/18/us/on-the-campaign-trail-trump-tries-to-outrun-a-bad-week-in-washington.html
+
+**Driver Is Released After Plowing Onto Soccer Field in Wichita, Kan., Killing Two**\
+`The police in Wichita, Kan., said the driver was released pending the results of toxicology testing. A 6-year-old child and a 35-year-old man were killed.`\
+https://www.nytimes.com/2026/10/18/us/wichita-soccer-field-crash-driver-released.html
+
 **Semi-Truck Rollover Spills Dozens of Cattle Across Downtown Kansas City**\
 `Some of the animals died, while others escaped and were roaming around downtown. The search and roundup of the livestock continued into the early afternoon.`\
 https://www.nytimes.com/2026/10/18/us/kansas-city-cows-crash.html
