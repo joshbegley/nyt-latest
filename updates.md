@@ -1,3 +1,7 @@
+**Pope Leo Addresses the Faithful a Day After Leaving the Hospital**\
+`“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
+https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
+
 **Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks**\
 `President Abdel Fattah el-Sisi had called on Egyptian lawmakers to authorize military assistance to the kingdom, saying any support would be defensive.`\
 https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html
