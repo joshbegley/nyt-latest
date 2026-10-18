@@ -1,3 +1,7 @@
+**Taylor Swift’s Spooky Night Out at the Academy Museum Gala**\
+`The pop star performed at the annual Academy Museum Gala in Los Angeles for a crowd filled with celebrities, film professionals and academy voters.`\
+https://www.nytimes.com/2026/10/18/style/taylor-swift-academy-museum-gala-2026.html
+
 **U.S. Officials Condemn West Bank Attacks as Netanyahu Casts Doubt on Them**\
 `Prime Minister Benjamin Netanyahu of Israel has downplayed accounts of recent extremist attacks on Palestinians in the West Bank amid the annual olive harvest.`\
 https://www.nytimes.com/2026/10/18/world/middleeast/netanyahu-settler-attacks-west-bank-palestinians.html
