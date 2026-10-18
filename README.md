@@ -1,3 +1,11 @@
+**Sausage Orzo With Sage Bread Crumbs; Roasted Tomato and White Bean Stew**\
+`And more fast weeknight recipes that are proudly, cozily autumnal.`\
+https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-roasted-tomato-and-white-bean-stew.html
+
+**Defending the Right to Choose Death**\
+`Readers respond to an Opinion guest essay about medical assistance in dying. Also: An assault on federal science.`\
+https://www.nytimes.com/2026/10/18/opinion/medical-assistance-in-dying.html
+
 **Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks**\
 `President Abdel Fattah el-Sisi had called on Egyptian lawmakers to authorize military assistance to the kingdom, saying any support would be defensive.`\
 https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across
 **In Midterm Campaign’s Final Stretch, Trump Can’t Stop Praising Men’s Bodies**\
 `As he stumps for midterm candidates, the president has been especially eager to talk about the physical appearance of some men.`\
 https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
-
-**2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
-`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. There were 10 others injured, including 5 children, and the driver was in custody.`\
-https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
-
-**Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
-`Senator Bernie Sanders of Vermont has made a point of investing in Republican-leaning states. He rallied in Tampa for Ms. Nixon, the underdog Democratic nominee for Florida Senate.`\
-https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florida-senate.html
 
