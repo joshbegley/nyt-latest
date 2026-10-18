@@ -1,3 +1,7 @@
+**Wilfredo Gomez, Knockout King at 122 Pounds, Dies at 69**\
+`He rose from poverty in Puerto Rico to win world boxing championships in three weight classes. He defended his titles with a record 17 straight KOs.`\
+https://www.nytimes.com/2026/10/18/obituaries/wilfredo-gomez-dead.html
+
 **Search Continues for 11 Passengers From Capsized Boat Off Mexico Coast**\
 `Sixteen people were rescued, but three had injuries consistent with shark bites. Eleven people are still missing.`\
 https://www.nytimes.com/2026/10/18/us/capsized-boat-survivors-sharks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting
 **3 Charts That Explain the Economy as Voters Head to the Polls**\
 `Inflation is high, consumer spending is strong and seemingly everything depends on what happens with artificial intelligence.`\
 https://www.nytimes.com/2026/10/18/business/economy/economy-midterm-elections.html
-
-**Across Farm Country, Economic Discontent Strains Republican Coalition**\
-`Farmers and ranchers have supported President Trump for a decade. But the war in Iran, tariffs and other administration policies have soured some on the G.O.P.`\
-https://www.nytimes.com/2026/10/18/us/politics/farmers-ranchers-trump-economic-stress.html
 

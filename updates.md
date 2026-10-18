@@ -1,3 +1,7 @@
+**Wilfredo Gomez, Knockout King at 122 Pounds, Dies at 69**\
+`He rose from poverty in Puerto Rico to win world boxing championships in three weight classes. He defended his titles with a record 17 straight KOs.`\
+https://www.nytimes.com/2026/10/18/obituaries/wilfredo-gomez-dead.html
+
 **Search Continues for 11 Passengers From Capsized Boat Off Mexico Coast**\
 `Sixteen people were rescued, but three had injuries consistent with shark bites. Eleven people are still missing.`\
 https://www.nytimes.com/2026/10/18/us/capsized-boat-survivors-sharks.html
