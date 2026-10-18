@@ -1,3 +1,7 @@
+**Ukraine Strikes Russian Oil Terminal, as Starshield Disruptions Persist**\
+`Ukrainian officials said the Pentagon and SpaceX have not yet responded to inquiries about disruptions to the U.S.-provided satellite internet service used by Ukrainian forces.`\
+https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
+
 **Pope Leo Thanks the Faithful in Weekly Address a Day After Leaving Hospital**\
 `“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
 https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
 **After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
 `Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
 https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
-
-**Super Typhoon Champi Passes Within 10 Miles of Guam**\
-`The storm rapidly intensified as it barreled toward Guam on Saturday, coming within 10 miles of the island.`\
-https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
 
