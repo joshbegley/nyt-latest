@@ -1,3 +1,7 @@
+**Zelensky Says Trump Risks ‘Historic Mistake’ If He Backs Russia**\
+`President Volodymyr Zelensky of Ukraine pressed Sunday for more information on possible restrictions to Starshield, a U.S.-provided satellite internet service used by the Ukrainian military.`\
+https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
+
 **France in Shock After Protests Devolve Into Riots**\
 `After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
