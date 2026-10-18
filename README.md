@@ -1,3 +1,7 @@
+**Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks**\
+`President Abdel Fattah el-Sisi had called on Egyptian lawmakers to authorize military assistance to the kingdom, saying any support would be defensive.`\
+https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html
+
 **The New Science of Stuttering**\
 `Experts are reaching consensus on what the condition is. Now they’re debating how best to treat it.`\
 https://www.nytimes.com/2026/10/18/science/the-new-science-of-stuttering.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
 **Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
 `Senator Bernie Sanders of Vermont has made a point of investing in Republican-leaning states. He rallied in Tampa for Ms. Nixon, the underdog Democratic nominee for Florida Senate.`\
 https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florida-senate.html
-
-**Tell Me About Yourself!**\
-`Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
-https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
 

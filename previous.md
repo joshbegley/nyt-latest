@@ -1,3 +1,7 @@
+**The New Science of Stuttering**\
+`Experts are reaching consensus on what the condition is. Now they’re debating how best to treat it.`\
+https://www.nytimes.com/2026/10/18/science/the-new-science-of-stuttering.html
+
 **O.J.’s Accomplice?**\
 `After all these years, we found new developments in the O.J. Simpson case.`\
 https://www.nytimes.com/2026/10/18/briefing/ojs-accomplice.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/politics/bernie-sanders-angie-nixon-florid
 **Tell Me About Yourself!**\
 `Peter Gorman’s first Sunday puzzle really just wants to be friends.`\
 https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
-
-**At Least 19 Dead After Stampede at Indian Religious Event**\
-`Such deadly crowd events are relatively common in India, and it was unclear what caused this one. The authorities detained the event’s organizer and others involved.`\
-https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
 
