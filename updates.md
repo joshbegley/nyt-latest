@@ -1,3 +1,11 @@
+**France in Shock After Largest Riots in Years**\
+`People in France woke up on Sunday to streets littered with shattered glass and images of burned-out government buildings after the country’s largest protests in years descended into violent riots.`\
+https://www.nytimes.com/video/world/europe/100000011221136/france-protests-riots-burning-fire.html
+
+**France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
+`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it largely subsided on Sunday.`\
+https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
+
 **The Chatbot Oracle**\
 `More people are turning to artificial intelligence for help making personal decisions. What does that cost us?`\
 https://www.nytimes.com/2026/10/18/briefing/the-chatbot-oracle.html
