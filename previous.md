@@ -1,3 +1,7 @@
+**Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
+`The defense minister said people were killed and injured at the base in Alberta, but officials did not offer details on the cause.`\
+https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
+
 **4 Takeaways From a Voting-Focused ‘No Kings’ Day**\
 `Saturday’s gatherings were more subdued than some past events, and many prominent Democrats skipped them.`\
 https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011216101/the-cringiest-and-crafties
 **What Do I Owe a Friend Whose Mental Illness Pulls Me Into Imagined Emergencies?**\
 `I don’t know how to establish boundaries with someone who may not be experiencing reality as I am.`\
 https://www.nytimes.com/2026/10/17/magazine/friend-mental-illness-emergency-ethics.html
-
-**NYT Connections Answers for October 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 18, 2026.`\
-https://www.nytimes.com/2026/10/17/crosswords/connections-companion-1225.html
 

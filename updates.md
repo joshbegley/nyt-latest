@@ -1,3 +1,7 @@
+**Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
+`The defense minister said people were killed and injured at the base in Alberta, but officials did not offer details on the cause.`\
+https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
+
 **4 Takeaways From a Voting-Focused ‘No Kings’ Day**\
 `Saturday’s gatherings were more subdued than some past events, and many prominent Democrats skipped them.`\
 https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
