@@ -1,3 +1,7 @@
+**O.J.’s Accomplice?**\
+`After all these years, we found new developments in the O.J. Simpson case.`\
+https://www.nytimes.com/2026/10/18/briefing/ojs-accomplice.html
+
 **Ukraine Strikes Russian Oil Terminal, as Starshield Disruptions Persist**\
 `Ukrainian officials said the Pentagon and SpaceX have not yet responded to inquiries about disruptions to the U.S.-provided satellite internet service used by Ukrainian forces.`\
 https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
