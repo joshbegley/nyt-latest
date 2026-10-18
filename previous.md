@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/10/18/style/savannah-james-lebron-james-76ers.html
 https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
 
 **France in Shock After Protests Devolve Into Riots**\
-`Centrist and leftist leaders blamed each other after anti-government protests devolved into chaos.`\
+`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
 
 **How a Dominican Man Became an ICE Target Before the NYC Shooting**\

@@ -1,3 +1,7 @@
+**France in Shock After Protests Devolve Into Riots**\
+`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
+https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
+
 **Sausage Orzo With Sage Bread Crumbs; Roasted Tomato and White Bean Stew**\
 `And more fast weeknight recipes that are proudly, cozily autumnal.`\
 https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-roasted-tomato-and-white-bean-stew.html
