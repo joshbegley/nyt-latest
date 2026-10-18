@@ -1,4 +1,4 @@
-**Fire at Canadian Army Base Killed 4 and Injured Dozens**\
+**Carney Says Fire at Canadian Forces Base Wainwright in Alberta Killed 4 and Injured Dozens**\
 `Prime Minister Mark Carney said the “violent, fast-moving” fire in the province of Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
 https://www.nytimes.com/2026/10/18/world/canada/canadian-army-base-fire-kills-4.html
 
