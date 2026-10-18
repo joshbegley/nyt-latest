@@ -1,3 +1,7 @@
+**Trump Endorses Netanyahu as Best U.S. Partner in Tight Israeli Election**\
+`The president praised the embattled prime minister for his endurance, saying any other candidate would be the “wrong Leader.”`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-endorses-netanyahu-election-israel.html
+
 **Chicken Au Poivre, Oh Yes**\
 `Says one reader of Kay Chun’s recipe: “A knock-your-socks-off recipe. Double the ingredients for the sauce. You won’t regret it.”`\
 https://www.nytimes.com/2026/10/18/dining/chicken-au-poivre-oh-yes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/learning/on-this-day-oct-18-tommie-smith-john
 **Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
 `The defense minister said people were killed and injured at a base in Alberta, but officials did not offer details on the cause.`\
 https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
-
-**4 Takeaways From a Voting-Focused ‘No Kings’ Day**\
-`Saturday’s gatherings were more subdued than some past events, and many prominent Democrats skipped them.`\
-https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
 
