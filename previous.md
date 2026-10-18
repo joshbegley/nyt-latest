@@ -1,3 +1,7 @@
+**The Case Against Business School**\
+`Students come in with noble intentions and leave with flawed expertise.`\
+https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
+
 **In India, the Scion of a Political Dynasty Tries to Seize His Moment**\
 `Rahul Gandhi is the descendant of three prime ministers. A surge of protests could give him a springboard to take on the nation’s current leader.`\
 https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/opinion/vienna-wwii-grandparents.html
 **The Cringiest and Craftiest 2026 Midterm Ads**\
 `Sex, video games and grandparents on the campaign trail.`\
 https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters.html
-
-**A Great Moral Blind Spot of Our Age**\
-`An undercover video offers a grim tableau of where our meat comes from.`\
-https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
 
