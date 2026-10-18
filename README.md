@@ -1,3 +1,7 @@
+**Fire at Canadian Army Base Killed 4 and Injured Dozens**\
+`Prime Minister Mark Carney said the “violent, fast-moving” fire in the province of Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
+https://www.nytimes.com/2026/10/18/world/canada/canadian-army-base-fire-kills-4.html
+
 **Taylor Swift’s Spooky Night Out at the Academy Museum Gala**\
 `The pop star performed at the annual Academy Museum Gala in Los Angeles for a crowd filled with celebrities, film professionals and academy voters.`\
 https://www.nytimes.com/2026/10/18/style/taylor-swift-academy-museum-gala-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for October 18, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/18/crosswords/spelling-bee-forum.html
-
-**I Teach at a Business School. It’s Time to Shut Them Down.**\
-`Students come in with noble intentions and leave with flawed expertise.`\
-https://www.nytimes.com/2026/10/18/opinion/business-school-mba-harvard-cornell-cambridge.html
 
