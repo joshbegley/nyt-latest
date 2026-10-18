@@ -1,3 +1,7 @@
+**Elizabeth Holmes Film Opens to Over 2,000 Sold-Out Shows**\
+`“You Can See Everything,” a documentary about the Theranos founder, made a big splash for a movie not yet in wide release. And Netflix had a box office milestone.`\
+https://www.nytimes.com/2026/10/18/business/media/box-office-elizabeth-holmes-netflix.html
+
 **France in Shock After Largest Riots in Years**\
 `People in France woke up on Sunday to streets littered with shattered glass and images of burned-out government buildings after the country’s largest protests in years descended into violent riots.`\
 https://www.nytimes.com/video/world/europe/100000011221136/france-protests-riots-burning-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/realestate/a-house-david-bowie-couldnt-wait-t
 **The Man Who Taught Us How to Pay Attention**\
 `The works of the British art critic John Berger offer the antidote to our age of infinite scrolling.`\
 https://www.nytimes.com/2026/10/18/magazine/john-berger-attention.html
-
-**Singing, Dancing and Getting Dumped by A.I. on Korean TV**\
-`Three celebrities date artificial intelligence avatars on a reality show made in South Korea, where A.I. is hugely popular.`\
-https://www.nytimes.com/2026/10/18/world/asia/korea-ai-dating-show.html
 
