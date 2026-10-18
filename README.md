@@ -1,3 +1,11 @@
+**Singing, Dancing and Getting Dumped by A.I. on Korean TV**\
+`Three celebrities date artificial intelligence avatars on a reality show made in South Korea, where A.I. is hugely popular.`\
+https://www.nytimes.com/2026/10/18/world/asia/korea-ai-dating-show.html
+
+**On This Day | Oct. 18**\
+`In 1968, the U.S. Olympic Committee suspended Tommie Smith and John Carlos, two Black athletes, after they raised black-gloved fists in protest during the U.S. anthem at the Olympics in Mexico City.`\
+https://www.nytimes.com/2026/10/18/learning/on-this-day-oct-18-tommie-smith-john-carlos.html
+
 **Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
 `The defense minister said people were killed and injured at the base in Alberta, but officials did not offer details on the cause.`\
 https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/17/opinion/ukraine-russian-culture.html
 **How to End Gerrymandering**\
 `A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
 https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
-
-**The Cringiest and Craftiest 2026 Midterm Ads**\
-`Sex, video games and grandparents on the campaign trail.`\
-https://www.nytimes.com/video/opinion/100000011216101/the-cringiest-and-craftiest-2026-midterm-ads.html
-
-**What Do I Owe a Friend Whose Mental Illness Pulls Me Into Imagined Emergencies?**\
-`I don’t know how to establish boundaries with someone who may not be experiencing reality as I am.`\
-https://www.nytimes.com/2026/10/17/magazine/friend-mental-illness-emergency-ethics.html
 
