@@ -1,3 +1,11 @@
+**Sausage Orzo With Sage Bread Crumbs; Roasted Tomato and White Bean Stew**\
+`And more fast weeknight recipes that are proudly, cozily autumnal.`\
+https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-roasted-tomato-and-white-bean-stew.html
+
+**Defending the Right to Choose Death**\
+`Readers respond to an Opinion guest essay about medical assistance in dying. Also: An assault on federal science.`\
+https://www.nytimes.com/2026/10/18/opinion/medical-assistance-in-dying.html
+
 **Oklahoma Families Faced the Hottest Summer Ever and an Electricity Crisis**\
 `Record heat and a rising demand for electricity are closing in on Oklahoma families trying to keep the lights on and the AC running.`\
 https://www.nytimes.com/2026/10/18/us/oklahoma-extreme-heat-electricity-crisis.html
