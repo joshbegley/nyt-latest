@@ -1,3 +1,7 @@
+**4 Takeaways From a Voting-Focused ‘No Kings’ Day**\
+`Saturday’s gatherings were more subdued than some past events, and many prominent Democrats skipped them.`\
+https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
+
 **2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
 `A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. There were 10 others injured, including 5 children, and the driver was in custody.`\
 https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
