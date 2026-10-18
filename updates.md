@@ -1,3 +1,7 @@
+**U.S. Officials Condemn West Bank Attacks as Netanyahu Casts Doubt on Them**\
+`Prime Minister Benjamin Netanyahu of Israel has downplayed accounts of recent extremist attacks on Palestinians in the West Bank amid the annual olive harvest.`\
+https://www.nytimes.com/2026/10/18/world/middleeast/netanyahu-settler-attacks-west-bank-palestinians.html
+
 **This French City Was Rarely Linked With Unrest. Then Arsonists Attacked.**\
 `As unrest surged across France this weekend, the most surprising attack came in the quiet city of Limoges, where rioters set fire to the city hall.`\
 https://www.nytimes.com/2026/10/18/world/france-limoges-fire-arson-protests.html
