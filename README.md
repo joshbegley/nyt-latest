@@ -1,3 +1,7 @@
+**France in Shock After Protests Devolve Into Riots**\
+`Centrist and leftist leaders blamed each other after anti-government protests devolved into chaos.`\
+https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
+
 **How a Dominican Man Became an ICE Target Before the NYC Shooting**\
 `Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
 https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/health/helen-branswell-dead.html
 **Susan Collins Criticizes Rival’s ‘Oh, Shut Up’ Comment as ‘Very Telling’**\
 `Ms. Collins, a Republican running in a crucial race, said the debate remark by Troy Jackson reflected how he treated women. Mr. Jackson defended his comment.`\
 https://www.nytimes.com/2026/10/17/us/politics/susan-collins-troy-jackson-shut-up-debate.html
-
-**Halloween Candy, Meet Kitchen Sink Skillet Cookie**\
-`Don’t let your sweet spoils go stale in the candy basket. Turn them into a giant dessert instead.`\
-https://www.nytimes.com/2026/10/17/dining/halloween-candy-meet-kitchen-sink-skillet-cookie.html
 
