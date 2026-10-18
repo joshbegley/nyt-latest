@@ -1,3 +1,11 @@
+**The Chatbot Oracle**\
+`More people are turning to artificial intelligence for help making personal decisions. What does that cost us?`\
+https://www.nytimes.com/2026/10/18/briefing/the-chatbot-oracle.html
+
+**This Is the Good Scenario?**\
+`We may not want it to, but A.I. is asking us how to live.`\
+https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
+
 **Trump Endorses Netanyahu as Best U.S. Partner in Tight Israeli Election**\
 `The president praised the embattled prime minister for his endurance, saying any other candidate would be the “wrong Leader.”`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-endorses-netanyahu-election-israel.html

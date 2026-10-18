@@ -1,3 +1,7 @@
+**France in Shock After Largest Riots in Years**\
+`People in France woke up on Sunday to streets littered with shattered glass and images of burned-out government buildings after the country’s largest protests in years descended into violent riots.`\
+https://www.nytimes.com/video/world/europe/100000011221136/france-protests-riots-burning-fire.html
+
 **The Chatbot Oracle**\
 `More people are turning to artificial intelligence for help making personal decisions. What does that cost us?`\
 https://www.nytimes.com/2026/10/18/briefing/the-chatbot-oracle.html
@@ -151,7 +155,7 @@ https://www.nytimes.com/2026/10/18/style/savannah-james-lebron-james-76ers.html
 https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
 
 **France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
-`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
+`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it largely subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
 
 **How a Dominican Man Became an ICE Target Before the NYC Shooting**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/magazine/john-berger-attention.html
 **Singing, Dancing and Getting Dumped by A.I. on Korean TV**\
 `Three celebrities date artificial intelligence avatars on a reality show made in South Korea, where A.I. is hugely popular.`\
 https://www.nytimes.com/2026/10/18/world/asia/korea-ai-dating-show.html
-
-**On This Day | Oct. 18**\
-`In 1968, the U.S. Olympic Committee suspended Tommie Smith and John Carlos, two Black athletes, after they raised black-gloved fists in protest during the U.S. anthem at the Olympics in Mexico City.`\
-https://www.nytimes.com/2026/10/18/learning/on-this-day-oct-18-tommie-smith-john-carlos.html
 

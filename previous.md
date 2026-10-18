@@ -1,3 +1,7 @@
+**The Chatbot Oracle**\
+`More people are turning to artificial intelligence for help making personal decisions. What does that cost us?`\
+https://www.nytimes.com/2026/10/18/briefing/the-chatbot-oracle.html
+
 **Trump Endorses Netanyahu as Best U.S. Partner in Tight Israeli Election**\
 `The president praised the embattled prime minister for his endurance, saying any other candidate would be the “wrong Leader.”`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-endorses-netanyahu-election-israel.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.ht
 `“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
 https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
 
-**Would You Press This Button?**\
+**This Is the Good Scenario?**\
 `We may not want it to, but A.I. is asking us how to live.`\
 https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/world/asia/korea-ai-dating-show.html
 **On This Day | Oct. 18**\
 `In 1968, the U.S. Olympic Committee suspended Tommie Smith and John Carlos, two Black athletes, after they raised black-gloved fists in protest during the U.S. anthem at the Olympics in Mexico City.`\
 https://www.nytimes.com/2026/10/18/learning/on-this-day-oct-18-tommie-smith-john-carlos.html
-
-**Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
-`The defense minister said people were killed and injured at a base in Alberta, but officials did not offer details on the cause.`\
-https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
 
