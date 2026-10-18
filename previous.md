@@ -1,4 +1,4 @@
-**Elizabeth Holmes Film Opens to Over 2,000 Sold-Out Shows**\
+**Elizabeth Holmes Documentary ‘You Can See Everything’ Opens to Over 2,000 Sold-Out Shows**\
 `“You Can See Everything,” a documentary about the Theranos founder, made a big splash for a movie not yet in wide release. And Netflix had a box office milestone.`\
 https://www.nytimes.com/2026/10/18/business/media/box-office-elizabeth-holmes-netflix.html
 
