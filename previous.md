@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/10/18/us/kansas-city-cows-crash.html
 https://www.nytimes.com/2026/10/18/us/politics/obama-ilhan-omar-trump-investigation-immigration.html
 
 **Albania’s Leader, Edi Rama, Denounces Violent Protests**\
-`Students upset by the cost of education and living costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
+`Students upset by living and educational costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
 https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
 
 **Trump Outlines Rapid Plan to Close and Overhaul D.C. Golf Course**\

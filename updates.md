@@ -1,3 +1,7 @@
+**Albania’s Leader, Edi Rama, Denounces Violent Protests**\
+`Students upset by living and educational costs have revived protests. Prime Minister Edi Rama said they were being used by “outside forces.”`\
+https://www.nytimes.com/2026/10/18/world/europe/albania-protrests.html
+
 **2028 Presidential ‘Shadow Primary’ Descends on the Midterm Elections**\
 `The schedule is especially packed in New Hampshire, an early presidential nominating state where there is a competitive Senate race Democrats are flocking to this month.`\
 https://www.nytimes.com/2026/10/18/us/politics/midterms-2028-presidential-race-democrats-republicans.html
