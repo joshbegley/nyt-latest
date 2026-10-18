@@ -1,3 +1,7 @@
+**Carney Says Fire at Canadian Forces Base Wainwright in Alberta Killed 4 and Injured Dozens**\
+`Prime Minister Mark Carney said the “violent, fast-moving” fire on Saturday in Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
+https://www.nytimes.com/2026/10/18/world/canada/canadian-army-base-fire-kills-4.html
+
 **Wilfredo Gomez, Knockout King at 122 Pounds, Dies at 69**\
 `He rose from poverty in Puerto Rico to win world boxing championships in three weight classes. He defended his titles with a record 17 straight KOs.`\
 https://www.nytimes.com/2026/10/18/obituaries/wilfredo-gomez-dead.html

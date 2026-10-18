@@ -1,3 +1,7 @@
+**June 17, 1994: Millions Watched Police Chase O.J. Simpson in a Bronco**\
+`The chase occurred days after his ex-wife and her friend were killed. New details shed light on the role that a mobster might have played in helping Mr. Simpson.`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-white-bronco-police-chase.html
+
 **Wilfredo Gomez, Knockout King at 122 Pounds, Dies at 69**\
 `He rose from poverty in Puerto Rico to win world boxing championships in three weight classes. He defended his titles with a record 17 straight KOs.`\
 https://www.nytimes.com/2026/10/18/obituaries/wilfredo-gomez-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011193911/there-is-more-to-the-oj-simpson
 **‘No Kings’ Rallies Focus on Early Voting Before Midterms**\
 `With midterm elections approaching, organizers of the “No Kings” demonstrations, known for their anti-Trump sentiment, urged people to vote early.`\
 https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting-midterms.html
-
-**3 Charts That Explain the Economy as Voters Head to the Polls**\
-`Inflation is high, consumer spending is strong and seemingly everything depends on what happens with artificial intelligence.`\
-https://www.nytimes.com/2026/10/18/business/economy/economy-midterm-elections.html
 
