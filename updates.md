@@ -1,3 +1,7 @@
+**Pope Leo Thanks the Faithful in Weekly Address a Day After Leaving Hospital**\
+`“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
+https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
+
 **Would You Press This Button?**\
 `We may not want it to, but A.I. is asking us how to live.`\
 https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
