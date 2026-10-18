@@ -1,3 +1,7 @@
+**Trump Endorses Netanyahu as Best U.S. Partner in Tight Israeli Election**\
+`The president praised the embattled prime minister for his endurance, saying any other candidate would be the “wrong Leader.”`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-endorses-netanyahu-election-israel.html
+
 **Chicken Au Poivre, Oh Yes**\
 `Says one reader of Kay Chun’s recipe: “A knock-your-socks-off recipe. Double the ingredients for the sauce. You won’t regret it.”`\
 https://www.nytimes.com/2026/10/18/dining/chicken-au-poivre-oh-yes.html
