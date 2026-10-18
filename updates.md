@@ -1,3 +1,7 @@
+**Coastal Storm Threatens Mid-Atlantic With High Winds and Flooding**\
+`A slow-moving nor’easter could cause days of coastal flooding and beach erosion from North Carolina to New Jersey, forecasters said.`\
+https://www.nytimes.com/2026/10/18/weather/noreaster-mid-atlantic-north-carolina-new-jersey.html
+
 **Zelensky Says Trump Risks ‘Historic Mistake’ If He Backs Russia**\
 `President Volodymyr Zelensky of Ukraine pressed Sunday for more information on possible restrictions to Starshield, a U.S.-provided satellite internet service used by the Ukrainian military.`\
 https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html

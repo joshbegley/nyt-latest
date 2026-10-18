@@ -1,3 +1,7 @@
+**Coastal Storm Threatens Mid-Atlantic With High Winds and Flooding**\
+`A slow-moving nor’easter could cause days of coastal flooding and beach erosion from North Carolina to New Jersey, forecasters said.`\
+https://www.nytimes.com/2026/10/18/weather/noreaster-mid-atlantic-north-carolina-new-jersey.html
+
 **Sausage Orzo With Sage Bread Crumbs; Roasted Tomato and White Bean Stew**\
 `And more fast weeknight recipes that are proudly, cozily autumnal.`\
 https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-roasted-tomato-and-white-bean-stew.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
 **Protests Sweep Across France**\
 `More than half a million people joined protests in France on Saturday as a student-focused movement converged with a broader one against rising prices.`\
 https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across-france.html
-
-**In Midterm Campaign’s Final Stretch, Trump Can’t Stop Praising Men’s Bodies**\
-`As he stumps for midterm candidates, the president has been especially eager to talk about the physical appearance of some men.`\
-https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
 
