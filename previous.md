@@ -1,3 +1,7 @@
+**Chicken Au Poivre, Oh Yes**\
+`Says one reader of Kay Chun’s recipe: “A knock-your-socks-off recipe. Double the ingredients for the sauce. You won’t regret it.”`\
+https://www.nytimes.com/2026/10/18/dining/chicken-au-poivre-oh-yes.html
+
 **Coastal Storm Threatens Mid-Atlantic With High Winds and Flooding**\
 `A slow-moving nor’easter could cause days of coastal flooding and beach erosion from North Carolina to New Jersey, forecasters said.`\
 https://www.nytimes.com/2026/10/18/weather/noreaster-mid-atlantic-north-carolina-new-jersey.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwrig
 **4 Takeaways From a Voting-Focused ‘No Kings’ Day**\
 `Saturday’s gatherings were more subdued than some past events, and many prominent Democrats skipped them.`\
 https://www.nytimes.com/2026/10/17/us/politics/no-kings-day-takeways.html
-
-**Protests Sweep Across France**\
-`More than half a million people joined protests in France on Saturday as a student-focused movement converged with a broader one against rising prices.`\
-https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across-france.html
 

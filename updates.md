@@ -1,3 +1,7 @@
+**Chicken Au Poivre, Oh Yes**\
+`Says one reader of Kay Chun’s recipe: “A knock-your-socks-off recipe. Double the ingredients for the sauce. You won’t regret it.”`\
+https://www.nytimes.com/2026/10/18/dining/chicken-au-poivre-oh-yes.html
+
 **France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
 `After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
