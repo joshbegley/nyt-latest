@@ -1,5 +1,9 @@
+**7 Takeaways From Chuck Lorre’s New Memoir, ‘Sitcom’**\
+`In “Sitcom,” the longtime TV writer and producer Chuck Lorre gives his candid take on Charlie Sheen, Roseanne Barr and the “Big Bang” cast.`\
+https://www.nytimes.com/2026/10/18/arts/television/chuck-lorre-book-sitcom.html
+
 **Carney Says Fire at Canadian Forces Base Wainwright in Alberta Killed 4 and Injured Dozens**\
-`Prime Minister Mark Carney said the “violent, fast-moving” fire in the province of Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
+`Prime Minister Mark Carney said the “violent, fast-moving” fire on Saturday in the province of Alberta was one of the worst tragedies for Canada’s armed forces in peacetime on Canadian soil.`\
 https://www.nytimes.com/2026/10/18/world/canada/canadian-army-base-fire-kills-4.html
 
 **Taylor Swift’s Spooky Night Out at the Academy Museum Gala**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011205812/are-ice-officers-reall
 **‘My Friend Pulled Out His Phone to Get a Picture.’**\
 `Getting the hang of things uptown, pausing for a praying mantis and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/10/18/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for October 18, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/18/crosswords/spelling-bee-forum.html
 
