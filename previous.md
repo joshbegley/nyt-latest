@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/10/18/style/savannah-james-lebron-james-76ers.html
 `David McCloskey, a C.I.A. analyst turned spy novelist, has just released his fifth book, “London Station.”`\
 https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
 
-**France in Shock After Protests Devolve Into Riots**\
+**France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
 `After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
 https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
 

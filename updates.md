@@ -1,3 +1,7 @@
+**France in Shock After Protests Turn Into Riots, Damaging Buildings and Shops**\
+`After anti-government protests devolved into chaos, leaders from across the political spectrum blamed one another for the unrest, even as it subsided on Sunday.`\
+https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
+
 **Coastal Storm Threatens Mid-Atlantic With High Winds and Flooding**\
 `A slow-moving nor’easter could cause days of coastal flooding and beach erosion from North Carolina to New Jersey, forecasters said.`\
 https://www.nytimes.com/2026/10/18/weather/noreaster-mid-atlantic-north-carolina-new-jersey.html
