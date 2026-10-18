@@ -1,3 +1,7 @@
+**Trump Outlines Rapid Plan to Close and Overhaul D.C. Golf Course**\
+`The plan to begin work transforming the course in four weeks injected fresh urgency into a federal lawsuit opposing changes to East Potomac Golf Links.`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-golf-course-east-potomac-washington.html
+
 **NDAs: Now They’re for Butlers and Housekeepers, Too**\
 `A legal agreement once used mainly in business has become a tool for preventing household workers from talking about their wealthy employers.`\
 https://www.nytimes.com/2026/10/18/style/nondisclosure-agreements-household-staff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html
 **How a Dominican Man Became an ICE Target Before the NYC Shooting**\
 `Oscar Belgal arrived in the city from the Dominican Republic in 2022. Chaos appeared to follow, ending in a fateful encounter with immigration agents.`\
 https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
-
-**Are ICE Officers Really Targeting the ‘Worst of the Worst’?**\
-`The homeland security secretary, Markwayne Mullin, has repeatedly said ICE agents are pursuing “the worst of the worst” criminals. But as Hamed Aleaziz, a reporter for The New York Times, explains, data shows that arrests of people with no criminal record have soared this summer.`\
-https://www.nytimes.com/video/us/politics/100000011205812/are-ice-officers-really-targeting-the-worst-of-the-worst.html
 

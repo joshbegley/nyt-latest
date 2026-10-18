@@ -1,3 +1,7 @@
+**NDAs: Now They’re for Butlers and Housekeepers, Too**\
+`A legal agreement once used mainly in business has become a tool for preventing household workers from talking about their wealthy employers.`\
+https://www.nytimes.com/2026/10/18/style/nondisclosure-agreements-household-staff.html
+
 **7 Takeaways From Chuck Lorre’s New Memoir, ‘Sitcom’**\
 `In “Sitcom,” the longtime TV writer and producer Chuck Lorre gives his candid take on Charlie Sheen, Roseanne Barr and the “Big Bang” cast.`\
 https://www.nytimes.com/2026/10/18/arts/television/chuck-lorre-book-sitcom.html
