@@ -1,3 +1,7 @@
+**This French City Was Rarely Linked With Unrest. Then Arsonists Attacked.**\
+`As unrest surged across France this weekend, the most surprising attack came in the quiet city of Limoges, where rioters set fire to the city hall.`\
+https://www.nytimes.com/2026/10/18/world/france-limoges-fire-arson-protests.html
+
 **Pope Leo Addresses Crowd a Day After Leaving Hospital**\
 `Pope Leo XIV spoke from the Apostolic Palace overlooking St. Peter’s Square on Sunday. The day before, Leo was discharged from the hospital after surgery to remove a cancerous tumor from his right lung.`\
 https://www.nytimes.com/video/world/europe/100000011221257/pope-leo-xiv-lung-cancer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.htm
 **Quote of the Day: The Elk Who Left His Herd and Enchanted an Island**\
 `Quotation of the Day for Sunday, October 18, 2026.`\
 https://www.nytimes.com/2026/10/18/pageoneplus/quote-of-the-day-the-elk-who-left-his-herd-and-enchanted-an-island.html
-
-**A House David Bowie Couldn’t Wait to Leave Is Becoming a Museum**\
-`If all goes to plan, Bowie’s childhood home in the London suburb of Bromley will become an attraction.`\
-https://www.nytimes.com/2026/10/18/realestate/david-bowie-childhood-house-museum-london.html
 
