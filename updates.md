@@ -1,3 +1,7 @@
+**2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
+`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. There were 10 others injured, including 5 children, and the driver was in custody.`\
+https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
+
 **Protests Sweep Across France**\
 `More than half a million people joined protests in France on Saturday as a student-focused movement converged with a broader one against rising prices.`\
 https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across-france.html

@@ -7,7 +7,7 @@ https://www.nytimes.com/video/world/europe/100000011220461/protests-sweep-across
 https://www.nytimes.com/2026/10/17/us/politics/trump-men-physical-appearance-comments.html
 
 **2 Killed, Including Child, as Truck Plows Through Wichita, Kan., Soccer Game**\
-`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. Multiple other people were injured and the driver was in custody.`\
+`A pickup truck drove through a soccer field in Wichita, Kan., the authorities said. There were 10 others injured, including 5 children, and the driver was in custody.`\
 https://www.nytimes.com/2026/10/17/us/wichita-truck-soccer-deaths.html
 
 **Bernie Sanders Visits Florida to Campaign With Angie Nixon**\
