@@ -1,3 +1,7 @@
+**Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks**\
+`President Abdel Fattah el-Sisi had called on Egyptian lawmakers to authorize military assistance to the kingdom, saying any support would be defensive.`\
+https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html
+
 **The New Science of Stuttering**\
 `Experts are reaching consensus on what the condition is. Now they’re debating how best to treat it.`\
 https://www.nytimes.com/2026/10/18/science/the-new-science-of-stuttering.html
