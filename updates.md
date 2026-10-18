@@ -1,3 +1,35 @@
+**Would You Press This Button?**\
+`We may not want it to, but A.I. is asking us how to live.`\
+https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
+
+**Even a Blue Wave Can’t Stop Trump**\
+`Congressional powers may be less than they appear to be, especially lately.`\
+https://www.nytimes.com/2026/10/18/opinion/midterms-congress-trump-democrats.html
+
+**Elizabeth Holmes and Nathan Fielder Keep Us Guessing**\
+`The documentary “You Can See Everything” unites a mysterious filmmaker with a mysterious subject.`\
+https://www.nytimes.com/2026/10/18/podcasts/the-daily/elizabeth-holmes-and-nathan-fielder-keep-us-guessing.html
+
+**‘I Shall Be Very Surprised if There Isn’t a Next Chapter’: A Q&A With Sarah Coakley**\
+`Unless we can regenerate the depth of the theological tradition alongside the depth of spiritual transformation, our churches deserve to be empty.`\
+https://www.nytimes.com/2026/10/18/opinion/religion-christ-systematic-theology-sarah-coakley.html
+
+**Three Scenarios for a Leaderless World**\
+`Here are three scenarios for what the new global order might look like.`\
+https://www.nytimes.com/2026/10/18/opinion/america-world-order-democracy-trump.html
+
+**NYT Connections Answers for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/connections-companion-1226.html
+
+**NYT Strands Hints for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/strands-sidekick-960.html
+
+**Today’s Wordle Hints for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/wordle-review-1948.html
+
 **O.J. Simpson, a Secret Informant and a Decades-Old Mystery**\
 `An “extremely reliable” informant told authorities about the missing murder weapon, according to newly unsealed records. The informant’s brother told The Times his sibling was at the crime scene.`\
 https://www.nytimes.com/2026/10/18/us/oj-simpson-ippolito-informant-accomplice.html

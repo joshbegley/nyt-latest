@@ -1,3 +1,35 @@
+**Would You Press This Button?**\
+`We may not want it to, but A.I. is asking us how to live.`\
+https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
+
+**Even a Blue Wave Can’t Stop Trump**\
+`Congressional powers may be less than they appear to be, especially lately.`\
+https://www.nytimes.com/2026/10/18/opinion/midterms-congress-trump-democrats.html
+
+**Elizabeth Holmes and Nathan Fielder Keep Us Guessing**\
+`The documentary “You Can See Everything” unites a mysterious filmmaker with a mysterious subject.`\
+https://www.nytimes.com/2026/10/18/podcasts/the-daily/elizabeth-holmes-and-nathan-fielder-keep-us-guessing.html
+
+**‘I Shall Be Very Surprised if There Isn’t a Next Chapter’: A Q&A With Sarah Coakley**\
+`Unless we can regenerate the depth of the theological tradition alongside the depth of spiritual transformation, our churches deserve to be empty.`\
+https://www.nytimes.com/2026/10/18/opinion/religion-christ-systematic-theology-sarah-coakley.html
+
+**Three Scenarios for a Leaderless World**\
+`Here are three scenarios for what the new global order might look like.`\
+https://www.nytimes.com/2026/10/18/opinion/america-world-order-democracy-trump.html
+
+**NYT Connections Answers for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/connections-companion-1226.html
+
+**NYT Strands Hints for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/strands-sidekick-960.html
+
+**Today’s Wordle Hints for October 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
+https://www.nytimes.com/2026/10/18/crosswords/wordle-review-1948.html
+
 **O.J. Simpson, a Secret Informant and a Decades-Old Mystery**\
 `An “extremely reliable” informant told authorities about the missing murder weapon, according to newly unsealed records. The informant’s brother told The Times his sibling was at the crime scene.`\
 https://www.nytimes.com/2026/10/18/us/oj-simpson-ippolito-informant-accomplice.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/17/weather/super-typhoon-champi-guam-threat.html
 **Graham Breaks With Trump Over Russia Sanctions Law Her Brother Championed**\
 `Senator Darline Graham, appointed to fill the Senate seat of her late brother, Lindsey, gently disagreed with the president’s decision to exempt Russia from the sanctions legislation.`\
 https://www.nytimes.com/2026/10/17/us/politics/graham-trump-russia-sanctions-law.html
-
-**Mexican Judge Sentences 3 Men to 159 Years Each in Surfer Killings**\
-`The men were charged in the murders of two Australians and an American who were on a camping and surf vacation in Mexico.`\
-https://www.nytimes.com/2026/10/17/world/americas/mexican-judge-sentences-3-men-to-159-years-each-in-surfer-killings.html
-
-**Cliff Hagan, Master of the Hook Shot, Dies at 94**\
-`Inducted into the Basketball Hall of Fame in 1978, he led Kentucky to a national title in 1951 and the St. Louis Hawks to a league championship in 1958.`\
-https://www.nytimes.com/2026/10/17/sports/cliff-hagan-dead.html
-
-**Kenya Confirms Four New Ebola Cases**\
-`Seven Ebola infections have now been confirmed in Kenya, which before this month had never recorded cases of the deadly virus.`\
-https://www.nytimes.com/2026/10/17/world/africa/kenya-ebola.html
-
-**New Round of ‘No Kings’ Rallies Focuses on Getting Out the Vote**\
-`With midterm elections approaching, organizers of the demonstrations known for their anti-Trump sentiment are urging people to vote early.`\
-https://www.nytimes.com/2026/10/17/us/no-kings-early-voting-midterms.html
-
-**How Do You Talk to an Elementary Schooler About a Shooting?**\
-`Parents in Bend, Ore., are struggling to help their children cope after a teenage shooter killed three students and a teacher at Silver Rail Elementary School on Thursday.`\
-https://www.nytimes.com/video/us/100000011220249/how-do-you-talk-to-an-elementary-schooler-about-a-shooting.html
-
-**Paxton Hits the Road, Looking to Rally Texas Republicans**\
-`Ken Paxton’s bus tour of Texas comes as polls have shown the race for Senate is increasingly close. His rival, James Talarico, is scheduled to kick off a similar tour on Sunday.`\
-https://www.nytimes.com/2026/10/17/us/paxton-bus-tour-texas-republicans.html
-
-**NYC Subway Shooting in Midtown Leaves Man Dead**\
-`The shooting occurred on Saturday at the 7th Avenue Station on 53rd Street, near Times Square. The Police Department said there have been no arrests.`\
-https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
-
-**Trump Offers Putin Economic Relief in Hopes That Russia Will Return the Favor**\
-`The Trump administration is ignoring the will of Congress and waiving new Russia sanctions amid fears that high energy prices will cost Republicans in next month’s elections.`\
-https://www.nytimes.com/2026/10/17/business/trump-russia-sanctions-congress.html
 
