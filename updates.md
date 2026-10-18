@@ -1,3 +1,11 @@
+**This French City Was Rarely Linked With Unrest. Then Arsonists Attacked.**\
+`As unrest surged across France this weekend, the most surprising attack came in the quiet city of Limoges, where rioters set fire to the city hall.`\
+https://www.nytimes.com/2026/10/18/world/france-limoges-fire-arson-protests.html
+
+**Pope Leo Addresses Crowd a Day After Leaving Hospital**\
+`Pope Leo XIV spoke from the Apostolic Palace overlooking St. Peter’s Square on Sunday. The day before, Leo was discharged from the hospital after surgery to remove a cancerous tumor from his right lung.`\
+https://www.nytimes.com/video/world/europe/100000011221257/pope-leo-xiv-lung-cancer.html
+
 **Elizabeth Holmes Documentary ‘You Can See Everything’ Opens to Over 2,000 Sold-Out Shows**\
 `“You Can See Everything,” a documentary about the Theranos founder, made a big splash for a movie not yet in wide release. And Netflix had a box office milestone.`\
 https://www.nytimes.com/2026/10/18/business/media/box-office-elizabeth-holmes-netflix.html
