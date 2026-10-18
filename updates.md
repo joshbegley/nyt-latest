@@ -1,3 +1,7 @@
+**Search Continues for 11 Passengers From Capsized Boat Off Mexico Coast**\
+`Sixteen people were rescued, but three had injuries consistent with shark bites. Eleven people are still missing.`\
+https://www.nytimes.com/2026/10/18/us/capsized-boat-survivors-sharks.html
+
 **NYT Crossword Answers for Oct. 19, 2026**\
 `It’s all in a day’s work for Michèle Govier.`\
 https://www.nytimes.com/2026/10/18/crosswords/daily-puzzle-2026-10-19.html
