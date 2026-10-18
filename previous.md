@@ -1,3 +1,7 @@
+**Semi-Truck Rollover Spills Dozens of Cattle Across Downtown Kansas City**\
+`Some of the animals died, while others escaped and were roaming around downtown. The search and roundup of the livestock continued into the early afternoon.`\
+https://www.nytimes.com/2026/10/18/us/kansas-city-cows-crash.html
+
 **Obama Defends Rep. Ilhan Omar Amid Trump Administration Inquiry**\
 `Federal agents searched Ms. Omar’s Washington home last week and issued subpoenas to some family members in search of evidence of fraud in immigration paperwork.`\
 https://www.nytimes.com/2026/10/18/us/politics/obama-ilhan-omar-trump-investigation-immigration.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/100000011145519/julia-louis-dreyfus-elaine-br
 **Savannah James, Wife of LeBron, Comes Off the Sidelines**\
 `After some two-dozen seasons of basketball, the wife of LeBron James is taking her own shot.`\
 https://www.nytimes.com/2026/10/18/style/savannah-james-lebron-james-76ers.html
-
-**America’s Answer to John le Carré**\
-`David McCloskey, a C.I.A. analyst turned spy novelist, has just released his fifth book, “London Station.”`\
-https://www.nytimes.com/2026/10/18/books/review/david-mccloskey.html
 

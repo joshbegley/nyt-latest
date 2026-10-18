@@ -1,3 +1,7 @@
+**Semi-Truck Rollover Spills Dozens of Cattle Across Downtown Kansas City**\
+`Some of the animals died, while others escaped and were roaming around downtown. The search and roundup of the livestock continued into the early afternoon.`\
+https://www.nytimes.com/2026/10/18/us/kansas-city-cows-crash.html
+
 **The Old World Order Is Over. This Is What Could Come Next.**\
 `Here are three scenarios for what the new global order might look like.`\
 https://www.nytimes.com/2026/10/18/opinion/america-world-order-democracy-trump.html
