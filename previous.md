@@ -1,3 +1,19 @@
+**O.J. Simpson, a Secret Informant and a Decades-Old Mystery**\
+`An “extremely reliable” informant told authorities about the missing murder weapon, according to newly unsealed records. The informant’s brother told The Times his sibling was at the crime scene.`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-ippolito-informant-accomplice.html
+
+**Read the Letter Detailing Joey Ippolito’s Tips About Mafia, O.J. Simpson**\
+`This letter, written by a prosecutor and filed in federal court in New York in December 1996, detailed Joey Ippolito’s cooperation with law enforcement shortly after his arrest in August 1995. The letter had been kept secret in a court file until The Times persuaded a judge earlier this year to unseal it.`\
+https://www.nytimes.com/interactive/2026/10/18/us/oj-simpson-joey-ippolito-memo.html
+
+**5 Takeaways From The Times’s Re-Examination of the O.J. Simpson Case**\
+`Newly unsealed court files and interviews challenge the popular narrative around the murders and the “trial of the century.”`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-case-takeaways.html
+
+**There Is More to the O.J. Simpson Story**\
+`Our national investigative reporter, Mike Baker, helped pry loose previously sealed court files that reveal important new details in the O.J. Simpson case.`\
+https://www.nytimes.com/video/us/100000011193911/there-is-more-to-the-oj-simpson-story.html
+
 **‘No Kings’ Rallies Focus on Early Voting Before Midterms**\
 `With midterm elections approaching, organizers of the “No Kings” demonstrations, known for their anti-Trump sentiment, urged people to vote early.`\
 https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting-midterms.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/17/nyregion/subway-shooting-man-dead-nyc.html
 **Trump Offers Putin Economic Relief in Hopes That Russia Will Return the Favor**\
 `The Trump administration is ignoring the will of Congress and waiving new Russia sanctions amid fears that high energy prices will cost Republicans in next month’s elections.`\
 https://www.nytimes.com/2026/10/17/business/trump-russia-sanctions-congress.html
-
-**Florida Man Killed by Alligator While Fishing Near Lake Apopka in Winter Garden**\
-`The man, 71, was fishing at Dr. Bradford Memorial Park near Lake Apopka when he was killed by a 12-foot alligator. The reptile was later “removed as a danger to the public,” the authorities said.`\
-https://www.nytimes.com/2026/10/17/us/winter-garden-alligator-attack-florida.html
-
-**Israeli Settlers Attack Palestinians and European Officials in West Bank**\
-`Extremists assaulted residents and broke a European diplomatic vehicle’s window, witnesses said, as settler violence surges in the territory during the olive harvest.`\
-https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html
-
-**Unrest Mars Day of Protest in France, as Student Movement Turns National**\
-`Riots broke out in several French cities alongside peaceful marches of tens of thousands of people demonstrating against rising living costs and poor school conditions.`\
-https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html
-
-**Egypt’s President Says He Will Leave Office in 2030**\
-`President Abdel Fattah el-Sisi, who has so far ruled for over a dozen years, pledged to respect constitutional limits while also seeking parliamentary approval to help defend Saudi Arabia.`\
-https://www.nytimes.com/2026/10/17/world/middleeast/egypt-president-el-sisi-term-limits-2030.html
 

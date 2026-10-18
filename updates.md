@@ -1,3 +1,19 @@
+**O.J. Simpson, a Secret Informant and a Decades-Old Mystery**\
+`An “extremely reliable” informant told authorities about the missing murder weapon, according to newly unsealed records. The informant’s brother told The Times his sibling was at the crime scene.`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-ippolito-informant-accomplice.html
+
+**Read the Letter Detailing Joey Ippolito’s Tips About Mafia, O.J. Simpson**\
+`This letter, written by a prosecutor and filed in federal court in New York in December 1996, detailed Joey Ippolito’s cooperation with law enforcement shortly after his arrest in August 1995. The letter had been kept secret in a court file until The Times persuaded a judge earlier this year to unseal it.`\
+https://www.nytimes.com/interactive/2026/10/18/us/oj-simpson-joey-ippolito-memo.html
+
+**5 Takeaways From The Times’s Re-Examination of the O.J. Simpson Case**\
+`Newly unsealed court files and interviews challenge the popular narrative around the murders and the “trial of the century.”`\
+https://www.nytimes.com/2026/10/18/us/oj-simpson-case-takeaways.html
+
+**There Is More to the O.J. Simpson Story**\
+`Our national investigative reporter, Mike Baker, helped pry loose previously sealed court files that reveal important new details in the O.J. Simpson case.`\
+https://www.nytimes.com/video/us/100000011193911/there-is-more-to-the-oj-simpson-story.html
+
 **‘No Kings’ Rallies Focus on Early Voting Before Midterms**\
 `With midterm elections approaching, organizers of the “No Kings” demonstrations, known for their anti-Trump sentiment, urged people to vote early.`\
 https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting-midterms.html
