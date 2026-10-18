@@ -1,3 +1,27 @@
+**In India, the Scion of a Political Dynasty Tries to Seize His Moment**\
+`Rahul Gandhi is the descendant of three prime ministers. A surge of protests could give him a springboard to take on the nation’s current leader.`\
+https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html
+
+**Quote of the Day: The Elk Who Left His Herd and Enchanted an Island**\
+`Quotation of the Day for Sunday, October 18, 2026.`\
+https://www.nytimes.com/2026/10/18/pageoneplus/quote-of-the-day-the-elk-who-left-his-herd-and-enchanted-an-island.html
+
+**A House David Bowie Couldn’t Wait to Leave Is Becoming a Museum**\
+`If all goes to plan, Bowie’s childhood home in the London suburb of Bromley will become an attraction.`\
+https://www.nytimes.com/2026/10/18/realestate/a-house-david-bowie-couldnt-wait-to-leave-is-becoming-a-museum.html
+
+**The Man Who Taught Us How to Pay Attention**\
+`The works of the British art critic John Berger offer the antidote to our age of infinite scrolling.`\
+https://www.nytimes.com/2026/10/18/magazine/john-berger-attention.html
+
+**Singing, Dancing and Getting Dumped by A.I. on Korean TV**\
+`Three celebrities date artificial intelligence avatars on a reality show made in South Korea, where A.I. is hugely popular.`\
+https://www.nytimes.com/2026/10/18/world/asia/korea-ai-dating-show.html
+
+**On This Day | Oct. 18**\
+`In 1968, the U.S. Olympic Committee suspended Tommie Smith and John Carlos, two Black athletes, after they raised black-gloved fists in protest during the U.S. anthem at the Olympics in Mexico City.`\
+https://www.nytimes.com/2026/10/18/learning/on-this-day-oct-18-tommie-smith-john-carlos.html
+
 **Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire**\
 `The defense minister said people were killed and injured at the base in Alberta, but officials did not offer details on the cause.`\
 https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/17/opinion/midterms-election-politcal-ads-voters
 **A Great Moral Blind Spot of Our Age**\
 `An undercover video offers a grim tableau of where our meat comes from.`\
 https://www.nytimes.com/2026/10/17/opinion/factory-farming-animals-slaughterhouses.html
-
-**This Is One of the Saddest Facts About the Cornell Rape Case**\
-`Campus rape investigations are often riddled with problems — but eliminating them would be much worse.`\
-https://www.nytimes.com/2026/10/17/opinion/cornell-jane-doe-title-ix.html
-
-**Trump’s Bubble Is About to Burst**\
-`The president’s crazy actions have Democrats on the cusp of victory — and they’ll be coming for him.`\
-https://www.nytimes.com/2026/10/17/opinion/trump-photo-zacharia-harp-doug-mills.html
-
-**Why I Canceled Russian Culture for Myself**\
-`A Russified education did not forbid access to my own culture, it just quietly weakened my instinct to reach for it.`\
-https://www.nytimes.com/2026/10/17/opinion/ukraine-russian-culture.html
-
-**How to End Gerrymandering**\
-`A ban on extreme partisan gerrymandering could restore much of the congressional diversity that the Voting Rights Act initially made possible.`\
-https://www.nytimes.com/2026/10/17/opinion/gerrymandering-congress-black-voting.html
-
-**The Cringiest and Craftiest 2026 Midterm Ads**\
-`Sex, video games and grandparents on the campaign trail.`\
-https://www.nytimes.com/video/opinion/100000011216101/the-cringiest-and-craftiest-2026-midterm-ads.html
-
-**What Do I Owe a Friend Whose Mental Illness Pulls Me Into Imagined Emergencies?**\
-`I don’t know how to establish boundaries with someone who may not be experiencing reality as I am.`\
-https://www.nytimes.com/2026/10/17/magazine/friend-mental-illness-emergency-ethics.html
 
