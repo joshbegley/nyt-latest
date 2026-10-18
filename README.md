@@ -1,3 +1,7 @@
+**NDAs: Now They’re for Butlers and Housekeepers, Too**\
+`A legal agreement once used mainly in business has become a tool for preventing household workers from talking about their wealthy employers.`\
+https://www.nytimes.com/2026/10/18/style/nondisclosure-agreements-household-staff.html
+
 **7 Takeaways From Chuck Lorre’s New Memoir, ‘Sitcom’**\
 `In “Sitcom,” the longtime TV writer and producer Chuck Lorre gives his candid take on Charlie Sheen, Roseanne Barr and the “Big Bang” cast.`\
 https://www.nytimes.com/2026/10/18/arts/television/chuck-lorre-book-sitcom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/nyregion/nyc-ice-shooting-oscar-belgal.html
 **Are ICE Officers Really Targeting the ‘Worst of the Worst’?**\
 `The homeland security secretary, Markwayne Mullin, has repeatedly said ICE agents are pursuing “the worst of the worst” criminals. But as Hamed Aleaziz, a reporter for The New York Times, explains, data shows that arrests of people with no criminal record have soared this summer.`\
 https://www.nytimes.com/video/us/politics/100000011205812/are-ice-officers-really-targeting-the-worst-of-the-worst.html
-
-**‘My Friend Pulled Out His Phone to Get a Picture.’**\
-`Getting the hang of things uptown, pausing for a praying mantis and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/10/18/nyregion/metropolitan-diary.html
 
