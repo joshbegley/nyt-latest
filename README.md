@@ -1,3 +1,7 @@
+**O.J.’s Accomplice?**\
+`After all these years, we found new developments in the O.J. Simpson case.`\
+https://www.nytimes.com/2026/10/18/briefing/ojs-accomplice.html
+
 **Ukraine Strikes Russian Oil Terminal, as Starshield Disruptions Persist**\
 `Ukrainian officials said the Pentagon and SpaceX have not yet responded to inquiries about disruptions to the U.S.-provided satellite internet service used by Ukrainian forces.`\
 https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/17/crosswords/daily-puzzle-2026-10-18.html
 **At Least 19 Dead After Stampede at Indian Religious Event**\
 `Such deadly crowd events are relatively common in India, and it was unclear what caused this one. The authorities detained the event’s organizer and others involved.`\
 https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html
-
-**After School Shooting in Bend, Ore., a Community Tries to Recapture Its Identity**\
-`Days after the shooting at Silver Rail Elementary School, the community is questioning its resilience — and safety.`\
-https://www.nytimes.com/2026/10/17/us/school-shooting-bend-oregon-identity.html
 
