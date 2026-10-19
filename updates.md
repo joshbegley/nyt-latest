@@ -1,3 +1,15 @@
+**Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
+`The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
+https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
+
+**France’s Far Right Seizes the Moment as Rioting Stuns the Country**\
+`The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
+https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
+
+**Shopkeepers Pick Up Pieces After Riots in France**\
+`More than a thousand shops in France were damaged after anti-government protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
+https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
+
 **María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
 `Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html

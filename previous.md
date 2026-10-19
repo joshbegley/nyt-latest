@@ -1,3 +1,15 @@
+**Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
+`The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
+https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
+
+**France’s Far Right Seizes the Moment as Rioting Stuns the Country**\
+`The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
+https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
+
+**Shopkeepers Pick Up Pieces After Riots in France**\
+`More than a thousand shops in France were damaged after anti-government protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
+https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
+
 **María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
 `Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html
@@ -58,13 +70,13 @@ https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
 `Polls are inherently imprecise, but they don’t have a record of systematically overestimating Democrats in recent nonpresidential elections.`\
 https://www.nytimes.com/2026/10/19/upshot/polling-midterm-elections-senate.html
 
-**As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides**\
-`By hedging her position on secession, Premier Danielle Smith risks a backlash from both her conservative base and from pro-Canada voters.`\
-https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html
-
 **CUNY Has Raised $312 Million. The Chancellor Explains Why.**\
 `New York City’s public university cannot exist on tax dollars and tuition alone, its chancellor says.`\
 https://www.nytimes.com/2026/10/19/nyregion/cuny-fund-raising-felix-matos-rodriguez.html
+
+**As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides**\
+`By hedging her position on secession, Premier Danielle Smith risks a backlash from both her conservative base and from pro-Canada voters.`\
+https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html
 
 **U.S. Political Money Funnels to Indian Bots to Lure Voters**\
 `At least three dozen videos of people on the street expressing support for a Democratic candidate appeared millions of times on social media. It was unclear who paid for them.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans
 **Victim in Fatal Manhattan Subway Shooting Is Identified**\
 `The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
 https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
-
-**There Is a Zionism That Needs the Support of Progressives**\
-`American liberals should not abandon Israel’s cultural Zionists.`\
-https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
-
-**‘Yaga’ and 8 More Shows to Watch on TV This Week**\
-`Hudson Williams stars in a new mystery series from Canada. And CMA celebrates Dolly Parton.`\
-https://www.nytimes.com/2026/10/19/arts/television/yaga-what-to-watch-on-tv-this-week.html
-
-**A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
-`The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
-https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
 
