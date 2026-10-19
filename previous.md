@@ -82,13 +82,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
-`The exiled ambassador didn’t defy the president. She mimicked him.`\
-https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
-
 **Vital Early Voting Period Begins in Texas**\
 `Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
 https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
+
+**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
+`The exiled ambassador didn’t defy the president. She mimicked him.`\
+https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
