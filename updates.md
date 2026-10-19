@@ -1,3 +1,7 @@
+**Larry David Mocks the D.S.A. Some Are Not Amused.**\
+`The comedian satirized the Democratic Socialists of America, its platform and its opposition to Israel in an essay that some did not LOL at.`\
+https://www.nytimes.com/2026/10/18/us/politics/larry-david-dsa-satire.html
+
 **China’s Export Boom Fuels Growth Despite Slump at Home**\
 `A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
 https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
