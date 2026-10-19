@@ -1,3 +1,7 @@
+**Tony Iommi Keeps Looking for Joy in the Darkness**\
+`After the sadness of the final Black Sabbath show, the guitarist completed “From the Dark,” his first solo album in 20 years, with younger collaborators who aided his ongoing quest for “big riffs.”`\
+https://www.nytimes.com/2026/10/19/arts/music/tony-iommi-from-the-dark-album.html
+
 **At Victoria’s Secret’s 2026 Fashion Show, an Old Stereotype of Sexy**\
 `The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
 https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
