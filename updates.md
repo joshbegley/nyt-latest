@@ -1,3 +1,15 @@
+**Deaths at Danjiri Float Festival Prompt Questions in Japan**\
+`The vibrant danjiri tradition dates back three centuries, but two recent fatalities have prompted anxiety over whether participants can remain safe.`\
+https://www.nytimes.com/2026/10/19/world/asia/danjiri-festival-deaths-osaka-japan.html
+
+**Kennedy’s Vaccine Plan Could Cause Surge in Hepatitis B, Study Finds**\
+`Ending routine vaccination for hepatitis B at birth, as the health secretary has recommended, would increase the number of chronic infections by as much as 83 percent, a team of researchers reported.`\
+https://www.nytimes.com/2026/10/19/health/hepatitis-b-vaccine-kennedy.html
+
+**‘Yuri!!! On Ice': Before ‘Heated Rivalry,’ This Sports Romance Shocked Japan**\
+`The anime series “Yuri!!! On Ice” broke taboos, but brought so much more to the table.`\
+https://www.nytimes.com/2026/10/19/arts/television/yuri-on-ice-anniversary.html
+
 **The Failures of Emmanuel Macron**\
 `The student protests that snowballed into violent riots made it clear that almost 10 years of his presidency have not fixed France’s problems.`\
 https://www.nytimes.com/2026/10/19/world/macron-france-riots-le-pen-gold.html
