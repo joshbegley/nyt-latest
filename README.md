@@ -1,3 +1,11 @@
+**France Officials Acknowledge ‘Failure’ Around Riots**\
+`The interior minister, Laurent Nuñez, acknowledged that the police had been underprepared and said he had offered to resign.`\
+https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
+
+**Anthropic’s I.P.O. Charity**\
+`The artificial intelligence giant plans to contribute 5 percent of its stock into a philanthropic fund. But its generosity depends on the A.I. boom continuing.`\
+https://www.nytimes.com/2026/10/19/business/dealbook/anthropic-ipo-charity.html
+
 **What to Know About the Search for Amelia Earhart’s Plane**\
 `A satellite image sent researchers to a remote Pacific atoll, but their findings brought no resolution to the decades-old search. Here’s what to know.`\
 https://www.nytimes.com/2026/10/19/world/asia/amelia-earhart-plane-search-explained.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeawa
 **Tree Pandemics**\
 `Species after species, American trees are suffering one devastating epidemic after another, unleashed by insects and bacteria that enter the country because of global trade.`\
 https://www.nytimes.com/2026/10/19/climate/tree-pandemics-northeast-forests.html
-
-**25 Years After the World Trade Center Fell, an Architect’s Legacy Is Still Being Written**\
-`Our reporter’s personal journey in search of buildings by Minoru Yamasaki finds some abandoned, some celebrated.`\
-https://www.nytimes.com/2026/10/19/arts/design/25-years-after-the-world-trade-center-fell-an-architects-legacy-is-still-being-written.html
-
-**How a Trillion-Dollar Industry Launders Illegal Gold**\
-`The line between dirty and clean gold is an industry fiction. Wall Street and governments profit off gold from criminals, gangsters and those who exploit children.`\
-https://www.nytimes.com/2026/10/19/world/africa/dirty-gold-industry-coverup-launder-madagascar.html
 
