@@ -1,3 +1,7 @@
+**Israeli Police Detain 10 Over Violent Settler Attacks in West Bank**\
+`Israel has faced pressure, including from the United States, to investigate the attacks. Rights group say most probes into extremist assaults on Palestinians go nowhere.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-palestinians.html
+
 **Latest Climate Report Warns of Major Upheaval to California Way of Life**\
 `The dire projections come from the state’s Climate Change Assessment, which analyzes the impacts of changing weather patterns on the nation’s most-populous state.`\
 https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
-**How Did Life Arise? Three Turning Points in Early Evolution**\
-`Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
-https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
-
 **At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
 `These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
 https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 
-**To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
-`Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
-https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeaways.html
+**How Did Life Arise? Three Turning Points in Early Evolution**\
+`Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
+https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
 
