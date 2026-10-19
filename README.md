@@ -1,3 +1,7 @@
+**Larry David Mocks the D.S.A. Some Are Not Amused.**\
+`The comedian satirized the Democratic Socialists of America, its platform and its opposition to Israel in an essay that some did not LOL at.`\
+https://www.nytimes.com/2026/10/18/us/politics/larry-david-dsa-satire.html
+
 **China’s Export Boom Fuels Growth Despite Slump at Home**\
 `A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
 https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/crosswords/strands-sidekick-960.html
 **Today’s Wordle Hints for October 19, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
 https://www.nytimes.com/2026/10/18/crosswords/wordle-review-1948.html
-
-**O.J. Simpson, a Secret Informant and a Decades-Old Mystery**\
-`An “extremely reliable” informant told authorities about the missing murder weapon, according to newly unsealed records. The informant’s brother told The Times his sibling was at the crime scene.`\
-https://www.nytimes.com/2026/10/18/us/oj-simpson-ippolito-informant-accomplice.html
 
