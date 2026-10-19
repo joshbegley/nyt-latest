@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/18/us/politics/larry-david-dsa-satire.html
 https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
 
 **Five Salvadoran Soldiers Missing in Haiti After Ambush**\
-`The soldiers, part of a U.N.-backed force sent to combat gang violence, were apparently abducted.`\
+`A U.N.-backed force sent to combat gang violence said it was looking for the soldiers, who were in a gang-controlled area when they were attacked.`\
 https://www.nytimes.com/2026/10/18/world/americas/salvadoran-soldiers-missing-haiti.html
 
 **Talarico Kicks Off Campaign Tour of Texas as Senate Election Looms**\
