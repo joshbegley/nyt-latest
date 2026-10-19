@@ -1,3 +1,7 @@
+**Victim in Fatal Manhattan Subway Shooting Is Identified**\
+`The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
+https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
+
 **There Is a Zionism That Needs the Support of Progressives**\
 `American liberals should not abandon Israel’s cultural Zionists.`\
 https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.ht
 **Pope Leo Addresses the Faithful a Day After Leaving the Hospital**\
 `“This experience has made me feel a special closeness to all those who are battling illness and infirmity,” he said, in his first public appearance since his lung surgery.`\
 https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
-
-**This Is the Good Scenario?**\
-`We may not want it to, but A.I. is asking us how to live.`\
-https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
 
