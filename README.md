@@ -1,3 +1,7 @@
+**Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
+`The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
+https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
+
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
 `New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smit
 **U.S. Political Money Funnels to Indian Bots to Lure Voters**\
 `At least three dozen videos of people on the street expressing support for a Democratic candidate appeared millions of times on social media. It was unclear who paid for them.`\
 https://www.nytimes.com/2026/10/19/business/michigan-primary-disinformation-campaign.html
-
-**How Penélope Cruz Masterminded One of the Most Versatile Careers in Hollywood**\
-`As a young actor, she was determined to avoid being typecast as a “sex bomb.” Thirty years later, she’s in total control of the women she plays.`\
-https://www.nytimes.com/2026/10/19/magazine/penelope-cruz-acting-career.html
 
