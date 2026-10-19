@@ -1,3 +1,7 @@
+**Latest Climate Report Warns of Major Upheaval to California Way of Life**\
+`The dire projections come from the state’s Climate Change Assessment, which analyzes the impacts of changing weather patterns on the nation’s most-populous state.`\
+https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
+
 **France Officials Acknowledge ‘Failure’ Around Riots**\
 `The interior minister, Laurent Nuñez, acknowledged that the police had been underprepared and said he had offered to resign.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
 https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeaways.html
-
-**Tree Pandemics**\
-`Species after species, American trees are suffering one devastating epidemic after another, unleashed by insects and bacteria that enter the country because of global trade.`\
-https://www.nytimes.com/2026/10/19/climate/tree-pandemics-northeast-forests.html
 

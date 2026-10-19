@@ -1,3 +1,7 @@
+**Latest Climate Report Warns of Major Upheaval to California Way of Life**\
+`The dire projections come from the state’s Climate Change Assessment, which analyzes the impacts of changing weather patterns on the nation’s most-populous state.`\
+https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
+
 **France Officials Acknowledge ‘Failure’ Around Riots**\
 `The interior minister, Laurent Nuñez, acknowledged that the police had been underprepared and said he had offered to resign.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
