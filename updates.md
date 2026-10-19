@@ -1,3 +1,7 @@
+**Trump Hits Campaign Trail as White House Turmoil Weighs on GOP Midterm Prospects**\
+`As Trump holds rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
+https://www.nytimes.com/2026/10/18/us/trump-midterm-elections-republicans-approval-ratings.html
+
 **Trump Defends Plans to Ease Russia Sanctions and Hints at a Hostage Deal**\
 `The president on Sunday justified his reversal of almost five years of sanctions against Russia as part of peace negotiations. He did not name any hostage.`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-russia-sanctions-hostage-negotiations.html

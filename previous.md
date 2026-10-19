@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/10/18/us/politics/midterms-2028-presidential-race-d
 https://www.nytimes.com/2026/10/18/us/politics/ukraine-sudan-tps-trump.html
 
 **Trump Hits Campaign Trail as White House Turmoil Weighs on GOP Midterm Prospects**\
-`As Trump rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
+`As Trump holds rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
 https://www.nytimes.com/2026/10/18/us/trump-midterm-elections-republicans-approval-ratings.html
 
 **Driver Is Released After Plowing Onto Soccer Field in Wichita, Kan., Killing Two**\
