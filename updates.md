@@ -1,3 +1,7 @@
+**Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
+`The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
+https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
+
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
 `New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
