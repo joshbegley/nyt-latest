@@ -1,3 +1,11 @@
+**There Is a Zionism That Needs the Support of Progressives**\
+`American liberals should not abandon Israel’s cultural Zionists.`\
+https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
+
+**‘Yaga’ and 8 More Shows to Watch on TV This Week**\
+`Hudson Williams stars in a new mystery series from Canada. And CMA celebrates Dolly Parton.`\
+https://www.nytimes.com/2026/10/19/arts/television/yaga-what-to-watch-on-tv-this-week.html
+
 **Strong Exports Stabilize China’s Economic Growth in Official Statistics**\
 `A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
 https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html

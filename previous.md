@@ -1,3 +1,11 @@
+**There Is a Zionism That Needs the Support of Progressives**\
+`American liberals should not abandon Israel’s cultural Zionists.`\
+https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
+
+**‘Yaga’ and 8 More Shows to Watch on TV This Week**\
+`Hudson Williams stars in a new mystery series from Canada. And CMA celebrates Dolly Parton.`\
+https://www.nytimes.com/2026/10/19/arts/television/yaga-what-to-watch-on-tv-this-week.html
+
 **A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
 `The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
 https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html
 **This Is the Good Scenario?**\
 `We may not want it to, but A.I. is asking us how to live.`\
 https://www.nytimes.com/2026/10/18/opinion/ai-bubble-catastrophe-investors-control.html
-
-**Even a Blue Wave Can’t Stop Trump**\
-`Congressional powers may be less than they appear to be, especially lately.`\
-https://www.nytimes.com/2026/10/18/opinion/midterms-congress-trump-democrats.html
-
-**Elizabeth Holmes and Nathan Fielder Keep Us Guessing**\
-`The documentary “You Can See Everything” unites a mysterious filmmaker with a mysterious subject.`\
-https://www.nytimes.com/2026/10/18/podcasts/the-daily/elizabeth-holmes-and-nathan-fielder-keep-us-guessing.html
 
