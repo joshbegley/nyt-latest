@@ -1,3 +1,11 @@
+**Supreme Court Will Not Revive Plea Deal for Khalid Shaikh Mohammed and 9/11 Defendants**\
+`The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
+https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
+
+**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
+`Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
+
 **Republicans Attack El-Sayed’s Faith. The Candidate’s New Ad Highlights It.**\
 `Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
 https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
