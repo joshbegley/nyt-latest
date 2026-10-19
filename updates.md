@@ -1,3 +1,11 @@
+**France Officials Acknowledge ‘Failure’ Around Riots**\
+`The interior minister, Laurent Nuñez, acknowledged that the police had been underprepared and said he had offered to resign.`\
+https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
+
+**Anthropic’s I.P.O. Charity**\
+`The artificial intelligence giant plans to contribute 5 percent of its stock into a philanthropic fund. But its generosity depends on the A.I. boom continuing.`\
+https://www.nytimes.com/2026/10/19/business/dealbook/anthropic-ipo-charity.html
+
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
 https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeaways.html
