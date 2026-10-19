@@ -1,3 +1,7 @@
+**Man Who Died in ICE Custody in Texas Was Denied Medicine, Daughter Says**\
+`The man had been detained at an immigration center in Laredo, Texas, since June. Immigration officials said he had received proper medical care.`\
+https://www.nytimes.com/2026/10/19/us/ice-death-laredo-texas-medicine.html
+
 **Police Fire Tear Gas Grenade at French Student**\
 `A high school student, who was identified as Eden by his family, was hit in the face last month by a tear gas grenade. Video of the incident sheds light on how a wave of school unrest evolved into national protests that led to riots on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000011222448/france-student-protests-police-arrests-violence.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/briefing/a-social-media-mob.html
 **Do You Recognize These Distinctive Objects From Popular Novels?**\
 `Certain items are forever linked to the books that used them as plot elements. Try this short quiz and see how many you know.`\
 https://www.nytimes.com/quiz/2026/10/19/bookreview/literary-objects-quiz.html
-
-**​Why Is MAGA Swooning Over Richard Nixon? A Historian Wades In.**\
-`Why is a president who resigned being celebrated?`\
-https://www.nytimes.com/2026/10/19/opinion/nixon-trump-vance-republicans.html
 

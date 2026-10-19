@@ -1,3 +1,7 @@
+**Man Who Died in ICE Custody in Texas Was Denied Medicine, Daughter Says**\
+`The man had been detained at an immigration center in Laredo, Texas, since June. Immigration officials said he had received proper medical care.`\
+https://www.nytimes.com/2026/10/19/us/ice-death-laredo-texas-medicine.html
+
 **Your Burger Is Going to Get Only More Expensive**\
 `Beef prices will go higher because of the complex production cycle.`\
 https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
