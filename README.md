@@ -1,3 +1,7 @@
+**Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
+`Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
+https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html
+
 **Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
 `Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
 https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html
@@ -82,13 +86,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/opinion/rental-junk-fees.html
 **Horror Novels Filled With Slow- Burn Dread**\
 `Our columnist on new horror fiction, including the latest from Stephen Graham Jones and Tananarive Due.`\
 https://www.nytimes.com/2026/10/19/books/review/new-horror-fiction.html
-
-**It’s Sliced Cheese on Bread. And It’s Rocking Copenhagen’s World.**\
-`The Danish capital is obsessed with this stripped-down snack, and the city’s top bakeries won’t stop until they’ve perfected it.`\
-https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 
