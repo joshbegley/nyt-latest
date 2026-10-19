@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/10/18/style/academy-museum-gala-red-carpet-best-loo
 `The comedian satirized the Democratic Socialists of America, its platform and its opposition to Israel in an essay that some did not LOL at.`\
 https://www.nytimes.com/2026/10/18/us/politics/larry-david-dsa-satire.html
 
-**China’s Export Boom Fuels Growth Despite Slump at Home**\
+**Strong Exports Stabilize China’s Economic Growth in Official Statistics**\
 `A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
 https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
 

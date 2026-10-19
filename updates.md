@@ -1,3 +1,7 @@
+**Strong Exports Stabilize China’s Economic Growth in Official Statistics**\
+`A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
+https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
+
 **A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
 `The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
 https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
