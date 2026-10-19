@@ -1,3 +1,7 @@
+**Five Salvadoran Soldiers Missing in Haiti After Ambush**\
+`A U.N.-backed force sent to combat gang violence said it was looking for the soldiers, who were in a gang-controlled area when they were attacked.`\
+https://www.nytimes.com/2026/10/18/world/americas/salvadoran-soldiers-missing-haiti.html
+
 **Trump Campaigns for Republicans as Turmoil Mounts in Washington**\
 `Our White House correspondent Tyler Pager traveled with President Trump as he campaigned across the country ahead of the midterms. As the president touted his record, political drama mounted in Washington.`\
 https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans-as-turmoil-mounts-in-washington.html
