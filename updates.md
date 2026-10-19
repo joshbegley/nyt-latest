@@ -1,3 +1,7 @@
+**Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
+`Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
+https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html
+
 **Trump Is Pushing Ukraine to Surrender to Russia, Zelensky Says**\
 `President Volodymyr Zelensky said he didn’t want to believe that Washington wanted an end to the war at Ukraine’s expense. “But that’s how it looks,” he added.`\
 https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war.html

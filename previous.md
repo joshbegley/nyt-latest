@@ -1,3 +1,7 @@
+**Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
+`Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
+https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html
+
 **Trump Is Pushing Ukraine to Surrender to Russia, Zelensky Says**\
 `President Volodymyr Zelensky said he didn’t want to believe that Washington wanted an end to the war at Ukraine’s expense. “But that’s how it looks,” he added.`\
 https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/books/review/new-horror-fiction.html
 **It’s Sliced Cheese on Bread. And It’s Rocking Copenhagen’s World.**\
 `The Danish capital is obsessed with this stripped-down snack, and the city’s top bakeries won’t stop until they’ve perfected it.`\
 https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
-
-**The Republican Party Is a Mess. It Will Emerge Stronger for It.**\
-`The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
-https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
