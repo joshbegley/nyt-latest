@@ -1,3 +1,7 @@
+**Supreme Court to Hear New Case on Race and School Admissions**\
+`The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
+https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
+
 **Track the Latest Polls in Missouri's Congressional Map Referendum**\
 `Track the latest polls in the Missouri congressional map referendum.`\
 https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
 **Polls Show Democrats Ahead. Are They ‘Right’ This Time?**\
 `Polls are inherently imprecise, but they don’t have a record of systematically overestimating Democrats in recent nonpresidential elections.`\
 https://www.nytimes.com/2026/10/19/upshot/polling-midterm-elections-senate.html
-
-**CUNY Has Raised $312 Million. The Chancellor Explains Why.**\
-`New York City’s public university cannot exist on tax dollars and tuition alone, its chancellor says.`\
-https://www.nytimes.com/2026/10/19/nyregion/cuny-fund-raising-felix-matos-rodriguez.html
 
