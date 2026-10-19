@@ -1,3 +1,7 @@
+**France Officials Acknowledge ‘Failure’ Around Riots**\
+`The interior minister acknowledged that the police were underprepared for the scale of the riots. But Prime Minister Sébastien Lecornu defended their efforts and pledged to restore order.`\
+https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
+
 **Why There’s No Relief From High Beef Prices**\
 `Beef prices will go higher because of the complex production cycle.`\
 https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
