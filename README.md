@@ -1,3 +1,7 @@
+**Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
+`About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
+https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
+
 **The French Kids Are All Right. It’s the Rest of Us I’m Worried About.**\
 `With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
 https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
-`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
-
 **Track the Latest Polls in Missouri's Congressional Map Referendum**\
 `Track the latest polls in the Missouri congressional map referendum.`\
 https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
+
+**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
+`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
 
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
@@ -162,13 +166,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -178,13 +182,13 @@ https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-ve
 `The actress and comedian riffs on the essay Nora Ephron wrote for The Times in 2008.`\
 https://www.nytimes.com/2026/10/19/opinion/kemper-ephron-nyt-175.html
 
-**How a Comedian and Production Assistant Lives on $30,000 in Brooklyn**\
-`Losing his day job was bad for Janald DuFont’s bottom line, which in turn has been good for his comedy.`\
-https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordability-dufont.html
-
 **I Have Never Seen the Online Right So Happy**\
 `Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
 https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
+
+**How a Comedian and Production Assistant Lives on $30,000 in Brooklyn**\
+`Losing his day job was bad for Janald DuFont’s bottom line, which in turn has been good for his comedy.`\
+https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordability-dufont.html
 
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-c
 **Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About It.**\
 `To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
 https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election.html
-
-**Should Phones Be Banned at Concerts?**\
-`Phoebe Bridgers has prohibited phones and other tech from her current tour. Should other artists follow her lead?`\
-https://www.nytimes.com/2026/10/19/learning/should-phones-be-banned-at-concerts.html
 
