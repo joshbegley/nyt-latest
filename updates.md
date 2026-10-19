@@ -1,3 +1,15 @@
+**Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
+`The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
+https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
+
+**Fire at Starlink Center in Lithuania Was Sabotage, Officials Say**\
+`The fire, which did not seriously damage the network, came after similar incidents in Bulgaria and Poland involving the satellite internet provider, a key defense tool for Ukraine’s armed forces.`\
+https://www.nytimes.com/2026/10/19/world/europe/lithuania-starlink-sabotage-ukraine-russia.html
+
+**Republicans Are Vastly Outspending Democrats on Senate Races**\
+`With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
+https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
+
 **Ways to Reform the Supreme Court**\
 `Readers react to an Opinion guest essay that criticized the court and suggested four changes.`\
 https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
