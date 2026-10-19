@@ -1,3 +1,11 @@
+**Police Fire Tear Gas Grenade at French Student**\
+`A high school student, who was identified as Eden by his family, was hit in the face last month by a tear gas grenade. Video of the incident sheds light on how a wave of school unrest evolved into national protests that led to riots on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000011222448/france-student-protests-police-arrests-violence.html
+
+**Joe Manchin to Campaign With Susan Collins in Maine Ahead of Midterm Elections**\
+`Former Senator Joe Manchin III of West Virginia said he told Senator Susan Collins, who is locked in a tough re-election fight, “Whenever you run again, I’m going to come.”`\
+https://www.nytimes.com/2026/10/19/us/manchin-collins-maine-senate-election.html
+
 **Deaths at Danjiri Float Festival Prompt Questions in Japan**\
 `The vibrant danjiri tradition dates back three centuries, but two recent fatalities have prompted anxiety over whether participants can remain safe.`\
 https://www.nytimes.com/2026/10/19/world/asia/danjiri-festival-deaths-osaka-japan.html
@@ -71,7 +79,7 @@ https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
 https://www.nytimes.com/video/opinion/100000011216106/the-echoes-of-obama-in-abdul-el-sayeds-campaign.html
 
 **Saudis Aided Family of Engineer Accused of Bugging OpenAI, Prosecutors Say**\
-`A Saudi military official paid for the OpenAI engineer’s wife and infant son to fly out of the United States a day after his arrest, according to a court filing. The Saudi government also offered to cover his bail.`\
+`Saudi officials paid for his wife and son to fly out of the U.S. and offered to cover his bail, according to court filings. A judge ordered the engineer to remain in custody.`\
 https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-engineer.html
 
 **Supreme Court Will Not Revive Plea Deal for Khalid Shaikh Mohammed and 9/11 Defendants**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/quiz/2026/10/19/bookreview/literary-objects-quiz.html
 **​Why Is MAGA Swooning Over Richard Nixon? A Historian Wades In.**\
 `Why is a president who resigned being celebrated?`\
 https://www.nytimes.com/2026/10/19/opinion/nixon-trump-vance-republicans.html
-
-**This Fish With Lentils and Sauce Rof Is ‘So Good, Healthy and Easy’**\
-`Here’s a reader-favorite recipe to kick off your week.`\
-https://www.nytimes.com/2026/10/19/dining/this-fish-with-lentils-and-sauce-rof-is-so-good-healthy-and-easy.html
-
-**Tony Iommi Keeps Looking for Joy in the Darkness**\
-`After the sadness of the final Black Sabbath show, the guitarist completed “From the Dark,” his first solo album in 20 years, with younger collaborators who aided his ongoing quest for “big riffs.”`\
-https://www.nytimes.com/2026/10/19/arts/music/tony-iommi-from-the-dark-album.html
 
