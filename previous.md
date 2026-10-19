@@ -1,3 +1,7 @@
+**On the Ground With Haiti’s Gang Suppression Force**\
+`The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-with-haitis-gang-suppression-force.html
+
 **The Grody-Patinkin Family Is a Mess. People Love It.**\
 `Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
 https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
-`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
-
 **Track the Latest Polls in Missouri's Congressional Map Referendum**\
 `Track the latest polls in the Missouri congressional map referendum.`\
 https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
+
+**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
+`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
 
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots
 **María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
 `Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html
-
-**Republicans Are Vastly Outspending Democrats on Senate Races**\
-`With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
-https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 

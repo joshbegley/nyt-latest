@@ -1,3 +1,7 @@
+**On the Ground With Haiti’s Gang Suppression Force**\
+`The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-with-haitis-gang-suppression-force.html
+
 **The Grody-Patinkin Family Is a Mess. People Love It.**\
 `Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
 https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
