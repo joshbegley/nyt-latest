@@ -1,3 +1,11 @@
+**Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
+`The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
+https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
+
+**France’s Far Right Seizes the Moment as Rioting Stuns the Country**\
+`The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
+https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
+
 **Shopkeepers Pick Up Pieces After Riots in France**\
 `More than a thousand shops in France were damaged after anti-government protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
 https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
@@ -130,13 +138,13 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
-**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
-`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
-https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
-
 **How Did Life Arise? Three Turning Points in Early Evolution**\
 `Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
 https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
+
+**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
+`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
+https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans
 **Victim in Fatal Manhattan Subway Shooting Is Identified**\
 `The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
 https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
-
-**There Is a Zionism That Needs the Support of Progressives**\
-`American liberals should not abandon Israel’s cultural Zionists.`\
-https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
-
-**‘Yaga’ and 8 More Shows to Watch on TV This Week**\
-`Hudson Williams stars in a new mystery series from Canada. And CMA celebrates Dolly Parton.`\
-https://www.nytimes.com/2026/10/19/arts/television/yaga-what-to-watch-on-tv-this-week.html
 
