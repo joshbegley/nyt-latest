@@ -1,3 +1,7 @@
+**For Israelis and Jews in the U.A.E., an Eroding Sense of Security**\
+`The Emirates’ reputation as a haven was shaken by what the authorities said was a plot last month aimed at crashing a flight from Dubai to Tel Aviv.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/jews-dubai-fear.html
+
 **New York City Has a Rat Killing Machine**\
 `Are the humans winning? That’s hard to say. But we certainly have a technological advantage.`\
 https://www.nytimes.com/2026/10/19/nyregion/in-its-forever-war-on-rats-new-york-enlists-a-killing-machine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-ro
 **Defending the Right to Choose Death**\
 `Readers respond to an Opinion guest essay about medical assistance in dying. Also: An assault on federal science.`\
 https://www.nytimes.com/2026/10/18/opinion/medical-assistance-in-dying.html
-
-**Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks**\
-`President Abdel Fattah el-Sisi had called on Egyptian lawmakers to authorize military assistance to the kingdom, saying any support would be defensive.`\
-https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html
 
