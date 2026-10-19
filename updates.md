@@ -1,3 +1,11 @@
+**The Frenzy Behind Getting an Initiative on the California Ballot**\
+`An army of signature gatherers made plenty of cash hitting the streets to qualify various November initiatives.`\
+https://www.nytimes.com/2026/10/19/us/billionaire-tax-california-signature-gatherers.html
+
+**For Israelis and Jews in the U.A.E., an Eroding Sense of Security**\
+`The Emirates’ reputation as a haven was shaken by what the authorities said was a plot last month aimed at crashing a flight from Dubai to Tel Aviv.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/jews-dubai-fear.html
+
 **New York City Has a Rat Killing Machine**\
 `Are the humans winning? That’s hard to say. But we certainly have a technological advantage.`\
 https://www.nytimes.com/2026/10/19/nyregion/in-its-forever-war-on-rats-new-york-enlists-a-killing-machine.html
