@@ -1,3 +1,7 @@
+**Saudis Aided Family of Engineer Accused of Bugging OpenAI, Prosecutors Say**\
+`A Saudi military official paid for the OpenAI engineer’s wife and infant son to fly out of the United States a day after his arrest, according to a court filing. The Saudi government also offered to cover his bail.`\
+https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-engineer.html
+
 **Supreme Court Will Not Revive Plea Deal for Khalid Shaikh Mohammed and 9/11 Defendants**\
 `The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/podcasts/the-headlines/israel-elections-gold-
 **NYT Strands Hints for October 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
 https://www.nytimes.com/2026/10/19/crosswords/strands-sidekick-961.html
-
-**Today’s Wordle Hints for October 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
-https://www.nytimes.com/2026/10/19/crosswords/wordle-review-1949.html
 
