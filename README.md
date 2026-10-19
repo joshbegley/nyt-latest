@@ -1,3 +1,7 @@
+**Australian Lawmaker Helen Haines Injured After Attack, Prime Minister Says**\
+`A suspect is in custody and the country’s counterterrorism team was activated after Helen Haines, 65, was struck by a car outside her office.`\
+https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wangaratta-australia.html
+
 **Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
 `The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
 https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/nyregion/100000011213690/nyc-rat-killing-machine.h
 **Trump Campaigns for Republicans as Turmoil Mounts in Washington**\
 `Our White House correspondent Tyler Pager traveled with President Trump as he campaigned across the country ahead of the midterms. As the president touted his record, political drama mounted in Washington.`\
 https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans-as-turmoil-mounts-in-washington.html
-
-**Victim in Fatal Manhattan Subway Shooting Is Identified**\
-`The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
-https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
 
