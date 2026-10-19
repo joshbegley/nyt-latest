@@ -1,3 +1,11 @@
+**Republicans Attack El-Sayed’s Faith. The Candidate’s New Ad Highlights It.**\
+`Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
+https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
+
+**Italy Faces Parallel Protests in the North and South**\
+`Protests by young people in northern cities ended in riots as farmers and truckers in the south, angered by high gas prices, stopped commercial traffic.`\
+https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html
+
 **The French Teen Maimed During School Unrest by Tear Gas Grenade**\
 `The police’s treatment of the student last month sheds light on how a wave of school unrest evolved into national protests that spilled into widespread riots on Saturday.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html

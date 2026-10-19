@@ -1,3 +1,11 @@
+**Republicans Attack El-Sayed’s Faith. The Candidate’s New Ad Highlights It.**\
+`Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
+https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
+
+**Italy Faces Parallel Protests in the North and South**\
+`Protests by young people in northern cities ended in riots as farmers and truckers in the south, angered by high gas prices, stopped commercial traffic.`\
+https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html
+
 **The French Teen Maimed During School Unrest by Tear Gas Grenade**\
 `The police’s treatment of the student last month sheds light on how a wave of school unrest evolved into national protests that spilled into widespread riots on Saturday.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wang
 **Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
 `The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
 https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
-
-**France’s Far Right Shifts Into Campaign Mode as Student Riots Erupt Into Violence**\
-`The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
-https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
-
-**Shopkeepers Pick Up Pieces After Riots in France**\
-`More than a thousand shops in France were damaged after antigovernment protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
-https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
 
