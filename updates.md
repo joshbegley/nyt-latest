@@ -1,3 +1,7 @@
+**Judge Grills Witnesses About Decisions Behind Trump’s Plan for DC Golf Course**\
+`The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
+
 **On the Ground With Haiti’s Gang Suppression Force**\
 `The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-with-haitis-gang-suppression-force.html

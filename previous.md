@@ -106,8 +106,8 @@ https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
 `As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
 https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
 
-**Trump Says Renovations on Disputed DC Golf Course Will Begin Immediately**\
-`A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
+**Judge Grills Witnesses About Decisions Behind Trump’s Plan for DC Golf Course**\
+`The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
 
 **Priest in Ecuador Dies After Crucifix Falls on Him During Livestreamed Mass**\
