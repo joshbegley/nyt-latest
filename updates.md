@@ -1,3 +1,7 @@
+**Trump Campaigns for Republicans as Turmoil Mounts in Washington**\
+`Our White House correspondent Tyler Pager traveled with President Trump as he campaigned across the country ahead of the midterms. As the president touted his record, political drama mounted in Washington.`\
+https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans-as-turmoil-mounts-in-washington.html
+
 **Victim in Fatal Manhattan Subway Shooting Is Identified**\
 `The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
 https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
