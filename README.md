@@ -1,3 +1,11 @@
+**Robert Reich Thinks the Baby Boomers Blew It**\
+`Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
+https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
+
+**Andrew Schulz, ‘Podcast Bro,’ Might Be America’s Foremost Political Journalist**\
+`The defiantly anti-woke comedian and podcast host discusses his issues with the mainstream media and how podcasts threw out all the rules.`\
+https://www.nytimes.com/video/podcasts/100000011182394/andrew-schulz-podcast-bro-might-be-americas-foremost-political-journalist.html
+
 **‘Mothers of Kherson’: An Operatic Show of Support for Ukraine**\
 `Operas don’t usually reflect current events. But “The Mothers of Kherson,” a product of artistic advocacy by the Met Opera, blends news and myth.`\
 https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.html
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
-`The exiled ambassador didn’t defy the president. She mimicked him.`\
-https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
-
 **Vital Early Voting Period Begins in Texas**\
 `Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
 https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
-**Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
-`After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
-https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-vegas.html
 
