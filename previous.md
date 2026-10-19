@@ -1,3 +1,11 @@
+**Jon Stewart to Stay at ‘The Daily Show’ Through the 2028 Election**\
+`Ratings have surged since Mr. Stewart returned over two years ago to host the show on Monday nights.`\
+https://www.nytimes.com/2026/10/19/business/media/jon-stewart-daily-show.html
+
+**Visitor Killed by Roof Debris at Frank Lloyd Wright’s Taliesin West**\
+`A 55-year-old rector from a university in Brazil was killed while on a walking tour of the famed architect’s winter home in Scottsdale, Ariz.`\
+https://www.nytimes.com/2026/10/19/us/frank-lloyd-wright-home-death-taliesin-west.html
+
 **The Local: From ICE watch to school closure fights**\
 `Plus, a Wild player sets a record.`\
 https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.h
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 
-**Republicans Attack El-Sayed’s Faith. The Candidate’s New Ad Highlights It.**\
+**El-Sayed Highlights Muslim Faith in New Ad After Republican Attacks**\
 `Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
 https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
 **Inside Putin’s Plan to Cripple Ukraine This Winter**\
 `Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
 https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
-
-**Inside Russia’s Plan to Cripple Ukraine This Winter**\
-`Constant Méheut, a correspondent for The New York Times based in Kyiv, obtained a war plan that shows how Russia will attempt to force Ukraine into surrender this winter. Méheut joined Natalie Kitroeff on “The Daily” to talk about how Russia’s campaign could unleash a potentially devastating humanitarian crisis.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011220028/inside-russias-plan-to-cripple-ukraine-this-winter.html
-
-**NYT Connections Answers for October 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
-https://www.nytimes.com/2026/10/19/crosswords/connections-companion-1227.html
 

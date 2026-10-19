@@ -1,3 +1,15 @@
+**Jon Stewart to Stay at ‘The Daily Show’ Through the 2028 Election**\
+`Ratings have surged since Mr. Stewart returned over two years ago to host the show on Monday nights.`\
+https://www.nytimes.com/2026/10/19/business/media/jon-stewart-daily-show.html
+
+**Visitor Killed by Roof Debris at Frank Lloyd Wright’s Taliesin West**\
+`A 55-year-old rector from a university in Brazil was killed while on a walking tour of the famed architect’s winter home in Scottsdale, Ariz.`\
+https://www.nytimes.com/2026/10/19/us/frank-lloyd-wright-home-death-taliesin-west.html
+
+**El-Sayed Highlights Muslim Faith in New Ad After Republican Attacks**\
+`Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
+https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
+
 **The Local: From ICE watch to school closure fights**\
 `Plus, a Wild player sets a record.`\
 https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
