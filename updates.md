@@ -1,3 +1,27 @@
+**Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
+`New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
+https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
+
+**Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
+`Reportedly the wealthiest man in the poorest country in the Western Hemisphere, Gilbert Bigio was sanctioned for ties to criminal gangs. He was 91.`\
+https://www.nytimes.com/2026/10/19/world/americas/gilbert-bigio-dead.html
+
+**A Social Media Mob**\
+`We take a look at a growing movement.`\
+https://www.nytimes.com/2026/10/19/briefing/a-social-media-mob.html
+
+**Do You Recognize These Distinctive Objects From Popular Novels?**\
+`Certain items are forever linked to the books that used them as plot elements. Try this short quiz and see how many you know.`\
+https://www.nytimes.com/quiz/2026/10/19/bookreview/literary-objects-quiz.html
+
+**​Why Is MAGA Swooning Over Richard Nixon? A Historian Wades In.**\
+`Why is a president who resigned being celebrated?`\
+https://www.nytimes.com/2026/10/19/opinion/nixon-trump-vance-republicans.html
+
+**This Fish With Lentils and Sauce Rof Is ‘So Good, Healthy and Easy’**\
+`Here’s a reader-favorite recipe to kick off your week.`\
+https://www.nytimes.com/2026/10/19/dining/this-fish-with-lentils-and-sauce-rof-is-so-good-healthy-and-easy.html
+
 **Tony Iommi Keeps Looking for Joy in the Darkness**\
 `After the sadness of the final Black Sabbath show, the guitarist completed “From the Dark,” his first solo album in 20 years, with younger collaborators who aided his ongoing quest for “big riffs.”`\
 https://www.nytimes.com/2026/10/19/arts/music/tony-iommi-from-the-dark-album.html

@@ -1,3 +1,27 @@
+**Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
+`New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
+https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
+
+**Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
+`Reportedly the wealthiest man in the poorest country in the Western Hemisphere, Gilbert Bigio was sanctioned for ties to criminal gangs. He was 91.`\
+https://www.nytimes.com/2026/10/19/world/americas/gilbert-bigio-dead.html
+
+**A Social Media Mob**\
+`We take a look at a growing movement.`\
+https://www.nytimes.com/2026/10/19/briefing/a-social-media-mob.html
+
+**Do You Recognize These Distinctive Objects From Popular Novels?**\
+`Certain items are forever linked to the books that used them as plot elements. Try this short quiz and see how many you know.`\
+https://www.nytimes.com/quiz/2026/10/19/bookreview/literary-objects-quiz.html
+
+**​Why Is MAGA Swooning Over Richard Nixon? A Historian Wades In.**\
+`Why is a president who resigned being celebrated?`\
+https://www.nytimes.com/2026/10/19/opinion/nixon-trump-vance-republicans.html
+
+**This Fish With Lentils and Sauce Rof Is ‘So Good, Healthy and Easy’**\
+`Here’s a reader-favorite recipe to kick off your week.`\
+https://www.nytimes.com/2026/10/19/dining/this-fish-with-lentils-and-sauce-rof-is-so-good-healthy-and-easy.html
+
 **Tony Iommi Keeps Looking for Joy in the Darkness**\
 `After the sadness of the final Black Sabbath show, the guitarist completed “From the Dark,” his first solo album in 20 years, with younger collaborators who aided his ongoing quest for “big riffs.”`\
 https://www.nytimes.com/2026/10/19/arts/music/tony-iommi-from-the-dark-album.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/19/business/michigan-primary-disinformation-camp
 **How Penélope Cruz Masterminded One of the Most Versatile Careers in Hollywood**\
 `As a young actor, she was determined to avoid being typecast as a “sex bomb.” Thirty years later, she’s in total control of the women she plays.`\
 https://www.nytimes.com/2026/10/19/magazine/penelope-cruz-acting-career.html
-
-**A Family Compound in the California Desert**\
-`In Palm Desert, Calif., a couple built a 10,000 square foot residence they hoped would compel their adult children to visit.`\
-https://www.nytimes.com/2026/10/19/realestate/a-family-compound-in-the-california-desert.html
-
-**Does My Suit Make Me Look MAGA?**\
-`A reader wonders if he needs to rethink what he wears.`\
-https://www.nytimes.com/2026/10/19/style/does-my-suit-make-me-look-maga.html
-
-**What Can We See in All the Recent Art About AIDS?**\
-`Nearly five decades after the disease first appeared, many filmmakers, writers and others are finding new meaning in catastrophe.`\
-https://www.nytimes.com/2026/10/19/t-magazine/aids-crisis-art-movies-theater-books.html
-
-**Word of the Day: sedentary**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/19/learning/word-of-the-day-sedentary.html
-
-**Ken Paxton Has Tried to Overturn Tight Elections. He’s in One of His Own.**\
-`The Texas attorney general’s powers could come under scrutiny in a close Senate contest, though election experts say courts would likely constrain him.`\
-https://www.nytimes.com/2026/10/19/us/ken-paxton-election-results-fraud.html
-
-**How Bad Is Another Case of Covid?**\
-`Repeated infections are “a fact of life” at this point, experts say. But they warn there is no such thing as a risk-free case.`\
-https://www.nytimes.com/2026/10/19/well/covid-reinfection-risks.html
 
