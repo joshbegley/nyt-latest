@@ -1,3 +1,7 @@
+**Shopkeepers Pick Up Pieces After Riots in France**\
+`More than a thousand shops in France were damaged after antigovernment protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
+https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
+
 **Inside Putin’s Plan to Cripple Ukraine This Winter**\
 `Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
 https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html

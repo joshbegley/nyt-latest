@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-
 https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
 
 **Shopkeepers Pick Up Pieces After Riots in France**\
-`More than a thousand shops in France were damaged after anti-government protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
+`More than a thousand shops in France were damaged after antigovernment protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
 https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
 
 **María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
