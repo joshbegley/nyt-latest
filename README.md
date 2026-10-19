@@ -1,3 +1,7 @@
+**New York Has Deployed a Rat Killing Machine**\
+`The BurrowRX, a machine that kills rats by pumping carbon monoxide into burrows, is New York City’s latest tool in its battle against the rodents.`\
+https://www.nytimes.com/video/nyregion/100000011213690/nyc-rat-killing-machine.html
+
 **Trump Campaigns for Republicans as Turmoil Mounts in Washington**\
 `Our White House correspondent Tyler Pager traveled with President Trump as he campaigned across the country ahead of the midterms. As the president touted his record, political drama mounted in Washington.`\
 https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans-as-turmoil-mounts-in-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/science/the-new-science-of-stuttering.html
 **O.J.’s Accomplice?**\
 `After all these years, we found new developments in the O.J. Simpson case.`\
 https://www.nytimes.com/2026/10/18/briefing/ojs-accomplice.html
-
-**Zelensky Says Trump Risks ‘Historic Mistake’ If He Backs Russia**\
-`President Volodymyr Zelensky of Ukraine pressed Sunday for more information on possible restrictions to Starshield, a U.S.-provided satellite internet service used by the Ukrainian military.`\
-https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html
 
