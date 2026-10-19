@@ -1,3 +1,7 @@
+**Death Penalty Sought for Andrea Shaw, Who Blamed Toddlers’ Deaths on Vaccines**\
+`As Andrea Shaw, 23, awaits trial for the murder of her twins, a leading lawyer in the anti-vaccine movement has joined her defense team.`\
+https://www.nytimes.com/2026/10/19/well/andrea-shaw-death-penalty-toddler-deaths-vaccines.html
+
 **France Officials Acknowledge ‘Failure’ Around Riots**\
 `The interior minister acknowledged that the police were underprepared for the scale of the riots. But Prime Minister Sébastien Lecornu defended their efforts and pledged to restore order.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
