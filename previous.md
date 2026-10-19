@@ -1,3 +1,7 @@
+**Talarico Kicks Off Campaign Tour of Texas as Senate Election Looms**\
+`The Democratic candidate invoked a rallying cry from the TV show “Friday Night Lights” as he began his final campaign push before the Nov. 3 election.`\
+https://www.nytimes.com/2026/10/18/us/talarico-senate-campaign-tour-texas.html
+
 **Trump Defends Plans to Ease Russia Sanctions and Hints at a Hostage Deal**\
 `The president on Sunday justified his reversal of almost five years of sanctions against Russia as part of peace negotiations. He did not name any hostage.`\
 https://www.nytimes.com/2026/10/18/us/politics/trump-russia-sanctions-hostage-negotiations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/18/us/oj-simpson-joey-ippolito-memo.
 **5 Takeaways From The Times’s Re-Examination of the O.J. Simpson Case**\
 `Newly unsealed court files and interviews challenge the popular narrative around the murders and the “trial of the century.”`\
 https://www.nytimes.com/2026/10/18/us/oj-simpson-case-takeaways.html
-
-**There Is More to the O.J. Simpson Story**\
-`Our national investigative reporter, Mike Baker, helped pry loose previously sealed court files that reveal important new details in the O.J. Simpson case.`\
-https://www.nytimes.com/video/us/100000011193911/there-is-more-to-the-oj-simpson-story.html
 

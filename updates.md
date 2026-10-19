@@ -1,3 +1,7 @@
+**Talarico Kicks Off Campaign Tour of Texas as Senate Election Looms**\
+`The Democratic candidate invoked a rallying cry from the TV show “Friday Night Lights” as he began his final campaign push before the Nov. 3 election.`\
+https://www.nytimes.com/2026/10/18/us/talarico-senate-campaign-tour-texas.html
+
 **Trump Hits Campaign Trail as White House Turmoil Weighs on GOP Midterm Prospects**\
 `As Trump held rallies around the nation, his White House was consumed by dramas that reinforce how his presidency has become a drag on his party’s prospects in the midterms.`\
 https://www.nytimes.com/2026/10/18/us/trump-midterm-elections-republicans-approval-ratings.html
