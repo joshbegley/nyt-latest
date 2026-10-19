@@ -1,3 +1,7 @@
+**A Bad Combination**\
+`We take a look at the human face of America’s utility bill crisis.`\
+https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
+
 **Inside Putin’s Plan to Cripple Ukraine This Winter**\
 `Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
 https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
@@ -166,13 +170,13 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
-**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
-`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
-https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
-
 **How Did Life Arise? Three Turning Points in Early Evolution**\
 `Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
 https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
+
+**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
+`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
+https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/africa/dirty-gold-industry-coverup-laun
 **The VW Bus, Now Electrified, Keeps on Truckin’**\
 `A restored version of Volkswagen’s Flower Power-era Microbus, kitted out by Kindred Motorworks, is aiming for the affluent, while VW’s own E.V. is slow to get moving, much like its forebear.`\
 https://www.nytimes.com/2026/10/19/business/electric-vw-bus-kindred-idbuzz.html
-
-**A Perfume Lover’s Guide to Florence**\
-`In the Italian birthplace of modern fragrance, a writer visits master perfumers and fragrance shops, and concocts her own autumnal scent.`\
-https://www.nytimes.com/2026/10/19/travel/florence-italy-perfume.html
 
