@@ -1,3 +1,11 @@
+**China’s Export Boom Fuels Growth Despite Slump at Home**\
+`A prolonged housing crash, sluggish consumer spending and plunging investment have left China dependent on exports to keep the economy growing.`\
+https://www.nytimes.com/2026/10/18/business/china-economy-gdp.html
+
+**Five Salvadoran Soldiers Missing in Haiti After Ambush**\
+`The soldiers, part of a U.N.-backed force sent to combat gang violence, were apparently abducted.`\
+https://www.nytimes.com/2026/10/18/world/americas/salvadoran-soldiers-missing-haiti.html
+
 **Talarico Kicks Off Campaign Tour of Texas as Senate Election Looms**\
 `The Democratic candidate invoked a rallying cry from the TV show “Friday Night Lights” as he began his final campaign push before the Nov. 3 election.`\
 https://www.nytimes.com/2026/10/18/us/talarico-senate-campaign-tour-texas.html
