@@ -1,3 +1,7 @@
+**A Bad Combination**\
+`We take a look at the human face of America’s utility bill crisis.`\
+https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
+
 **Shopkeepers Pick Up Pieces After Riots in France**\
 `More than a thousand shops in France were damaged after antigovernment protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
 https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html

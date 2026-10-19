@@ -1,3 +1,7 @@
+**A Bad Combination**\
+`We take a look at the human face of America’s utility bill crisis.`\
+https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
+
 **Inside Putin’s Plan to Cripple Ukraine This Winter**\
 `Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
 https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/africa/dirty-gold-industry-coverup-laun
 **The VW Bus, Now Electrified, Keeps on Truckin’**\
 `A restored version of Volkswagen’s Flower Power-era Microbus, kitted out by Kindred Motorworks, is aiming for the affluent, while VW’s own E.V. is slow to get moving, much like its forebear.`\
 https://www.nytimes.com/2026/10/19/business/electric-vw-bus-kindred-idbuzz.html
-
-**A Perfume Lover’s Guide to Florence**\
-`In the Italian birthplace of modern fragrance, a writer visits master perfumers and fragrance shops, and concocts her own autumnal scent.`\
-https://www.nytimes.com/2026/10/19/travel/florence-italy-perfume.html
 
