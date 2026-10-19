@@ -1,5 +1,5 @@
 **Israeli Police Detain 10 Over Violent Settler Attacks in West Bank**\
-`Israel has faced pressure, including from the United States, to investigate the attacks. Rights group say most probes into extremist assaults on Palestinians go nowhere.`\
+`Israel has faced pressure, including from the United States, to investigate the attacks. Rights groups say most inquiries into extremist assaults on Palestinians go nowhere.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-palestinians.html
 
 **Latest Climate Report Warns of Major Upheaval to California Way of Life**\
@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
-**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
-`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
-https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
-
 **How Did Life Arise? Three Turning Points in Early Evolution**\
 `Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
 https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
+
+**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
+`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
+https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 
