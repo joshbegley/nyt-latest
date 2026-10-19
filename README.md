@@ -1,3 +1,7 @@
+**Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
+`Helen Haines, an independent Australian lawmaker, was hit by a car in an “attack” outside her office, Prime Minister Anthony Albanese said.`\
+https://www.nytimes.com/video/world/australia/100000011222654/australian-lawmaker-critically-injured-after-car-attack.html
+
 **DOJ Charges 28 California Residents With Voting-Related Crimes Amid Trump’s Voter Fraud Push**\
 `The effort by the Trump administration comes as it wages a broader fight with California officials over voter rolls.`\
 https://www.nytimes.com/2026/10/19/us/politics/doj-california-voting-crimes-trump-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war
 **Will Trump’s Endorsement of Netanyahu Fire Up His Campaign or Fizzle?**\
 `President Trump said Benjamin Netanyahu was a “Great Warrior,” as he faces a tough re-election bid for prime minister. But the Trump brand is not what it once was in Israel, analysts say.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/trump-netanyahu-endorsement-election.html
-
-**Israeli Police Detain 10 Over Violent Settler Attacks in West Bank**\
-`Israel has faced pressure, including from the United States, to investigate the attacks. Rights groups say most inquiries into extremist assaults on Palestinians go nowhere.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-palestinians.html
 
