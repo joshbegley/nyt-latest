@@ -1,3 +1,7 @@
+**Israeli Police Detain 10 Over Violent Settler Attacks in West Bank**\
+`Israel has faced pressure, including from the United States, to investigate the attacks. Rights groups say most inquiries into extremist assaults on Palestinians go nowhere.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-palestinians.html
+
 **Latest Climate Report Warns of Major Upheaval to California Way of Life**\
 `The dire projections come from the state’s Climate Change Assessment, which analyzes the impacts of changing weather patterns on the nation’s most-populous state.`\
 https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
