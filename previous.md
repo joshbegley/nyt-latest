@@ -1,3 +1,11 @@
+**Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
+`About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
+https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
+
+**The French Kids Are All Right. It’s the Rest of Us I’m Worried About.**\
+`With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
+https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
+
 **Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
 `The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
 https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
@@ -158,13 +166,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-c
 **Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About It.**\
 `To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
 https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election.html
-
-**Should Phones Be Banned at Concerts?**\
-`Phoebe Bridgers has prohibited phones and other tech from her current tour. Should other artists follow her lead?`\
-https://www.nytimes.com/2026/10/19/learning/should-phones-be-banned-at-concerts.html
-
-**Book Review: ‘Love and Death in the American Novel,’ by Leslie A. Fiedler**\
-`With its bracing studies of fiction’s secrets, this 66-year-old work of literary criticism still surprises and delights.`\
-https://www.nytimes.com/2026/10/19/books/review/leslie-fiedler-love-death-american-novel.html
 

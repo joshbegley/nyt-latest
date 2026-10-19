@@ -1,3 +1,11 @@
+**Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
+`About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
+https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
+
+**The French Kids Are All Right. It’s the Rest of Us I’m Worried About.**\
+`With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
+https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
+
 **Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
 `The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
 https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
