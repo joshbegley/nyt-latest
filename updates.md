@@ -1,3 +1,7 @@
+**Victim in Fatal Manhattan Subway Shooting Is Identified**\
+`The police identified the man fatally shot in a Midtown Manhattan subway station on Saturday as Darrel Rodriguez, 26. No arrests had been made as of early Monday morning.`\
+https://www.nytimes.com/2026/10/19/nyregion/nyc-subway-shooting-victim.html
+
 **There Is a Zionism That Needs the Support of Progressives**\
 `American liberals should not abandon Israel’s cultural Zionists.`\
 https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberals-zionism.html
