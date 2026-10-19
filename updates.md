@@ -1,3 +1,15 @@
+**Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
+`New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
+https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
+
+**Trump Golf Course Dispute Sparks Clash Between Judge and DOJ**\
+`The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
+
+**France’s Far Right Shifts Into Campaign Mode as Student Riots Erupt Into Violence**\
+`The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
+https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
+
 **Judge Grills Witnesses About Decisions Behind Trump’s Plan for DC Golf Course**\
 `The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html

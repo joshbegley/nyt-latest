@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-militar
 https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
 
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
-`New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
+`New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
 
 **Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
 `As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
 https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
 
-**Judge Grills Witnesses About Decisions Behind Trump’s Plan for DC Golf Course**\
+**Trump Golf Course Dispute Sparks Clash Between Judge and DOJ**\
 `The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
 
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wang
 `The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
 https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
 
-**France’s Far Right Seizes the Moment as Rioting Stuns the Country**\
+**France’s Far Right Shifts Into Campaign Mode as Student Riots Erupt Into Violence**\
 `The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
 https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
 
