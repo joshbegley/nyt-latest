@@ -184,7 +184,7 @@ https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
 
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
-https://www.nytimes.com/2026/10/19/world/africa/gold-regulators-not-looking.html
+https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeaways.html
 
 **Tree Pandemics**\
 `Species after species, American trees are suffering one devastating epidemic after another, unleashed by insects and bacteria that enter the country because of global trade.`\

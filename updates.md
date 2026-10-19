@@ -1,3 +1,7 @@
+**To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
+`Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
+https://www.nytimes.com/2026/10/19/world/africa/gold-mines-investigation-takeaways.html
+
 **What to Know About the Search for Amelia Earhart’s Plane**\
 `A satellite image sent researchers to a remote Pacific atoll, but their findings brought no resolution to the decades-old search. Here’s what to know.`\
 https://www.nytimes.com/2026/10/19/world/asia/amelia-earhart-plane-search-explained.html
