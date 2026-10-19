@@ -1,3 +1,7 @@
+**Your Burger Is Going to Get Only More Expensive**\
+`Beef prices will go higher because of the complex production cycle.`\
+https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
+
 **Police Fire Tear Gas Grenade at French Student**\
 `A high school student, who was identified as Eden by his family, was hit in the face last month by a tear gas grenade. Video of the incident sheds light on how a wave of school unrest evolved into national protests that led to riots on Saturday.`\
 https://www.nytimes.com/video/world/europe/100000011222448/france-student-protests-police-arrests-violence.html
