@@ -54,13 +54,13 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
-`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
-
 **Track the Latest Polls in Missouri's Congressional Map Referendum**\
 `Track the latest polls in the Missouri congressional map referendum.`\
 https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
+
+**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
+`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
 
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\

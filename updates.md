@@ -1,3 +1,11 @@
+**The Grody-Patinkin Family Is a Mess. People Love It.**\
+`Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
+https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
+
+**The French Fantasy Is Coming to an End**\
+`With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
+https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
+
 **Robert Reich Thinks the Baby Boomers Blew It**\
 `Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
 https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
