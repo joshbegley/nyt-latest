@@ -1,3 +1,11 @@
+**Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
+`Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
+https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html
+
+**Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About It.**\
+`To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
+https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election.html
+
 **Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
 `Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
 https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html

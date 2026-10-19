@@ -1,3 +1,7 @@
+**Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
+`Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
+https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html
+
 **Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
 `Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
 https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.ht
 `It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-congress.html
 
-**Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About it.**\
+**Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About It.**\
 `To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
 https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/opinion/rental-junk-fees.html
 **Horror Novels Filled With Slow- Burn Dread**\
 `Our columnist on new horror fiction, including the latest from Stephen Graham Jones and Tananarive Due.`\
 https://www.nytimes.com/2026/10/19/books/review/new-horror-fiction.html
-
-**It’s Sliced Cheese on Bread. And It’s Rocking Copenhagen’s World.**\
-`The Danish capital is obsessed with this stripped-down snack, and the city’s top bakeries won’t stop until they’ve perfected it.`\
-https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 
