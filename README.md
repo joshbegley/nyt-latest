@@ -1,3 +1,7 @@
+**Ways to Reform the Supreme Court**\
+`Readers react to an Opinion guest essay that criticized the court and suggested four changes.`\
+https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
+
 **Supreme Court to Hear New Case on Race and School Admissions**\
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/realestate/white-plains-renters-ave-hamilton-
 **‘A Ticking Time Bomb’: An Economic Crisis Looms in Indonesia**\
 `Once a model of economic stability, Indonesia now faces growing hardship at home as President Prabowo Subianto’s policies shake investor confidence.`\
 https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
-
-**Polls Show Democrats Ahead. Are They ‘Right’ This Time?**\
-`Polls are inherently imprecise, but they don’t have a record of systematically overestimating Democrats in recent nonpresidential elections.`\
-https://www.nytimes.com/2026/10/19/upshot/polling-midterm-elections-senate.html
 

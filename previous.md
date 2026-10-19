@@ -1,3 +1,15 @@
+**Supreme Court to Hear New Case on Race and School Admissions**\
+`The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
+https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
+
+**Track the Latest Polls in Missouri's Congressional Map Referendum**\
+`Track the latest polls in the Missouri congressional map referendum.`\
+https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
+
+**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
+`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
+
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
 https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
@@ -71,7 +83,7 @@ https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-pa
 https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
 
 **France Officials Acknowledge ‘Failure’ Around Riots**\
-`The interior minister, Laurent Nuñez, acknowledged that the police had been underprepared and said he had offered to resign.`\
+`Prime Minister Sébastien Lecornu defended police efforts and pledged to restore order as government ministers acknowledged failures.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
 
 **Anthropic’s I.P.O. Charity**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
 **Polls Show Democrats Ahead. Are They ‘Right’ This Time?**\
 `Polls are inherently imprecise, but they don’t have a record of systematically overestimating Democrats in recent nonpresidential elections.`\
 https://www.nytimes.com/2026/10/19/upshot/polling-midterm-elections-senate.html
-
-**CUNY Has Raised $312 Million. The Chancellor Explains Why.**\
-`New York City’s public university cannot exist on tax dollars and tuition alone, its chancellor says.`\
-https://www.nytimes.com/2026/10/19/nyregion/cuny-fund-raising-felix-matos-rodriguez.html
-
-**As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides**\
-`By hedging her position on secession, Premier Danielle Smith risks a backlash from both her conservative base and from pro-Canada voters.`\
-https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html
-
-**U.S. Political Money Funnels to Indian Bots to Lure Voters**\
-`At least three dozen videos of people on the street expressing support for a Democratic candidate appeared millions of times on social media. It was unclear who paid for them.`\
-https://www.nytimes.com/2026/10/19/business/michigan-primary-disinformation-campaign.html
 
