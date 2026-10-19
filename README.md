@@ -1,3 +1,11 @@
+**Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
+`The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
+https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
+
+**Fire at Starlink Center in Lithuania Was Sabotage, Officials Say**\
+`The fire, which did not seriously damage the network, came after similar incidents in Bulgaria and Poland involving the satellite internet provider, a key defense tool for Ukraine’s armed forces.`\
+https://www.nytimes.com/2026/10/19/world/europe/lithuania-starlink-sabotage-ukraine-russia.html
+
 **Ways to Reform the Supreme Court**\
 `Readers react to an Opinion guest essay that criticized the court and suggested four changes.`\
 https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
@@ -146,7 +154,7 @@ https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots
 `Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html
 
-**That Huge Republican Cash Edge? It’s in Senate Races, Not House Races.**\
+**Republicans Are Vastly Outspending Democrats on Senate Races**\
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/learning/should-phones-be-banned-at-concerts.
 **Book Review: ‘Love and Death in the American Novel,’ by Leslie A. Fiedler**\
 `With its bracing studies of fiction’s secrets, this 66-year-old work of literary criticism still surprises and delights.`\
 https://www.nytimes.com/2026/10/19/books/review/leslie-fiedler-love-death-american-novel.html
-
-**Renting in White Plains to Be Close to Family, and a Lichtenstein**\
-`A retired couple wanted to stay in the New York suburbs to be near their children and grandchildren. The impressive artwork in the lobby was a bonus.`\
-https://www.nytimes.com/2026/10/19/realestate/white-plains-renters-ave-hamilton-green.html
-
-**‘A Ticking Time Bomb’: An Economic Crisis Looms in Indonesia**\
-`Once a model of economic stability, Indonesia now faces growing hardship at home as President Prabowo Subianto’s policies shake investor confidence.`\
-https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
 
