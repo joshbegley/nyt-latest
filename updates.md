@@ -1,3 +1,11 @@
+**Trump Says Work on Disputed Golf Course Will Begin Immediately**\
+`A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
+
+**Priest in Ecuador Dies After Crucifix Falls on Him During Livestreamed Mass**\
+`The Rev. Patricio Alfredo Sánchez Molinari was addressing his congregation in Guayaquil, Ecuador, when a wooden cross detached from a wall and struck him.`\
+https://www.nytimes.com/2026/10/19/world/americas/ecuador-priest-dies-crucifix.html
+
 **Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
 `Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
 https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html

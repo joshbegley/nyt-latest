@@ -1,3 +1,11 @@
+**Trump Says Work on Disputed Golf Course Will Begin Immediately**\
+`A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
+
+**Priest in Ecuador Dies After Crucifix Falls on Him During Livestreamed Mass**\
+`The Rev. Patricio Alfredo Sánchez Molinari was addressing his congregation in Guayaquil, Ecuador, when a wooden cross detached from a wall and struck him.`\
+https://www.nytimes.com/2026/10/19/world/americas/ecuador-priest-dies-crucifix.html
+
 **Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
 `Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
 https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011168846/un-military-haiti-g
 **15-Minute Lesson Plan: ‘The Uses of Horror’**\
 `Can horror stories both reflect our anxieties and help us process them?`\
 https://www.nytimes.com/2026/10/19/learning/15-minute-lesson-plan-the-uses-of-horror.html
-
-**Rent Is High Enough Without Junk Fees**\
-`Tenants apply for an apartment listed at one price, only to find that they owe their landlords even more.`\
-https://www.nytimes.com/2026/10/19/opinion/rental-junk-fees.html
-
-**Horror Novels Filled With Slow- Burn Dread**\
-`Our columnist on new horror fiction, including the latest from Stephen Graham Jones and Tananarive Due.`\
-https://www.nytimes.com/2026/10/19/books/review/new-horror-fiction.html
 
