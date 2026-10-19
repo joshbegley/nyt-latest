@@ -1,3 +1,7 @@
+**DOJ Charges 28 California Residents With Voting-Related Crimes Amid Trump’s Voter Fraud Push**\
+`The effort by the Trump administration comes as it wages a broader fight with California officials over voter rolls.`\
+https://www.nytimes.com/2026/10/19/us/politics/doj-california-voting-crimes-trump-midterms.html
+
 **Death Penalty Sought for Andrea Shaw, Who Blamed Toddlers’ Deaths on Vaccines**\
 `As Andrea Shaw, 23, awaits trial for the murder of her twins, a leading lawyer in the anti-vaccine movement has joined her defense team.`\
 https://www.nytimes.com/2026/10/19/well/andrea-shaw-death-penalty-toddler-deaths-vaccines.html
