@@ -1,3 +1,7 @@
+**The Local: From ICE watch to school closure fights**\
+`Plus, a Wild player sets a record.`\
+https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
+
 **The Echoes of Obama in Abdul El-Sayed’s Campaign**\
 `More money is projected to be spent on political ads in the 2026 midterms than in any previous election cycle. On “The Opinions,” the columnist Carlos Lozada analyzes Abdul El-Sayed’s campaign ad and its echoes of Barack Obama’s strategy for addressing questions about his identity and background.`\
 https://www.nytimes.com/video/opinion/100000011216106/the-echoes-of-obama-in-abdul-el-sayeds-campaign.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011220028/inside-russias-
 **NYT Connections Answers for October 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
 https://www.nytimes.com/2026/10/19/crosswords/connections-companion-1227.html
-
-**Israel’s High-Stakes Election, and How Illegal Gold Is Getting Into the Global Market**\
-`Plus, the search for “superhabitable” planets.`\
-https://www.nytimes.com/2026/10/19/podcasts/the-headlines/israel-elections-gold-global-market.html
 

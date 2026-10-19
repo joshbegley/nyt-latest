@@ -1,3 +1,7 @@
+**The Echoes of Obama in Abdul El-Sayed’s Campaign**\
+`More money is projected to be spent on political ads in the 2026 midterms than in any previous election cycle. On “The Opinions,” the columnist Carlos Lozada analyzes Abdul El-Sayed’s campaign ad and its echoes of Barack Obama’s strategy for addressing questions about his identity and background.`\
+https://www.nytimes.com/video/opinion/100000011216106/the-echoes-of-obama-in-abdul-el-sayeds-campaign.html
+
 **Saudis Aided Family of Engineer Accused of Bugging OpenAI, Prosecutors Say**\
 `A Saudi military official paid for the OpenAI engineer’s wife and infant son to fly out of the United States a day after his arrest, according to a court filing. The Saudi government also offered to cover his bail.`\
 https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-engineer.html
