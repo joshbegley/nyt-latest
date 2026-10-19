@@ -1,3 +1,15 @@
+**Police Fire Tear Gas Grenade at French Student**\
+`A high school student, who was identified as Eden by his family, was hit in the face last month by a tear gas grenade. Video of the incident sheds light on how a wave of school unrest evolved into national protests that led to riots on Saturday.`\
+https://www.nytimes.com/video/world/europe/100000011222448/france-student-protests-police-arrests-violence.html
+
+**Joe Manchin to Campaign With Susan Collins in Maine Ahead of Midterm Elections**\
+`Former Senator Joe Manchin III of West Virginia said he told Senator Susan Collins, who is locked in a tough re-election fight, “Whenever you run again, I’m going to come.”`\
+https://www.nytimes.com/2026/10/19/us/manchin-collins-maine-senate-election.html
+
+**Saudis Aided Family of Engineer Accused of Bugging OpenAI, Prosecutors Say**\
+`Saudi officials paid for his wife and son to fly out of the U.S. and offered to cover his bail, according to court filings. A judge ordered the engineer to remain in custody.`\
+https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-engineer.html
+
 **Deaths at Danjiri Float Festival Prompt Questions in Japan**\
 `The vibrant danjiri tradition dates back three centuries, but two recent fatalities have prompted anxiety over whether participants can remain safe.`\
 https://www.nytimes.com/2026/10/19/world/asia/danjiri-festival-deaths-osaka-japan.html
