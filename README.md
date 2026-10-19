@@ -1,8 +1,16 @@
+**Deaths at Danjiri Float Festival Prompt Questions in Japan**\
+`The vibrant danjiri tradition dates back three centuries, but two recent fatalities have prompted anxiety over whether participants can remain safe.`\
+https://www.nytimes.com/2026/10/19/world/asia/danjiri-festival-deaths-osaka-japan.html
+
+**Kennedy’s Vaccine Plan Could Cause Surge in Hepatitis B, Study Finds**\
+`Ending routine vaccination for hepatitis B at birth, as the health secretary has recommended, would increase the number of chronic infections by as much as 83 percent, a team of researchers reported.`\
+https://www.nytimes.com/2026/10/19/health/hepatitis-b-vaccine-kennedy.html
+
 **The Failures of Emmanuel Macron**\
 `The student protests that snowballed into violent riots made it clear that almost 10 years of his presidency have not fixed France’s problems.`\
 https://www.nytimes.com/2026/10/19/world/macron-france-riots-le-pen-gold.html
 
-**“Yuri!!! On Ice”: Before “Heated Rivalry” This Sports Romance Shocked Japan**\
+**‘Yuri!!! On Ice': Before ‘Heated Rivalry,’ This Sports Romance Shocked Japan**\
 `The anime series “Yuri!!! On Ice” broke taboos, but brought so much more to the table.`\
 https://www.nytimes.com/2026/10/19/arts/television/yuri-on-ice-anniversary.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/19/dining/this-fish-with-lentils-and-sauce-rof-i
 **Tony Iommi Keeps Looking for Joy in the Darkness**\
 `After the sadness of the final Black Sabbath show, the guitarist completed “From the Dark,” his first solo album in 20 years, with younger collaborators who aided his ongoing quest for “big riffs.”`\
 https://www.nytimes.com/2026/10/19/arts/music/tony-iommi-from-the-dark-album.html
-
-**At Victoria’s Secret’s 2026 Fashion Show, an Old Stereotype of Sexy**\
-`The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
-https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
-
-**Limoges Residents Grieve City Hall Damage After Protests in France**\
-`As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
-https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
 
