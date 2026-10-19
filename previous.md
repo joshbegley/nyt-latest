@@ -1,3 +1,7 @@
+**Melania Trump Announces White House Women’s Health Initiative**\
+`The effort comes as Republicans are struggling to win over female voters two weeks before the midterm elections.`\
+https://www.nytimes.com/2026/10/19/us/politics/melania-trump-women-health.html
+
 **Bend Residents Want Accountability. Oregon’s Gun Laws Make It Hard.**\
 `After a school shooting in which the 16-year-old attacker died, there are few ways to pin official blame.`\
 https://www.nytimes.com/2026/10/19/us/bend-school-shooting-accountability.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/world/europe/lithuania-starlink-sabotage-ukra
 **Ways to Reform the Supreme Court**\
 `Readers react to an Opinion guest essay that criticized the court and suggested four changes.`\
 https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
-
-**Supreme Court to Hear New Case on Race and School Admissions**\
-`The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
-https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
