@@ -1,3 +1,7 @@
+**Will Trump’s Endorsement of Netanyahu Fire Up His Campaign or Fizzle?**\
+`President Trump said Benjamin Netanyahu was a “Great Warrior,” as he faces a tough re-election bid for prime minister. But the Trump brand is not what it once was in Israel, analysts say.`\
+https://www.nytimes.com/2026/10/19/world/middleeast/trump-netanyahu-endorsement-election.html
+
 **Israeli Police Detain 10 Over Violent Settler Attacks in West Bank**\
 `Israel has faced pressure, including from the United States, to investigate the attacks. Rights groups say most inquiries into extremist assaults on Palestinians go nowhere.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-palestinians.html
