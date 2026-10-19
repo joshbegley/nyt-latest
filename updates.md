@@ -1,3 +1,7 @@
+**Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
+`Helen Haines, an independent Australian lawmaker, was hit by a car in an “attack” outside her office, Prime Minister Anthony Albanese said.`\
+https://www.nytimes.com/video/world/australia/100000011222654/australian-lawmaker-critically-injured-after-car-attack.html
+
 **DOJ Charges 28 California Residents With Voting-Related Crimes Amid Trump’s Voter Fraud Push**\
 `The effort by the Trump administration comes as it wages a broader fight with California officials over voter rolls.`\
 https://www.nytimes.com/2026/10/19/us/politics/doj-california-voting-crimes-trump-midterms.html
