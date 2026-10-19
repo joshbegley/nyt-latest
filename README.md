@@ -1,3 +1,7 @@
+**Shopkeepers Pick Up Pieces After Riots in France**\
+`More than a thousand shops in France were damaged after anti-government protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
+https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
+
 **María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
 `Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html
@@ -58,13 +62,13 @@ https://www.nytimes.com/2026/10/19/business/indonesia-economy-stocks.html
 `Polls are inherently imprecise, but they don’t have a record of systematically overestimating Democrats in recent nonpresidential elections.`\
 https://www.nytimes.com/2026/10/19/upshot/polling-midterm-elections-senate.html
 
-**As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides**\
-`By hedging her position on secession, Premier Danielle Smith risks a backlash from both her conservative base and from pro-Canada voters.`\
-https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html
-
 **CUNY Has Raised $312 Million. The Chancellor Explains Why.**\
 `New York City’s public university cannot exist on tax dollars and tuition alone, its chancellor says.`\
 https://www.nytimes.com/2026/10/19/nyregion/cuny-fund-raising-felix-matos-rodriguez.html
+
+**As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides**\
+`By hedging her position on secession, Premier Danielle Smith risks a backlash from both her conservative base and from pro-Canada voters.`\
+https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html
 
 **U.S. Political Money Funnels to Indian Bots to Lure Voters**\
 `At least three dozen videos of people on the street expressing support for a Democratic candidate appeared millions of times on social media. It was unclear who paid for them.`\
@@ -126,13 +130,13 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
 
-**How Did Life Arise? Three Turning Points in Early Evolution**\
-`Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
-https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
-
 **At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
 `These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
 https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
+
+**How Did Life Arise? Three Turning Points in Early Evolution**\
+`Where did it start? How did it grow complex? Why did it get big? Three moments in Earth’s early history when evolution suddenly, inexplicably turned up the dial.`\
+https://www.nytimes.com/2026/10/19/science/evolution-life-earth.html
 
 **To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look**\
 `Layers of people certify that gold is free from rights abuses and criminality. Nobody makes them leave their desks.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/opinion/international-world/israel-us-liberal
 **‘Yaga’ and 8 More Shows to Watch on TV This Week**\
 `Hudson Williams stars in a new mystery series from Canada. And CMA celebrates Dolly Parton.`\
 https://www.nytimes.com/2026/10/19/arts/television/yaga-what-to-watch-on-tv-this-week.html
-
-**A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
-`The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
-https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
 
