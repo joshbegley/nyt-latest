@@ -1,3 +1,7 @@
+**‘Mothers of Kherson’: An Operatic Show of Support for Ukraine**\
+`Operas don’t usually reflect current events. But “The Mothers of Kherson,” a product of artistic advocacy by the Met Opera, blends news and myth.`\
+https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.html
+
 **Jenny Holzer Resurrects the Past to Lament the Present**\
 `Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
 https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
@@ -182,19 +186,15 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
-`The exiled ambassador didn’t defy the president. She mimicked him.`\
-https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
-
 **Vital Early Voting Period Begins in Texas**\
 `Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
 https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
+**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
+`The exiled ambassador didn’t defy the president. She mimicked him.`\
+https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
 https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-vegas.html
-
-**Ellie Kemper: Nora Ephron Wrote to Amuse Herself**\
-`The actress and comedian riffs on the essay Nora Ephron wrote for The Times in 2008.`\
-https://www.nytimes.com/2026/10/19/opinion/kemper-ephron-nyt-175.html
 

@@ -1,3 +1,7 @@
+**‘Mothers of Kherson’: An Operatic Show of Support for Ukraine**\
+`Operas don’t usually reflect current events. But “The Mothers of Kherson,” a product of artistic advocacy by the Met Opera, blends news and myth.`\
+https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.html
+
 **Jenny Holzer Resurrects the Past to Lament the Present**\
 `Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
 https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
