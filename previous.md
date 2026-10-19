@@ -1,3 +1,11 @@
+**The Failures of Emmanuel Macron**\
+`The student protests that snowballed into violent riots made it clear that almost 10 years of his presidency have not fixed France’s problems.`\
+https://www.nytimes.com/2026/10/19/world/macron-france-riots-le-pen-gold.html
+
+**“Yuri!!! On Ice”: Before “Heated Rivalry” This Sports Romance Shocked Japan**\
+`The anime series “Yuri!!! On Ice” broke taboos, but brought so much more to the table.`\
+https://www.nytimes.com/2026/10/19/arts/television/yuri-on-ice-anniversary.html
+
 **Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
 `The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-enginee
 `The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
 
-**There’s Something Missing From Republican Ads as the Midterms Near**\
+**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
 **Limoges Residents Grieve City Hall Damage After Protests in France**\
 `As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
 https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
-
-**Trump Golf Course Dispute Sparks Clash Between Judge and DOJ**\
-`The Justice Department clashed with Judge Ana C. Reyes over testimony by several government witnesses about the chain of decisions surrounding East Potomac Golf Links.`\
-https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
-
-**Priest in Ecuador Dies After Crucifix Falls on Him During Livestreamed Mass**\
-`The Rev. Patricio Alfredo Sánchez Molinari was addressing his congregation in Guayaquil, Ecuador, when a wooden cross detached from a wall and struck him.`\
-https://www.nytimes.com/2026/10/19/world/americas/ecuador-priest-dies-crucifix.html
 

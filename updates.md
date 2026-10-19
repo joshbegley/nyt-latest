@@ -1,3 +1,15 @@
+**The Failures of Emmanuel Macron**\
+`The student protests that snowballed into violent riots made it clear that almost 10 years of his presidency have not fixed France’s problems.`\
+https://www.nytimes.com/2026/10/19/world/macron-france-riots-le-pen-gold.html
+
+**“Yuri!!! On Ice”: Before “Heated Rivalry” This Sports Romance Shocked Japan**\
+`The anime series “Yuri!!! On Ice” broke taboos, but brought so much more to the table.`\
+https://www.nytimes.com/2026/10/19/arts/television/yuri-on-ice-anniversary.html
+
+**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
+`Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
+
 **Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
 `The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
