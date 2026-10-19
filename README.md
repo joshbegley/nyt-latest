@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-militar
 https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
 
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
-`New York City aims to offer free child care for 2-year-olds to half of the city’s school districts next year, including the first seats on Staten Island.`\
+`New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
 
 **Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wang
 `The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
 https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
 
-**France’s Far Right Seizes the Moment as Rioting Stuns the Country**\
+**France’s Far Right Shifts Into Campaign Mode as Student Riots Erupt Into Violence**\
 `The National Rally, already ahead in the polls, presented itself as the party best placed to restore law and order.`\
 https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
 
