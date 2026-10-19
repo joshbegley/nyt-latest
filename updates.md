@@ -1,3 +1,7 @@
+**The French Teen Maimed During School Unrest by Tear Gas Grenade**\
+`The police’s treatment of the student last month sheds light on how a wave of school unrest evolved into national protests that spilled into widespread riots on Saturday.`\
+https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html
+
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
 `New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html

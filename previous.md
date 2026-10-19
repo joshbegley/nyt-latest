@@ -1,3 +1,7 @@
+**The French Teen Maimed During School Unrest by Tear Gas Grenade**\
+`The police’s treatment of the student last month sheds light on how a wave of school unrest evolved into national protests that spilled into widespread riots on Saturday.`\
+https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html
+
 **On the Ground With Haiti’s Gang Suppression Force**\
 `The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-with-haitis-gang-suppression-force.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html
 **Shopkeepers Pick Up Pieces After Riots in France**\
 `More than a thousand shops in France were damaged after antigovernment protests devolved into riots and looting. Business owners were left to pick up the pieces.`\
 https://www.nytimes.com/video/world/europe/100000011221939/france-protests-riots-stores.html
-
-**María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration**\
-`Blocked from entering her country, Venezuela’s opposition leader spoke with The Times about her efforts to return and her relationship with the Trump administration.`\
-https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html
 
