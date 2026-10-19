@@ -1,3 +1,11 @@
+**Robert Reich Thinks the Baby Boomers Blew It**\
+`Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
+https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
+
+**Andrew Schulz, ‘Podcast Bro,’ Might Be America’s Foremost Political Journalist**\
+`The defiantly anti-woke comedian and podcast host discusses his issues with the mainstream media and how podcasts threw out all the rules.`\
+https://www.nytimes.com/video/podcasts/100000011182394/andrew-schulz-podcast-bro-might-be-americas-foremost-political-journalist.html
+
 **‘Mothers of Kherson’: An Operatic Show of Support for Ukraine**\
 `Operas don’t usually reflect current events. But “The Mothers of Kherson,” a product of artistic advocacy by the Met Opera, blends news and myth.`\
 https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.html
