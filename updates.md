@@ -1,3 +1,7 @@
+**Student News Quiz: French Protests, College Majors, a Giant Tortoise**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/10/19/learning/19studentnewsquiz-ln.html
+
 **U.N.C. Strikes Trump Deal to Keep Federal Funding**\
 `The University of North Carolina at Chapel Hill will not pay any financial penalties but agreed to abide by the Trump administration’s views on diversity and other matters.`\
 https://www.nytimes.com/2026/10/19/us/politics/unc-trump-deal.html
