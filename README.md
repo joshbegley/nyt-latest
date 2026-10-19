@@ -118,13 +118,13 @@ https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-ve
 `The actress and comedian riffs on the essay Nora Ephron wrote for The Times in 2008.`\
 https://www.nytimes.com/2026/10/19/opinion/kemper-ephron-nyt-175.html
 
-**I Have Never Seen the Online Right So Happy**\
-`Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
-https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
-
 **How a Comedian and Production Assistant Lives on $30,000 in Brooklyn**\
 `Losing his day job was bad for Janald DuFont’s bottom line, which in turn has been good for his comedy.`\
 https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordability-dufont.html
+
+**I Have Never Seen the Online Right So Happy**\
+`Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
+https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
 
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\

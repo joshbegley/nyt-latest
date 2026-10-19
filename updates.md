@@ -1,3 +1,7 @@
+**At Victoria’s Secret’s 2026 Fashion Show, an Old Stereotype of Sexy**\
+`The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
+https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
+
 **Victoria’s Secret Brings Back the Fantasy Bra — and an Old Stereotype of Sexy**\
 `The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
 https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
