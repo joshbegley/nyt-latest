@@ -1,3 +1,19 @@
+**Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
+`The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
+
+**Mahmoud Khalil Appeals to Supreme Court to Halt Deportation**\
+`Mr. Khalil had recently graduated from Columbia when he was arrested by ICE agents and became the face of the Trump administration’s crackdown on pro-Palestinian demonstrations.`\
+https://www.nytimes.com/2026/10/19/us/politics/supreme-court-mahmoud-khalil-deportation.html
+
+**Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
+`After almost a decade away from Springfield, the character returned to show, this time voiced by a South Asian actor rather than a white man.`\
+https://www.nytimes.com/2026/10/19/arts/television/apu-the-simpsons-sunil-malhotra.html
+
+**There’s Something Missing From Republican Ads as the Midterms Near**\
+`Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
+
 **Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
 `Helen Haines, an independent Australian lawmaker, was hit by a car in an “attack” outside her office, Prime Minister Anthony Albanese said.`\
 https://www.nytimes.com/video/world/australia/100000011222654/australian-lawmaker-critically-injured-after-car-attack.html

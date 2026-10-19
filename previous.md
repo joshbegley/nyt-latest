@@ -1,3 +1,15 @@
+**Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
+`The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
+
+**Mahmoud Khalil Appeals to Supreme Court to Halt Deportation**\
+`Mr. Khalil had recently graduated from Columbia when he was arrested by ICE agents and became the face of the Trump administration’s crackdown on pro-Palestinian demonstrations.`\
+https://www.nytimes.com/2026/10/19/us/politics/supreme-court-mahmoud-khalil-deportation.html
+
+**Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
+`After almost a decade away from Springfield, the character returned to show, this time voiced by a South Asian actor rather than a white man.`\
+https://www.nytimes.com/2026/10/19/arts/television/apu-the-simpsons-sunil-malhotra.html
+
 **Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
 `Helen Haines, an independent Australian lawmaker, was hit by a car in an “attack” outside her office, Prime Minister Anthony Albanese said.`\
 https://www.nytimes.com/video/world/australia/100000011222654/australian-lawmaker-critically-injured-after-car-attack.html
@@ -50,7 +62,7 @@ https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-enginee
 `The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
 
-**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
+**There’s Something Missing From Republican Ads as the Midterms Near**\
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 
@@ -181,20 +193,4 @@ https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
 **Priest in Ecuador Dies After Crucifix Falls on Him During Livestreamed Mass**\
 `The Rev. Patricio Alfredo Sánchez Molinari was addressing his congregation in Guayaquil, Ecuador, when a wooden cross detached from a wall and struck him.`\
 https://www.nytimes.com/2026/10/19/world/americas/ecuador-priest-dies-crucifix.html
-
-**Canadian Military Base Fire Leaves Several People Dead, Officials Say**\
-`Several people were killed and dozens more were injured, Canadian officials said, after strong winds fanned a grass fire at a military base in Alberta on Saturday.`\
-https://www.nytimes.com/video/world/americas/100000011222095/canada-military-base-fire-deaths.html
-
-**Elon Musk Says He Will Give a SpaceX Share to ‘Every Kid in America’**\
-`Anthropic, an A.I. rival to SpaceX, earlier said it would form a “public benefit fund” and other tech moguls have contributed to savings accounts for children.`\
-https://www.nytimes.com/2026/10/19/business/elon-musk-spacex-stock-anthropic-giveaway.html
-
-**Trump Is Pushing Ukraine to Surrender to Russia, Zelensky Says**\
-`President Volodymyr Zelensky said he didn’t want to believe that Washington wanted an end to the war at Ukraine’s expense. “But that’s how it looks,” he added.`\
-https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war.html
-
-**Will Trump’s Endorsement of Netanyahu Fire Up His Campaign or Fizzle?**\
-`President Trump said Benjamin Netanyahu was a “Great Warrior,” as he faces a tough re-election bid for prime minister. But the Trump brand is not what it once was in Israel, analysts say.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/trump-netanyahu-endorsement-election.html
 

@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-enginee
 `The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
 
-**There’s Something Missing From Republican Ads as the Midterms Near**\
+**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 
