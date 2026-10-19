@@ -1,3 +1,11 @@
+**Trump Is Pushing Ukraine to Surrender to Russia, Zelensky Says**\
+`President Volodymyr Zelensky said he didn’t want to believe that Washington wanted an end to the war at Ukraine’s expense. “But that’s how it looks,” he added.`\
+https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war.html
+
+**Midterm Elections: Who Is Winning the Race for Congress?**\
+`It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-congress.html
+
 **Will Trump’s Endorsement of Netanyahu Fire Up His Campaign or Fizzle?**\
 `President Trump said Benjamin Netanyahu was a “Great Warrior,” as he faces a tough re-election bid for prime minister. But the Trump brand is not what it once was in Israel, analysts say.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/trump-netanyahu-endorsement-election.html

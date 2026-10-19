@@ -1,3 +1,7 @@
+**Trump Is Pushing Ukraine to Surrender to Russia, Zelensky Says**\
+`President Volodymyr Zelensky said he didn’t want to believe that Washington wanted an end to the war at Ukraine’s expense. “But that’s how it looks,” he added.`\
+https://www.nytimes.com/2026/10/19/world/europe/trump-zelensky-putin-ukraine-war.html
+
 **Will Trump’s Endorsement of Netanyahu Fire Up His Campaign or Fizzle?**\
 `President Trump said Benjamin Netanyahu was a “Great Warrior,” as he faces a tough re-election bid for prime minister. But the Trump brand is not what it once was in Israel, analysts say.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/trump-netanyahu-endorsement-election.html
@@ -74,13 +78,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -98,9 +102,9 @@ https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordabil
 `Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
 https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
 
-**Who’s Winning the Race for Congress?**\
+**Midterm Elections: Who Is Winning the Race for Congress?**\
 `It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/10/19/us/politics/whos-winning-the-race-for-congress.html
+https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-congress.html
 
 **Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About it.**\
 `To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/dining/copenhagen-denmark-bread-bmo.html
 **The Republican Party Is a Mess. It Will Emerge Stronger for It.**\
 `The G.O.P. will not always be focused around the strong personality and charisma of Trump.`\
 https://www.nytimes.com/2026/10/19/opinion/republican-party-trump-future.html
-
-**At a Last-Hope Health Clinic, Desperation, Kindness and Fear for What’s Next**\
-`These doctors and community health workers are a safety net for patients losing coverage as premiums soar and Medicaid cuts mount, even as their clinic struggles to stay afloat.`\
-https://www.nytimes.com/2026/10/19/us/idaho-health-clinic-medicaid.html
 
