@@ -1,3 +1,7 @@
+**The Frenzy Behind Getting an Initiative on the California Ballot**\
+`An army of signature gatherers made plenty of cash hitting the streets to qualify various November initiatives.`\
+https://www.nytimes.com/2026/10/19/us/billionaire-tax-california-signature-gatherers.html
+
 **For Israelis and Jews in the U.A.E., an Eroding Sense of Security**\
 `The Emirates’ reputation as a haven was shaken by what the authorities said was a plot last month aimed at crashing a flight from Dubai to Tel Aviv.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/jews-dubai-fear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/weather/noreaster-mid-atlantic-north-carolina
 **Sausage Orzo With Sage Bread Crumbs; Roasted Tomato and White Bean Stew**\
 `And more fast weeknight recipes that are proudly, cozily autumnal.`\
 https://www.nytimes.com/2026/10/18/dining/sausage-orzo-with-sage-bread-crumbs-roasted-tomato-and-white-bean-stew.html
-
-**Defending the Right to Choose Death**\
-`Readers respond to an Opinion guest essay about medical assistance in dying. Also: An assault on federal science.`\
-https://www.nytimes.com/2026/10/18/opinion/medical-assistance-in-dying.html
 
