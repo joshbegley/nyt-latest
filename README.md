@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/19/us/politics/doj-california-voting-crimes-trum
 `As Andrea Shaw, 23, awaits trial for the murder of her twins, a leading lawyer in the anti-vaccine movement has joined her defense team.`\
 https://www.nytimes.com/2026/10/19/well/andrea-shaw-death-penalty-toddler-deaths-vaccines.html
 
-**Why There’s No Relief From High Beef Prices**\
+**Your Burger Is Going to Get Only More Expensive**\
 `Beef prices will go higher because of the complex production cycle.`\
 https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
 
