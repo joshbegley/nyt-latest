@@ -1,3 +1,7 @@
+**Trump Defends Plans to Ease Russia Sanctions and Hints at a Hostage Deal**\
+`The president on Sunday justified his reversal of almost five years of sanctions against Russia as part of peace negotiations. He did not name any hostage.`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-russia-sanctions-hostage-negotiations.html
+
 **June 17, 1994: Millions Watched Police Chase O.J. Simpson in a Bronco**\
 `The chase occurred days after his ex-wife and her friend were killed. New details shed light on the role that a mobster might have played in helping Mr. Simpson.`\
 https://www.nytimes.com/2026/10/18/us/oj-simpson-white-bronco-police-chase.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/us/oj-simpson-case-takeaways.html
 **There Is More to the O.J. Simpson Story**\
 `Our national investigative reporter, Mike Baker, helped pry loose previously sealed court files that reveal important new details in the O.J. Simpson case.`\
 https://www.nytimes.com/video/us/100000011193911/there-is-more-to-the-oj-simpson-story.html
-
-**‘No Kings’ Rallies Focus on Early Voting Before Midterms**\
-`With midterm elections approaching, organizers of the “No Kings” demonstrations, known for their anti-Trump sentiment, urged people to vote early.`\
-https://www.nytimes.com/video/us/elections/100000011221072/no-kings-early-voting-midterms.html
 
