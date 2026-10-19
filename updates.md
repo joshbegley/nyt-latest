@@ -1,3 +1,7 @@
+**Bend Residents Want Accountability. Oregon’s Gun Laws Make It Hard.**\
+`After a school shooting in which the 16-year-old attacker died, there are few ways to pin official blame.`\
+https://www.nytimes.com/2026/10/19/us/bend-school-shooting-accountability.html
+
 **Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
 `The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
