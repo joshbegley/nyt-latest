@@ -1,3 +1,7 @@
+**What to Know About the Search for Amelia Earhart’s Plane**\
+`A satellite image sent researchers to a remote Pacific atoll, but their findings brought no resolution to the decades-old search. Here’s what to know.`\
+https://www.nytimes.com/2026/10/19/world/asia/amelia-earhart-plane-search-explained.html
+
 **A Bad Combination**\
 `We take a look at the human face of America’s utility bill crisis.`\
 https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/arts/design/25-years-after-the-world-trade-ce
 **How a Trillion-Dollar Industry Launders Illegal Gold**\
 `The line between dirty and clean gold is an industry fiction. Wall Street and governments profit off gold from criminals, gangsters and those who exploit children.`\
 https://www.nytimes.com/2026/10/19/world/africa/dirty-gold-industry-coverup-launder-madagascar.html
-
-**The VW Bus, Now Electrified, Keeps on Truckin’**\
-`A restored version of Volkswagen’s Flower Power-era Microbus, kitted out by Kindred Motorworks, is aiming for the affluent, while VW’s own E.V. is slow to get moving, much like its forebear.`\
-https://www.nytimes.com/2026/10/19/business/electric-vw-bus-kindred-idbuzz.html
 
