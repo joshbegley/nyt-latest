@@ -1,3 +1,11 @@
+**High Costs of Living Sparks Protests Across Italy**\
+`Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
+https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
+
+**France Imposes Curfews**\
+`Also, many American forests are sick. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/10/19/briefing/france-imposes-curfews.html
+
 **Man Who Died in ICE Custody in Texas Was Denied Medicine, Daughter Says**\
 `The man had been detained at an immigration center in Laredo, Texas, since June. Immigration officials said he had received proper medical care.`\
 https://www.nytimes.com/2026/10/19/us/ice-death-laredo-texas-medicine.html

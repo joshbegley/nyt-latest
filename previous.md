@@ -1,3 +1,11 @@
+**High Costs of Living Sparks Protests Across Italy**\
+`Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
+https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
+
+**France Imposes Curfews**\
+`Also, many American forests are sick. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/10/19/briefing/france-imposes-curfews.html
+
 **Man Who Died in ICE Custody in Texas Was Denied Medicine, Daughter Says**\
 `The man had been detained at an immigration center in Laredo, Texas, since June. Immigration officials said he had received proper medical care.`\
 https://www.nytimes.com/2026/10/19/us/ice-death-laredo-texas-medicine.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-sta
 **Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
 `Reportedly the wealthiest man in the poorest country in the Western Hemisphere, Gilbert Bigio was sanctioned for ties to criminal gangs. He was 91.`\
 https://www.nytimes.com/2026/10/19/world/americas/gilbert-bigio-dead.html
-
-**A Social Media Mob**\
-`We take a look at a growing movement.`\
-https://www.nytimes.com/2026/10/19/briefing/a-social-media-mob.html
-
-**Do You Recognize These Distinctive Objects From Popular Novels?**\
-`Certain items are forever linked to the books that used them as plot elements. Try this short quiz and see how many you know.`\
-https://www.nytimes.com/quiz/2026/10/19/bookreview/literary-objects-quiz.html
 

@@ -1,3 +1,7 @@
+**Barbara Palvin Walked the Victoria’s Secret Show Six Weeks Postpartum**\
+`Barbara Palvin’s return to the runway so soon after giving birth set off a debate online about motherhood in America.`\
+https://www.nytimes.com/2026/10/19/style/barbara-palvin-victorias-secret-postpartum.html
+
 **High Costs of Living Sparks Protests Across Italy**\
 `Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
 https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
 **Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
 `New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
 https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
-
-**Gilbert Bigio, Haitian Tycoon Linked to Gangs, Dies at 91**\
-`Reportedly the wealthiest man in the poorest country in the Western Hemisphere, Gilbert Bigio was sanctioned for ties to criminal gangs. He was 91.`\
-https://www.nytimes.com/2026/10/19/world/americas/gilbert-bigio-dead.html
 
