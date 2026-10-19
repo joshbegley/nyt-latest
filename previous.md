@@ -1,3 +1,7 @@
+**U.S. Citizen Hospitalized After Being Detained by ICE, His Family Says**\
+`The police in Long Beach, Calif., said they were called by ICE for backup and found a man who was bleeding and handcuffed.`\
+https://www.nytimes.com/2026/10/19/us/ice-hospitalization-us-citizen.html
+
 **Jon Stewart to Stay at ‘The Daily Show’ Through the 2028 Election**\
 `Ratings have surged since Mr. Stewart returned over two years ago to host the show on Monday nights.`\
 https://www.nytimes.com/2026/10/19/business/media/jon-stewart-daily-show.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/asia/amelia-earhart-plane-search-explai
 **A Bad Combination**\
 `We take a look at the human face of America’s utility bill crisis.`\
 https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
-
-**Inside Putin’s Plan to Cripple Ukraine This Winter**\
-`Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
-https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
 

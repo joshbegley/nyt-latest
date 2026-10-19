@@ -1,3 +1,7 @@
+**U.S. Citizen Hospitalized After Being Detained by ICE, His Family Says**\
+`The police in Long Beach, Calif., said they were called by ICE for backup and found a man who was bleeding and handcuffed.`\
+https://www.nytimes.com/2026/10/19/us/ice-hospitalization-us-citizen.html
+
 **Jon Stewart to Stay at ‘The Daily Show’ Through the 2028 Election**\
 `Ratings have surged since Mr. Stewart returned over two years ago to host the show on Monday nights.`\
 https://www.nytimes.com/2026/10/19/business/media/jon-stewart-daily-show.html
