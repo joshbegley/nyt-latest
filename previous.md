@@ -1,3 +1,7 @@
+**Christiane Amanpour Says She Is Leaving CNN After 43 Years**\
+`The chief international anchor, one of the most famous names in broadcast news, started as an assistant at the network in 1983.`\
+https://www.nytimes.com/2026/10/19/business/media/cnn-christiane-amanpour.html
+
 **U.S. Citizen Hospitalized After Being Detained by ICE, His Family Says**\
 `The police in Long Beach, Calif., said they were called by ICE for backup and found a man who was bleeding and handcuffed.`\
 https://www.nytimes.com/2026/10/19/us/ice-hospitalization-us-citizen.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/business/dealbook/anthropic-ipo-charity.html
 **What to Know About the Search for Amelia Earhart’s Plane**\
 `A satellite image sent researchers to a remote Pacific atoll, but their findings brought no resolution to the decades-old search. Here’s what to know.`\
 https://www.nytimes.com/2026/10/19/world/asia/amelia-earhart-plane-search-explained.html
-
-**A Bad Combination**\
-`We take a look at the human face of America’s utility bill crisis.`\
-https://www.nytimes.com/2026/10/19/briefing/utility-bills.html
 
