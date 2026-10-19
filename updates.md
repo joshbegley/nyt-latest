@@ -1,3 +1,11 @@
+**Victoria’s Secret Brings Back the Fantasy Bra — and an Old Stereotype of Sexy**\
+`The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
+https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
+
+**Limoges Residents Grieve City Hall Damage After Protests in France**\
+`As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
+https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
+
 **Trump Says Work on Disputed Golf Course Will Begin Immediately**\
 `A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
