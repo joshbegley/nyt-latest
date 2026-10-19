@@ -1,3 +1,7 @@
+**The Grody-Patinkin Family Is a Mess. People Love It.**\
+`Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
+https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
+
 **Robert Reich Thinks the Baby Boomers Blew It**\
 `Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
 https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
 `About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
 https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
 
-**The French Kids Are All Right. It’s the Rest of Us I’m Worried About.**\
+**The French Fantasy Is Coming to an End**\
 `With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
 https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
 
@@ -50,13 +54,13 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Track the Latest Polls in Missouri's Congressional Map Referendum**\
-`Track the latest polls in the Missouri congressional map referendum.`\
-https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
-
 **Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
 `The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
+
+**Track the Latest Polls in Missouri's Congressional Map Referendum**\
+`Track the latest polls in the Missouri congressional map referendum.`\
+https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
 
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 **Republicans Are Vastly Outspending Democrats on Senate Races**\
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
-
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
