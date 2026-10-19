@@ -1,3 +1,7 @@
+**U.N.C. Strikes Trump Deal to Keep Federal Funding**\
+`The University of North Carolina at Chapel Hill will not pay any financial penalties but agreed to abide by the Trump administration’s views on diversity and other matters.`\
+https://www.nytimes.com/2026/10/19/us/politics/unc-trump-deal.html
+
 **Barbara Palvin Walked the Victoria’s Secret Show Six Weeks Postpartum**\
 `Barbara Palvin’s return to the runway so soon after giving birth set off a debate online about motherhood in America.`\
 https://www.nytimes.com/2026/10/19/style/barbara-palvin-victorias-secret-postpartum.html
@@ -178,19 +182,15 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Track the Latest Polls in Missouri's Congressional Map Referendum**\
-`Track the latest polls in the Missouri congressional map referendum.`\
-https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
-
 **Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
 `The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
 
+**Track the Latest Polls in Missouri's Congressional Map Referendum**\
+`Track the latest polls in the Missouri congressional map referendum.`\
+https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
+
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
 https://www.nytimes.com/2026/10/19/business/black-unemployment-job-market.html
-
-**Mamdani to Expand 2-K Program on Staten Island and in the Bronx**\
-`New York City aims to offer 12,000 free child care seats for 2-year-olds next year, including the first spots on Staten Island.`\
-https://www.nytimes.com/2026/10/19/nyregion/mamdani-to-expand-2-k-program-on-staten-island-and-in-the-bronx.html
 
