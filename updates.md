@@ -1,3 +1,27 @@
+**Inside Putin’s Plan to Cripple Ukraine This Winter**\
+`Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
+https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
+
+**Inside Russia’s Plan to Cripple Ukraine This Winter**\
+`Constant Méheut, a correspondent for The New York Times based in Kyiv, obtained a war plan that shows how Russia will attempt to force Ukraine into surrender this winter. Méheut joined Natalie Kitroeff on “The Daily” to talk about how Russia’s campaign could unleash a potentially devastating humanitarian crisis.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011220028/inside-russias-plan-to-cripple-ukraine-this-winter.html
+
+**NYT Connections Answers for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/connections-companion-1227.html
+
+**Israel’s High-Stakes Election, and How Illegal Gold Is Getting Into the Global Market**\
+`Plus, the search for “superhabitable” planets.`\
+https://www.nytimes.com/2026/10/19/podcasts/the-headlines/israel-elections-gold-global-market.html
+
+**NYT Strands Hints for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/strands-sidekick-961.html
+
+**Today’s Wordle Hints for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/wordle-review-1949.html
+
 **Australian Lawmaker Helen Haines Injured After Attack, Prime Minister Says**\
 `A suspect is in custody and the country’s counterterrorism team was activated after Helen Haines, 65, was struck by a car outside her office.`\
 https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wangaratta-australia.html

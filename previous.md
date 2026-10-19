@@ -1,3 +1,27 @@
+**Inside Putin’s Plan to Cripple Ukraine This Winter**\
+`Moscow seems to be seizing an opening to plunge Ukrainian cities into cold and darkness to try to inflict immense human suffering.`\
+https://www.nytimes.com/2026/10/19/podcasts/the-daily/inside-putins-plan-to-cripple-ukraine-this-winter.html
+
+**Inside Russia’s Plan to Cripple Ukraine This Winter**\
+`Constant Méheut, a correspondent for The New York Times based in Kyiv, obtained a war plan that shows how Russia will attempt to force Ukraine into surrender this winter. Méheut joined Natalie Kitroeff on “The Daily” to talk about how Russia’s campaign could unleash a potentially devastating humanitarian crisis.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011220028/inside-russias-plan-to-cripple-ukraine-this-winter.html
+
+**NYT Connections Answers for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/connections-companion-1227.html
+
+**Israel’s High-Stakes Election, and How Illegal Gold Is Getting Into the Global Market**\
+`Plus, the search for “superhabitable” planets.`\
+https://www.nytimes.com/2026/10/19/podcasts/the-headlines/israel-elections-gold-global-market.html
+
+**NYT Strands Hints for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/strands-sidekick-961.html
+
+**Today’s Wordle Hints for October 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/19/crosswords/wordle-review-1949.html
+
 **Australian Lawmaker Helen Haines Injured After Attack, Prime Minister Says**\
 `A suspect is in custody and the country’s counterterrorism team was activated after Helen Haines, 65, was struck by a car outside her office.`\
 https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wangaratta-australia.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/19/business/electric-vw-bus-kindred-idbuzz.html
 **A Perfume Lover’s Guide to Florence**\
 `In the Italian birthplace of modern fragrance, a writer visits master perfumers and fragrance shops, and concocts her own autumnal scent.`\
 https://www.nytimes.com/2026/10/19/travel/florence-italy-perfume.html
-
-**The Frenzy Behind Getting an Initiative on the California Ballot**\
-`An army of signature gatherers made plenty of cash hitting the streets to qualify various November initiatives.`\
-https://www.nytimes.com/2026/10/19/us/billionaire-tax-california-signature-gatherers.html
-
-**For Israelis and Jews in the U.A.E., an Eroding Sense of Security**\
-`The Emirates’ reputation as a haven was shaken by what the authorities said was a plot last month aimed at crashing a flight from Dubai to Tel Aviv.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/jews-dubai-fear.html
-
-**New York City Has a Rat Killing Machine**\
-`Are the humans winning? That’s hard to say. But we certainly have a technological advantage.`\
-https://www.nytimes.com/2026/10/19/nyregion/in-its-forever-war-on-rats-new-york-enlists-a-killing-machine.html
-
-**NYT Spelling Bee Answers for October 19, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/19/crosswords/spelling-bee-forum.html
-
-**New York Has Deployed a Rat Killing Machine**\
-`The BurrowRX, a machine that kills rats by pumping carbon monoxide into burrows, is New York City’s latest tool in its battle against the rodents.`\
-https://www.nytimes.com/video/nyregion/100000011213690/nyc-rat-killing-machine.html
-
-**Trump Campaigns for Republicans as Turmoil Mounts in Washington**\
-`Our White House correspondent Tyler Pager traveled with President Trump as he campaigned across the country ahead of the midterms. As the president touted his record, political drama mounted in Washington.`\
-https://www.nytimes.com/video/us/100000011219687/trump-campaigns-for-republicans-as-turmoil-mounts-in-washington.html
 
