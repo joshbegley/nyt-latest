@@ -1,3 +1,7 @@
+**Trump Defends Plans to Ease Russia Sanctions and Hints at a Hostage Deal**\
+`The president on Sunday justified his reversal of almost five years of sanctions against Russia as part of peace negotiations. He did not name any hostage.`\
+https://www.nytimes.com/2026/10/18/us/politics/trump-russia-sanctions-hostage-negotiations.html
+
 **June 17, 1994: Millions Watched Police Chase O.J. Simpson in a Bronco**\
 `The chase occurred days after his ex-wife and her friend were killed. New details shed light on the role that a mobster might have played in helping Mr. Simpson.`\
 https://www.nytimes.com/2026/10/18/us/oj-simpson-white-bronco-police-chase.html
