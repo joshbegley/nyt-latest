@@ -1,3 +1,7 @@
+**The 10 Best Looks From the Academy Museum Gala Red Carpet**\
+`The event’s red carpet took some by surprise with its elegance.`\
+https://www.nytimes.com/2026/10/18/style/academy-museum-gala-red-carpet-best-looks.html
+
 **Larry David Mocks the D.S.A. Some Are Not Amused.**\
 `The comedian satirized the Democratic Socialists of America, its platform and its opposition to Israel in an essay that some did not LOL at.`\
 https://www.nytimes.com/2026/10/18/us/politics/larry-david-dsa-satire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/18/crosswords/connections-companion-1226.html
 **NYT Strands Hints for October 19, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
 https://www.nytimes.com/2026/10/18/crosswords/strands-sidekick-960.html
-
-**Today’s Wordle Hints for October 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
-https://www.nytimes.com/2026/10/18/crosswords/wordle-review-1948.html
 
