@@ -1,3 +1,11 @@
+**Victoria’s Secret Brings Back the Fantasy Bra — and an Old Stereotype of Sexy**\
+`The angels were out in full force on the runway, including Kylie Jenner and both Hadids. So were the wings.`\
+https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
+
+**Limoges Residents Grieve City Hall Damage After Protests in France**\
+`As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
+https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
+
 **Trump Says Work on Disputed Golf Course Will Begin Immediately**\
 `A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**Vital Early Voting Period Begins in Texas**\
-`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
-https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
-
 **The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
 `The exiled ambassador didn’t defy the president. She mimicked him.`\
 https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
+
+**Vital Early Voting Period Begins in Texas**\
+`Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
+https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/19/well/covid-reinfection-risks.html
 **The Internet Loves This Ancient Seed Oil. Is It Worth the Hype?**\
 `Wellness influencers claim it can help regrow hair and lower blood pressure. Here’s what the science says.`\
 https://www.nytimes.com/2026/10/19/well/black-seed-oil-benefits-hair-loss.html
-
-**Can This International Force Stop Haiti’s Gangs?**\
-`A new U.N. military force is fighting to wrest control of the Haitian capital from violent gangs. Previous efforts by international troops failed to restore security. Can this one succeed?`\
-https://www.nytimes.com/video/world/americas/100000011168846/un-military-haiti-gangs.html
-
-**15-Minute Lesson Plan: ‘The Uses of Horror’**\
-`Can horror stories both reflect our anxieties and help us process them?`\
-https://www.nytimes.com/2026/10/19/learning/15-minute-lesson-plan-the-uses-of-horror.html
 
