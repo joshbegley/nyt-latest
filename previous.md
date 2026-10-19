@@ -1,3 +1,19 @@
+**A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
+`The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
+https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
+
+**No Corrections: October 19, 2026**\
+`No corrections appeared in print on Monday, October 19, 2026.`\
+https://www.nytimes.com/2026/10/19/corrections/no-corrections-october-19-2026.html
+
+**On This Day, Oct. 19: In 1987, the stock market crashed.**\
+`In 1987, the stock market crashed as the Dow Jones industrial average plunged 508 points, or 22.6 percent — its biggest single-day percentage drop.`\
+https://www.nytimes.com/2026/10/19/learning/on-this-day-oct-19.html
+
+**‘Other Desert Cities’ Review: Julia Louis-Dreyfus’s Smashing Debut**\
+`Jon Robin Baitz’s 2010 family bash-em-up gets an uneven Broadway revival, with a cast that also includes Allison Janney at her droll, insulting best.`\
+https://www.nytimes.com/2026/10/18/theater/other-desert-cities-review-julia-louis-dreyfus.html
+
 **The 10 Best Looks From the Academy Museum Gala Red Carpet**\
 `The event’s red carpet took some by surprise with its elegance.`\
 https://www.nytimes.com/2026/10/18/style/academy-museum-gala-red-carpet-best-looks.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/18/opinion/midterms-congress-trump-democrats.htm
 **Elizabeth Holmes and Nathan Fielder Keep Us Guessing**\
 `The documentary “You Can See Everything” unites a mysterious filmmaker with a mysterious subject.`\
 https://www.nytimes.com/2026/10/18/podcasts/the-daily/elizabeth-holmes-and-nathan-fielder-keep-us-guessing.html
-
-**‘I Shall Be Very Surprised if There Isn’t a Next Chapter’: A Q&A With Sarah Coakley**\
-`Unless we can regenerate the depth of the theological tradition alongside the depth of spiritual transformation, our churches deserve to be empty.`\
-https://www.nytimes.com/2026/10/18/opinion/religion-christ-systematic-theology-sarah-coakley.html
-
-**The Old World Order Is Over. This Is What Could Come Next.**\
-`Here are three scenarios for what the new global order might look like.`\
-https://www.nytimes.com/2026/10/18/opinion/america-world-order-democracy-trump.html
-
-**NYT Connections Answers for October 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
-https://www.nytimes.com/2026/10/18/crosswords/connections-companion-1226.html
-
-**NYT Strands Hints for October 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 19, 2026.`\
-https://www.nytimes.com/2026/10/18/crosswords/strands-sidekick-960.html
 

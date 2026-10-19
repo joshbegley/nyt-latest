@@ -1,3 +1,19 @@
+**A Japanese Spacecraft Aims to Bring Back a Bit of a Martian Moon**\
+`The mission, scheduled to launch on Monday, is headed to Phobos, the larger of the two moons of Mars. It could carry back the first samples from the Martian system.`\
+https://www.nytimes.com/2026/10/19/science/mmx-mars-moons-jaxa-launch.html
+
+**No Corrections: October 19, 2026**\
+`No corrections appeared in print on Monday, October 19, 2026.`\
+https://www.nytimes.com/2026/10/19/corrections/no-corrections-october-19-2026.html
+
+**On This Day, Oct. 19: In 1987, the stock market crashed.**\
+`In 1987, the stock market crashed as the Dow Jones industrial average plunged 508 points, or 22.6 percent — its biggest single-day percentage drop.`\
+https://www.nytimes.com/2026/10/19/learning/on-this-day-oct-19.html
+
+**‘Other Desert Cities’ Review: Julia Louis-Dreyfus’s Smashing Debut**\
+`Jon Robin Baitz’s 2010 family bash-em-up gets an uneven Broadway revival, with a cast that also includes Allison Janney at her droll, insulting best.`\
+https://www.nytimes.com/2026/10/18/theater/other-desert-cities-review-julia-louis-dreyfus.html
+
 **The 10 Best Looks From the Academy Museum Gala Red Carpet**\
 `The event’s red carpet took some by surprise with its elegance.`\
 https://www.nytimes.com/2026/10/18/style/academy-museum-gala-red-carpet-best-looks.html
