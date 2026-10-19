@@ -1,3 +1,7 @@
+**Russian Satellite Makes a Menacing Approach to Another Craft in Orbit**\
+`Although Kosmos 2612 is now backing away, the maneuver raised alarm bells for analysts who see it as part of a pattern of Russian aggression.`\
+https://www.nytimes.com/2026/10/19/science/russia-satellite-kosmos-2612.html
+
 **Student News Quiz: French Protests, College Majors, a Giant Tortoise**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/quiz/2026/10/19/learning/19studentnewsquiz-ln.html

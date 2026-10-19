@@ -1,3 +1,7 @@
+**Russian Satellite Makes a Menacing Approach to Another Craft in Orbit**\
+`Although Kosmos 2612 is now backing away, the maneuver raised alarm bells for analysts who see it as part of a pattern of Russian aggression.`\
+https://www.nytimes.com/2026/10/19/science/russia-satellite-kosmos-2612.html
+
 **Student News Quiz: French Protests, College Majors, a Giant Tortoise**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
 https://www.nytimes.com/quiz/2026/10/19/learning/19studentnewsquiz-ln.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissi
 **Track the Latest Polls in Missouri's Congressional Map Referendum**\
 `Track the latest polls in the Missouri congressional map referendum.`\
 https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
-
-**Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
-`The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
-https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
 
