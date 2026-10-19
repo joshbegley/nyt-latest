@@ -1,9 +1,9 @@
-**Trump Rallies Red States Amid Fears About G.O.P. Enthusiasm as Midterms Near**\
+**Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
 `The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
 
 **Mahmoud Khalil Appeals to Supreme Court to Halt Deportation**\
-`Mr. Khalil was a graduate student at Columbia when he was arrested by ICE agents and became the face of the Trump administration’s crackdown on pro-Palestinian demonstrations.`\
+`Mr. Khalil had recently graduated from Columbia when he was arrested by ICE agents and became the face of the Trump administration’s crackdown on pro-Palestinian demonstrations.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-mahmoud-khalil-deportation.html
 
 **Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-enginee
 `The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
 
-**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
+**There’s Something Missing From Republican Ads as the Midterms Near**\
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 
