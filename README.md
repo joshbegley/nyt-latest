@@ -1,3 +1,7 @@
+**The French Kids Are All Right. It’s the Rest of Us I’m Worried About.**\
+`With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
+https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
+
 **Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
 `The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
 https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 `The court’s decision to review an admissions policy for selective middle school programs in Maryland follows its rejection of affirmative action in higher education.`\
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-race-school-admissions.html
 
-**Track the Latest Polls in Missouri's Congressional Map Referendum**\
-`Track the latest polls in the Missouri congressional map referendum.`\
-https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
-
 **Houthi Strikes Kill Dozens in Yemeni Desert Military Camp, Officials Say**\
 `The Iranian-backed militia struck with ballistic missiles deep in government-held central Yemen, in what appeared to be among the deadliest attacks of the renewed war.`\
 https://www.nytimes.com/2026/10/19/world/middleeast/houthis-strike-yemen-military-camp.html
+
+**Track the Latest Polls in Missouri's Congressional Map Referendum**\
+`Track the latest polls in the Missouri congressional map referendum.`\
+https://www.nytimes.com/interactive/polls/missouri-congressional-map-referendum-polls-2026.html
 
 **Black Unemployment Hints at a Job Market in Worse Shape Than It Seems**\
 `The Black unemployment rate climbed a percentage point to 7 percent in September, almost double the rate for white workers.`\
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-ve
 `The actress and comedian riffs on the essay Nora Ephron wrote for The Times in 2008.`\
 https://www.nytimes.com/2026/10/19/opinion/kemper-ephron-nyt-175.html
 
-**I Have Never Seen the Online Right So Happy**\
-`Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
-https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
-
 **How a Comedian and Production Assistant Lives on $30,000 in Brooklyn**\
 `Losing his day job was bad for Janald DuFont’s bottom line, which in turn has been good for his comedy.`\
 https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordability-dufont.html
+
+**I Have Never Seen the Online Right So Happy**\
+`Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
+https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
 
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election
 **Should Phones Be Banned at Concerts?**\
 `Phoebe Bridgers has prohibited phones and other tech from her current tour. Should other artists follow her lead?`\
 https://www.nytimes.com/2026/10/19/learning/should-phones-be-banned-at-concerts.html
-
-**Book Review: ‘Love and Death in the American Novel,’ by Leslie A. Fiedler**\
-`With its bracing studies of fiction’s secrets, this 66-year-old work of literary criticism still surprises and delights.`\
-https://www.nytimes.com/2026/10/19/books/review/leslie-fiedler-love-death-american-novel.html
 
