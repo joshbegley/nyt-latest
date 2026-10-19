@@ -1,3 +1,7 @@
+**Australian Lawmaker Helen Haines Injured After Attack, Prime Minister Says**\
+`A suspect is in custody and the country’s counterterrorism team was activated after Helen Haines, 65, was struck by a car outside her office.`\
+https://www.nytimes.com/2026/10/19/world/australia/helen-haines-mp-attacked-wangaratta-australia.html
+
 **Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones**\
 `The fighters are a key tool against Moscow’s latest weapon of choice. But deploying the multimillion-dollar planes to counter drones is an imperfect fix.`\
 https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html
