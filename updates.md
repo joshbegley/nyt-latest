@@ -1,3 +1,11 @@
+**Why There’s No Relief From High Beef Prices**\
+`Beef prices will go higher because of the complex production cycle.`\
+https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
+
+**The Fight to End Gang Warfare in Haiti**\
+`The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011223457/the-fight-to-end-gang-warfare-in-haiti.html
+
 **Christiane Amanpour Says She Is Leaving CNN After 43 Years**\
 `The chief international anchor, one of the most famous names in broadcast news, started as an assistant at the network in 1983.`\
 https://www.nytimes.com/2026/10/19/business/media/cnn-christiane-amanpour.html

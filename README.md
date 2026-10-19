@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/10/19/world/middleeast/israel-west-bank-settlers-pa
 https://www.nytimes.com/2026/10/19/us/california-climate-change-warning.html
 
 **France Officials Acknowledge ‘Failure’ Around Riots**\
-`Prime Minister Sébastien Lecornu defended police efforts and pledged to restore order as government ministers acknowledged failures.`\
+`The interior minister acknowledged that the police were underprepared for the scale of the riots. But Prime Minister Sébastien Lecornu defended their efforts and pledged to restore order.`\
 https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html
 
