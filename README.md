@@ -1,3 +1,19 @@
+**Jenny Holzer Resurrects the Past to Lament the Present**\
+`Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
+https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
+
+**The RealReal Offers a New Guide on the Endless Quest for Personal Style**\
+`A new book from the RealReal, the secondhand designer retailer, has ideas for how to develop taste that is your own.`\
+https://www.nytimes.com/2026/10/19/style/the-realreal-personal-style.html
+
+**Cult Leader Convicted of Mass Murder by Court in Kenya**\
+`Paul Nthenge Mackenzie told his doomsday followers in a remote forest to fast for salvation. He faced trial after hundreds of bodies were exhumed.`\
+https://www.nytimes.com/2026/10/19/world/africa/kenya-cult-deaths-paul-mackenzie-court-ruling.html
+
+**Stylish, Hard-Wearing Boots for City Living**\
+`These staples are designed for long days spent on your feet, and while many of them come predistressed, they get even better with age.`\
+https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
+
 **Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
 `About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
 https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
@@ -70,7 +86,7 @@ https://www.nytimes.com/2026/10/19/style/victorias-secret-fantasy-bra-sexy.html
 `As unrest surged across France over the weekend, rioters set fire to Limoges city hall, destroying a symbol for the small city’s residents.`\
 https://www.nytimes.com/video/world/europe/100000011222054/france-protests-fire-limoges-city-hall.html
 
-**Trump Says Work on Disputed Golf Course Will Begin Immediately**\
+**Trump Says Renovations on Disputed DC Golf Course Will Begin Immediately**\
 `A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
 
@@ -166,13 +182,13 @@ https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela
 `With Republicans seen as less likely to hold their majority in the House, the party is focusing more on the battle for the Senate, where it is vastly outspending Democrats on ads.`\
 https://www.nytimes.com/2026/10/19/us/politics/midterms-republican-spending-edge.html
 
-**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
-`The exiled ambassador didn’t defy the president. She mimicked him.`\
-https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
-
 **Vital Early Voting Period Begins in Texas**\
 `Early voting in Texas, where the outcome of the Senate race could determine which party controls the chamber, will run through Oct. 30.`\
 https://www.nytimes.com/2026/10/19/us/politics/texas-early-voting-midterm-elections.html
+
+**The Real Reason Trump Asked for Kimberley Guilfoyle’s Resignation**\
+`The exiled ambassador didn’t defy the president. She mimicked him.`\
+https://www.nytimes.com/2026/10/19/opinion/kimberly-guilfoyle-fired.html
 
 **Art Basel Las Vegas? The Fight Over Miami Beach’s Fair**\
 `After 18 months of negotiations and warnings that it might relocate to Nevada, the Art Basel fair will remain in Miami Beach through 2031.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/19/arts/design/art-basel-miami-beach-contract-ve
 **Ellie Kemper: Nora Ephron Wrote to Amuse Herself**\
 `The actress and comedian riffs on the essay Nora Ephron wrote for The Times in 2008.`\
 https://www.nytimes.com/2026/10/19/opinion/kemper-ephron-nyt-175.html
-
-**I Have Never Seen the Online Right So Happy**\
-`Online right-wingers are doxxing and smearing the accuser in the Cornell rape case, in tactics that reek of desperation.`\
-https://www.nytimes.com/2026/10/19/opinion/cornell-rape-political-right-smear.html
-
-**How a Comedian and Production Assistant Lives on $30,000 in Brooklyn**\
-`Losing his day job was bad for Janald DuFont’s bottom line, which in turn has been good for his comedy.`\
-https://www.nytimes.com/interactive/2026/10/19/nyregion/nyc-budgeting-affordability-dufont.html
-
-**Midterm Elections: Who Is Winning the Race for Congress?**\
-`It’s Oct. 19 — 15 days from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/10/19/us/politics/midterms-elections-senate-house-congress.html
-
-**Republicans in Ohio Are Worried About Turnout. Here’s What They’re Doing About It.**\
-`To boost Senator Jon Husted, who is in a tight race to keep his seat, some Republicans who were making a jobs pitch have pivoted to focus on socialism.`\
-https://www.nytimes.com/2026/10/19/us/politics/republicans-ohio-turnout-election.html
 
