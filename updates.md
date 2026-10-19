@@ -1,3 +1,23 @@
+**Jenny Holzer Resurrects the Past to Lament the Present**\
+`Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
+https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
+
+**The RealReal Offers a New Guide on the Endless Quest for Personal Style**\
+`A new book from the RealReal, the secondhand designer retailer, has ideas for how to develop taste that is your own.`\
+https://www.nytimes.com/2026/10/19/style/the-realreal-personal-style.html
+
+**Cult Leader Convicted of Mass Murder by Court in Kenya**\
+`Paul Nthenge Mackenzie told his doomsday followers in a remote forest to fast for salvation. He faced trial after hundreds of bodies were exhumed.`\
+https://www.nytimes.com/2026/10/19/world/africa/kenya-cult-deaths-paul-mackenzie-court-ruling.html
+
+**Stylish, Hard-Wearing Boots for City Living**\
+`These staples are designed for long days spent on your feet, and while many of them come predistressed, they get even better with age.`\
+https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
+
+**Trump Says Renovations on Disputed DC Golf Course Will Begin Immediately**\
+`A federal judge has ordered tree cutting halted at the city course as she considers a lawsuit over the legality of the administration’s plans.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-washington-golf-course.html
+
 **Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
 `About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
 https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
