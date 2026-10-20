@@ -1,3 +1,15 @@
+**The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England**\
+`Plans to build one of Europe’s largest data centers in Devon have been met by strong opposition from residents, as environmental concerns grow.`\
+https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html
+
+**Quote of the Day: Trump Officials Had Fed Fears of Carnage of Bomb in Space**\
+`Quotation of the Day for Tuesday, October 20, 2026.`\
+https://www.nytimes.com/2026/10/20/pageoneplus/quote-of-the-day-trump-officials-had-fed-fears-of-carnage-of-bomb-in-space.html
+
+**On This Day, Oct. 20: In 1973, Nixon ordered Watergate prosecutor Archibald Cox fired.**\
+`In 1973, during the “Saturday Night Massacre,” President Richard Nixon ordered the firing of Archibald Cox, the special prosecutor in the Watergate scandal. The order set off a series of actions that helped lead to Nixon’s resignation less than a year later.`\
+https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
+
 **Oil-Rich Alberta Votes on Its Future in Canada**\
 `Electors have been asked if they wish to remain in Canada or to hold another vote on breaking away in a referendum that left both sides unhappy.`\
 https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
