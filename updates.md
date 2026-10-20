@@ -1,3 +1,19 @@
+**178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
+`In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
+https://www.nytimes.com/2026/10/20/178-years-after-banning-slavery-france-scraps-code-noir-rules-that-governed-it.html
+
+**How Venezuela’s Public Housing Towers Were Built to Fail**\
+`Venezuela’s government wanted housing built for its supporters — and fast. The design and construction flaws that followed proved deadly when earthquakes hit, a Times investigation found.`\
+https://www.nytimes.com/interactive/2026/10/20/world/americas/venezuela-public-housing-flawed-construction-earthquakes.html
+
+**Why Zelensky Took the Gloves Off This Time With Trump**\
+`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes further than ever in prioritizing Russia’s interests.`\
+https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
+
+**Attack Ad Featuring Candidate’s Mother Turns Ohio Governor’s Race Even Uglier**\
+`A Republican ad features Amy Acton’s estranged mother calling her daughter a liar. The two have not spoken since Dr. Acton’s mother backed her husband after his arrest on rape charges.`\
+https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estranged-mother-donna-arthur.html
+
 **‘King of the Yees’ Review: Buckle Up for a Daughter’s Fantastical Quest**\
 `The playwright Lauren Yee paints an amusing portrait of a Chinese American father-daughter relationship before taking audiences on a delightfully wild ride.`\
 https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html

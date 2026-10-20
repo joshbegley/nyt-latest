@@ -1,3 +1,11 @@
+**178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
+`In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
+https://www.nytimes.com/2026/10/20/178-years-after-banning-slavery-france-scraps-code-noir-rules-that-governed-it.html
+
+**How Venezuela’s Public Housing Towers Were Built to Fail**\
+`Venezuela’s government wanted housing built for its supporters — and fast. The design and construction flaws that followed proved deadly when earthquakes hit, a Times investigation found.`\
+https://www.nytimes.com/interactive/2026/10/20/world/americas/venezuela-public-housing-flawed-construction-earthquakes.html
+
 **‘King of the Yees’ Review: Buckle Up for a Daughter’s Fantastical Quest**\
 `The playwright Lauren Yee paints an amusing portrait of a Chinese American father-daughter relationship before taking audiences on a delightfully wild ride.`\
 https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html
@@ -51,10 +59,10 @@ https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-
 https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
 
 **Why Zelensky Took the Gloves Off This Time With Trump**\
-`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes farther than ever in prioritizing Russia’s interests.`\
+`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes further than ever in prioritizing Russia’s interests.`\
 https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
 
-**Attack Ad Featuring Candidate’s Mother Turns Ohio Governors Race Even Uglier**\
+**Attack Ad Featuring Candidate’s Mother Turns Ohio Governor’s Race Even Uglier**\
 `A Republican ad features Amy Acton’s estranged mother calling her daughter a liar. The two have not spoken since Dr. Acton’s mother backed her husband after his arrest on rape charges.`\
 https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estranged-mother-donna-arthur.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/20/briefing/ukraine-kill-zone.html
 **Book Review: ‘I Can’t Stop Thinking About Horses and Sex,’ by Lisa Hanawalt**\
 `The “Bojack Horseman” designer Lisa Hanawalt bridles at glib therapists and is hot to trot for Mister Rogers in her new graphic memoir.`\
 https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinking-about-horses-and-sex.html
-
-**London Exhibition Displays Children’s Selfies as Art**\
-`An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
-https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
-
-**James Talarico on the Rage Economy, Billionaires and Flipping Texas**\
-`Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
-https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
 
