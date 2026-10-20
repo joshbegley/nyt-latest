@@ -1,3 +1,7 @@
+**Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
+`“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
+
 **Voters in Oil-Rich Alberta Reject Leaving Canada**\
 `Residents of the province were asked if they wish to remain in Canada or to hold another vote on breaking away, in a referendum that left both sides unhappy.`\
 https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
