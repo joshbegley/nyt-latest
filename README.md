@@ -1,3 +1,7 @@
+**Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
+`The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
+https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
+
 **Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
 `President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
 https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/nyregion/can-new-york-win-the-war-on-rats.htm
 **Why You Can’t Capitulate to Trump**\
 `Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
 https://www.nytimes.com/video/opinion/100000011220109/why-you-cant-capitulate-to-trump.html
-
-**Knicks Ticket Prices Are Soaring After Last Season’s Championship**\
-`Knicks tickets have never been cheap, but prices for the first game alone are soaring after last season’s championship — more than a trip to Paris.`\
-https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
 

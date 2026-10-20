@@ -1,3 +1,7 @@
+**Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
+`President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
+https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
+
 **Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
 `Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu and Israel’s defense minister, a week before a pivotal election.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
