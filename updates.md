@@ -1,3 +1,15 @@
+**Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
+`A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
+https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
+
+**What We Saw at New York Bridal Fashion Week**\
+`Bridal hats, high necklines, low dropped waists and exaggerated hips were presented by new, emerging and legacy brands this season.`\
+https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-week.html
+
+**Christina Applegate Says Her MS Was Misdiagnosed**\
+`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
+https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
+
 **The British Police Rearrest Two in Connection With Alleged Terror Plot**\
 `The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
 https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html

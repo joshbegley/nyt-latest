@@ -1,3 +1,11 @@
+**Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
+`A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
+https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
+
+**What We Saw at New York Bridal Fashion Week**\
+`Bridal hats, high necklines, low dropped waists and exaggerated hips were presented by new, emerging and legacy brands this season.`\
+https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-week.html
+
 **The British Police Rearrest Two in Connection With Alleged Terror Plot**\
 `The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
 https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
 https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 
 **Christina Applegate Says Her MS Was Misdiagnosed**\
-`The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
+`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
 **Stop Appeasing Russia**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/dining/100000011222968/mushroom-bourguignon.html
 **Earl Grey Tea Cake With Dark Chocolate and Orange Zest**\
 `Loose Earl Grey tea stirred into buttery cake batter adds a sweet, floral essence that’s subtle but lovely, and a little dark chocolate and orange zest makes this cake extra special.`\
 https://www.nytimes.com/video/dining/100000011222966/earl-grey-tea-cake-with-dark-chocolate-and-orange-zest.html
-
-**Jane Doe says she did not feel supported by Cornell’s president.**\
-`The former student wrote in a letter to faculty leaders that her experience “diminished her confidence” in the administration’s ability to take her allegations seriously.`\
-https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.html
-
-**Cornell’s Jane Doe Sent Letter to Faculty Senate Ahead of Vote**\
-`In a letter, the former student said she felt “unsupported” after hearing about an exchange between the school president and her sorority sister. Officials disputed her account of the conversation.`\
-https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.html
 

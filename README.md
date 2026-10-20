@@ -1,3 +1,11 @@
+**SpaceX Swings to a Profit, Even as A.I. Spending Soars**\
+`Elon Musk’s rocket company also said its revenue had more than doubled, driven by its Starlink internet satellite service and artificial intelligence products.`\
+https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
+
+**Is Putin’s Waiting Game Working?**\
+`Trump’s push for deals and Europe’s political fractures seem to be giving the Russian president the opening he’s been waiting for.`\
+https://www.nytimes.com/2026/10/20/world/putin-trump-ukraine-war.html
+
 **Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
 `A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
 https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/dining/100000011223046/egg-katsu.html
 **Chicken and Pesto Rice With Peas**\
 `Pesto is the hero of this simple chicken and rice dish, infusing it with easy herby flavor.`\
 https://www.nytimes.com/video/dining/100000011223012/chicken-and-pesto-rice-with-peas.html
-
-**Mushroom Bourguignon**\
-`Meaty mushrooms simmered with pearl onions, wine and carrots make for a rich, cozy Bourguignon-style stew.`\
-https://www.nytimes.com/video/dining/100000011222968/mushroom-bourguignon.html
-
-**Earl Grey Tea Cake With Dark Chocolate and Orange Zest**\
-`Loose Earl Grey tea stirred into buttery cake batter adds a sweet, floral essence that’s subtle but lovely, and a little dark chocolate and orange zest makes this cake extra special.`\
-https://www.nytimes.com/video/dining/100000011222966/earl-grey-tea-cake-with-dark-chocolate-and-orange-zest.html
 
