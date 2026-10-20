@@ -1,3 +1,7 @@
+**Oil-Rich Alberta Votes on its Future in Canada**\
+`Electors have been asked if they wish to remain in Canada or to hold another vote on breaking away in a referendum that left both sides unhappy.`\
+https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
+
 **NYT Crossword Answers for Oct. 20, 2026**\
 `David Falkowski makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html

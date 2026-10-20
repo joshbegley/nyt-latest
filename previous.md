@@ -1,3 +1,7 @@
+**Oil-Rich Alberta Votes on its Future in Canada**\
+`Electors have been asked if they wish to remain in Canada or to hold another vote on breaking away in a referendum that left both sides unhappy.`\
+https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
+
 **NYT Crossword Answers for Oct. 20, 2026**\
 `David Falkowski makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/world/africa/kenya-cult-deaths-paul-mackenzie
 **Stylish, Hard-Wearing Boots for City Living**\
 `These staples are designed for long days spent on your feet, and while many of them come predistressed, they get even better with age.`\
 https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
-
-**Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
-`About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
-https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
 
