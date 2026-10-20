@@ -1,3 +1,7 @@
+**Joel Kaplan, Meta’s Global Policy Chief, to Leave After 15 Years**\
+`Joel Kaplan, a former adviser to George W. Bush known for his Republican ties, had helped Meta build its relationship with the Trump administration.`\
+https://www.nytimes.com/2026/10/20/technology/meta-joel-kaplan-policy-chief-depart.html
+
 **‘Nicole Kidman’ and Other Musical Odes to Actresses**\
 `Hear Adéla’s ubiquitous hit and tracks from SZA, the Go-Betweens, Nirvana and more.`\
 https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-kidman-actresses.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-isra
 **Google Reports Cloud Disruptions in Europe**\
 `The disruptions began around 7 a.m. in London after what the tech giant called a “power event.”`\
 https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
-
-**In the Kill Zone**\
-`We take a look at what’s happening on the front line of the war in Ukraine.`\
-https://www.nytimes.com/2026/10/20/briefing/ukraine-kill-zone.html
 

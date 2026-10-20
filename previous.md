@@ -1,3 +1,7 @@
+**‘Nicole Kidman’ and Other Musical Odes to Actresses**\
+`Hear Adéla’s ubiquitous hit and tracks from SZA, the Go-Betweens, Nirvana and more.`\
+https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-kidman-actresses.html
+
 **178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
 `In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
 https://www.nytimes.com/2026/10/20/france-senate-code-noir-slavery.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.ht
 **In the Kill Zone**\
 `We take a look at what’s happening on the front line of the war in Ukraine.`\
 https://www.nytimes.com/2026/10/20/briefing/ukraine-kill-zone.html
-
-**Book Review: ‘I Can’t Stop Thinking About Horses and Sex,’ by Lisa Hanawalt**\
-`The “Bojack Horseman” designer Lisa Hanawalt bridles at glib therapists and is hot to trot for Mister Rogers in her new graphic memoir.`\
-https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinking-about-horses-and-sex.html
 
