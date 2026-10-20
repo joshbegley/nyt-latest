@@ -1,3 +1,7 @@
+**France to Extend Curfews After Largest Riots in Years**\
+`France’s prime minister said partial curfews in several cities across the country would be extended, as the government tried to reassert control after the largest riots in years.`\
+https://www.nytimes.com/video/world/europe/100000011224602/france-protests-curfew-extended.html
+
 **Street Style Look of the Week: Dress the Diaspora**\
 `A woman who is committed to elevating designers from across the African diaspora walked the walk when she stepped out in London on a recent Friday.`\
 https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-designers.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typh
 https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
 
 **Yemeni City of Taiz Running Out of Essentials as Houthis Close in**\
-`The Iranian-backed Houthi militia has cut road access to Taiz, besieging one of Yemen’s largest cities, where officials warn of an impending humanitarian disaster.`\
+`The Iranian-backed Houthi militia has cut road access to Taiz, one of Yemen’s largest cities, besieging it. Officials there warn of an impending humanitarian disaster.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 
 **J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/well/medications-that-disrupt-sleep.html
 **As Private Equity Scales Up Small Restaurants, Customers Push Back**\
 `Deep-pocketed investment groups are giving mom-and-pop food businesses a shot at big success. But many of their regulars are speaking out against those deals.`\
 https://www.nytimes.com/2026/10/20/dining/private-equity-restaurant-deals.html
-
-**Where Do Autoimmune Diseases Come From?**\
-`Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
-https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
 

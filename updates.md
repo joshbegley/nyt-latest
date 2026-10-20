@@ -1,3 +1,7 @@
+**Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
+`The secretary of state will meet with Asia’s richest men as Washington continues negotiations over a trade deal with India.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
 **Street Style Look of the Week: Dress the Diaspora**\
 `A woman who is committed to elevating designers from across the African diaspora walked the walk when she stepped out in London on a recent Friday.`\
 https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-designers.html

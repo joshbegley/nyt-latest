@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
 
 **Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
-`The secretary of state will meet with Asia’s richest men as  Washington continues negotiations over a trade deal with India.`\
+`The secretary of state will meet with Asia’s richest men as Washington continues negotiations over a trade deal with India.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
 
 **Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
