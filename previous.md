@@ -1,3 +1,7 @@
+**The NBA Superstar Turned Late-Night Host**\
+`Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
+https://www.nytimes.com/2026/10/20/podcasts/the-nba-superstar-turned-late-night-host.html
+
 **Trump Announces $8 Billion Plan to Cover Farm Losses**\
 `Under the Harvest Fuel Relief program, the Agriculture Department will provide economic aid for farmers hurt by high diesel prices.`\
 https://www.nytimes.com/2026/10/20/business/trump-farmer-bailout.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
 **Voters in Oil-Rich Alberta Reject Leaving Canada**\
 `Residents of the province were asked if they wish to remain in Canada or to hold another vote on breaking away, in a referendum that left both sides unhappy.`\
 https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
-
-**NYT Crossword Answers for Oct. 20, 2026**\
-`David Falkowski makes his New York Times Crossword debut.`\
-https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
 
