@@ -1,3 +1,19 @@
+**Trump Announces Plans to Spend Another $100 Million by Election Day**\
+`Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/20/briefing/trump-midterm-spending.html
+
+**Ambulance Response Times Soar in New York: ‘This Is Unacceptable’**\
+`A City Council hearing focused on why ambulances are taking far longer to respond than a decade earlier, with fewer hospitals and a shortage of emergency workers partly to blame.`\
+https://www.nytimes.com/2026/10/20/nyregion/nyc-ambulance-response-times-hospital-closures-staffing.html
+
+**Nikole Hannah-Jones on the Response to Her Essay**\
+`Nikole Hannah-Jones discusses the response to her recent magazine essay with Patrick Healy, an assistant managing editor at The New York Times.`\
+https://www.nytimes.com/video/insider/100000011226393/nikole-hannah-jones-on-the-response-to-her-essay.html
+
+**China Criticizes U.S. Ban on DeepSeek A.I. in Government Systems**\
+`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
+https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
+
 **A Storm Will Bring Rain to California This Week**\
 `The heaviest rain was expected in Southern California through Thursday.`\
 https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html

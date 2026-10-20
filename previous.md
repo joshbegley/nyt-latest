@@ -1,3 +1,15 @@
+**Trump Announces Plans to Spend Another $100 Million by Election Day**\
+`Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/20/briefing/trump-midterm-spending.html
+
+**Ambulance Response Times Soar in New York: ‘This Is Unacceptable’**\
+`A City Council hearing focused on why ambulances are taking far longer to respond than a decade earlier, with fewer hospitals and a shortage of emergency workers partly to blame.`\
+https://www.nytimes.com/2026/10/20/nyregion/nyc-ambulance-response-times-hospital-closures-staffing.html
+
+**Nikole Hannah-Jones on the Response to Her Essay**\
+`Nikole Hannah-Jones discusses the response to her recent magazine essay with Patrick Healy, an assistant managing editor at The New York Times.`\
+https://www.nytimes.com/video/insider/100000011226393/nikole-hannah-jones-on-the-response-to-her-essay.html
+
 **A Storm Will Bring Rain to California This Week**\
 `The heaviest rain was expected in Southern California through Thursday.`\
 https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html
@@ -38,7 +50,7 @@ https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-wri
 `The president called for the return of Stephen James Hubbard, a Michigan teacher seized from his home in Ukraine months after Russia invaded that country.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
 
-**China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
+**China Criticizes U.S. Ban on DeepSeek A.I. in Government Systems**\
 `The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
 https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-
 **‘Lincoln in the Bardo’ Review: From Book to Opera at the Met**\
 `Missy Mazzoli and Royce Vavrek are making their Metropolitan Opera debut with an imaginative, moving adaptation of George Saunders’s ghostly novel.`\
 https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
-
-**Why Zelensky Took the Gloves Off This Time With Trump**\
-`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes further than ever in prioritizing Russia’s interests.`\
-https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
-
-**Attack Ad Featuring Candidate’s Mother Turns Ohio Governor’s Race Even Uglier**\
-`A Republican ad features Amy Acton’s estranged mother calling her daughter a liar. The two have not spoken since Dr. Acton’s mother backed her husband after his arrest on rape charges.`\
-https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estranged-mother-donna-arthur.html
-
-**Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
-`The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
-https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
 
