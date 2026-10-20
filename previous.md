@@ -1,3 +1,11 @@
+**What It Took for Nikole Hannah-Jones to Write About Her Daughter’s Distress**\
+`The Times journalist reflects on her two deeply personal essays about her child and New York City public schools and how she grappled with readers’ responses.`\
+https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-to-write-about-her-daughters-distress.html
+
+**Nikole Hannah-Jones on Personal Journalism and Public Reaction**\
+`Nikole Hannah-Jones’s recent essay examines a decision she made about her daughter’s education that she hoped would challenge New York City’s school system. Hannah-Jones discusses her approach to writing the essay and the public response with Patrick Healy, an assistant managing editor at The New York Times.`\
+https://www.nytimes.com/video/insider/100000011195109/nikole-hannah-jones-on-personal-journalism-and-public-reaction.html
+
 **UK to Send Fighter Jets to Help Defend Saudi Arabia From Houthi Attacks**\
 `R.A.F. Typhoon fighter jets will be deployed to protect infrastructure in Saudi Arabia, Britain said, after a spike in attacks by the Iran-backed Houthi militia.`\
 https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
 **Alex Hartman, of the ‘Nolita Dirtbag’ Instagram Account, Grows Up**\
 `Alex Hartman has made a mark with his critiques of downtown denizens. Now he’s expanding his gaze beyond Nolita Dirtbag.`\
 https://www.nytimes.com/2026/10/20/style/nolita-dirtbag-alex-hartman.html
-
-**Ready for High Water in Low-Lying Delaware**\
-`In the state’s flattest county, flood preparation, and houses, rise to a new level.`\
-https://www.nytimes.com/2026/10/20/realestate/flood-protection-efforts-delaware.html
-
-**What Could Swing Israel’s Election? Thousands Living in the U.S.**\
-`Thousands of Israelis living in the United States are expected to fly to Israel to vote in the country’s national election this month.`\
-https://www.nytimes.com/2026/10/20/us/israel-election-netanyahu-voters.html
 
