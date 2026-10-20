@@ -1,3 +1,7 @@
+**‘Lincoln in the Bardo’ Review: From Book to Opera at the Met**\
+`Missy Mazzoli and Royce Vavrek are making their Metropolitan Opera debut with an imaginative, moving adaptation of George Saunders’s ghostly novel.`\
+https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
+
 **Why Zelensky Took the Gloves Off This Time With Trump**\
 `Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes farther than ever in prioritizing Russia’s interests.`\
 https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html

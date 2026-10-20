@@ -1,3 +1,7 @@
+**The Bedeviling Work of Designing and Redesigning Haunted Houses**\
+`If you’re looking for the ultimate home renovation project, try opening a haunted house.`\
+https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-building.html
+
 **‘Lincoln in the Bardo’ Review: From Book to Opera at the Met**\
 `Missy Mazzoli and Royce Vavrek are making their Metropolitan Opera debut with an imaginative, moving adaptation of George Saunders’s ghostly novel.`\
 https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/podcasts/face-sunscreen-for-every-season.html
 **France Comes Unglued, Again**\
 `A model for progressive policies has become a model for their flaws.`\
 https://www.nytimes.com/2026/10/20/opinion/france-american-liberals-riots.html
-
-**Corrections: Oct. 20, 2026**\
-`Corrections that appeared in print on Tuesday, Oct. 20, 2026.`\
-https://www.nytimes.com/2026/10/20/pageoneplus/corrections-oct-20-2026.html
 
