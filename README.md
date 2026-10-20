@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
 https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
 
 **France to Extend Curfews After a Night of Calm, Prime Minister Says**\
-`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the unrest face expedited trials.`\
+`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
 
 **The NBA Superstar Turned Late-Night Host**\
