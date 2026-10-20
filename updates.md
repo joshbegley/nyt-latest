@@ -1,3 +1,15 @@
+**Applying to High School in New York City Is a Soul-Destroying Nightmare**\
+`I thought my worst New York City experience was getting punched in the face. That was before I started trying to get my kid into a public high school.`\
+https://www.nytimes.com/2026/10/19/opinion/high-school-new-york-city-application.html
+
+**Trump’s Push for Deals With Russia Powers His Frustration With Ukraine**\
+`The series of recent steps by the president that seem to favor Vladimir Putin reflect his intensifying desire to normalize the relationship with Moscow even if it means further undercutting Ukraine.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-russia-deals.html
+
+**Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
+`After almost a decade away from Springfield, the character returned to the show, this time voiced by a South Asian actor rather than a white man.`\
+https://www.nytimes.com/2026/10/19/arts/television/apu-the-simpsons-sunil-malhotra.html
+
 **Melania Trump Announces White House Women’s Health Initiative**\
 `The effort comes as Republicans are struggling to win over female voters two weeks before the midterm elections.`\
 https://www.nytimes.com/2026/10/19/us/politics/melania-trump-women-health.html
