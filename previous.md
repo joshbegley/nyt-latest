@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
 
-**Rubio Visits India to Boost Economic Ties Amid Friction With Trump**\
+**Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
 `The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
 

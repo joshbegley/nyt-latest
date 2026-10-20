@@ -1,3 +1,7 @@
+**Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
+`The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
 **Start-Up Claims to Treat a Patient With A.I.-Created Viruses**\
 `Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
 https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
