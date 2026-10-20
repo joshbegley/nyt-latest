@@ -1,3 +1,7 @@
+**Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
+https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
+
 **Boeing’s Large 737 Max Jet Secures U.S. Approval**\
 `After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
 https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-desi
 **What It Took for Nikole Hannah-Jones to Write About Her Daughter’s Distress**\
 `The Times journalist reflects on her two deeply personal essays about her child and New York City public schools and how she grappled with readers’ responses.`\
 https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-to-write-about-her-daughters-distress.html
-
-**Nikole Hannah-Jones on Personal Journalism and Public Reaction**\
-`Nikole Hannah-Jones’s recent essay examines a decision she made about her daughter’s education that she hoped would challenge New York City’s school system. Hannah-Jones discusses her approach to writing the essay and the public response with Patrick Healy, an assistant managing editor at The New York Times.`\
-https://www.nytimes.com/video/insider/100000011195109/nikole-hannah-jones-on-personal-journalism-and-public-reaction.html
 

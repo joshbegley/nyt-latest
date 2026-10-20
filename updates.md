@@ -1,3 +1,11 @@
+**Boeing’s Large 737 Max Jet Secures U.S. Approval**\
+`After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
+https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
+
+**In ‘School Pictures’ and ‘Two Girls,’ the Tweens Are Not All Right**\
+`Milo Cramer’s excellent lo-fi song-cycle and Eliya Smith’s verbatim play about a notorious video both reveal how young minds are made.`\
+https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
+
 **Christina Applegate Says Her MS Was Misdiagnosed**\
 `The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
