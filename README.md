@@ -1,3 +1,7 @@
+**Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
+`“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
+
 **Attack on Australian Lawmaker Prompts Calls to Dial Down Political Tensions**\
 `Helen Haines, an independent, remained in critical condition after she was rammed by a vehicle. The country has reacted with shock and confusion.`\
 https://www.nytimes.com/2026/10/20/world/asia/helen-haines-mp-attacked-wangaratta-australia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family
 **Robert Reich Thinks the Baby Boomers Blew It**\
 `Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
 https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
-
-**Andrew Schulz, ‘Podcast Bro,’ Might Be America’s Foremost Political Journalist**\
-`The defiantly anti-woke comedian and podcast host discusses his issues with the mainstream media and how podcasts threw out all the rules.`\
-https://www.nytimes.com/video/podcasts/100000011182394/andrew-schulz-podcast-bro-might-be-americas-foremost-political-journalist.html
 
