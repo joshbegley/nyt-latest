@@ -1,3 +1,7 @@
+**Google Reports Cloud Disruptions in Europe Region**\
+`The disruptions began around 7 a.m. in London, the tech giant said. The cause for the outage was not immediately clear.`\
+https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
+
 **In the Kill Zone**\
 `We take a look at what’s happening on the front line of the war in Ukraine.`\
 https://www.nytimes.com/2026/10/20/briefing/ukraine-kill-zone.html
