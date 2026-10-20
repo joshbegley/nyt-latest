@@ -1,3 +1,15 @@
+**ICE Says It Didn’t Hit a Biker With a Car. Video Raises Questions.**\
+`Video footage shows the moment in Long Beach, Calif., when a vehicle swerves toward an oncoming cyclist. The mayor has called for an investigation into ICE agents’ treatment of the rider.`\
+https://www.nytimes.com/2026/10/20/us/ice-detain-citizen-california-video-ricardo-gonzalez.html
+
+**Germophobe Primates Want to Avoid Getting Sick, Too**\
+`Some monkeys become significantly more cautious about food sources that appear contaminated after experiencing deadly outbreaks of disease.`\
+https://www.nytimes.com/2026/10/20/science/primates-germaphobe-avoid-sickness.html
+
+**MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
+`MAGA Inc. is now flooding the social media platforms with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-super-pac.html
+
 **Canada Has Never Been More United**\
 `Alberta says no to a secession vote, and no to Trump.`\
 https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
