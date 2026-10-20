@@ -1,3 +1,7 @@
+**In the Kill Zone**\
+`We take a look at what’s happening on the front line of the war in Ukraine.`\
+https://www.nytimes.com/2026/10/20/briefing/ukraine-kill-zone.html
+
 **Book Review: ‘I Can’t Stop Thinking About Horses and Sex,’ by Lisa Hanawalt**\
 `The “Bojack Horseman” designer Lisa Hanawalt bridles at glib therapists and is hot to trot for Mister Rogers in her new graphic memoir.`\
 https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinking-about-horses-and-sex.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-g
 **NYT Spelling Bee Answers for October 20, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
-
-**Can Real Estate Out-Organize Tenants in New York? This Group Will Try.**\
-`A new organization, Built for New York, plans to raise money to mobilize voters in the real estate industry, which has endured several political losses in recent years.`\
-https://www.nytimes.com/2026/10/20/nyregion/real-estate-nyc-politics-housing-policies.html
 
