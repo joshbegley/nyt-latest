@@ -1,3 +1,7 @@
+**Stop Appeasing Russia**\
+`The stakes in Ukraine are much larger than the fate of one nation.`\
+https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
+
 **Overlapping Plagues Are Killing American Forests**\
 `Threats hiding in plain sight could upend forests far and wide.`\
 https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.ht
 **Yemeni City of Taiz Running Out of Essentials as Houthis Close in**\
 `The Iranian-backed Houthi militia has cut road access to Taiz, one of Yemen’s largest cities, besieging it. Officials there warn of an impending humanitarian disaster.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
-
-**J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
-`The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
-https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
 

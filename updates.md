@@ -1,3 +1,11 @@
+**Overlapping Plagues Are Killing American Forests**\
+`Threats hiding in plain sight could upend forests far and wide.`\
+https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
+
+**If Democrats Win Congress, Could the G.O.P. Refuse to Seat Them?**\
+`A changing of the congressional guard in January could leave room for meddling, though most legal scholars doubt it would happen.`\
+https://www.nytimes.com/2026/10/20/us/politics/democrats-republicans-congress-midterm-elections.html
+
 **Man Who Took Flamingo From Las Vegas Hotel Is Found Guilty of Cruelty**\
 `The man, visiting from Canada, carried a flamingo named Peachy from its habitat to his hotel room. He was convicted of felony and misdemeanor charges.`\
 https://www.nytimes.com/2026/10/20/us/stolen-flamingo-las-vegas-hotel-animal-cruelty.html
