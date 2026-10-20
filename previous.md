@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: 19th Century Ghost Stories**\
+`Why do you think a newspaper like The New York Times would have reported hundreds of stories about the paranormal?`\
+https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-ghost-stories.html
+
 **NYT Spelling Bee Answers for October 20, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-politic
 **El-Sayed Highlights Muslim Faith in New Ad After Republican Attacks**\
 `Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
 https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
-
-**Italy Faces Parallel Protests in the North and South**\
-`Protests by young people in northern cities ended in riots as farmers and truckers in the south, angered by high gas prices, stopped commercial traffic.`\
-https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html
 

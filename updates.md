@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: 19th Century Ghost Stories**\
+`Why do you think a newspaper like The New York Times would have reported hundreds of stories about the paranormal?`\
+https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-ghost-stories.html
+
 **NYT Spelling Bee Answers for October 20, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
