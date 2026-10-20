@@ -1,3 +1,7 @@
+**Google Reports Cloud Disruptions in Europe Region**\
+`The disruptions began around 7 a.m. in London, the tech giant said. The cause of the outage was not immediately clear.`\
+https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
+
 **Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
 `Defense Secretary Pete Hegseth traveled to the region as diplomatic efforts to end the war with Iran have stalled, two people with knowledge of the trip said. Israel will hold elections in a week.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
