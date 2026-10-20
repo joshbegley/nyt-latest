@@ -1,4 +1,8 @@
 **Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
+`The secretary of state will meet with Asia’s richest men as  Washington continues negotiations over a trade deal with India.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
+**Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
 `The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
 
