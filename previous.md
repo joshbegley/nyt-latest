@@ -1,3 +1,15 @@
+**Is It Safe to Use Eye Drops Every Day?**\
+`It depends on the formulation, experts say. Here’s what is (and isn’t) recommended for the long term.`\
+https://www.nytimes.com/2026/10/20/well/eye-drop-health-effects-safety.html
+
+**A Chef Celebrates Immigrant Flavors in Anti-Migrant South Africa**\
+`A self-taught chef borrows ingredients and ideas from restaurants run by immigrants in South Africa, hoping to help counter rising xenophobia.`\
+https://www.nytimes.com/2026/10/20/world/africa/johannesburg-migrant-cuisine-chef.html
+
+**When Idaho Banned Abortion, OB-GYNs Fled. The Doctors Who Stayed Are Cracking.**\
+`From childbirth to miscarriages, women’s health care in the state has become increasingly dangerous.`\
+https://www.nytimes.com/2026/10/20/magazine/idaho-abortion-ban-ob-gyns.html
+
 **Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
 `Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
 https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
 **The Echoes of Obama in Abdul El-Sayed’s Campaign**\
 `More money is projected to be spent on political ads in the 2026 midterms than in any previous election cycle. On “The Opinions,” the columnist Carlos Lozada analyzes Abdul El-Sayed’s campaign ad and its echoes of Barack Obama’s strategy for addressing questions about his identity and background.`\
 https://www.nytimes.com/video/opinion/100000011216106/the-echoes-of-obama-in-abdul-el-sayeds-campaign.html
-
-**Saudis Aided Family of Engineer Accused of Bugging OpenAI, Prosecutors Say**\
-`Saudi officials paid for his wife and son to fly out of the U.S. and offered to cover his bail, according to court filings. A judge ordered the engineer to remain in custody.`\
-https://www.nytimes.com/2026/10/19/technology/saudis-aided-family-openai-engineer.html
-
-**Supreme Court Will Not Revive Plea Deal for Khalid Shaikh Mohammed and 9/11 Defendants**\
-`The justices rejected a request from Khalid Shaikh Mohammed and two others accused of plotting the Sept. 11 attacks, clearing the way for a potential death penalty trial.`\
-https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.html
-
-**Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
-`Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
-https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
 

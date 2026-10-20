@@ -1,3 +1,131 @@
+**Why You Can’t Capitulate to Trump**\
+`Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
+https://www.nytimes.com/2026/10/20/opinion/ezra-klein-podcast-chrystia-freeland.html
+
+**Face Sunscreen for Every Season**\
+`What to look for and how to find one that feels good on your skin.`\
+https://www.nytimes.com/2026/10/20/podcasts/face-sunscreen-for-every-season.html
+
+**France Comes Unglued, Again**\
+`A model for progressive policies has become a model for their flaws.`\
+https://www.nytimes.com/2026/10/20/opinion/france-american-liberals-riots.html
+
+**Corrections: Oct. 20, 2026**\
+`Corrections that appeared in print on Tuesday, Oct. 20, 2026.`\
+https://www.nytimes.com/2026/10/20/pageoneplus/corrections-oct-20-2026.html
+
+**Republican National Committee Moves $50 Million to Help Midterm Candidates in Huge Cash Transfer**\
+`The party apparatus is taking advantage of its enormous war chest, as well as a Supreme Court campaign-finance ruling this year, to send tens of millions into congressional races.`\
+https://www.nytimes.com/2026/10/20/us/politics/republicans-midterm-election-cash-transfer.html
+
+**Can New York Win the War on Rats?**\
+`The latest weapon is a machine that shoots carbon dioxide into rats’ burrows. “They fall asleep — permanently,” a parks official said.`\
+https://www.nytimes.com/2026/10/20/nyregion/can-new-york-win-the-war-on-rats.html
+
+**Why You Can’t Capitulate to Trump**\
+`Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
+https://www.nytimes.com/video/opinion/100000011220109/why-you-cant-capitulate-to-trump.html
+
+**What Makes Men in Groups Behave So Badly?**\
+`Why do men in groups behave this way?`\
+https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.html
+
+**Knicks Ticket Prices Are Soaring After Last Season’s Championship**\
+`Knicks tickets have never been cheap, but prices for the first game alone are soaring after last season’s championship — more than a trip to Paris.`\
+https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
+
+**Taunting Trump Over Gas Prices, Iran Braces for Aftermath of U.S. Vote**\
+`The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
+https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
+
+**Trump Won Mississippi by Nearly 23 Points. Can This Democrat Pull Off a Miracle?**\
+`A once-in-a-generation shot to turn a solidly Republican state blue.`\
+https://www.nytimes.com/2026/10/20/opinion/trump-mississippi-scott-colom-democrat.html
+
+**France Protests Show Europe’s Shift Away From Centrist Politics**\
+`Europe’s centrist parties are losing ground among young people and workers, who are increasingly tempted by populist promises of radical change.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-protests-europe-centrist-far-right.html
+
+**What’s Next for the Beach Boys?**\
+`Mike Love has been a constant, and sometimes contentious, steward of the band’s performances. Health problems and a recent concert appearance have prompted fans to ask what the future holds.`\
+https://www.nytimes.com/2026/10/20/arts/music/beach-boys-mike-love-future.html
+
+**What’s the Creepiest Place You’ve Been?**\
+`Whether in fiction, movies or real life, we want to know about the locations that have given you a fright.`\
+https://www.nytimes.com/2026/10/20/learning/whats-the-creepiest-place-youve-been.html
+
+**How Dolly Parton’s Death Set Off a Legal Feud Surrounding Her Nephew**\
+`In life, the country music star worked hard to avoid the type of public controversy that erupted in her inner circle soon after her passing.`\
+https://www.nytimes.com/2026/10/20/arts/music/dolly-parton-estate-family-lawsuit.html
+
+**Mamdani’s Next Target: The Increasingly A.I.-Powered, Customer Service Doom Loop**\
+`An effort to fix a hotel bill illustrates why New York City is now trying to crack down on A.I. chatbot-powered customer service.`\
+https://www.nytimes.com/2026/10/20/opinion/mamdani-ai-rule-customer-service-doom-loop.html
+
+**The Mayor of a City in Haiti Warned of a Massacre. No One Listened.**\
+`The mayor of Kenscoff, a town near Haiti’s capital, wrote government officials hundreds of letters to warn of gang threats. Then dozens of people died, and he did, too.`\
+https://www.nytimes.com/2026/10/20/world/americas/mayor-kenscoff-haiti-gangs-massacre.html
+
+**When Did Man-On-the-Street Videos Become Gentrified?**\
+`Pedestrian interviews are meant to capture pedestrian wisdom. Now, many tend to stage the secret knowledge of the elite.`\
+https://www.nytimes.com/2026/10/20/magazine/billionaire-millionaire-interviews.html
+
+**Houdini Died on Halloween 100 Years Ago. Some Still Question How.**\
+`A urologist’s inquiry into the magician’s final days is the latest effort to grapple with outstanding questions about his demise.`\
+https://www.nytimes.com/2026/10/20/arts/houdini-death-mystery.html
+
+**Book Review: ‘Needlemouth,’ by K-Ming Chang**\
+`K-Ming Chang’s “Needlemouth” blends body horror with feminist allegory in the story of three cousins grappling with their inherited trauma.`\
+https://www.nytimes.com/2026/10/20/books/review/k-ming-chang-needlemouth.html
+
+**How Do Airports Prepare for a Plane Crash? Go Inside JFK’s Disaster Drill.**\
+`U.S. airports are required to hold a full-scale disaster drill every three years. Go inside a simulated plane crash at Kennedy Airport last weekend.`\
+https://www.nytimes.com/2026/10/20/travel/jfk-airport-drill-plane-crash.html
+
+**A.I. Fortunes Could Bring Critical Funds to Global Health. The Scramble Is On.**\
+`Expected windfalls from I.P.O.s are drawing health leaders into a race for billions in new philanthropic dollars. A fragile aid system may be upended.`\
+https://www.nytimes.com/2026/10/20/us/politics/ai-fortunes-could-bring-critical-funds-to-global-health-the-scramble-is-on.html
+
+**A Colorado Town Was Beset by Traffic. Its Fix Led to a Border Battle.**\
+`Bow Mar says restricting access to its public streets is a safety necessity. Critics see a miniature border wall.`\
+https://www.nytimes.com/2026/10/20/us/bow-mar-colorado-suburb-gated-town.html
+
+**Word of the Day: corollary**\
+`This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/20/learning/word-of-the-day-corollary.html
+
+**5 Common Medications That Can Mess With Your Sleep**\
+`Certain prescription and over-the-counter drugs are known to keep people awake. We asked experts for some of the biggest offenders.`\
+https://www.nytimes.com/2026/10/20/well/medications-that-disrupt-sleep.html
+
+**As Private Equity Scales Up Small Restaurants, Customers Push Back**\
+`Deep-pocketed investment groups are giving mom-and-pop food businesses a shot at big success. But many of their regulars are speaking out against those deals.`\
+https://www.nytimes.com/2026/10/20/dining/private-equity-restaurant-deals.html
+
+**Where Do Autoimmune Diseases Come From?**\
+`Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
+https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
+
+**Alex Hartman, of the ‘Nolita Dirtbag’ Instagram Account, Grows Up**\
+`Alex Hartman has made a mark with his critiques of downtown denizens. Now he’s expanding his gaze beyond Nolita Dirtbag.`\
+https://www.nytimes.com/2026/10/20/style/nolita-dirtbag-alex-hartman.html
+
+**Ready for High Water in Low-Lying Delaware**\
+`In the state’s flattest county, flood preparation, and houses, rise to a new level.`\
+https://www.nytimes.com/2026/10/20/realestate/flood-protection-efforts-delaware.html
+
+**What Could Swing Israel’s Election? Thousands Living in the U.S.**\
+`Thousands of Israelis living in the United States are expected to fly to Israel to vote in the country’s national election this month.`\
+https://www.nytimes.com/2026/10/20/us/israel-election-netanyahu-voters.html
+
+**The Last Photos of Gloria Steinem**\
+`Before her death, the pioneering feminist posed for a fashion shoot. Now those pictures are part of her legacy.`\
+https://www.nytimes.com/2026/10/20/style/the-last-photos-of-gloria-steinem.html
+
+**‘Covering AIDS and Living It’: When a Reporter Is Part of the Story**\
+`Jeffrey Schmalz wrote unsparingly about why the political and medical cavalry would not arrive in time for him.`\
+https://www.nytimes.com/2026/10/20/health/aids-hiv-jeffrey-schmalz-new-york-times-history.html
+
 **Is It Safe to Use Eye Drops Every Day?**\
 `It depends on the formulation, experts say. Here’s what is (and isn’t) recommended for the long term.`\
 https://www.nytimes.com/2026/10/20/well/eye-drop-health-effects-safety.html
@@ -69,128 +197,4 @@ https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
 **Neil Armstrong’s Boyhood Home Is Sold to a Historical Society After a $400,000 Gift**\
 `A retired pilot helped an Ohio historical society become the new owner of the Wapakoneta home where the first man on the moon spent his high school days.`\
 https://www.nytimes.com/2026/10/19/us/neil-armstrong-childhood-home-ohio.html
-
-**Applying to High School in New York City Is a Soul-Destroying Nightmare**\
-`I thought my worst New York City experience was getting punched in the face. That was before I started trying to get my kid into a public high school.`\
-https://www.nytimes.com/2026/10/19/opinion/high-school-new-york-city-application.html
-
-**Trump’s Push for Deals With Russia Powers His Frustration With Ukraine**\
-`The series of recent steps by the president that seem to favor Vladimir Putin reflect his intensifying desire to normalize the relationship with Moscow even if it means further undercutting Ukraine.`\
-https://www.nytimes.com/2026/10/19/us/politics/trump-russia-deals.html
-
-**Melania Trump Announces White House Women’s Health Initiative**\
-`The effort comes as Republicans are struggling to win over female voters two weeks before the midterm elections.`\
-https://www.nytimes.com/2026/10/19/us/politics/melania-trump-women-health.html
-
-**Bend Residents Want Accountability. Oregon’s Gun Laws Make It Hard.**\
-`After a school shooting in which the 16-year-old attacker died, there are few ways to pin official blame.`\
-https://www.nytimes.com/2026/10/19/us/bend-school-shooting-accountability.html
-
-**Russian Satellite Makes a Menacing Approach to Another Craft in Orbit**\
-`Although Kosmos 2612 is now backing away, the maneuver raised alarm bells for analysts who see it as part of a pattern of Russian aggression.`\
-https://www.nytimes.com/2026/10/19/science/russia-satellite-kosmos-2612.html
-
-**Student News Quiz: French Protests, College Majors, a Giant Tortoise**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students.`\
-https://www.nytimes.com/quiz/2026/10/19/learning/19studentnewsquiz-ln.html
-
-**U.N.C. Strikes Trump Deal to Keep Federal Funding**\
-`The University of North Carolina at Chapel Hill will not pay any financial penalties but agreed to abide by the Trump administration’s views on diversity and other matters.`\
-https://www.nytimes.com/2026/10/19/us/politics/unc-trump-deal.html
-
-**Barbara Palvin Walked the Victoria’s Secret Show Six Weeks Postpartum**\
-`Barbara Palvin’s return to the runway so soon after giving birth set off a debate online about motherhood in America.`\
-https://www.nytimes.com/2026/10/19/style/barbara-palvin-victorias-secret-postpartum.html
-
-**High Costs of Living Spark Protests Across Italy**\
-`Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
-https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
-
-**France Imposes Curfews**\
-`Also, many American forests are sick. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/10/19/briefing/france-imposes-curfews.html
-
-**Man Who Died in ICE Custody in Texas Was Denied Medicine, Daughter Says**\
-`The man had been detained at an immigration center in Laredo, Texas, since June. Immigration officials said he had received proper medical care.`\
-https://www.nytimes.com/2026/10/19/us/ice-death-laredo-texas-medicine.html
-
-**Police Fire Tear Gas Grenade at French Student**\
-`A high school student, who was identified as Eden by his family, was hit in the face last month by a tear gas grenade. Video of the incident sheds light on how a wave of school unrest evolved into national protests that led to riots on Saturday.`\
-https://www.nytimes.com/video/world/europe/100000011222448/france-student-protests-police-arrests-violence.html
-
-**Joe Manchin to Campaign With Susan Collins in Maine Ahead of Midterm Elections**\
-`Former Senator Joe Manchin III of West Virginia said he told Senator Susan Collins, who is locked in a tough re-election fight, “Whenever you run again, I’m going to come.”`\
-https://www.nytimes.com/2026/10/19/us/manchin-collins-maine-senate-election.html
-
-**Deaths at Danjiri Float Festival Prompt Questions in Japan**\
-`The vibrant danjiri tradition dates back three centuries, but two recent fatalities have prompted anxiety over whether participants can remain safe.`\
-https://www.nytimes.com/2026/10/19/world/asia/danjiri-festival-deaths-osaka-japan.html
-
-**Kennedy’s Vaccine Plan Could Cause Surge in Hepatitis B, Study Finds**\
-`Ending routine vaccination for hepatitis B at birth, as the health secretary has recommended, would increase the number of chronic infections by as much as 83 percent, a team of researchers reported.`\
-https://www.nytimes.com/2026/10/19/health/hepatitis-b-vaccine-kennedy.html
-
-**The Failures of Emmanuel Macron**\
-`The student protests that snowballed into violent riots made it clear that almost 10 years of his presidency have not fixed France’s problems.`\
-https://www.nytimes.com/2026/10/19/world/macron-france-riots-le-pen-gold.html
-
-**‘Yuri!!! On Ice': Before ‘Heated Rivalry,’ This Sports Romance Shocked Japan**\
-`The anime series “Yuri!!! On Ice” broke taboos, but brought so much more to the table.`\
-https://www.nytimes.com/2026/10/19/arts/television/yuri-on-ice-anniversary.html
-
-**Trump Rallies Red States Amid Fears About G.O.P. Voter Enthusiasm as Midterms Near**\
-`The president’s swing is taking him to states including South Carolina and Kansas that were not seen as competitive just a few months ago.`\
-https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.html
-
-**Mahmoud Khalil Appeals to Supreme Court to Halt Deportation**\
-`Mr. Khalil had recently graduated from Columbia when he was arrested by ICE agents and became the face of the Trump administration’s crackdown on pro-Palestinian demonstrations.`\
-https://www.nytimes.com/2026/10/19/us/politics/supreme-court-mahmoud-khalil-deportation.html
-
-**Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
-`After almost a decade away from Springfield, the character returned to the show, this time voiced by a South Asian actor rather than a white man.`\
-https://www.nytimes.com/2026/10/19/arts/television/apu-the-simpsons-sunil-malhotra.html
-
-**Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
-`Helen Haines, an independent Australian lawmaker, was hit by a car in an “attack” outside her office, Prime Minister Anthony Albanese said.`\
-https://www.nytimes.com/video/world/australia/100000011222654/australian-lawmaker-critically-injured-after-car-attack.html
-
-**DOJ Charges 28 California Residents With Voting-Related Crimes Amid Trump’s Voter Fraud Push**\
-`The effort by the Trump administration comes as it wages a broader fight with California officials over voter rolls.`\
-https://www.nytimes.com/2026/10/19/us/politics/doj-california-voting-crimes-trump-midterms.html
-
-**Death Penalty Sought for Andrea Shaw, Who Blamed Toddlers’ Deaths on Vaccines**\
-`As Andrea Shaw, 23, awaits trial for the murder of her twins, a leading lawyer in the anti-vaccine movement has joined her defense team.`\
-https://www.nytimes.com/2026/10/19/well/andrea-shaw-death-penalty-toddler-deaths-vaccines.html
-
-**Your Burger Is Going to Get Only More Expensive**\
-`Beef prices will go higher because of the complex production cycle.`\
-https://www.nytimes.com/2026/10/19/opinion/beef-prices-cattle-farmers.html
-
-**The Fight to End Gang Warfare in Haiti**\
-`The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011223457/the-fight-to-end-gang-warfare-in-haiti.html
-
-**Christiane Amanpour Says She Is Leaving CNN After 43 Years**\
-`The chief international anchor, one of the most famous names in broadcast news, started as an assistant at the network in 1983.`\
-https://www.nytimes.com/2026/10/19/business/media/cnn-christiane-amanpour.html
-
-**U.S. Citizen Hospitalized After Being Detained by ICE, His Family Says**\
-`The police in Long Beach, Calif., said they were called by ICE for backup and found a man who was bleeding and handcuffed.`\
-https://www.nytimes.com/2026/10/19/us/ice-hospitalization-us-citizen.html
-
-**Jon Stewart to Stay at ‘The Daily Show’ Through the 2028 Election**\
-`Ratings have surged since Mr. Stewart returned over two years ago to host the show on Monday nights.`\
-https://www.nytimes.com/2026/10/19/business/media/jon-stewart-daily-show.html
-
-**Visitor Killed by Roof Debris at Frank Lloyd Wright’s Taliesin West**\
-`A 55-year-old rector from a university in Brazil was killed while on a walking tour of the famed architect’s winter home in Scottsdale, Ariz.`\
-https://www.nytimes.com/2026/10/19/us/frank-lloyd-wright-home-death-taliesin-west.html
-
-**The Local: From ICE watch to school closure fights**\
-`Plus, a Wild player sets a record.`\
-https://www.nytimes.com/2026/10/19/briefing/kenny-elementary.html
-
-**The Echoes of Obama in Abdul El-Sayed’s Campaign**\
-`More money is projected to be spent on political ads in the 2026 midterms than in any previous election cycle. On “The Opinions,” the columnist Carlos Lozada analyzes Abdul El-Sayed’s campaign ad and its echoes of Barack Obama’s strategy for addressing questions about his identity and background.`\
-https://www.nytimes.com/video/opinion/100000011216106/the-echoes-of-obama-in-abdul-el-sayeds-campaign.html
 

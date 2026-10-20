@@ -1,3 +1,15 @@
+**Is It Safe to Use Eye Drops Every Day?**\
+`It depends on the formulation, experts say. Here’s what is (and isn’t) recommended for the long term.`\
+https://www.nytimes.com/2026/10/20/well/eye-drop-health-effects-safety.html
+
+**A Chef Celebrates Immigrant Flavors in Anti-Migrant South Africa**\
+`A self-taught chef borrows ingredients and ideas from restaurants run by immigrants in South Africa, hoping to help counter rising xenophobia.`\
+https://www.nytimes.com/2026/10/20/world/africa/johannesburg-migrant-cuisine-chef.html
+
+**When Idaho Banned Abortion, OB-GYNs Fled. The Doctors Who Stayed Are Cracking.**\
+`From childbirth to miscarriages, women’s health care in the state has become increasingly dangerous.`\
+https://www.nytimes.com/2026/10/20/magazine/idaho-abortion-ban-ob-gyns.html
+
 **Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
 `Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
 https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
