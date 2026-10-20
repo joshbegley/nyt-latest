@@ -1,3 +1,7 @@
+**In Texas’ Senate Race, Paxton and Talarico Converge on Key Battleground**\
+`In Tarrant County, a fight over polling places has energized Democrats as Republicans seek to defend their grip on a longtime stronghold.`\
+https://www.nytimes.com/2026/10/20/us/paxton-talarico-fort-worth-tarrant-county-texas.html
+
 **Mailers About Transgender Students Mysteriously Appear at Texas Homes**\
 `The messages purporting to offer help for transgender students are tied to a group set up last month in Wyoming.`\
 https://www.nytimes.com/2026/10/20/us/transgender-mailers-texas.html
