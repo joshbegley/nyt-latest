@@ -1,3 +1,7 @@
+**Where Do Autoimmune Diseases Come From?**\
+`Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
+https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
+
 **Iran, Taunting Trump Over Gas Prices, Braces for Aftermath of Midterm Elections**\
 `The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
 https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
