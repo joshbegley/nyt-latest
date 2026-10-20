@@ -1,3 +1,7 @@
+**James Talarico on the Rage Economy, Billionaires and Flipping Texas**\
+`Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
+https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
+
 **Why You Should Care About Iowa’s Race for Governor**\
 `Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
 https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
