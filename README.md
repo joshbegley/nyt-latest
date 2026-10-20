@@ -1,3 +1,7 @@
+**She Braved Sharks and Storms to Swim the Length of California**\
+`“It feels surreal being done, this has been my entire life for nearly four months,” said Catherine Breed, who finished her historic journey near the Mexico border on Monday.`\
+https://www.nytimes.com/2026/10/20/us/catherine-breed-first-swim-california-length.html
+
 **Art Basel Paris Preview Draws Interest Despite Protests**\
 `The Avant-Première preview of the Art Basel Paris fair attracted major collectors despite an escalation of anti-government protests, riots and looting across French cities.`\
 https://www.nytimes.com/2026/10/20/arts/art-basel-paris-france-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
 **Trump Can No Longer Mask His Real Agenda**\
 `The president has forgotten the “forgotten men and women of this country.”`\
 https://www.nytimes.com/2026/10/20/opinion/trump-campaign-promises-affordability.html
-
-**The History We Lost When Trump Tore Down the East Wing**\
-`Mr. Trump appears to wish to be both president and first lady.`\
-https://www.nytimes.com/2026/10/20/opinion/contributors/trump-east-wing-white-house.html
 

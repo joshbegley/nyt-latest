@@ -1,3 +1,15 @@
+**Art Basel Paris Preview Draws Interest Despite Protests**\
+`The Avant-Première preview of the Art Basel Paris fair attracted major collectors despite an escalation of anti-government protests, riots and looting across French cities.`\
+https://www.nytimes.com/2026/10/20/arts/art-basel-paris-france-protests.html
+
+**Trump Invokes Antisemitic Slur at Rally Again**\
+`President Trump alluded to the antisemitic term “Shylock” at a rally in Kansas on Monday. The word is associated with a centuries-old antisemitic trope of a moneylender. Mr. Trump said “Shylock” at a rally last year and said that he didn’t know it was an antisemitic slur.`\
+https://www.nytimes.com/video/us/politics/100000011225025/donald-trump-midterms-rally-slur-antisemitic.html
+
+**Nigeria Announces First Case of Ebola in Current Outbreak**\
+`Health officials praised the Nigerian authorities for their transparency in reporting the spread of the virus.`\
+https://www.nytimes.com/2026/10/20/world/africa/nigeria-ebola-outbreak.html
+
 **Nikole Hannah-Jones on Writing About Her Daughter**\
 `Nikole Hannah-Jones discusses her approach to writing her recent essay with Patrick Healy, an assistant managing editor at The New York Times.`\
 https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-writing-about-her-daughter.html
