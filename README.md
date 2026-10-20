@@ -1,3 +1,15 @@
+**Republican Women Lean on Working Mom Cred to Stump in Tight Iowa Race**\
+`Senator Katie Britt of Alabama was the latest national Republican to visit Iowa to campaign for Representative Ashley Hinson. President Trump will follow on Thursday.`\
+https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race.html
+
+**Netflix Is Great at Making Money. Its Problem Is Keeping Viewers Hooked.**\
+`The streaming service reported a 12 percent increase in quarterly revenue, but acknowledged that stagnant viewership, particularly in the U.S. and Canada, was a major concern.`\
+https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-peter-rice.html
+
+**Restaurant Review: Andamiro in New York**\
+`There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
+https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
+
 **Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
 `Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.ht
 **Why Drug Companies Are Rushing to Market Ketamine Medicines**\
 `Spurred on by the Trump administration’s embrace of psychedelic medicine, researchers are experimenting with new — and not so new — forms of the anesthetic.`\
 https://www.nytimes.com/2026/10/20/science/ketamine-fda-spravato-ketafree.html
-
-**France to Extend Curfews After Largest Riots in Years**\
-`France’s prime minister said partial curfews in several cities across the country would be extended, as the government tried to reassert control after the largest riots in years.`\
-https://www.nytimes.com/video/world/europe/100000011224602/france-protests-curfew-extended.html
-
-**Street Style Look of the Week: Dress the Diaspora**\
-`A woman who is committed to elevating designers from across the African diaspora walked the walk when she stepped out in London on a recent Friday.`\
-https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-designers.html
-
-**What It Took for Nikole Hannah-Jones to Write About Her Daughter’s Distress**\
-`The Times journalist reflects on her two deeply personal essays about her child and New York City public schools and how she grappled with readers’ responses.`\
-https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-to-write-about-her-daughters-distress.html
 

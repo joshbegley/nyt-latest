@@ -1,3 +1,7 @@
+**Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
+https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
+
 **Boeing’s Large 737 Max Jet Secures U.S. Approval**\
 `After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
 https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
