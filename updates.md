@@ -1,3 +1,7 @@
+**Trump Says He Asked Putin to Release an American Jailed in Russia**\
+`The president called for the return of Stephen James Hubbard, a Michigan teacher seized from his home in Ukraine months after Russia invaded that country.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
+
 **China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
 `The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese tech giant.`\
 https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html

@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 `The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
-**Stop Appeasing Russia**\
+**Trump’s Betrayal of Ukraine**\
 `The stakes in Ukraine are much larger than the fate of one nation.`\
 https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
 
