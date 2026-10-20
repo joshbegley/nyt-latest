@@ -1,3 +1,7 @@
+**China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
+`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese tech giant.`\
+https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
+
 **Trump Pushes to Evict White House Press Corps**\
 `President Trump has talked about replacing the James S. Brady Press Briefing Room with an indoor swimming pool.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-white-house-media.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain
 **A ‘Doom Loop’ Threatens France as Populism Confronts Markets**\
 `The turmoil shows the profound challenges facing governments stuck between unhappy citizens and wary bond investors.`\
 https://www.nytimes.com/2026/10/20/business/france-protests-bond-markets.html
-
-**Spicy Citrus Skirt Steak**\
-`In this recipe, the grilled steak rests in a tart sauce of tangerine, soy sauce, ginger and vinegar that is reminiscent of ponzu, with hints of citrusy bitterness similar to the dried tangerine peel used in Sichuan and Hunan cooking.`\
-https://www.nytimes.com/video/dining/100000011223057/spicy-citrus-skirt-steak.html
 

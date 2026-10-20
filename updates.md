@@ -1,3 +1,11 @@
+**Trump Pushes to Evict White House Press Corps**\
+`President Trump has talked about replacing the James S. Brady Press Briefing Room with an indoor swimming pool.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-white-house-media.html
+
+**Britain Is Said to Approve New Gas Drilling in the North Sea**\
+`Jackdaw, a natural gas field off the coast of Scotland, would be the first new gas extraction project in the North Sea since a government moratorium in 2024.`\
+https://www.nytimes.com/2026/10/20/business/uk-north-sea-drilling-jackdaw.html
+
 **SpaceX Swings to a Profit, Even as A.I. Spending Soars**\
 `Elon Musk’s rocket company also said its revenue had more than doubled, driven by its Starlink internet satellite service and artificial intelligence products.`\
 https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
