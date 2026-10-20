@@ -1,3 +1,7 @@
+**‘Lincoln in the Bardo’ Review: From Book to Opera at the Met**\
+`Missy Mazzoli and Royce Vavrek are making their Metropolitan Opera debut with an imaginative, moving adaptation of George Saunders’s ghostly novel.`\
+https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
+
 **Why Zelensky Took the Gloves Off This Time With Trump**\
 `Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes farther than ever in prioritizing Russia’s interests.`\
 https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/opinion/france-american-liberals-riots.html
 **Corrections: Oct. 20, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 20, 2026.`\
 https://www.nytimes.com/2026/10/20/pageoneplus/corrections-oct-20-2026.html
-
-**Republican National Committee Moves $50 Million to Help Midterm Candidates in Huge Cash Transfer**\
-`The party apparatus is taking advantage of its enormous war chest, as well as a Supreme Court campaign-finance ruling this year, to send tens of millions into congressional races.`\
-https://www.nytimes.com/2026/10/20/us/politics/republicans-midterm-election-cash-transfer.html
 

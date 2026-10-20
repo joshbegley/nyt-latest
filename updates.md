@@ -1,3 +1,15 @@
+**Why Zelensky Took the Gloves Off This Time With Trump**\
+`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes farther than ever in prioritizing Russia’s interests.`\
+https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
+
+**Attack Ad Featuring Candidate’s Mother Turns Ohio Governors Race Even Uglier**\
+`A Republican ad features Amy Acton’s estranged mother calling her daughter a liar. The two have not spoken since Dr. Acton’s mother backed her husband after his arrest on rape charges.`\
+https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estranged-mother-donna-arthur.html
+
+**Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
+`The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
+https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
+
 **Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
 `President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
 https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html

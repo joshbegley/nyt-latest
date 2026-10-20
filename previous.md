@@ -1,3 +1,15 @@
+**Why Zelensky Took the Gloves Off This Time With Trump**\
+`Staying quiet is riskier than speaking up, Ukrainian officials say, as President Trump goes farther than ever in prioritizing Russia’s interests.`\
+https://www.nytimes.com/2026/10/20/world/europe/ukraine-war-zelensky-trump.html
+
+**Attack Ad Featuring Candidate’s Mother Turns Ohio Governors Race Even Uglier**\
+`A Republican ad features Amy Acton’s estranged mother calling her daughter a liar. The two have not spoken since Dr. Acton’s mother backed her husband after his arrest on rape charges.`\
+https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estranged-mother-donna-arthur.html
+
+**Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
+`The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
+https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
+
 **Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
 `President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
 https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/20/pageoneplus/corrections-oct-20-2026.html
 **Republican National Committee Moves $50 Million to Help Midterm Candidates in Huge Cash Transfer**\
 `The party apparatus is taking advantage of its enormous war chest, as well as a Supreme Court campaign-finance ruling this year, to send tens of millions into congressional races.`\
 https://www.nytimes.com/2026/10/20/us/politics/republicans-midterm-election-cash-transfer.html
-
-**Can New York Win the War on Rats?**\
-`The latest weapon is a machine that shoots carbon dioxide into rats’ burrows. “They fall asleep — permanently,” a parks official said.`\
-https://www.nytimes.com/2026/10/20/nyregion/can-new-york-win-the-war-on-rats.html
-
-**Why You Can’t Capitulate to Trump**\
-`Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
-https://www.nytimes.com/video/opinion/100000011220109/why-you-cant-capitulate-to-trump.html
-
-**Knicks Ticket Prices Are Soaring After Last Season’s Championship**\
-`Knicks tickets have never been cheap, but prices for the first game alone are soaring after last season’s championship — more than a trip to Paris.`\
-https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
 
