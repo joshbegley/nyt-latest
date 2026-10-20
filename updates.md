@@ -1,3 +1,11 @@
+**France to Extend Curfews After a Night of Calm, Prime Minister Says**\
+`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
+
+**Could Mississippi Elect Its First Black Senator Since Reconstruction?**\
+`A once-in-a-generation shot to turn a solidly Republican state blue.`\
+https://www.nytimes.com/2026/10/20/opinion/trump-mississippi-scott-colom-democrat.html
+
 **Google Reports Cloud Disruptions in Europe Region**\
 `The disruptions began around 7 a.m. in London, the tech giant said. The cause for the outage was not immediately clear.`\
 https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
