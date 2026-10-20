@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/10/20/style/met-opera-lincoln-bardo-premiere.html
 `Student protesters in France are rallying around a new slogan: “Bismillah, c’est les ténèbres.” The phrase is a mash-up of “in the name of God” and “it’s the darkness.”`\
 https://www.nytimes.com/video/world/europe/100000011224321/france-student-protests-bismillah.html
 
-**The Little Styling Trick You’ll Now Notice Everywhere**\
-`Call it the T-skirt.`\
+**Have You Seen the T-Skirt?**\
+`The little styling strick you’ll now notice everywhere.`\
 https://www.nytimes.com/2026/10/20/style/the-fashions-styling-t-skirt.html
 
 **Heading to France? Amid Recent Unrest, Here’s What to Know**\
