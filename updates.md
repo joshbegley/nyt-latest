@@ -1,3 +1,19 @@
+**College Football Superlatives**\
+`We look at how the teams are stacking up midseason.`\
+https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
+
+**Trump Can No Longer Mask His Real Agenda**\
+`The president has forgotten the “forgotten men and women of this country.”`\
+https://www.nytimes.com/2026/10/20/opinion/trump-campaign-promises-affordability.html
+
+**The History We Lost When Trump Tore Down the East Wing**\
+`Mr. Trump appears to wish to be both president and first lady.`\
+https://www.nytimes.com/2026/10/20/opinion/contributors/trump-east-wing-white-house.html
+
+**An Inspired Broccoli Dish**\
+`This roasted broccoli with white beans and crispy pistachio crumbs is an easy take on a restaurant dish I couldn’t stop thinking about.`\
+https://www.nytimes.com/2026/10/20/dining/an-inspired-broccoli-dish.html
+
 **James Talarico on the Rage Economy, Billionaires and Flipping Texas**\
 `Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
 https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html

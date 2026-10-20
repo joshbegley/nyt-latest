@@ -1,3 +1,19 @@
+**College Football Superlatives**\
+`We look at how the teams are stacking up midseason.`\
+https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
+
+**Trump Can No Longer Mask His Real Agenda**\
+`The president has forgotten the “forgotten men and women of this country.”`\
+https://www.nytimes.com/2026/10/20/opinion/trump-campaign-promises-affordability.html
+
+**The History We Lost When Trump Tore Down the East Wing**\
+`Mr. Trump appears to wish to be both president and first lady.`\
+https://www.nytimes.com/2026/10/20/opinion/contributors/trump-east-wing-white-house.html
+
+**An Inspired Broccoli Dish**\
+`This roasted broccoli with white beans and crispy pistachio crumbs is an easy take on a restaurant dish I couldn’t stop thinking about.`\
+https://www.nytimes.com/2026/10/20/dining/an-inspired-broccoli-dish.html
+
 **Why You Should Care About Iowa’s Race for Governor**\
 `Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
 https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.h
 **Iran, Taunting Trump Over Gas Prices, Braces for Aftermath of Midterm Elections**\
 `The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
 https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
-
-**Could Mississippi Elect Its First Black Senator Since Reconstruction?**\
-`A once-in-a-generation shot to turn a solidly Republican state blue.`\
-https://www.nytimes.com/2026/10/20/opinion/trump-mississippi-scott-colom-democrat.html
-
-**France Protests Show Europe’s Shift Away From Centrist Politics**\
-`Europe’s centrist parties are losing ground among young people and workers, who are increasingly tempted by populist promises of radical change.`\
-https://www.nytimes.com/2026/10/20/world/europe/france-protests-europe-centrist-far-right.html
-
-**What’s Next for the Beach Boys?**\
-`Mike Love has been a constant, and sometimes contentious, steward of the band’s performances. Health problems and a recent concert appearance have prompted fans to ask what the future holds.`\
-https://www.nytimes.com/2026/10/20/arts/music/beach-boys-mike-love-future.html
-
-**What’s the Creepiest Place You’ve Been?**\
-`Whether in fiction, movies or real life, we want to know about the locations that have given you a fright.`\
-https://www.nytimes.com/2026/10/20/learning/whats-the-creepiest-place-youve-been.html
 
