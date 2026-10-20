@@ -1,6 +1,6 @@
 **The NBA Superstar Turned Late-Night Host**\
 `Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
-https://www.nytimes.com/2026/10/20/podcasts/the-nba-superstar-turned-late-night-host.html
+https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html
 
 **Trump Announces $8 Billion Plan to Cover Farm Losses**\
 `Under the Harvest Fuel Relief program, the Agriculture Department will provide economic aid for farmers hurt by high diesel prices.`\
