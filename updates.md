@@ -1,3 +1,11 @@
+**Robert Kabera, Rwandan Government Critic, Beheaded in Uganda**\
+`The former soldier had been living in exile since 2020, and said in a video posted this month on TikTok that he feared for his life.`\
+https://www.nytimes.com/2026/10/20/world/africa/rwandan-beheaded-uganda-kabera.html
+
+**Joel Kaplan, Meta’s Global Policy Chief, to Leave After 15 Years**\
+`Joel Kaplan, a former adviser to George W. Bush known for his Republican ties, had helped Meta build its relationship with the Trump administration.`\
+https://www.nytimes.com/2026/10/20/technology/meta-joel-kaplan-policy-chief-depart.html
+
 **‘Nicole Kidman’ and Other Musical Odes to Actresses**\
 `Hear Adéla’s ubiquitous hit and tracks from SZA, the Go-Betweens, Nirvana and more.`\
 https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-kidman-actresses.html
