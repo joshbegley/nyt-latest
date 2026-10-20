@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/10/19/us/politics/trump-midterm-rally-red-states.ht
 https://www.nytimes.com/2026/10/19/us/politics/supreme-court-mahmoud-khalil-deportation.html
 
 **Apu Returns to ‘The Simpsons’ With a New Voice Actor**\
-`After almost a decade away from Springfield, the character returned to show, this time voiced by a South Asian actor rather than a white man.`\
+`After almost a decade away from Springfield, the character returned to the show, this time voiced by a South Asian actor rather than a white man.`\
 https://www.nytimes.com/2026/10/19/arts/television/apu-the-simpsons-sunil-malhotra.html
 
 **Australian Lawmaker Helen Haines Critically Injured After Car ‘Attack’**\
