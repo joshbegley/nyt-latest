@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.ht
 https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
 
 **Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
-`Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu, two people with knowledge of the trip said. Israel holds elections in a week.`\
+`Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu and Israel’s defense minister, a week before a pivotal election.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
 
 **Google Reports Cloud Disruptions in Europe**\

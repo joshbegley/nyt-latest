@@ -1,3 +1,7 @@
+**Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
+`Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu and Israel’s defense minister, a week before a pivotal election.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
+
 **Trump Tariffs on Canada Spark Latest Lawsuit Over Trade Powers**\
 `Once again, the president’s ability to wage a trade war without Congress will come before a court that has repeatedly ruled against him.`\
 https://www.nytimes.com/2026/10/20/business/trump-tariffs-canada-lawsuit.html
