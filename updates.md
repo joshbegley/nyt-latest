@@ -1,3 +1,27 @@
+**James Talarico on His Plan to Turn Texas Blue**\
+`Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
+https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
+
+**James Talarico Weighs In On Impeaching Trump**\
+`James Talarico joined Michael Barbaro on “The Daily” to talk about why he thinks he can become the first Democrat in Texas to be elected to the Senate in 40 years. If he and his party successfully flip the chamber, would he consider impeaching President Trump or members of his cabinet?`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011223913/james-talarico-weighs-in-on-impeaching-trump.html
+
+**NYT Connections Answers for Oct. 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/connections-companion-1228.html
+
+**The Fight to Tax Billionaires, and Why NDAs Are Everywhere Now**\
+`Plus, a contentious character is back on “The Simpsons.”`\
+https://www.nytimes.com/2026/10/20/podcasts/the-headlines/tax-billionaires-ndas.html
+
+**NYT Strands Hints for October 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
+
+**Today’s Wordle Hints for October 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
+
 **France to Extend Curfews After a Night of Calm, Prime Minister Says**\
 `The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the unrest face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html

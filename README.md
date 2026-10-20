@@ -1,3 +1,7 @@
+**London Exhibition Displays Children’s Selfies as Art**\
+`An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
+https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
+
 **James Talarico on His Plan to Turn Texas Blue**\
 `Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
 https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/nyregion/measles-amish-school-vaccine-require
 **Can Real Estate Out-Organize Tenants in New York? This Group Will Try.**\
 `A new organization, Built for New York, plans to raise money to mobilize voters in the real estate industry, which has endured several political losses in recent years.`\
 https://www.nytimes.com/2026/10/20/nyregion/real-estate-nyc-politics-housing-policies.html
-
-**14 Dead After Gold Mine Collapses in Colombia**\
-`The mine is among a growing number of small-scale, unlicensed operations in Colombia that are fueled by the metal’s rising global price.`\
-https://www.nytimes.com/2026/10/20/world/americas/colombia-gold-mine-collapse.html
 
