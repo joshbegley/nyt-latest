@@ -1,3 +1,11 @@
+**Start-Up Claims to Treat a Patient With A.I.-Created Viruses**\
+`Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
+https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
+
+**Yemeni City of Taiz Running Out of Essentials as Houthis Close in**\
+`The Iranian-backed Houthi militia has cut road access to Taiz, besieging one of Yemen’s largest cities, where officials warn of an impending humanitarian disaster.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
+
 **J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
@@ -94,13 +102,13 @@ https://www.nytimes.com/2026/10/20/nyregion/can-new-york-win-the-war-on-rats.htm
 `Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
 https://www.nytimes.com/video/opinion/100000011220109/why-you-cant-capitulate-to-trump.html
 
-**What Makes Men in Groups Behave So Badly?**\
-`Why do men in groups behave this way?`\
-https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.html
-
 **Knicks Ticket Prices Are Soaring After Last Season’s Championship**\
 `Knicks tickets have never been cheap, but prices for the first game alone are soaring after last season’s championship — more than a trip to Paris.`\
 https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
+
+**What Makes Men in Groups Behave So Badly?**\
+`Why do men in groups behave this way?`\
+https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.html
 
 **Taunting Trump Over Gas Prices, Iran Braces for Aftermath of U.S. Vote**\
 `The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/us/israel-election-netanyahu-voters.html
 **The Last Photos of Gloria Steinem**\
 `Before her death, the pioneering feminist posed for a fashion shoot. Now those pictures are part of her legacy.`\
 https://www.nytimes.com/2026/10/20/style/the-last-photos-of-gloria-steinem.html
-
-**‘Covering AIDS and Living It’: When a Reporter Is Part of the Story**\
-`Jeffrey Schmalz wrote unsparingly about why the political and medical cavalry would not arrive in time for him.`\
-https://www.nytimes.com/2026/10/20/health/aids-hiv-jeffrey-schmalz-new-york-times-history.html
-
-**Is It Safe to Use Eye Drops Every Day?**\
-`It depends on the formulation, experts say. Here’s what is (and isn’t) recommended for the long term.`\
-https://www.nytimes.com/2026/10/20/well/eye-drop-health-effects-safety.html
 

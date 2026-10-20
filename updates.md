@@ -1,3 +1,11 @@
+**Start-Up Claims to Treat a Patient With A.I.-Created Viruses**\
+`Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
+https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
+
+**Yemeni City of Taiz Running Out of Essentials as Houthis Close in**\
+`The Iranian-backed Houthi militia has cut road access to Taiz, besieging one of Yemen’s largest cities, where officials warn of an impending humanitarian disaster.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
+
 **J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
