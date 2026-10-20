@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
 `The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
 https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
 
-**Trump Won Mississippi by Nearly 23 Points. Can This Democrat Pull Off a Miracle?**\
+**Could Mississippi Elect Its First Black Senator Since Reconstruction?**\
 `A once-in-a-generation shot to turn a solidly Republican state blue.`\
 https://www.nytimes.com/2026/10/20/opinion/trump-mississippi-scott-colom-democrat.html
 
