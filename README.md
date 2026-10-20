@@ -1,3 +1,7 @@
+**Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
+`Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
+https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
+
 **15-Minute Lesson Plan: 19th Century Ghost Stories**\
 `Why do you think a newspaper like The New York Times would have reported hundreds of stories about the paranormal?`\
 https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-ghost-stories.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/us/politics/supreme-court-plea-deal-sept-11.h
 **Republicans Barely Mention Trump in Political Ads Ahead of the Midterms**\
 `Only a small fraction of recent G.O.P. broadcast and streaming ads mention the president, according to a Times analysis of ad data.`\
 https://www.nytimes.com/2026/10/19/us/politics/trump-midterms-republican-political-ads.html
-
-**El-Sayed Highlights Muslim Faith in New Ad After Republican Attacks**\
-`Dr. Abdul El-Sayed’s campaign in Michigan released a new ad highlighting his faith, which Republicans have used to attack him in a tight Senate race.`\
-https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
 
