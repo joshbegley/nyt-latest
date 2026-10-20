@@ -1,3 +1,11 @@
+**France to Extend Curfews After Largest Riots in Years**\
+`France’s prime minister said partial curfews in several cities across the country would be extended, as the government tried to reassert control after the largest riots in years.`\
+https://www.nytimes.com/video/world/europe/100000011224602/france-protests-curfew-extended.html
+
+**Yemeni City of Taiz Running Out of Essentials as Houthis Close in**\
+`The Iranian-backed Houthi militia has cut road access to Taiz, one of Yemen’s largest cities, besieging it. Officials there warn of an impending humanitarian disaster.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
+
 **Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
 `The secretary of state will meet with Asia’s richest men as Washington continues negotiations over a trade deal with India.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html

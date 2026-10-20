@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
 `Why do men in groups behave this way?`\
 https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.html
 
-**Taunting Trump Over Gas Prices, Iran Braces for Aftermath of U.S. Vote**\
+**Iran, Taunting Trump Over Gas Prices, Braces for Aftermath of Midterm Elections**\
 `The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
 https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
 
