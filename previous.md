@@ -1,6 +1,14 @@
+**How Two Colorado House Candidates Are Thinking About AI**\
+`In Colorado, two millennial candidates are thinking about A.I.`\
+https://www.nytimes.com/2026/10/20/us/politics/colorado-elections-ai.html
+
+**A Billionaire Wanted a Trump Pardon. His Family Gave Alina Habba a $50 Million Deal.**\
+`Julio Herrera Velutini, a prominent Venezuelan, was seeking clemency. He got it not long after his daughter gave Ms. Habba, a lawyer close to President Trump, an extraordinarily lucrative job.`\
+https://www.nytimes.com/2026/10/20/us/politics/julio-herrera-pardon-alina-habba.html
+
 **MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
 `MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
-https://www.nytimes.com/2026/10/20/us/politics/trumps-super-pac-unleashes-broad-get-out-the-vote-push-online.html
+https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-super-pac.html
 
 **Trump Announces Plans to Spend Another $100 Million by Election Day**\
 `Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/travel/france-travel-riots.html
 **Richard Riehle, Prolific Actor Who Appeared in ‘Office Space,’ Dies at 78**\
 `Mr. Riehle, best remembered for playing an anxious character with “people skills,” built a career in theater, TV and film that lasted more than half a century.`\
 https://www.nytimes.com/2026/10/20/us/richard-riehle-dead-office-space.html
-
-**Trump Envoy Meets With Zelensky Amid Deepening Rift Over Russia**\
-`President Trump’s special envoy, Steve Witkoff, met with President Volodymyr Zelensky of Ukraine amid a deepening rift between Ukraine’s leader and Mr. Trump over the latter’s push for deals with Russia.`\
-https://www.nytimes.com/video/world/europe/100000011224627/trump-witkoff-zelensky-meeting-ukraine.html
-
-**The Bedeviling Work of Designing and Redesigning Haunted Houses**\
-`If you’re looking for the ultimate home renovation project, try opening a haunted house.`\
-https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-building.html
 

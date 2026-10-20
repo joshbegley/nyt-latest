@@ -1,3 +1,15 @@
+**How Two Colorado House Candidates Are Thinking About AI**\
+`In Colorado, two millennial candidates are thinking about A.I.`\
+https://www.nytimes.com/2026/10/20/us/politics/colorado-elections-ai.html
+
+**A Billionaire Wanted a Trump Pardon. His Family Gave Alina Habba a $50 Million Deal.**\
+`Julio Herrera Velutini, a prominent Venezuelan, was seeking clemency. He got it not long after his daughter gave Ms. Habba, a lawyer close to President Trump, an extraordinarily lucrative job.`\
+https://www.nytimes.com/2026/10/20/us/politics/julio-herrera-pardon-alina-habba.html
+
+**MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
+`MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-super-pac.html
+
 **SpaceX Swings to a Profit, as A.I. Business Grows**\
 `Elon Musk’s rocket company said its artificial intelligence spending had soared, but revenue more than doubled from its Starlink internet satellite service and A.I. products.`\
 https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
