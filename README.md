@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/19/us/politics/unc-trump-deal.html
 `Barbara Palvin’s return to the runway so soon after giving birth set off a debate online about motherhood in America.`\
 https://www.nytimes.com/2026/10/19/style/barbara-palvin-victorias-secret-postpartum.html
 
-**High Costs of Living Sparks Protests Across Italy**\
+**High Costs of Living Spark Protests Across Italy**\
 `Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
 https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
 
