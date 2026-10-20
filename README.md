@@ -1,3 +1,7 @@
+**Trump Tariffs on Canada Spark Latest Lawsuit Over Trade Powers**\
+`Once again, the president’s ability to wage a trade war without Congress will come before a court that has repeatedly ruled against him.`\
+https://www.nytimes.com/2026/10/20/business/trump-tariffs-canada-lawsuit.html
+
 **College Football Superlatives**\
 `We look at how the teams are stacking up midseason.`\
 https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/business/knicks-tickets.html
 **What Makes Men in Groups Behave So Badly?**\
 `Why do men in groups behave this way?`\
 https://www.nytimes.com/2026/10/20/opinion/cornell-chi-phi-group-chat-bro-code.html
-
-**Iran, Taunting Trump Over Gas Prices, Braces for Aftermath of Midterm Elections**\
-`The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
-https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
 
