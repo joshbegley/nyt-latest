@@ -1,3 +1,11 @@
+**‘Back at Square One’: Christina Applegate Says Her M.S. Was Misdiagnosed**\
+`The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
+https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
+
+**Stop Appeasing Russia**\
+`The stakes in Ukraine are much larger than the fate of one nation.`\
+https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
+
 **Overlapping Plagues Are Killing American Forests**\
 `Threats hiding in plain sight could upend forests far and wide.`\
 https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
