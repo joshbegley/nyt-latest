@@ -1,3 +1,7 @@
+**Book Review: ‘I Can’t Stop Thinking About Horses and Sex,’ by Lisa Hanawalt**\
+`The “Bojack Horseman” designer Lisa Hanawalt bridles at glib therapists and is hot to trot for Mister Rogers in her new graphic memoir.`\
+https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinking-about-horses-and-sex.html
+
 **London Exhibition Displays Children’s Selfies as Art**\
 `An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
 https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-g
 **NYT Spelling Bee Answers for October 20, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
-
-**Amish Families Pushed to Undo a Vaccine Law. Then Measles Arrived.**\
-`New York State eliminated religious exemptions for school immunizations, but some groups have been fighting that in court.`\
-https://www.nytimes.com/2026/10/20/nyregion/measles-amish-school-vaccine-requirement.html
 
 **Can Real Estate Out-Organize Tenants in New York? This Group Will Try.**\
 `A new organization, Built for New York, plans to raise money to mobilize voters in the real estate industry, which has endured several political losses in recent years.`\
