@@ -1,3 +1,11 @@
+**Nikole Hannah-Jones on Writing About Her Daughter**\
+`Nikole Hannah-Jones discusses her approach to writing her recent essay with Patrick Healy, an assistant managing editor at The New York Times.`\
+https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-writing-about-her-daughter.html
+
+**Trump’s Betrayal of Ukraine**\
+`The stakes in Ukraine are much larger than the fate of one nation.`\
+https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
+
 **Trump Says He Asked Putin to Release an American Jailed in Russia**\
 `The president called for the return of Stephen James Hubbard, a Michigan teacher seized from his home in Ukraine months after Russia invaded that country.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html

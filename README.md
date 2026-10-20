@@ -1,3 +1,15 @@
+**Art Basel Paris Preview Draws Interest Despite Protests**\
+`The Avant-Première preview of the Art Basel Paris fair attracted major collectors despite an escalation of anti-government protests, riots and looting across French cities.`\
+https://www.nytimes.com/2026/10/20/arts/art-basel-paris-france-protests.html
+
+**Trump Invokes Antisemitic Slur at Rally Again**\
+`President Trump alluded to the antisemitic term “Shylock” at a rally in Kansas on Monday. The word is associated with a centuries-old antisemitic trope of a moneylender. Mr. Trump said “Shylock” at a rally last year and said that he didn’t know it was an antisemitic slur.`\
+https://www.nytimes.com/video/us/politics/100000011225025/donald-trump-midterms-rally-slur-antisemitic.html
+
+**Nigeria Announces First Case of Ebola in Current Outbreak**\
+`Health officials praised the Nigerian authorities for their transparency in reporting the spread of the virus.`\
+https://www.nytimes.com/2026/10/20/world/africa/nigeria-ebola-outbreak.html
+
 **Nikole Hannah-Jones on Writing About Her Daughter**\
 `Nikole Hannah-Jones discusses her approach to writing her recent essay with Patrick Healy, an assistant managing editor at The New York Times.`\
 https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-writing-about-her-daughter.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/20/opinion/trump-campaign-promises-affordability
 **The History We Lost When Trump Tore Down the East Wing**\
 `Mr. Trump appears to wish to be both president and first lady.`\
 https://www.nytimes.com/2026/10/20/opinion/contributors/trump-east-wing-white-house.html
-
-**An Inspired Broccoli Dish**\
-`This roasted broccoli with white beans and crispy pistachio crumbs is an easy take on a restaurant dish I couldn’t stop thinking about.`\
-https://www.nytimes.com/2026/10/20/dining/an-inspired-broccoli-dish.html
-
-**Why You Should Care About Iowa’s Race for Governor**\
-`Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
-https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
-
-**Alberta Separatists Say Movement Will Continue After Referendum Loss**\
-`Supporters of the campaign to separate Alberta, an oil-rich province, from the rest of the Canada said their movement would continue after voters rejected the proposal to hold a second referendum.`\
-https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain-referendum.html
 

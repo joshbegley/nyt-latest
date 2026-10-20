@@ -1,3 +1,7 @@
+**Nikole Hannah-Jones on Writing About Her Daughter**\
+`Nikole Hannah-Jones discusses her approach to writing her recent essay with Patrick Healy, an assistant managing editor at The New York Times.`\
+https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-writing-about-her-daughter.html
+
 **Trump Says He Asked Putin to Release an American Jailed in Russia**\
 `The president called for the return of Stephen James Hubbard, a Michigan teacher seized from his home in Ukraine months after Russia invaded that country.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 `The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
-**Stop Appeasing Russia**\
+**Trump’s Betrayal of Ukraine**\
 `The stakes in Ukraine are much larger than the fate of one nation.`\
 https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-
 **Alberta Separatists Say Movement Will Continue After Referendum Loss**\
 `Supporters of the campaign to separate Alberta, an oil-rich province, from the rest of the Canada said their movement would continue after voters rejected the proposal to hold a second referendum.`\
 https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain-referendum.html
-
-**A ‘Doom Loop’ Threatens France as Populism Confronts Markets**\
-`The turmoil shows the profound challenges facing governments stuck between unhappy citizens and wary bond investors.`\
-https://www.nytimes.com/2026/10/20/business/france-protests-bond-markets.html
 
