@@ -1,3 +1,15 @@
+**UK to Send Fighter Jets to Help Defend Saudi Arabia From Houthi Attacks**\
+`R.A.F. Typhoon fighter jets will be deployed to protect infrastructure in Saudi Arabia, Britain said, after a spike in attacks by the Iran-backed Houthi militia.`\
+https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html
+
+**Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
+`The secretary of state will meet with Asia’s richest men as  Washington continues negotiations over a trade deal with India.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
+**France to Extend Curfews After Calm Night Follows Days of Riots**\
+`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
+
 **Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
 `The secretary of state will meet with Asia’s richest men as  Washington continues negotiations over a trade deal with India.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
