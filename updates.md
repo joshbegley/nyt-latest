@@ -1,3 +1,11 @@
+**Jane Doe says she did not feel supported by Cornell’s president.**\
+`The former student wrote in a letter to faculty leaders that her experience “diminished her confidence” in the administration’s ability to take her allegations seriously.`\
+https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.html
+
+**Rubio Travels to India to Strengthen Economic Ties Amid Strained U.S. Relations**\
+`The secretary of state will meet with Asia’s richest men in Mumbai as Washington continues negotiations over a trade deal with India.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
 **Cornell’s Jane Doe Sent Letter to Faculty Senate Ahead of Vote**\
 `In a letter, the former student said she felt “unsupported” after hearing about an exchange between the school president and her sorority sister. Officials disputed her account of the conversation.`\
 https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.html
