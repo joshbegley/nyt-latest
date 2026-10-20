@@ -1,3 +1,27 @@
+**James Talarico on His Plan to Turn Texas Blue**\
+`Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
+https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
+
+**James Talarico Weighs In On Impeaching Trump**\
+`James Talarico joined Michael Barbaro on “The Daily” to talk about why he thinks he can become the first Democrat in Texas to be elected to the Senate in 40 years. If he and his party successfully flip the chamber, would he consider impeaching President Trump or members of his cabinet?`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011223913/james-talarico-weighs-in-on-impeaching-trump.html
+
+**NYT Connections Answers for Oct. 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/connections-companion-1228.html
+
+**The Fight to Tax Billionaires, and Why NDAs Are Everywhere Now**\
+`Plus, a contentious character is back on “The Simpsons.”`\
+https://www.nytimes.com/2026/10/20/podcasts/the-headlines/tax-billionaires-ndas.html
+
+**NYT Strands Hints for October 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
+
+**Today’s Wordle Hints for October 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
+
 **France to Extend Curfews After a Night of Calm, Prime Minister Says**\
 `The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the unrest face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/20/nyregion/real-estate-nyc-politics-housing-pol
 **14 Dead After Gold Mine Collapses in Colombia**\
 `The mine is among a growing number of small-scale, unlicensed operations in Colombia that are fueled by the metal’s rising global price.`\
 https://www.nytimes.com/2026/10/20/world/americas/colombia-gold-mine-collapse.html
-
-**Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
-`“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
-https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
-
-**Attack on Australian Lawmaker Prompts Calls to Dial Down Political Tensions**\
-`Helen Haines, an independent, remained in critical condition after she was rammed by a vehicle. The country has reacted with shock and confusion.`\
-https://www.nytimes.com/2026/10/20/world/asia/helen-haines-mp-attacked-wangaratta-australia.html
-
-**Indian Democracy Has Found New Life in the Streets**\
-`A controversial overhaul of voter rolls threatens Modi’s standing and has breathed new life into India’s battered democracy.`\
-https://www.nytimes.com/2026/10/20/opinion/india-voters-protests.html
-
-**The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England**\
-`Plans to build one of Europe’s largest data centers in Devon have been met by strong opposition from residents, as environmental concerns grow.`\
-https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html
-
-**Quote of the Day: Trump Officials Had Fed Fears of Carnage of Bomb in Space**\
-`Quotation of the Day for Tuesday, October 20, 2026.`\
-https://www.nytimes.com/2026/10/20/pageoneplus/quote-of-the-day-trump-officials-had-fed-fears-of-carnage-of-bomb-in-space.html
-
-**On This Day, Oct. 20: In 1973, Nixon ordered Watergate prosecutor Archibald Cox fired.**\
-`In 1973, during the “Saturday Night Massacre,” President Richard Nixon ordered the firing of Archibald Cox, the special prosecutor in the Watergate scandal. The order set off a series of actions that helped lead to Nixon’s resignation less than a year later.`\
-https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
 
