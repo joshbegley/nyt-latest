@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 20, 2026**\
+`David Falkowski makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
+
 **Neil Armstrong’s Boyhood Home Is Sold to a Historical Society After a $400,000 Gift**\
 `A retired pilot helped an Ohio historical society become the new owner of the Wapakoneta home where the first man on the moon spent his high school days.`\
 https://www.nytimes.com/2026/10/19/us/neil-armstrong-childhood-home-ohio.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
 **Cindy Crawford and Kaia Gerber Honor Presley Gerber in Statements**\
 `About a month after the death of the 27-year-old model, his family posted wrenching tributes to him.`\
 https://www.nytimes.com/2026/10/19/style/cindy-crawford-kaia-gerber-presley-gerber.html
-
-**The French Fantasy Is Coming to an End**\
-`With Saturday’s enormous, and enormously destructive, protests, the dream of Paris as a place of escape may be nearing an end.`\
-https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
 
