@@ -1,5 +1,9 @@
 **178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
 `In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
+https://www.nytimes.com/2026/10/20/france-senate-code-noir-slavery.html
+
+**178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
+`In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
 https://www.nytimes.com/2026/10/20/178-years-after-banning-slavery-france-scraps-code-noir-rules-that-governed-it.html
 
 **How Venezuela’s Public Housing Towers Were Built to Fail**\
