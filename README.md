@@ -1,3 +1,7 @@
+**A Storm Will Bring Rain to California This Week**\
+`The heaviest rain was expected in Southern California through Thursday.`\
+https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html
+
 **Michigan Senate Candidates Make Dueling Pitches to Business Leaders in Detroit**\
 `Mike Rogers and Dr. Abdul El-Sayed, the candidates in the tight race, defended their economic policies at the Detroit Economic Club.`\
 https://www.nytimes.com/2026/10/20/us/michigan-senate-el-sayed-rogers-economy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estra
 **Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
 `The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
 https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
-
-**Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
-`President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
-https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
 

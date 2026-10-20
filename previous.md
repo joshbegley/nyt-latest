@@ -1,3 +1,7 @@
+**Michigan Senate Candidates Make Dueling Pitches to Business Leaders in Detroit**\
+`Mike Rogers and Dr. Abdul El-Sayed, the candidates in the tight race, defended their economic policies at the Detroit Economic Club.`\
+https://www.nytimes.com/2026/10/20/us/michigan-senate-el-sayed-rogers-economy.html
+
 **In Texas’ Senate Race, Paxton and Talarico Converge on Key Battleground**\
 `In Tarrant County, a fight over polling places has energized Democrats as Republicans seek to defend their grip on a longtime stronghold.`\
 https://www.nytimes.com/2026/10/20/us/paxton-talarico-fort-worth-tarrant-county-texas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
 **Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
 `President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
 https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
-
-**Trump Tariffs on Canada Spark Latest Lawsuit Over Trade Powers**\
-`Once again, the president’s ability to wage a trade war without Congress will come before a court that has repeatedly ruled against him.`\
-https://www.nytimes.com/2026/10/20/business/trump-tariffs-canada-lawsuit.html
 
