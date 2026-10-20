@@ -1,3 +1,7 @@
+**The Little Styling Trick You’ll Now Notice Everywhere**\
+`Call it the T-skirt.`\
+https://www.nytimes.com/2026/10/20/style/the-fashions-styling-t-skirt.html
+
 **Heading to France? Amid Recent Unrest, Here’s What to Know**\
 `Rioting over affordability and public education has swept through Paris and other French cities, and there may be more to come.`\
 https://www.nytimes.com/2026/10/20/travel/france-travel-riots.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-ex
 **The NBA Superstar Turned Late-Night Host**\
 `Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
 https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html
-
-**Trump Announces $8 Billion Plan to Cover Farm Losses**\
-`Under the Harvest Fuel Relief program, the Agriculture Department will provide economic aid for farmers hurt by high diesel prices.`\
-https://www.nytimes.com/2026/10/20/business/trump-farmer-bailout.html
 
