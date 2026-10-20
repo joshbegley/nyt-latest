@@ -1,3 +1,11 @@
+**Street Style Look of the Week: Dress the Diaspora**\
+`A woman who is committed to elevating designers from across the African diaspora walked the walk when she stepped out in London on a recent Friday.`\
+https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-designers.html
+
+**Google Reports Cloud Disruptions in Europe**\
+`The disruptions began around 7 a.m. in London after what the tech giant called a “power event.”`\
+https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
+
 **What It Took for Nikole Hannah-Jones to Write About Her Daughter’s Distress**\
 `The Times journalist reflects on her two deeply personal essays about her child and New York City public schools and how she grappled with readers’ responses.`\
 https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-to-write-about-her-daughters-distress.html
