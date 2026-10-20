@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-t
 `James Talarico joined Michael Barbaro on “The Daily” to talk about why he thinks he can become the first Democrat in Texas to be elected to the Senate in 40 years. If he and his party successfully flip the chamber, would he consider impeaching President Trump or members of his cabinet?`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011223913/james-talarico-weighs-in-on-impeaching-trump.html
 
-**NYT Connections Answers for Oct. 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
-https://www.nytimes.com/2026/10/20/crosswords/connections-companion-1228.html
-
 **The Fight to Tax Billionaires, and Why NDAs Are Everywhere Now**\
 `Plus, a contentious character is back on “The Simpsons.”`\
 https://www.nytimes.com/2026/10/20/podcasts/the-headlines/tax-billionaires-ndas.html
+
+**NYT Connections Answers for Oct. 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/20/crosswords/connections-companion-1228.html
 
 **NYT Strands Hints for October 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
