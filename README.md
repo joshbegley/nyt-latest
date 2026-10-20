@@ -1,3 +1,7 @@
+**14 Dead After Gold Mine Collapses in Colombia**\
+`The mine is among a growing number of small-scale, unlicensed operations in Colombia that are fueled by the metal’s rising global price.`\
+https://www.nytimes.com/2026/10/20/world/americas/colombia-gold-mine-collapse.html
+
 **Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
 `“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-w
 **The Grody-Patinkin Family Is a Mess. People Love It.**\
 `Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
 https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
-
-**Robert Reich Thinks the Baby Boomers Blew It**\
-`Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
-https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
 
