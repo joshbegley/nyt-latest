@@ -1,3 +1,7 @@
+**Why You Should Care About Iowa’s Race for Governor**\
+`Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
+https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
+
 **Alberta Separatists Say Movement Will Continue After Referendum Loss**\
 `Supporters of the campaign to separate Alberta, an oil-rich province, from the rest of the Canada said their movement would continue after voters rejected the proposal to hold a second referendum.`\
 https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain-referendum.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/arts/music/beach-boys-mike-love-future.html
 **What’s the Creepiest Place You’ve Been?**\
 `Whether in fiction, movies or real life, we want to know about the locations that have given you a fright.`\
 https://www.nytimes.com/2026/10/20/learning/whats-the-creepiest-place-youve-been.html
-
-**Mamdani’s Next Target: The Increasingly A.I.-Powered, Customer Service Doom Loop**\
-`An effort to fix a hotel bill illustrates why New York City is now trying to crack down on A.I. chatbot-powered customer service.`\
-https://www.nytimes.com/2026/10/20/opinion/mamdani-ai-rule-customer-service-doom-loop.html
 
