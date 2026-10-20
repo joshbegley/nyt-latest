@@ -1,3 +1,7 @@
+**London Exhibition Displays Children’s Selfies as Art**\
+`An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
+https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
+
 **James Talarico on His Plan to Turn Texas Blue**\
 `Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
 https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
