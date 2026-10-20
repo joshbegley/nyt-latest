@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 20, 2026**\
+`David Falkowski makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
+
 **High Costs of Living Spark Protests Across Italy**\
 `Protests in northern Italian cities like Milan devolved into riots over the weekend. Meanwhile, in the south, farmers and truckers have blocked traffic over rising fuel prices.`\
 https://www.nytimes.com/video/world/europe/100000011222628/italy-protests.html
