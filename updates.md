@@ -1,3 +1,35 @@
+**Why You Should Care About Iowa’s Race for Governor**\
+`Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
+https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
+
+**Alberta Separatists Say Movement Will Continue After Referendum Loss**\
+`Supporters of the campaign to separate Alberta, an oil-rich province, from the rest of the Canada said their movement would continue after voters rejected the proposal to hold a second referendum.`\
+https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain-referendum.html
+
+**A ‘Doom Loop’ Threatens France as Populism Confronts Markets**\
+`The turmoil shows the profound challenges facing governments stuck between unhappy citizens and wary bond investors.`\
+https://www.nytimes.com/2026/10/20/business/france-protests-bond-markets.html
+
+**Spicy Citrus Skirt Steak**\
+`In this recipe, the grilled steak rests in a tart sauce of tangerine, soy sauce, ginger and vinegar that is reminiscent of ponzu, with hints of citrusy bitterness similar to the dried tangerine peel used in Sichuan and Hunan cooking.`\
+https://www.nytimes.com/video/dining/100000011223057/spicy-citrus-skirt-steak.html
+
+**Egg Katsu**\
+`This exciting take on a fried egg features the mesmerizing sound of bubbling oil, the satisfying crunch of golden-brown panko and the seductive reveal of an oozing yolk.`\
+https://www.nytimes.com/video/dining/100000011223046/egg-katsu.html
+
+**Chicken and Pesto Rice With Peas**\
+`Pesto is the hero of this simple chicken and rice dish, infusing it with easy herby flavor.`\
+https://www.nytimes.com/video/dining/100000011223012/chicken-and-pesto-rice-with-peas.html
+
+**Mushroom Bourguignon**\
+`Meaty mushrooms simmered with pearl onions, wine and carrots make for a rich, cozy Bourguignon-style stew.`\
+https://www.nytimes.com/video/dining/100000011222968/mushroom-bourguignon.html
+
+**Earl Grey Tea Cake With Dark Chocolate and Orange Zest**\
+`Loose Earl Grey tea stirred into buttery cake batter adds a sweet, floral essence that’s subtle but lovely, and a little dark chocolate and orange zest makes this cake extra special.`\
+https://www.nytimes.com/video/dining/100000011222966/earl-grey-tea-cake-with-dark-chocolate-and-orange-zest.html
+
 **Jane Doe says she did not feel supported by Cornell’s president.**\
 `The former student wrote in a letter to faculty leaders that her experience “diminished her confidence” in the administration’s ability to take her allegations seriously.`\
 https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.html

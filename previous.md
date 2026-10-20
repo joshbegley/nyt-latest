@@ -1,3 +1,35 @@
+**Why You Should Care About Iowa’s Race for Governor**\
+`Rob Sand is young and reform-oriented, and he might be the next governor of Iowa. The Opinion contributor Ben Rhodes argues that the Democratic gubernatorial candidate for the state is running a playbook that could be the answer the party needs.`\
+https://www.nytimes.com/video/opinion/100000011187603/why-you-should-care-about-iowas-race-for-governor.html
+
+**Alberta Separatists Say Movement Will Continue After Referendum Loss**\
+`Supporters of the campaign to separate Alberta, an oil-rich province, from the rest of the Canada said their movement would continue after voters rejected the proposal to hold a second referendum.`\
+https://www.nytimes.com/video/world/canada/100000011224682/alberta-canada-remain-referendum.html
+
+**A ‘Doom Loop’ Threatens France as Populism Confronts Markets**\
+`The turmoil shows the profound challenges facing governments stuck between unhappy citizens and wary bond investors.`\
+https://www.nytimes.com/2026/10/20/business/france-protests-bond-markets.html
+
+**Spicy Citrus Skirt Steak**\
+`In this recipe, the grilled steak rests in a tart sauce of tangerine, soy sauce, ginger and vinegar that is reminiscent of ponzu, with hints of citrusy bitterness similar to the dried tangerine peel used in Sichuan and Hunan cooking.`\
+https://www.nytimes.com/video/dining/100000011223057/spicy-citrus-skirt-steak.html
+
+**Egg Katsu**\
+`This exciting take on a fried egg features the mesmerizing sound of bubbling oil, the satisfying crunch of golden-brown panko and the seductive reveal of an oozing yolk.`\
+https://www.nytimes.com/video/dining/100000011223046/egg-katsu.html
+
+**Chicken and Pesto Rice With Peas**\
+`Pesto is the hero of this simple chicken and rice dish, infusing it with easy herby flavor.`\
+https://www.nytimes.com/video/dining/100000011223012/chicken-and-pesto-rice-with-peas.html
+
+**Mushroom Bourguignon**\
+`Meaty mushrooms simmered with pearl onions, wine and carrots make for a rich, cozy Bourguignon-style stew.`\
+https://www.nytimes.com/video/dining/100000011222968/mushroom-bourguignon.html
+
+**Earl Grey Tea Cake With Dark Chocolate and Orange Zest**\
+`Loose Earl Grey tea stirred into buttery cake batter adds a sweet, floral essence that’s subtle but lovely, and a little dark chocolate and orange zest makes this cake extra special.`\
+https://www.nytimes.com/video/dining/100000011222966/earl-grey-tea-cake-with-dark-chocolate-and-orange-zest.html
+
 **Jane Doe says she did not feel supported by Cornell’s president.**\
 `The former student wrote in a letter to faculty leaders that her experience “diminished her confidence” in the administration’s ability to take her allegations seriously.`\
 https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.html
@@ -161,40 +193,4 @@ https://www.nytimes.com/2026/10/20/arts/music/beach-boys-mike-love-future.html
 **What’s the Creepiest Place You’ve Been?**\
 `Whether in fiction, movies or real life, we want to know about the locations that have given you a fright.`\
 https://www.nytimes.com/2026/10/20/learning/whats-the-creepiest-place-youve-been.html
-
-**Mamdani’s Next Target: The Increasingly A.I.-Powered, Customer Service Doom Loop**\
-`An effort to fix a hotel bill illustrates why New York City is now trying to crack down on A.I. chatbot-powered customer service.`\
-https://www.nytimes.com/2026/10/20/opinion/mamdani-ai-rule-customer-service-doom-loop.html
-
-**How Dolly Parton’s Death Set Off a Legal Feud Surrounding Her Nephew**\
-`In life, the country music star worked hard to avoid the type of public controversy that erupted in her inner circle soon after her passing.`\
-https://www.nytimes.com/2026/10/20/arts/music/dolly-parton-estate-family-lawsuit.html
-
-**The Mayor of a City in Haiti Warned of a Massacre. No One Listened.**\
-`The mayor of Kenscoff, a town near Haiti’s capital, wrote government officials hundreds of letters to warn of gang threats. Then dozens of people died, and he did, too.`\
-https://www.nytimes.com/2026/10/20/world/americas/mayor-kenscoff-haiti-gangs-massacre.html
-
-**When Did Man-On-the-Street Videos Become Gentrified?**\
-`Pedestrian interviews are meant to capture pedestrian wisdom. Now, many tend to stage the secret knowledge of the elite.`\
-https://www.nytimes.com/2026/10/20/magazine/billionaire-millionaire-interviews.html
-
-**Houdini Died on Halloween 100 Years Ago. Some Still Question How.**\
-`A urologist’s inquiry into the magician’s final days is the latest effort to grapple with outstanding questions about his demise.`\
-https://www.nytimes.com/2026/10/20/arts/houdini-death-mystery.html
-
-**Book Review: ‘Needlemouth,’ by K-Ming Chang**\
-`K-Ming Chang’s “Needlemouth” blends body horror with feminist allegory in the story of three cousins grappling with their inherited trauma.`\
-https://www.nytimes.com/2026/10/20/books/review/k-ming-chang-needlemouth.html
-
-**How Do Airports Prepare for a Plane Crash? Go Inside JFK’s Disaster Drill.**\
-`U.S. airports are required to hold a full-scale disaster drill every three years. Go inside a simulated plane crash at Kennedy Airport last weekend.`\
-https://www.nytimes.com/2026/10/20/travel/jfk-airport-drill-plane-crash.html
-
-**A.I. Fortunes Could Bring Critical Funds to Global Health. The Scramble Is On.**\
-`Expected windfalls from I.P.O.s are drawing health leaders into a race for billions in new philanthropic dollars. A fragile aid system may be upended.`\
-https://www.nytimes.com/2026/10/20/us/politics/ai-fortunes-could-bring-critical-funds-to-global-health-the-scramble-is-on.html
-
-**A Colorado Town Was Beset by Traffic. Its Fix Led to a Border Battle.**\
-`Bow Mar says restricting access to its public streets is a safety necessity. Critics see a miniature border wall.`\
-https://www.nytimes.com/2026/10/20/us/bow-mar-colorado-suburb-gated-town.html
 
