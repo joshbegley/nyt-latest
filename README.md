@@ -1,3 +1,11 @@
+**Richard Riehle, Prolific Actor Who Appeared in ‘Office Space,’ Dies at 78**\
+`Mr. Riehle, best remembered for playing an anxious character with “people skills,” built a career in theater, TV and film that lasted more than half a century.`\
+https://www.nytimes.com/2026/10/20/us/richard-riehle-dead-office-space.html
+
+**Trump Envoy Meets With Zelensky Amid Deepening Rift Over Russia**\
+`President Trump’s special envoy, Steve Witkoff, met with President Volodymyr Zelensky of Ukraine amid a deepening rift between Ukraine’s leader and Mr. Trump over the latter’s push for deals with Russia.`\
+https://www.nytimes.com/video/world/europe/100000011224627/trump-witkoff-zelensky-meeting-ukraine.html
+
 **The Bedeviling Work of Designing and Redesigning Haunted Houses**\
 `If you’re looking for the ultimate home renovation project, try opening a haunted house.`\
 https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-building.html
@@ -171,7 +179,7 @@ https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
 https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
 
 **France to Extend Curfews After Calm Night Follows Days of Riots**\
-`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
+`The targeted restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
 
 **The NBA Superstar Turned Late-Night Host**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/20/business/trump-farmer-bailout.html
 **Trumpism Is Backfiring**\
 `Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
 https://www.nytimes.com/2026/10/20/opinion/ezra-klein-podcast-chrystia-freeland.html
-
-**Face Sunscreen for Every Season**\
-`What to look for and how to find one that feels good on your skin.`\
-https://www.nytimes.com/2026/10/20/podcasts/face-sunscreen-for-every-season.html
-
-**France Comes Unglued, Again**\
-`A model for progressive policies has become a model for their flaws.`\
-https://www.nytimes.com/2026/10/20/opinion/france-american-liberals-riots.html
 
