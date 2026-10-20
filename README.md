@@ -1,3 +1,7 @@
+**France’s Student Protests Have a New Slogan**\
+`Student protesters in France are rallying around a new slogan: “Bismillah, c’est les ténèbres.” The phrase is a mash-up of “in the name of God” and “it’s the darkness.”`\
+https://www.nytimes.com/video/world/europe/100000011224321/france-student-protests-bismillah.html
+
 **The Little Styling Trick You’ll Now Notice Everywhere**\
 `Call it the T-skirt.`\
 https://www.nytimes.com/2026/10/20/style/the-fashions-styling-t-skirt.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
 **France to Extend Curfews After Calm Night Follows Days of Riots**\
 `The targeted restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
-
-**The NBA Superstar Turned Late-Night Host**\
-`Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
-https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html
 

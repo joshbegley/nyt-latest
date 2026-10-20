@@ -1,3 +1,11 @@
+**The Little Styling Trick You’ll Now Notice Everywhere**\
+`Call it the T-skirt.`\
+https://www.nytimes.com/2026/10/20/style/the-fashions-styling-t-skirt.html
+
+**Heading to France? Amid Recent Unrest, Here’s What to Know**\
+`Rioting over affordability and public education has swept through Paris and other French cities, and there may be more to come.`\
+https://www.nytimes.com/2026/10/20/travel/france-travel-riots.html
+
 **Richard Riehle, Prolific Actor Who Appeared in ‘Office Space,’ Dies at 78**\
 `Mr. Riehle, best remembered for playing an anxious character with “people skills,” built a career in theater, TV and film that lasted more than half a century.`\
 https://www.nytimes.com/2026/10/20/us/richard-riehle-dead-office-space.html
