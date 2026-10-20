@@ -1,3 +1,7 @@
+**Student Protesters in France Have a Strange New Slogan. What Does It Mean?**\
+`“Bismillah, c’est les ténèbres” has appeared on signs at recent demonstrations. It doesn’t make much sense (it means, “In the name of God, it’s the darkness”) but is seen as shorthand for a generational divide.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-student-protests-slogan.html
+
 **Straker’s Is the Latest NYC Dining Room With an English Accent**\
 `Sofra brings Egyptian cuisine to Bay Ridge, Anderson Café & Restaurant adds more bistro fare and more restaurant news.`\
 https://www.nytimes.com/2026/10/20/dining/nyc-restaurant-news.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-t
 **James Talarico Weighs In On Impeaching Trump**\
 `James Talarico joined Michael Barbaro on “The Daily” to talk about why he thinks he can become the first Democrat in Texas to be elected to the Senate in 40 years. If he and his party successfully flip the chamber, would he consider impeaching President Trump or members of his cabinet?`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011223913/james-talarico-weighs-in-on-impeaching-trump.html
-
-**The Fight to Tax Billionaires, and Why NDAs Are Everywhere Now**\
-`Plus, a contentious character is back on “The Simpsons.”`\
-https://www.nytimes.com/2026/10/20/podcasts/the-headlines/tax-billionaires-ndas.html
 
