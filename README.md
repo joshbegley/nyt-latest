@@ -1,3 +1,7 @@
+**N.B.A. Tunnel Walk: LeBron James, Jalen Brunson, Karl-Anthony Towns and More**\
+`Playing for a new team, he sent a message that he was taking this season seriously.`\
+https://www.nytimes.com/2026/10/20/style/lebron-james-jalen-brunson-tunnel-walk-76ers-knicks.html
+
 **As Alberta Rejects Canada Separatism, Carney Gets Much of the Credit**\
 `Prime Minister Mark Carney won over Canada’s most conservative province by promising a pipeline and campaigning hard, defeating its efforts to secede.`\
 https://www.nytimes.com/2026/10/20/world/canada/carney-alberta-referendum-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/opinion/cornell-fraternities-college.html
 **Trump’s D.C. Golf Course Renovation Plan Has Many Residents Feeling Discouraged**\
 `At East Potomac Park, several residents bemoaned a plan to revamp the federal property that might wipe out features they have cherished for years.`\
 https://www.nytimes.com/2026/10/20/us/trump-dc-golf-course-renovation-residents.html
-
-**Dua Lipa Among Famous Faces at Met Opera’s ‘Lincoln in the Bardo’ Premiere**\
-`A crowd that included Amy Poehler, Bowen Yang and George Saunders packed the Met for the world premiere of “Lincoln in the Bardo.”`\
-https://www.nytimes.com/2026/10/20/style/met-opera-lincoln-bardo-premiere.html
 
