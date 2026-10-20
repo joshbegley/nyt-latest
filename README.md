@@ -1,3 +1,11 @@
+**Overlapping Plagues Are Killing American Forests**\
+`Threats hiding in plain sight could upend forests far and wide.`\
+https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
+
+**If Democrats Win Congress, Could the G.O.P. Refuse to Seat Them?**\
+`A changing of the congressional guard in January could leave room for meddling, though most legal scholars doubt it would happen.`\
+https://www.nytimes.com/2026/10/20/us/politics/democrats-republicans-congress-midterm-elections.html
+
 **Man Who Took Flamingo From Las Vegas Hotel Is Found Guilty of Cruelty**\
 `The man, visiting from Canada, carried a flamingo named Peachy from its habitat to his hotel room. He was convicted of felony and misdemeanor charges.`\
 https://www.nytimes.com/2026/10/20/us/stolen-flamingo-las-vegas-hotel-animal-cruelty.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 **J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
-
-**Rubio Travels to India to Strengthen Economic Ties Amid Strained U.S. Relations**\
-`The secretary of state will meet with Asia’s richest men in Mumbai as Washington continues negotiations over a trade deal with India.`\
-https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
-
-**Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
-`Ahead of SpaceX’s quarterly earnings report, many on Wall Street are wondering whether Elon Musk will combine it with Tesla.`\
-https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
 
