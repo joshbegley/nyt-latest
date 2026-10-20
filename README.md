@@ -1,3 +1,7 @@
+**As Alberta Rejects Canada Separatism, Carney Gets Much of the Credit**\
+`Prime Minister Mark Carney won over Canada’s most conservative province by promising a pipeline and campaigning hard, defeating its efforts to secede.`\
+https://www.nytimes.com/2026/10/20/world/canada/carney-alberta-referendum-trump.html
+
 **ICE Says It Didn’t Hit a Biker With a Car. Video Raises Questions.**\
 `Video footage shows the moment in Long Beach, Calif., when a vehicle swerves toward an oncoming cyclist. The mayor has called for an investigation into ICE agents’ treatment of the rider.`\
 https://www.nytimes.com/2026/10/20/us/ice-detain-citizen-california-video-ricardo-gonzalez.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/trump-dc-golf-course-renovation-residents.
 **Dua Lipa Among Famous Faces at Met Opera’s ‘Lincoln in the Bardo’ Premiere**\
 `A crowd that included Amy Poehler, Bowen Yang and George Saunders packed the Met for the world premiere of “Lincoln in the Bardo.”`\
 https://www.nytimes.com/2026/10/20/style/met-opera-lincoln-bardo-premiere.html
-
-**France’s Student Protests Have a New Slogan**\
-`Student protesters in France are rallying around a new slogan: “Bismillah, c’est les ténèbres.” The phrase is a mash-up of “in the name of God” and “it’s the darkness.”`\
-https://www.nytimes.com/video/world/europe/100000011224321/france-student-protests-bismillah.html
 
