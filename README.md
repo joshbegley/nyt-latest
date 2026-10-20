@@ -1,3 +1,7 @@
+**Mailers About Transgender Students Mysteriously Appear at Texas Homes**\
+`The messages purporting to offer help for transgender students are tied to a group set up last month in Wyoming.`\
+https://www.nytimes.com/2026/10/20/us/transgender-mailers-texas.html
+
 **She Braved Sharks and Storms to Swim the Length of California**\
 `“It feels surreal being done, this has been my entire life for nearly four months,” said Catherine Breed, who finished her historic journey near the Mexico border on Monday.`\
 https://www.nytimes.com/2026/10/20/us/catherine-breed-first-swim-california-length.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/business/trump-tariffs-canada-lawsuit.html
 **College Football Superlatives**\
 `We look at how the teams are stacking up midseason.`\
 https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
-
-**Trump Can No Longer Mask His Real Agenda**\
-`The president has forgotten the “forgotten men and women of this country.”`\
-https://www.nytimes.com/2026/10/20/opinion/trump-campaign-promises-affordability.html
 
