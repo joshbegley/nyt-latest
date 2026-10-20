@@ -1,3 +1,7 @@
+**UK to Send Fighter Jets to Help Defend Saudi Arabia From Houthi Attacks**\
+`R.A.F. Typhoon fighter jets will be deployed to protect infrastructure in Saudi Arabia, Britain said, after a spike in attacks by the Iran-backed Houthi militia.`\
+https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html
+
 **Start-Up Claims to Treat a Patient With A.I.-Created Viruses**\
 `Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
 https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
 
-**Rubio Visits India to Boost Economic Ties Amid New Delhi’s Friction With Trump**\
+**Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
 `The secretary of state will meet with Asia’s richest men as  Washington continues negotiations over a trade deal with India.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
 
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
 https://www.nytimes.com/2026/10/20/crosswords/wordle-review-1950.html
 
-**France to Extend Curfews After a Night of Calm, Prime Minister Says**\
+**France to Extend Curfews After Calm Night Follows Days of Riots**\
 `The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/realestate/flood-protection-efforts-delaware.
 **What Could Swing Israel’s Election? Thousands Living in the U.S.**\
 `Thousands of Israelis living in the United States are expected to fly to Israel to vote in the country’s national election this month.`\
 https://www.nytimes.com/2026/10/20/us/israel-election-netanyahu-voters.html
-
-**The Last Photos of Gloria Steinem**\
-`Before her death, the pioneering feminist posed for a fashion shoot. Now those pictures are part of her legacy.`\
-https://www.nytimes.com/2026/10/20/style/the-last-photos-of-gloria-steinem.html
 
