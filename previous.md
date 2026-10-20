@@ -1,3 +1,19 @@
+**NYT Spelling Bee Answers for October 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
+
+**Amish Families Pushed to Undo a Vaccine Law. Then Measles Arrived.**\
+`New York State eliminated religious exemptions for school immunizations, but some groups have been fighting that in court.`\
+https://www.nytimes.com/2026/10/20/nyregion/measles-amish-school-vaccine-requirement.html
+
+**Can Real Estate Out-Organize Tenants in New York? This Group Will Try.**\
+`A new organization, Built for New York, plans to raise money to mobilize voters in the real estate industry, which has endured several political losses in recent years.`\
+https://www.nytimes.com/2026/10/20/nyregion/real-estate-nyc-politics-housing-policies.html
+
+**14 Dead After Gold Mine Collapses in Colombia**\
+`The mine is among a growing number of small-scale, unlicensed operations in Colombia that are fueled by the metal’s rising global price.`\
+https://www.nytimes.com/2026/10/20/world/americas/colombia-gold-mine-collapse.html
+
 **Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
 `“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/19/us/el-sayed-faith-ad.html
 **Italy Faces Parallel Protests in the North and South**\
 `Protests by young people in northern cities ended in riots as farmers and truckers in the south, angered by high gas prices, stopped commercial traffic.`\
 https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html
-
-**The French Teen Maimed During School Unrest by Tear Gas Grenade**\
-`The police’s treatment of the student last month sheds light on how a wave of school unrest evolved into national protests that spilled into widespread riots on Saturday.`\
-https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html
-
-**On the Ground With Haiti’s Gang Suppression Force**\
-`The New York Times reporter Frances Robles calls Natalie Kitroeff from Port-au-Prince Haiti, where she is embedded with the Gang Suppression Force tasked with combating the country’s violent gang warfare. On this episode of “The Call,” she reports on whether the G.S.F. is finding success in its mission and how Haitians feel about what’s needed to end the bloodshed on their streets.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011222842/on-the-ground-with-haitis-gang-suppression-force.html
-
-**The Grody-Patinkin Family Is a Mess. People Love It.**\
-`Kathryn Grody and Mandy Patinkin discuss finding viral success later in life, the ups and downs of marriage, their passionate political activism and being Jewish in this fraught moment.`\
-https://www.nytimes.com/video/podcasts/100000011139748/the-grody-patinkin-family-is-a-mess-people-love-it.html
-
-**Robert Reich Thinks the Baby Boomers Blew It**\
-`Robert Reich reckons with the political failures of his fellow baby boomers, the rise of what he sees as a culture of brutality and bullying and why Democrats have failed to connect with struggling Americans.`\
-https://www.nytimes.com/video/podcasts/100000011139906/robert-reich-thinks-the-baby-boomers-blew-it.html
 

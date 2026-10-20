@@ -1,3 +1,19 @@
+**NYT Spelling Bee Answers for October 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/20/crosswords/spelling-bee-forum.html
+
+**Amish Families Pushed to Undo a Vaccine Law. Then Measles Arrived.**\
+`New York State eliminated religious exemptions for school immunizations, but some groups have been fighting that in court.`\
+https://www.nytimes.com/2026/10/20/nyregion/measles-amish-school-vaccine-requirement.html
+
+**Can Real Estate Out-Organize Tenants in New York? This Group Will Try.**\
+`A new organization, Built for New York, plans to raise money to mobilize voters in the real estate industry, which has endured several political losses in recent years.`\
+https://www.nytimes.com/2026/10/20/nyregion/real-estate-nyc-politics-housing-policies.html
+
+**14 Dead After Gold Mine Collapses in Colombia**\
+`The mine is among a growing number of small-scale, unlicensed operations in Colombia that are fueled by the metal’s rising global price.`\
+https://www.nytimes.com/2026/10/20/world/americas/colombia-gold-mine-collapse.html
+
 **Late Night Sends Off Trump’s Press Secretary After Just Five Days**\
 `“It’s not good when the edible arrangement you got on your first day is still edible on your last day,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/10/20/arts/television/late-night-trump-press-secretary-katie-zacharia.html
