@@ -1,3 +1,11 @@
+**Straker’s Is the Latest NYC Dining Room With an English Accent**\
+`Sofra brings Egyptian cuisine to Bay Ridge, Anderson Café & Restaurant adds more bistro fare and more restaurant news.`\
+https://www.nytimes.com/2026/10/20/dining/nyc-restaurant-news.html
+
+**A Matter of Values, at Cornell and Beyond**\
+`Readers respond to articles about the crisis at Cornell and what it says about our society. Also: Voters vs. oligarchs.`\
+https://www.nytimes.com/2026/10/20/opinion/cornell-fraternities-college.html
+
 **Trump’s D.C. Golf Course Renovation Plan Has Many Residents Feeling Discouraged**\
 `At East Potomac Park, several residents bemoaned a plan to revamp the federal property that might wipe out features they have cherished for years.`\
 https://www.nytimes.com/2026/10/20/us/trump-dc-golf-course-renovation-residents.html
@@ -134,7 +142,7 @@ https://www.nytimes.com/video/insider/100000011195109/nikole-hannah-jones-on-per
 `R.A.F. Typhoon fighter jets will be deployed to protect infrastructure in Saudi Arabia, Britain said, after a spike in attacks by the Iran-backed Houthi militia.`\
 https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html
 
-**Start-Up Claims to Treat a Patient With A.I.-Created Viruses**\
+**Start-Up Claims to Use A.I.-Created Viruses to Treat a Patient**\
 `Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
 https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011223913/james-talarico-
 **The Fight to Tax Billionaires, and Why NDAs Are Everywhere Now**\
 `Plus, a contentious character is back on “The Simpsons.”`\
 https://www.nytimes.com/2026/10/20/podcasts/the-headlines/tax-billionaires-ndas.html
-
-**NYT Connections Answers for Oct. 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
-https://www.nytimes.com/2026/10/20/crosswords/connections-companion-1228.html
-
-**NYT Strands Hints for October 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 21, 2026.`\
-https://www.nytimes.com/2026/10/20/crosswords/strands-sidekick-962.html
 
