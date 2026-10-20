@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/10/20/learning/word-of-the-day-corollary.html
 `Certain prescription and over-the-counter drugs are known to keep people awake. We asked experts for some of the biggest offenders.`\
 https://www.nytimes.com/2026/10/20/well/medications-that-disrupt-sleep.html
 
-**As Private Equity Scales Up Small Restaurants, Customers Push Back**\
-`Deep-pocketed investment groups are giving mom-and-pop food businesses a shot at big success. But many of their regulars are speaking out against those deals.`\
-https://www.nytimes.com/2026/10/20/dining/private-equity-restaurant-deals.html
+**Where Do Autoimmune Diseases Come From?**\
+`Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
+https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
 
