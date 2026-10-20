@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-
 `The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
 https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html
 
-**Republican Women Lean on Working Mom Cred to Stump in Tight Iowa Race**\
+**Republican Women Hail Working-Mom Credentials to Boost Hinson in Iowa Senate Race**\
 `Senator Katie Britt of Alabama was the latest national Republican to visit Iowa to campaign for Representative Ashley Hinson. President Trump will follow on Thursday.`\
 https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race.html
 
