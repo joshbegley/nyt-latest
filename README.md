@@ -1,3 +1,7 @@
+**Trump Announces $8 Billion Plan to Cover Farm Losses**\
+`Under the Harvest Fuel Relief program, the Agriculture Department will provide economic aid for farmers hurt by high diesel prices.`\
+https://www.nytimes.com/2026/10/20/business/trump-farmer-bailout.html
+
 **Why You Can’t Capitulate to Trump**\
 `Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
 https://www.nytimes.com/2026/10/20/opinion/ezra-klein-podcast-chrystia-freeland.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/10/20/arts/music/beach-boys-mike-love-future.html
 `Whether in fiction, movies or real life, we want to know about the locations that have given you a fright.`\
 https://www.nytimes.com/2026/10/20/learning/whats-the-creepiest-place-youve-been.html
 
-**How Dolly Parton’s Death Set Off a Legal Feud Surrounding Her Nephew**\
-`In life, the country music star worked hard to avoid the type of public controversy that erupted in her inner circle soon after her passing.`\
-https://www.nytimes.com/2026/10/20/arts/music/dolly-parton-estate-family-lawsuit.html
-
 **Mamdani’s Next Target: The Increasingly A.I.-Powered, Customer Service Doom Loop**\
 `An effort to fix a hotel bill illustrates why New York City is now trying to crack down on A.I. chatbot-powered customer service.`\
 https://www.nytimes.com/2026/10/20/opinion/mamdani-ai-rule-customer-service-doom-loop.html
+
+**How Dolly Parton’s Death Set Off a Legal Feud Surrounding Her Nephew**\
+`In life, the country music star worked hard to avoid the type of public controversy that erupted in her inner circle soon after her passing.`\
+https://www.nytimes.com/2026/10/20/arts/music/dolly-parton-estate-family-lawsuit.html
 
 **The Mayor of a City in Haiti Warned of a Massacre. No One Listened.**\
 `The mayor of Kenscoff, a town near Haiti’s capital, wrote government officials hundreds of letters to warn of gang threats. Then dozens of people died, and he did, too.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referen
 **NYT Crossword Answers for Oct. 20, 2026**\
 `David Falkowski makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/10/19/crosswords/daily-puzzle-2026-10-20.html
-
-**Neil Armstrong’s Boyhood Home Is Sold to a Historical Society After a $400,000 Gift**\
-`A retired pilot helped an Ohio historical society become the new owner of the Wapakoneta home where the first man on the moon spent his high school days.`\
-https://www.nytimes.com/2026/10/19/us/neil-armstrong-childhood-home-ohio.html
 
