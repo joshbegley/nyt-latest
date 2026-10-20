@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-
 `There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
 https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
 
-**Alabama Governor Commutes Death Sentence of Man Convicted of Murder**\
+**Alabama Man’s Death Sentence Is Commuted as Governor Cites Thin Evidence**\
 `Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
 
@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
 https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 
 **Christina Applegate Says Her MS Was Misdiagnosed**\
-`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
+`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
 **Trump’s Betrayal of Ukraine**\
