@@ -1,3 +1,7 @@
+**Street Style Look of the Week: Dress the Diaspora**\
+`A woman who is committed to elevating designers from across the African diaspora walked the walk when she stepped out in London on a recent Friday.`\
+https://www.nytimes.com/2026/10/20/style/street-style-look-african-diaspora-designers.html
+
 **What It Took for Nikole Hannah-Jones to Write About Her Daughter’s Distress**\
 `The Times journalist reflects on her two deeply personal essays about her child and New York City public schools and how she grappled with readers’ responses.`\
 https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-to-write-about-her-daughters-distress.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
 `Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu, two people with knowledge of the trip said. Israel holds elections in a week.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
 
-**Google Reports Cloud Disruptions in Europe Region**\
-`The disruptions began around 7 a.m. in London, the tech giant said. The cause of the outage was not immediately clear.`\
+**Google Reports Cloud Disruptions in Europe**\
+`The disruptions began around 7 a.m. in London after what the tech giant called a “power event.”`\
 https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
 
 **In the Kill Zone**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/dining/private-equity-restaurant-deals.html
 **Where Do Autoimmune Diseases Come From?**\
 `Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
 https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
-
-**Alex Hartman, of the ‘Nolita Dirtbag’ Instagram Account, Grows Up**\
-`Alex Hartman has made a mark with his critiques of downtown denizens. Now he’s expanding his gaze beyond Nolita Dirtbag.`\
-https://www.nytimes.com/2026/10/20/style/nolita-dirtbag-alex-hartman.html
 
