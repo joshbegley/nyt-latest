@@ -1,3 +1,7 @@
+**Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
+`Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
+https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
+
 **15-Minute Lesson Plan: 19th Century Ghost Stories**\
 `Why do you think a newspaper like The New York Times would have reported hundreds of stories about the paranormal?`\
 https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-ghost-stories.html
