@@ -1,3 +1,11 @@
+**Boeing’s Large 737 Max Jet Secures U.S. Approval**\
+`After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
+https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
+
+**In ‘School Pictures’ and ‘Two Girls,’ the Tweens Are Not All Right**\
+`Milo Cramer’s excellent lo-fi song-cycle and Eliya Smith’s verbatim play about a notorious video both reveal how young minds are made.`\
+https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
+
 **Christina Applegate Says Her MS Was Misdiagnosed**\
 `The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/20/insider/what-it-took-for-nikole-hannah-jones-
 **Nikole Hannah-Jones on Personal Journalism and Public Reaction**\
 `Nikole Hannah-Jones’s recent essay examines a decision she made about her daughter’s education that she hoped would challenge New York City’s school system. Hannah-Jones discusses her approach to writing the essay and the public response with Patrick Healy, an assistant managing editor at The New York Times.`\
 https://www.nytimes.com/video/insider/100000011195109/nikole-hannah-jones-on-personal-journalism-and-public-reaction.html
-
-**UK to Send Fighter Jets to Help Defend Saudi Arabia From Houthi Attacks**\
-`R.A.F. Typhoon fighter jets will be deployed to protect infrastructure in Saudi Arabia, Britain said, after a spike in attacks by the Iran-backed Houthi militia.`\
-https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html
-
-**Start-Up Claims to Use A.I.-Created Viruses to Treat a Patient**\
-`Certain viruses attack bacteria and can sometimes clear antibiotic-resistant infections. Researchers said they had tailored a virus to attack one patient’s illness.`\
-https://www.nytimes.com/2026/10/20/science/ai-virus-bacteria-radical-numerics.html
 
