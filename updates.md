@@ -1,3 +1,7 @@
+**‘King of the Yees’ Review: Buckle Up for a Daughter’s Fantastical Quest**\
+`The playwright Lauren Yee paints an amusing portrait of a Chinese American father-daughter relationship before taking audiences on a delightfully wild ride.`\
+https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html
+
 **Student Protesters in France Have a Strange New Slogan. What Does It Mean?**\
 `“Bismillah, c’est les ténèbres” has appeared on signs at recent demonstrations. It doesn’t make much sense (it means, “In the name of God, it’s the darkness”) but is seen as shorthand for a generational divide.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-student-protests-slogan.html
