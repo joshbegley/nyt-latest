@@ -1,3 +1,7 @@
+**Iran, Taunting Trump Over Gas Prices, Braces for Aftermath of Midterm Elections**\
+`The midterm elections appear to be a factor for both sides in the war as President Trump weighs his next steps.`\
+https://www.nytimes.com/2026/10/20/us/politics/iran-trump-midterm-elections.html
+
 **France to Extend Curfews After Largest Riots in Years**\
 `France’s prime minister said partial curfews in several cities across the country would be extended, as the government tried to reassert control after the largest riots in years.`\
 https://www.nytimes.com/video/world/europe/100000011224602/france-protests-curfew-extended.html
