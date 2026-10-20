@@ -1,3 +1,11 @@
+**J Street Targets Republicans Backed by AIPAC in Iowa and Pennsylvania**\
+`The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
+https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
+
+**Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
+`Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu, two people with knowledge of the trip said. Israel holds elections in a week.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
+
 **Rubio Visits India to Boost Economic Ties Amid Friction With Trump**\
 `The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
