@@ -1,3 +1,7 @@
+**MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
+`MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
+https://www.nytimes.com/2026/10/20/us/politics/trumps-super-pac-unleashes-broad-get-out-the-vote-push-online.html
+
 **Trump Announces Plans to Spend Another $100 Million by Election Day**\
 `Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/20/briefing/trump-midterm-spending.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011224627/trump-witkoff-zelensk
 **The Bedeviling Work of Designing and Redesigning Haunted Houses**\
 `If you’re looking for the ultimate home renovation project, try opening a haunted house.`\
 https://www.nytimes.com/2026/10/20/realestate/halloween-haunted-house-designing-building.html
-
-**‘Lincoln in the Bardo’ Review: From Book to Opera at the Met**\
-`Missy Mazzoli and Royce Vavrek are making their Metropolitan Opera debut with an imaginative, moving adaptation of George Saunders’s ghostly novel.`\
-https://www.nytimes.com/2026/10/20/arts/music/lincoln-in-the-bardo-met-opera-review.html
 

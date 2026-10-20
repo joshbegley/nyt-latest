@@ -1,3 +1,7 @@
+**MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
+`MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
+https://www.nytimes.com/2026/10/20/us/politics/trumps-super-pac-unleashes-broad-get-out-the-vote-push-online.html
+
 **Alabama Man’s Death Sentence Is Commuted as Governor Cites Thin Evidence**\
 `Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
