@@ -1,3 +1,7 @@
+**As Alberta Rejects Canada Separatism, Carney Gets Much of the Credit**\
+`Prime Minister Mark Carney won over Canada’s most conservative province by promising a pipeline and campaigning hard, defeating its efforts to secede.`\
+https://www.nytimes.com/2026/10/20/world/canada/carney-alberta-referendum-trump.html
+
 **ICE Says It Didn’t Hit a Biker With a Car. Video Raises Questions.**\
 `Video footage shows the moment in Long Beach, Calif., when a vehicle swerves toward an oncoming cyclist. The mayor has called for an investigation into ICE agents’ treatment of the rider.`\
 https://www.nytimes.com/2026/10/20/us/ice-detain-citizen-california-video-ricardo-gonzalez.html
