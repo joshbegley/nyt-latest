@@ -1,3 +1,11 @@
+**Alabama Man’s Death Sentence Is Commuted as Governor Cites Thin Evidence**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
+https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
+
+**Christina Applegate Says Her MS Was Misdiagnosed**\
+`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it after all.`\
+https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
+
 **Trump Announces Plans to Spend Another $100 Million by Election Day**\
 `Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/20/briefing/trump-midterm-spending.html
