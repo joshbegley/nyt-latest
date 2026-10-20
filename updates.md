@@ -1,3 +1,7 @@
+**Indian Democracy Has Found New Life in the Streets**\
+`A controversial overhaul of voter rolls threatens Modi’s standing and has breathed new life into India’s battered democracy.`\
+https://www.nytimes.com/2026/10/20/opinion/india-voters-protests.html
+
 **The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England**\
 `Plans to build one of Europe’s largest data centers in Devon have been met by strong opposition from residents, as environmental concerns grow.`\
 https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html
