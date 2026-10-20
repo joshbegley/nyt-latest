@@ -1,3 +1,7 @@
+**Trump Tariffs on Canada Spark Latest Lawsuit Over Trade Powers**\
+`Once again, the president’s ability to wage a trade war without Congress will come before a court that has repeatedly ruled against him.`\
+https://www.nytimes.com/2026/10/20/business/trump-tariffs-canada-lawsuit.html
+
 **College Football Superlatives**\
 `We look at how the teams are stacking up midseason.`\
 https://www.nytimes.com/2026/10/20/briefing/college-football-superlatives.html
