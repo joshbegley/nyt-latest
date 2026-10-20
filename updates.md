@@ -1,3 +1,7 @@
+**Canada Has Never Been More United**\
+`Alberta says no to a secession vote, and no to Trump.`\
+https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
+
 **How Two Colorado House Candidates Are Thinking About AI**\
 `In Colorado, two millennial candidates are thinking about A.I.`\
 https://www.nytimes.com/2026/10/20/us/politics/colorado-elections-ai.html
