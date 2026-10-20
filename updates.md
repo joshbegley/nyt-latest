@@ -1,3 +1,7 @@
+**SpaceX Swings to a Profit, as A.I. Business Grows**\
+`Elon Musk’s rocket company said its artificial intelligence spending had soared, but revenue more than doubled from its Starlink internet satellite service and A.I. products.`\
+https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
+
 **MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
 `MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
 https://www.nytimes.com/2026/10/20/us/politics/trumps-super-pac-unleashes-broad-get-out-the-vote-push-online.html
