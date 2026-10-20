@@ -1,3 +1,7 @@
+**Book Review: ‘I Can’t Stop Thinking About Horses and Sex,’ by Lisa Hanawalt**\
+`The “Bojack Horseman” designer Lisa Hanawalt bridles at glib therapists and is hot to trot for Mister Rogers in her new graphic memoir.`\
+https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinking-about-horses-and-sex.html
+
 **London Exhibition Displays Children’s Selfies as Art**\
 `An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
 https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
