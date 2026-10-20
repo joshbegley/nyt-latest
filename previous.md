@@ -1,4 +1,4 @@
-**‘Back at Square One’: Christina Applegate Says Her M.S. Was Misdiagnosed**\
+**Christina Applegate Says Her MS Was Misdiagnosed**\
 `The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
