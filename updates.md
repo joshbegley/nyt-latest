@@ -1,3 +1,15 @@
+**Republican Women Lean on Working Mom Cred to Stump in Tight Iowa Race**\
+`Senator Katie Britt of Alabama was the latest national Republican to visit Iowa to campaign for Representative Ashley Hinson. President Trump will follow on Thursday.`\
+https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race.html
+
+**Netflix Is Great at Making Money. Its Problem Is Keeping Viewers Hooked.**\
+`The streaming service reported a 12 percent increase in quarterly revenue, but acknowledged that stagnant viewership, particularly in the U.S. and Canada, was a major concern.`\
+https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-peter-rice.html
+
+**Restaurant Review: Andamiro in New York**\
+`There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
+https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
+
 **Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
 `Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
