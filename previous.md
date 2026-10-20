@@ -1,3 +1,11 @@
+**Rubio Visits India to Boost Economic Ties Amid Friction With Trump**\
+`The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
+**Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
+`Ahead of SpaceX’s quarterly earnings report, many on Wall Street are wondering whether Elon Musk will combine it with Tesla.`\
+https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
+
 **Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
 `Defense Secretary Pete Hegseth traveled to the region as diplomatic efforts to end the war with Iran have stalled, two people with knowledge of the trip said. Israel will hold elections in a week.`\
 https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/well/eye-drop-health-effects-safety.html
 **A Chef Celebrates Immigrant Flavors in Anti-Migrant South Africa**\
 `A self-taught chef borrows ingredients and ideas from restaurants run by immigrants in South Africa, hoping to help counter rising xenophobia.`\
 https://www.nytimes.com/2026/10/20/world/africa/johannesburg-migrant-cuisine-chef.html
-
-**When Idaho Banned Abortion, OB-GYNs Fled. The Doctors Who Stayed Are Cracking.**\
-`From childbirth to miscarriages, women’s health care in the state has become increasingly dangerous.`\
-https://www.nytimes.com/2026/10/20/magazine/idaho-abortion-ban-ob-gyns.html
-
-**Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
-`Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
-https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
 

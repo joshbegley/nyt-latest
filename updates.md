@@ -1,3 +1,11 @@
+**Rubio Visits India to Boost Economic Ties Amid Friction With Trump**\
+`The secretary of state will meet with Asia’s richest men as Washington seeks a trade deal.`\
+https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
+
+**Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
+`Ahead of SpaceX’s quarterly earnings report, many on Wall Street are wondering whether Elon Musk will combine it with Tesla.`\
+https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
+
 **Google Reports Cloud Disruptions in Europe Region**\
 `The disruptions began around 7 a.m. in London, the tech giant said. The cause of the outage was not immediately clear.`\
 https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
