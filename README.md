@@ -1,3 +1,11 @@
+**Applying to High School in New York City Is a Soul-Destroying Nightmare**\
+`I thought my worst New York City experience was getting punched in the face. That was before I started trying to get my kid into a public high school.`\
+https://www.nytimes.com/2026/10/19/opinion/high-school-new-york-city-application.html
+
+**Trump’s Push for Deals With Russia Powers His Frustration With Ukraine**\
+`The series of recent steps by the president that seem to favor Vladimir Putin reflect his intensifying desire to normalize the relationship with Moscow even if it means further undercutting Ukraine.`\
+https://www.nytimes.com/2026/10/19/us/politics/trump-russia-deals.html
+
 **Melania Trump Announces White House Women’s Health Initiative**\
 `The effort comes as Republicans are struggling to win over female voters two weeks before the midterm elections.`\
 https://www.nytimes.com/2026/10/19/us/politics/melania-trump-women-health.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/19/opinion/france-protests-paris.html
 **Saudi Arabia Postpones Its FII Investment Event After Houthi Attacks**\
 `The Future Investment Initiative, a centerpiece of Saudi efforts to diversify its economy from its reliance on the energy industry, was set to begin next week.`\
 https://www.nytimes.com/2026/10/19/business/saudi-investment-fii-houthis.html
-
-**Fire at Starlink Center in Lithuania Was Sabotage, Officials Say**\
-`The fire, which did not seriously damage the network, came after similar incidents in Bulgaria and Poland involving the satellite internet provider, a key defense tool for Ukraine’s armed forces.`\
-https://www.nytimes.com/2026/10/19/world/europe/lithuania-starlink-sabotage-ukraine-russia.html
-
-**Ways to Reform the Supreme Court**\
-`Readers react to an Opinion guest essay that criticized the court and suggested four changes.`\
-https://www.nytimes.com/2026/10/19/opinion/letters/supreme-court-reform.html
 
