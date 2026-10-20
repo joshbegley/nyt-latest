@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/10/20/books/review/lisa-hanawalt-i-cant-stop-thinki
 `An exhibition argues that juvenile photographic experiments can reveal unique perspectives worth saving — and even displaying.`\
 https://www.nytimes.com/2026/10/20/arts/design/snap-happy-photographers-gallery-london.html
 
-**James Talarico on His Plan to Turn Texas Blue**\
+**James Talarico on the Rage Economy, Billionaires and Flipping Texas**\
 `Our interview with James Talarico, the Democratic nominee for Senate in Texas.`\
 https://www.nytimes.com/2026/10/20/podcasts/the-daily/james-talarico-interview-texas-midterms.html
 
