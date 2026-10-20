@@ -1,3 +1,7 @@
+**Attack on Australian Lawmaker Prompts Calls to Dial Down Political Tensions**\
+`Helen Haines, an independent, remained in critical condition after she was rammed by a vehicle. The country has reacted with shock and confusion.`\
+https://www.nytimes.com/2026/10/20/world/asia/helen-haines-mp-attacked-wangaratta-australia.html
+
 **Indian Democracy Has Found New Life in the Streets**\
 `A controversial overhaul of voter rolls threatens Modi’s standing and has breathed new life into India’s battered democracy.`\
 https://www.nytimes.com/2026/10/20/opinion/india-voters-protests.html
