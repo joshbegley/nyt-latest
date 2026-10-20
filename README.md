@@ -1,3 +1,7 @@
+**Indian Democracy Has Found New Life in the Streets**\
+`A controversial overhaul of voter rolls threatens Modi’s standing and has breathed new life into India’s battered democracy.`\
+https://www.nytimes.com/2026/10/20/opinion/india-voters-protests.html
+
 **The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England**\
 `Plans to build one of Europe’s largest data centers in Devon have been met by strong opposition from residents, as environmental concerns grow.`\
 https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011182394/andrew-schulz-podcast-bro
 **‘Mothers of Kherson’: An Operatic Show of Support for Ukraine**\
 `Operas don’t usually reflect current events. But “The Mothers of Kherson,” a product of artistic advocacy by the Met Opera, blends news and myth.`\
 https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.html
-
-**Jenny Holzer Resurrects the Past to Lament the Present**\
-`Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
-https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
 
