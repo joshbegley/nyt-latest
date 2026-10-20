@@ -1,3 +1,7 @@
+**Voters in Oil-Rich Alberta Reject Leaving Canada**\
+`Residents of the province were asked if they wish to remain in Canada or to hold another vote on breaking away, in a referendum that left both sides unhappy.`\
+https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
+
 **Attack on Australian Lawmaker Prompts Calls to Dial Down Political Tensions**\
 `Helen Haines, an independent, remained in critical condition after she was rammed by a vehicle. The country has reacted with shock and confusion.`\
 https://www.nytimes.com/2026/10/20/world/asia/helen-haines-mp-attacked-wangaratta-australia.html

@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/10/20/pageoneplus/quote-of-the-day-trump-officials-
 `In 1973, during the “Saturday Night Massacre,” President Richard Nixon ordered the firing of Archibald Cox, the special prosecutor in the Watergate scandal. The order set off a series of actions that helped lead to Nixon’s resignation less than a year later.`\
 https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
 
-**Oil-Rich Alberta Votes on Its Future in Canada**\
-`Electors have been asked if they wish to remain in Canada or to hold another vote on breaking away in a referendum that left both sides unhappy.`\
+**Voters in Oil-Rich Alberta Reject Leaving Canada**\
+`Residents of the province were asked if they wish to remain in Canada or to hold another vote on breaking away, in a referendum that left both sides unhappy.`\
 https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
 
 **NYT Crossword Answers for Oct. 20, 2026**\
