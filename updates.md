@@ -1,3 +1,7 @@
+**Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
+`Defense Secretary Pete Hegseth traveled to the region as diplomatic efforts to end the war with Iran have stalled, two people with knowledge of the trip said. Israel will hold elections in a week.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
+
 **France to Extend Curfews After a Night of Calm, Prime Minister Says**\
 `The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the chaos face expedited trials.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html

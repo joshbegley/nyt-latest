@@ -1,3 +1,7 @@
+**Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
+`Defense Secretary Pete Hegseth traveled to the region as diplomatic efforts to end the war with Iran have stalled, two people with knowledge of the trip said. Israel will hold elections in a week.`\
+https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
+
 **Google Reports Cloud Disruptions in Europe Region**\
 `The disruptions began around 7 a.m. in London, the tech giant said. The cause for the outage was not immediately clear.`\
 https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/magazine/idaho-abortion-ban-ob-gyns.html
 **Mississippi Says It Won’t Bring Criminal Charges in Police Shooting of Toddler**\
 `Attorney General Lynn Fitch issued a terse statement, months after officers, responding to a report of stolen diapers, surrounded a car, guns drawn.`\
 https://www.nytimes.com/2026/10/20/us/mississippi-police-shooting-toddler-kohen-wiley.html
-
-**15-Minute Lesson Plan: 19th Century Ghost Stories**\
-`Why do you think a newspaper like The New York Times would have reported hundreds of stories about the paranormal?`\
-https://www.nytimes.com/2026/10/20/learning/15-minute-lesson-plan-19th-century-ghost-stories.html
 
