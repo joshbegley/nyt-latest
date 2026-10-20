@@ -39,7 +39,7 @@ https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-wri
 https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
 
 **China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
-`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese tech giant.`\
+`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
 https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
 
 **Trump Pushes to Evict White House Press Corps**\
@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-
 `There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
 https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
 
-**Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
-`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
+**Alabama Governor Commutes Death Sentence of Man Convicted of Murder**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
 
 **Boeing’s Large 737 Max Jet Secures U.S. Approval**\
