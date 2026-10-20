@@ -1,3 +1,7 @@
+**Why Drug Companies Are Rushing to Market Ketamine Medicines**\
+`Spurred on by the Trump administration’s embrace of psychedelic medicine, researchers are experimenting with new — and not so new — forms of the anesthetic.`\
+https://www.nytimes.com/2026/10/20/science/ketamine-fda-spravato-ketafree.html
+
 **Where Do Autoimmune Diseases Come From?**\
 `Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
 https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html

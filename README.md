@@ -1,3 +1,7 @@
+**Cornell’s Jane Doe Sent Letter to Faculty Senate Ahead of Vote**\
+`In a letter, the former student said she felt “unsupported” after hearing about an exchange between the school president and her sorority sister. Officials disputed her account of the conversation.`\
+https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.html
+
 **Why Drug Companies Are Rushing to Market Ketamine Medicines**\
 `Spurred on by the Trump administration’s embrace of psychedelic medicine, researchers are experimenting with new — and not so new — forms of the anesthetic.`\
 https://www.nytimes.com/2026/10/20/science/ketamine-fda-spravato-ketafree.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/bow-mar-colorado-suburb-gated-town.html
 **Word of the Day: corollary**\
 `This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/20/learning/word-of-the-day-corollary.html
-
-**5 Common Medications That Can Mess With Your Sleep**\
-`Certain prescription and over-the-counter drugs are known to keep people awake. We asked experts for some of the biggest offenders.`\
-https://www.nytimes.com/2026/10/20/well/medications-that-disrupt-sleep.html
 

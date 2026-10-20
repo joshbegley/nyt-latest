@@ -1,3 +1,7 @@
+**Why Drug Companies Are Rushing to Market Ketamine Medicines**\
+`Spurred on by the Trump administration’s embrace of psychedelic medicine, researchers are experimenting with new — and not so new — forms of the anesthetic.`\
+https://www.nytimes.com/2026/10/20/science/ketamine-fda-spravato-ketafree.html
+
 **France to Extend Curfews After Largest Riots in Years**\
 `France’s prime minister said partial curfews in several cities across the country would be extended, as the government tried to reassert control after the largest riots in years.`\
 https://www.nytimes.com/video/world/europe/100000011224602/france-protests-curfew-extended.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/learning/word-of-the-day-corollary.html
 **5 Common Medications That Can Mess With Your Sleep**\
 `Certain prescription and over-the-counter drugs are known to keep people awake. We asked experts for some of the biggest offenders.`\
 https://www.nytimes.com/2026/10/20/well/medications-that-disrupt-sleep.html
-
-**Where Do Autoimmune Diseases Come From?**\
-`Our genes evolved to fight ancient threats, but in the modern world, some of those changes may be turning against us.`\
-https://www.nytimes.com/2026/10/20/science/autoimmune-diseases-evolution-ms.html
 
