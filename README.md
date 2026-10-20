@@ -1,3 +1,15 @@
+**The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England**\
+`Plans to build one of Europe’s largest data centers in Devon have been met by strong opposition from residents, as environmental concerns grow.`\
+https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html
+
+**Quote of the Day: Trump Officials Had Fed Fears of Carnage of Bomb in Space**\
+`Quotation of the Day for Tuesday, October 20, 2026.`\
+https://www.nytimes.com/2026/10/20/pageoneplus/quote-of-the-day-trump-officials-had-fed-fears-of-carnage-of-bomb-in-space.html
+
+**On This Day, Oct. 20: In 1973, Nixon ordered Watergate prosecutor Archibald Cox fired.**\
+`In 1973, during the “Saturday Night Massacre,” President Richard Nixon ordered the firing of Archibald Cox, the special prosecutor in the Watergate scandal. The order set off a series of actions that helped lead to Nixon’s resignation less than a year later.`\
+https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
+
 **Oil-Rich Alberta Votes on Its Future in Canada**\
 `Electors have been asked if they wish to remain in Canada or to hold another vote on breaking away in a referendum that left both sides unhappy.`\
 https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/19/arts/music/mothers-of-kherson-ukraine-opera.h
 **Jenny Holzer Resurrects the Past to Lament the Present**\
 `Excerpts from archival letters and diaries were the basis for a number of the works in the American artist’s solo show at Paris’s Musée d’Orsay.`\
 https://www.nytimes.com/2026/10/19/t-magazine/jenny-holzer-musee-dorsay-paris-exhibition.html
-
-**The RealReal Offers a New Guide on the Endless Quest for Personal Style**\
-`A new book from the RealReal, the secondhand designer retailer, has ideas for how to develop taste that is your own.`\
-https://www.nytimes.com/2026/10/19/style/the-realreal-personal-style.html
-
-**Cult Leader Convicted of Mass Murder by Court in Kenya**\
-`Paul Nthenge Mackenzie told his doomsday followers in a remote forest to fast for salvation. He faced trial after hundreds of bodies were exhumed.`\
-https://www.nytimes.com/2026/10/19/world/africa/kenya-cult-deaths-paul-mackenzie-court-ruling.html
-
-**Stylish, Hard-Wearing Boots for City Living**\
-`These staples are designed for long days spent on your feet, and while many of them come predistressed, they get even better with age.`\
-https://www.nytimes.com/2026/10/19/t-magazine/brown-leather-boots.html
 
