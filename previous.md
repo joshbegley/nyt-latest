@@ -1,3 +1,7 @@
+**Man Who Took Flamingo From Las Vegas Hotel Is Found Guilty of Cruelty**\
+`The man, visiting from Canada, carried a flamingo named Peachy from its habitat to his hotel room. He was convicted of felony and misdemeanor charges.`\
+https://www.nytimes.com/2026/10/20/us/stolen-flamingo-las-vegas-hotel-animal-cruelty.html
+
 **Robert Kabera, Rwandan Government Critic, Beheaded in Uganda**\
 `The former soldier had been living in exile since 2020, and said in a video posted this month on TikTok that he feared for his life.`\
 https://www.nytimes.com/2026/10/20/world/africa/rwandan-beheaded-uganda-kabera.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.ht
 **Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
 `Ahead of SpaceX’s quarterly earnings report, many on Wall Street are wondering whether Elon Musk will combine it with Tesla.`\
 https://www.nytimes.com/2026/10/20/business/dealbook/musk-spacex-deal-tesla.html
-
-**Hegseth Said to Make Unannounced Visit to Israel for Talks With Netanyahu**\
-`Defense Secretary Pete Hegseth met with Prime Minister Benjamin Netanyahu and Israel’s defense minister, a week before a pivotal election.`\
-https://www.nytimes.com/2026/10/20/world/middleeast/hegseth-netanyahu-trump-israel-election.html
 

@@ -1,3 +1,7 @@
+**Man Who Took Flamingo From Las Vegas Hotel Is Found Guilty of Cruelty**\
+`The man, visiting from Canada, carried a flamingo named Peachy from its habitat to his hotel room. He was convicted of felony and misdemeanor charges.`\
+https://www.nytimes.com/2026/10/20/us/stolen-flamingo-las-vegas-hotel-animal-cruelty.html
+
 **Robert Kabera, Rwandan Government Critic, Beheaded in Uganda**\
 `The former soldier had been living in exile since 2020, and said in a video posted this month on TikTok that he feared for his life.`\
 https://www.nytimes.com/2026/10/20/world/africa/rwandan-beheaded-uganda-kabera.html
