@@ -1,3 +1,11 @@
+**France to Extend Curfews After a Night of Calm, Prime Minister Says**\
+`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the unrest face expedited trials.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
+
+**Trumpism Is Backfiring**\
+`Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
+https://www.nytimes.com/2026/10/20/opinion/ezra-klein-podcast-chrystia-freeland.html
+
 **The NBA Superstar Turned Late-Night Host**\
 `Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
 https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html

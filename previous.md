@@ -1,3 +1,7 @@
+**France to Extend Curfews After a Night of Calm, Prime Minister Says**\
+`The restrictions are part of a state effort to reassert control after the country’s largest riots in years, as those arrested in the unrest face expedited trials.`\
+https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html
+
 **The NBA Superstar Turned Late-Night Host**\
 `Blake Griffin on Steve Ballmer, Kelly Clarkson and beyond.`\
 https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/10/20/podcasts/nba-blake-griffin-steve-ballmer.html
 `Under the Harvest Fuel Relief program, the Agriculture Department will provide economic aid for farmers hurt by high diesel prices.`\
 https://www.nytimes.com/2026/10/20/business/trump-farmer-bailout.html
 
-**Why You Can’t Capitulate to Trump**\
+**Trumpism Is Backfiring**\
 `Chrystia Freeland, a former Canadian deputy prime minister, explains why her country chose to fight back against Trump.`\
 https://www.nytimes.com/2026/10/20/opinion/ezra-klein-podcast-chrystia-freeland.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/pageoneplus/quote-of-the-day-trump-officials-
 **On This Day, Oct. 20: In 1973, Nixon ordered Watergate prosecutor Archibald Cox fired.**\
 `In 1973, during the “Saturday Night Massacre,” President Richard Nixon ordered the firing of Archibald Cox, the special prosecutor in the Watergate scandal. The order set off a series of actions that helped lead to Nixon’s resignation less than a year later.`\
 https://www.nytimes.com/2026/10/20/learning/on-this-day-oct-20.html
-
-**Voters in Oil-Rich Alberta Reject Leaving Canada**\
-`Residents of the province were asked if they wish to remain in Canada or to hold another vote on breaking away, in a referendum that left both sides unhappy.`\
-https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html
 
