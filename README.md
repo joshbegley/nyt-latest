@@ -1,3 +1,7 @@
+**Jane Doe says she did not feel supported by Cornell’s president.**\
+`The former student wrote in a letter to faculty leaders that her experience “diminished her confidence” in the administration’s ability to take her allegations seriously.`\
+https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.html
+
 **Cornell’s Jane Doe Sent Letter to Faculty Senate Ahead of Vote**\
 `In a letter, the former student said she felt “unsupported” after hearing about an exchange between the school president and her sorority sister. Officials disputed her account of the conversation.`\
 https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html
 `The liberal pro-Israel advocacy group’s ads denouncing incumbents in Iowa and Pennsylvania put it at odds with the larger organization for the first time.`\
 https://www.nytimes.com/2026/10/20/us/j-street-israel-super-pac-republicans-aipac.html
 
-**Rubio Travels to India for Trade Talks Amid Strained U.S. Relations**\
-`The secretary of state will meet with Asia’s richest men as Washington continues negotiations over a trade deal with India.`\
+**Rubio Travels to India to Strengthen Economic Ties Amid Strained U.S. Relations**\
+`The secretary of state will meet with Asia’s richest men in Mumbai as Washington continues negotiations over a trade deal with India.`\
 https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html
 
 **Investors in Anticipation Over Musk’s Next Big SpaceX Deal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/ai-fortunes-could-bring-critical-
 **A Colorado Town Was Beset by Traffic. Its Fix Led to a Border Battle.**\
 `Bow Mar says restricting access to its public streets is a safety necessity. Critics see a miniature border wall.`\
 https://www.nytimes.com/2026/10/20/us/bow-mar-colorado-suburb-gated-town.html
-
-**Word of the Day: corollary**\
-`This word has appeared in 57 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/20/learning/word-of-the-day-corollary.html
 
