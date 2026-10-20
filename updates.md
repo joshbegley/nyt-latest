@@ -1,3 +1,11 @@
+**SpaceX Swings to a Profit, Even as A.I. Spending Soars**\
+`Elon Musk’s rocket company also said its revenue had more than doubled, driven by its Starlink internet satellite service and artificial intelligence products.`\
+https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
+
+**Is Putin’s Waiting Game Working?**\
+`Trump’s push for deals and Europe’s political fractures seem to be giving the Russian president the opening he’s been waiting for.`\
+https://www.nytimes.com/2026/10/20/world/putin-trump-ukraine-war.html
+
 **Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
 `A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
 https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html

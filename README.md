@@ -1,3 +1,11 @@
+**Trump Pushes to Evict White House Press Corps**\
+`President Trump has talked about replacing the James S. Brady Press Briefing Room with an indoor swimming pool.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-white-house-media.html
+
+**Britain Is Said to Approve New Gas Drilling in the North Sea**\
+`Jackdaw, a natural gas field off the coast of Scotland, would be the first new gas extraction project in the North Sea since a government moratorium in 2024.`\
+https://www.nytimes.com/2026/10/20/business/uk-north-sea-drilling-jackdaw.html
+
 **SpaceX Swings to a Profit, Even as A.I. Spending Soars**\
 `Elon Musk’s rocket company also said its revenue had more than doubled, driven by its Starlink internet satellite service and artificial intelligence products.`\
 https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/20/business/france-protests-bond-markets.html
 **Spicy Citrus Skirt Steak**\
 `In this recipe, the grilled steak rests in a tart sauce of tangerine, soy sauce, ginger and vinegar that is reminiscent of ponzu, with hints of citrusy bitterness similar to the dried tangerine peel used in Sichuan and Hunan cooking.`\
 https://www.nytimes.com/video/dining/100000011223057/spicy-citrus-skirt-steak.html
-
-**Egg Katsu**\
-`This exciting take on a fried egg features the mesmerizing sound of bubbling oil, the satisfying crunch of golden-brown panko and the seductive reveal of an oozing yolk.`\
-https://www.nytimes.com/video/dining/100000011223046/egg-katsu.html
-
-**Chicken and Pesto Rice With Peas**\
-`Pesto is the hero of this simple chicken and rice dish, infusing it with easy herby flavor.`\
-https://www.nytimes.com/video/dining/100000011223012/chicken-and-pesto-rice-with-peas.html
 
