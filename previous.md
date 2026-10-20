@@ -1,3 +1,7 @@
+**The British Police Rearrest Two in Connection With Alleged Terror Plot**\
+`The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
+https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html
+
 **Republican Women Lean on Working Mom Cred to Stump in Tight Iowa Race**\
 `Senator Katie Britt of Alabama was the latest national Republican to visit Iowa to campaign for Representative Ashley Hinson. President Trump will follow on Thursday.`\
 https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/20/nyregion/cornell-jane-doe-letter.
 **Cornell’s Jane Doe Sent Letter to Faculty Senate Ahead of Vote**\
 `In a letter, the former student said she felt “unsupported” after hearing about an exchange between the school president and her sorority sister. Officials disputed her account of the conversation.`\
 https://www.nytimes.com/2026/10/20/nyregion/cornell-jane-doe-letter-president.html
-
-**Why Drug Companies Are Rushing to Market Ketamine Medicines**\
-`Spurred on by the Trump administration’s embrace of psychedelic medicine, researchers are experimenting with new — and not so new — forms of the anesthetic.`\
-https://www.nytimes.com/2026/10/20/science/ketamine-fda-spravato-ketafree.html
 

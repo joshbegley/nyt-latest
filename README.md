@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
 https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 
 **Christina Applegate Says Her MS Was Misdiagnosed**\
-`The actress, who found out in 2021 that she had multiple sclerosis, was told by a doctor that she doesn’t have the neurodegenerative disorder, after all.`\
+`The actress, who was diagnosed with multiple sclerosis in 2021, was told by a doctor that she doesn’t have it, after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 
 **Stop Appeasing Russia**\
