@@ -1,3 +1,15 @@
+**A Storm Will Bring Rain to California This Week**\
+`The heaviest rain was expected in Southern California through Thursday.`\
+https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html
+
+**China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
+`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
+https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
+
+**Alabama Governor Commutes Death Sentence of Man Convicted of Murder**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
+https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
+
 **Michigan Senate Candidates Make Dueling Pitches to Business Leaders in Detroit**\
 `Mike Rogers and Dr. Abdul El-Sayed, the candidates in the tight race, defended their economic policies at the Detroit Economic Club.`\
 https://www.nytimes.com/2026/10/20/us/michigan-senate-el-sayed-rogers-economy.html

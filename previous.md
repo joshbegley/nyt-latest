@@ -1,3 +1,7 @@
+**A Storm Will Bring Rain to California This Week**\
+`The heaviest rain was expected in Southern California through Thursday.`\
+https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html
+
 **Michigan Senate Candidates Make Dueling Pitches to Business Leaders in Detroit**\
 `Mike Rogers and Dr. Abdul El-Sayed, the candidates in the tight race, defended their economic policies at the Detroit Economic Club.`\
 https://www.nytimes.com/2026/10/20/us/michigan-senate-el-sayed-rogers-economy.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-wri
 https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
 
 **China Condemns U.S. Ban on DeepSeek A.I. in Government Systems**\
-`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese tech giant.`\
+`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
 https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
 
 **Trump Pushes to Evict White House Press Corps**\
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-
 `There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
 https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
 
-**Alabama Governor Commutes a Death Sentence, Citing Thin Evidence**\
-`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid $5,000 by the state for providing information.`\
+**Alabama Governor Commutes Death Sentence of Man Convicted of Murder**\
+`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
 
 **Boeing’s Large 737 Max Jet Secures U.S. Approval**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/ramaswamy-campaign-ad-acton-estra
 **Michael Bloomberg Gives $80 Million to Help Democrats in Final Midterm Push**\
 `The money from the former New York City mayor and megadonor, who is focused on ensuring a sizable Democratic House majority, will help cut into Republicans’ financial advantage.`\
 https://www.nytimes.com/2026/10/20/us/bloomberg-democrats-midterms-donation.html
-
-**Trump Invokes Antisemitic Trope Again at Rally for Kansas Senator**\
-`President Trump said that opponents of Senator Roger Marshall had unfairly cast him as “some kind of a Shylock-type guy.” Mr. Trump used the same slur last year at a rally in Iowa.`\
-https://www.nytimes.com/2026/10/20/us/trump-antisemitic-trope-kansas-rally-marshall.html
 
