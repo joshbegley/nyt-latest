@@ -1,3 +1,7 @@
+**Germophobe Primates Want to Avoid Getting Sick, Too**\
+`Some monkeys become significantly more cautious about food sources that appear contaminated after experiencing deadly outbreaks of disease.`\
+https://www.nytimes.com/2026/10/20/science/primates-germaphobe-avoid-sickness.html
+
 **Canada Has Never Been More United**\
 `Alberta says no to a secession vote, and no to Trump.`\
 https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/10/20/us/politics/colorado-elections-ai.html
 https://www.nytimes.com/2026/10/20/us/politics/julio-herrera-pardon-alina-habba.html
 
 **MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
-`MAGA Inc. is now flooding Facebook and Instagram with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
+`MAGA Inc. is now flooding the social media platforms with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-super-pac.html
 
 **Trump Announces Plans to Spend Another $100 Million by Election Day**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011224321/france-student-protes
 **Have You Seen the T-Skirt?**\
 `The little styling strick you’ll now notice everywhere.`\
 https://www.nytimes.com/2026/10/20/style/the-fashions-styling-t-skirt.html
-
-**Heading to France? Amid Recent Unrest, Here’s What to Know**\
-`Rioting over affordability and public education has swept through Paris and other French cities, and there may be more to come.`\
-https://www.nytimes.com/2026/10/20/travel/france-travel-riots.html
 
