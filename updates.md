@@ -1,3 +1,7 @@
+**C.D.C. Ignored Request From States to Validate a New Measles Test**\
+`The agency replied two months later, saying it had “competing priorities,” officials from a coalition of Western states said.`\
+https://www.nytimes.com/2026/10/21/health/measles-test-cdc.html
+
 **Discovery of New Fake Pollster, Wedgewood, Puts a Spotlight on Trust in Surveys**\
 `A supposed pollster had released a series of midterm surveys that were picked up by well-known polling aggregators. But on Tuesday, the group acknowledged that almost all of its work was fake.`\
 https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.html

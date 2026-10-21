@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood
 `General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
 
-**Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
+**Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
 `The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
 
