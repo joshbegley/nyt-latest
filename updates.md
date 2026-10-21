@@ -1,3 +1,11 @@
+**Parisians Split on Curfews After Riots in France**\
+`Several cities in France extended curfews on Tuesday to reassure rattled residents after the country’s largest riots in years. More protests are expected later in the week.`\
+https://www.nytimes.com/video/world/europe/100000011227065/paris-curfews-france-riots.html
+
+**The Persecution of Ilhan Omar Is a Sign of Trump’s Desperation**\
+`The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
+
 **Is This Economy as Awful as Voters Think? We Ask Our Expert.**\
 `As the midterms approach, our chief economics correspondent breaks down the data.`\
 https://www.nytimes.com/2026/10/21/podcasts/the-daily/us-economy-data-midterms.html
