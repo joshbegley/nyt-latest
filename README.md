@@ -1,3 +1,11 @@
+**U.S. and Israel Draw Up Plans for Renewed Strikes on Iran After Elections**\
+`Renewed hostilities might not be any more successful than the war’s first phase, and President Trump has repeatedly canceled plans for a return to major combat.`\
+https://www.nytimes.com/2026/10/21/us/politics/us-israel-renewed-iran-strikes.html
+
+**This Emily Dickinson Poem Will Hit You Where You Live**\
+`Emily Dickinson makes 50 words contain endless possibilities.`\
+https://www.nytimes.com/interactive/2026/10/21/books/emily-dickinson-poem-i-dwell-in-possibility.html
+
 **Video Game Studio BioWare Shutting Down**\
 `The studio was behind popular games such as Baldur’s Gate, Dragon Age and Mass Effect. Its parent company, Electronic Arts, is expected to lay off some of its staff as part of cost cuts.`\
 https://www.nytimes.com/2026/10/21/arts/bioware-closing-baldurs-gate.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
 **Trump’s Abandonment of Ukraine**\
 `Readers sharply criticize what they view as appeasement of Russia. Also: Costly midterm ads.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-ukraine-russia.html
-
-**The Local: Tea and Timberwolves**\
-`Pumpkin spice? Sometimes. Chai spice? Always.`\
-https://www.nytimes.com/2026/10/21/briefing/tea-and-timberwolves.html
-
-**U.S. to Tap Heating Oil Reserves Ahead of Midterm Elections**\
-`The Trump administration will release 315,000 barrels of heating oil, but analysts say the amount is too small to make much of a difference.`\
-https://www.nytimes.com/2026/10/21/business/heating-oil-emergency-reserve-prices.html
 

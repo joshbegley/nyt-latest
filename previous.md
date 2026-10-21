@@ -1,3 +1,7 @@
+**Video Game Studio BioWare Shutting Down**\
+`The studio was behind popular games such as Baldur’s Gate, Dragon Age and Mass Effect. Its parent company, Electronic Arts, is expected to lay off some of its staff as part of cost cuts.`\
+https://www.nytimes.com/2026/10/21/arts/bioware-closing-baldurs-gate.html
+
 **A Strong Poll for Democrats, With Some Warning Signs**\
 `The party will be happy with the House outlook, but dismayed by some other findings.`\
 https://www.nytimes.com/2026/10/21/us/politics/a-strong-poll-for-democrats-with-some-warning-signs.html
@@ -185,16 +189,4 @@ https://www.nytimes.com/2026/10/21/briefing/tea-and-timberwolves.html
 **U.S. to Tap Heating Oil Reserves Ahead of Midterm Elections**\
 `The Trump administration will release 315,000 barrels of heating oil, but analysts say the amount is too small to make much of a difference.`\
 https://www.nytimes.com/2026/10/21/business/heating-oil-emergency-reserve-prices.html
-
-**Tiny Love Stories: ‘The Only Straight Man in London’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/10/21/style/tiny-modern-love-stories-the-only-straight-man-in-london.html
-
-**Democratic-Aligned Groups Sue Over Federal Crackdown on Voting**\
-`A sweeping lawsuit asked a judge to prevent the federal government from ordering voters disqualified, among other moves it said were engineered for voter suppression.`\
-https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump.html
-
-**Film Club: ‘Stalin Boys’**\
-`What did a group of middle school students learn about the world — and themselves — by creating a play for a History Day competition?`\
-https://www.nytimes.com/2026/10/21/learning/film-club-stalin-boys.html
 

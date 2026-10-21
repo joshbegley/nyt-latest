@@ -1,3 +1,7 @@
+**Video Game Studio BioWare Shutting Down**\
+`The studio was behind popular games such as Baldur’s Gate, Dragon Age and Mass Effect. Its parent company, Electronic Arts, is expected to lay off some of its staff as part of cost cuts.`\
+https://www.nytimes.com/2026/10/21/arts/bioware-closing-baldurs-gate.html
+
 **A Strong Poll for Democrats, With Some Warning Signs**\
 `The party will be happy with the House outlook, but dismayed by some other findings.`\
 https://www.nytimes.com/2026/10/21/us/politics/a-strong-poll-for-democrats-with-some-warning-signs.html
