@@ -1,3 +1,7 @@
+**Ahead of Midterms, Justice Kagan Says Rulings Have Intensified Polarization**\
+`The justice said during a discussion that recent Supreme Court decisions on voting rights, gerrymandering and campaign finance have deepened America’s divides.`\
+https://www.nytimes.com/2026/10/20/us/politics/kagan-supreme-court-rulings-polarization.html
+
 **U.S. Begins Disclosing C.I.A. Interview Reports From Scrutiny of Post-9/11 Torture**\
 `The rolling release of long-secret files could add detail to the history of a legally disputed Bush-era counterterrorism program.`\
 https://www.nytimes.com/2026/10/20/us/politics/cia-interview-reports-sept-11-torture.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/world/europe/france-student-protests-slogan.h
 **Straker’s Is the Latest NYC Dining Room With an English Accent**\
 `Sofra brings Egyptian cuisine to Bay Ridge, Anderson Café & Restaurant adds more bistro fare and more restaurant news.`\
 https://www.nytimes.com/2026/10/20/dining/nyc-restaurant-news.html
-
-**A Matter of Values, at Cornell and Beyond**\
-`Readers respond to articles about the crisis at Cornell and what it says about our society. Also: Voters vs. oligarchs.`\
-https://www.nytimes.com/2026/10/20/opinion/cornell-fraternities-college.html
 
