@@ -1,3 +1,7 @@
+**Agents Raid Adult Care Centers in Operation Focused on Medicaid Fraud**\
+`Federal, state and city authorities conducted searches in New York City as the Trump administration investigates allegations at centers in states Democrats control.`\
+https://www.nytimes.com/2026/10/20/nyregion/adult-day-care-raid-medicaid-fraud.html
+
 **How Zelensky Is Trying to Navigate Trump’s Tilt Toward Russia**\
 `Peter Baker, our chief White House correspondent, reports from Oslo, where Ukraine’s President, Volodymyr Zelensky, met with President Trump’s special envoy, Steve Witkoff.`\
 https://www.nytimes.com/video/us/politics/100000011225769/how-zelensky-is-trying-to-navigate-trumps-tilt-toward-russia.html

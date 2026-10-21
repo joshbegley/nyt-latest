@@ -1,3 +1,7 @@
+**Agents Raid Adult Care Centers in Operation Focused on Medicaid Fraud**\
+`Federal, state and city authorities conducted searches in New York City as the Trump administration investigates allegations at centers in states Democrats control.`\
+https://www.nytimes.com/2026/10/20/nyregion/adult-day-care-raid-medicaid-fraud.html
+
 **How Zelensky Is Trying to Navigate Trump’s Tilt Toward Russia**\
 `Peter Baker, our chief White House correspondent, reports from Oslo, where Ukraine’s President, Volodymyr Zelensky, met with President Trump’s special envoy, Steve Witkoff.`\
 https://www.nytimes.com/video/us/politics/100000011225769/how-zelensky-is-trying-to-navigate-trumps-tilt-toward-russia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/20/world/americas/venezuela-public-h
 **‘King of the Yees’ Review: Buckle Up for a Daughter’s Fantastical Quest**\
 `The playwright Lauren Yee paints an amusing portrait of a Chinese American father-daughter relationship before taking audiences on a delightfully wild ride.`\
 https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html
-
-**Student Protesters in France Have a Strange New Slogan. What Does It Mean?**\
-`“Bismillah, c’est les ténèbres” has appeared on signs at recent demonstrations. It doesn’t make much sense (it means, “In the name of God, it’s the darkness”) but is seen as shorthand for a generational divide.`\
-https://www.nytimes.com/2026/10/20/world/europe/france-student-protests-slogan.html
 
