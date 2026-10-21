@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 21, 2026**\
+`Rebecca Goldstein keeps us on course.`\
+https://www.nytimes.com/2026/10/20/crosswords/daily-puzzle-2026-10-21.html
+
 **Agents Raid Adult Care Centers in Operation Focused on Medicaid Fraud**\
 `Federal, state and city authorities conducted searches in New York City as the Trump administration investigates allegations at centers in states Democrats control.`\
 https://www.nytimes.com/2026/10/20/nyregion/adult-day-care-raid-medicaid-fraud.html
