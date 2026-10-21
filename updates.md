@@ -1,3 +1,11 @@
+**Emissions Gap Report Identifies U.S. as Outlier Among G20 Nations**\
+`The scientific report, identifies the United States as an outlier among the nations responsible for the vast majority of greenhouse gas emissions.`\
+https://www.nytimes.com/2026/10/21/climate/united-states-climate-pledge-emissions-gap-report.html
+
+**Serbia Is Going Through an Extraordinary Experiment**\
+`Serbia’s students are coming for the machine.`\
+https://www.nytimes.com/2026/10/21/opinion/serbia-elections-students-vucic.html
+
 **Modi Seeks to Calm Allies by Shackling Gen Z Protests**\
 `Leaders of India’s governing coalition are trying to frame the demonstrations as a power grab by traditional political parties rather than a grass-roots youth movement.`\
 https://www.nytimes.com/2026/10/21/world/asia/modi-india-protests-cockroach-party.html

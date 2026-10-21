@@ -1,3 +1,11 @@
+**Emissions Gap Report Identifies U.S. as Outlier Among G20 Nations**\
+`The scientific report, identifies the United States as an outlier among the nations responsible for the vast majority of greenhouse gas emissions.`\
+https://www.nytimes.com/2026/10/21/climate/united-states-climate-pledge-emissions-gap-report.html
+
+**Serbia Is Going Through an Extraordinary Experiment**\
+`Serbia’s students are coming for the machine.`\
+https://www.nytimes.com/2026/10/21/opinion/serbia-elections-students-vucic.html
+
 **Modi Seeks to Calm Allies by Shackling Gen Z Protests**\
 `Leaders of India’s governing coalition are trying to frame the demonstrations as a power grab by traditional political parties rather than a grass-roots youth movement.`\
 https://www.nytimes.com/2026/10/21/world/asia/modi-india-protests-cockroach-party.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 **Christina Applegate Says Her MS Was Misdiagnosed**\
 `The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it after all.`\
 https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
-
-**Trump’s Betrayal of Ukraine**\
-`The stakes in Ukraine are much larger than the fate of one nation.`\
-https://www.nytimes.com/2026/10/20/opinion/russia-ukraine-trump-us.html
-
-**Overlapping Plagues Are Killing American Forests**\
-`Threats hiding in plain sight could upend forests far and wide.`\
-https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
 
