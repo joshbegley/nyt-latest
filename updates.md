@@ -1,3 +1,7 @@
+**Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
+`The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
+https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Before Nathan Fielder, a modern detective story and little free everything.`\
 https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html

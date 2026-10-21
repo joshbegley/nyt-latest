@@ -1,3 +1,7 @@
+**Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
+`The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
+https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Before Nathan Fielder, a modern detective story and little free everything.`\
 https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
 **Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
 `The move buys good will with President Trump while costing the President Vladimir V. Putin — who is wanted for war crimes — little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
-
-**The Hunting of Ilhan Omar**\
-`The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
-https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
 
