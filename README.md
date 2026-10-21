@@ -1,3 +1,11 @@
+**We Still Need Riot Grrrl**\
+`The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
+https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
+
+**Live Updates: El-Sayed and Rogers to Debate Again in Michigan After Testy First Clash**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks two weeks ago.`\
+https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
+
 **Trump Envoy Calls Putin a ‘Humanitarian’**\
 `Also, Democrats lead in polls, but still face image problems. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/21/briefing/trump-russia-prisoner-release.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
 **Snoh Aalegra Put Her Secrets Into New Album, “Legendary Love”**\
 `The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
 https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html
-
-**In Trump’s Diplomacy, Insults Are a One-Way Street. Ukraine Is the Latest Example.**\
-`The latest rift with President Volodymyr Zelensky of Ukraine serves as a reminder that President Trump readily lashes out at other world leaders, only to grow outraged if they fight back.`\
-https://www.nytimes.com/2026/10/21/us/politics/trumps-diplomacy-insults.html
-
-**What Putin Gains From Releasing an American Prisoner**\
-`After Russia released an American prisoner, President Trump’s special envoy praised President Vladimir V. Putin as “a humanitarian.” Our White House and national security correspondent, David E. Sanger, describes how the release comes amid Mr. Trump’s broader shift toward Russia and away from Ukraine.`\
-https://www.nytimes.com/video/us/100000011223251/what-putin-gains-from-releasing-an-american-prisoner.html
 
