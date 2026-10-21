@@ -1,3 +1,11 @@
+**In Trump’s Diplomacy, Insults Are a One-Way Street. Ukraine Is the Latest Example.**\
+`The latest rift with President Volodymyr Zelensky of Ukraine serves as a reminder that President Trump readily lashes out at other world leaders, only to grow outraged if they fight back.`\
+https://www.nytimes.com/2026/10/21/us/politics/trumps-diplomacy-insults.html
+
+**Macron Says Trump Does Not Like France and Distorts Its Troubles**\
+`Speaking in Qatar, President Emmanuel Macron railed against foreign leaders who he said had made false claims about unrest in France for their own political ends.`\
+https://www.nytimes.com/2026/10/21/world/europe/macron-trump-france-protests.html
+
 **G.M. Hopes to Design New Cars in as Little as 2 Years Using A.I.**\
 `General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
