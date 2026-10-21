@@ -84,7 +84,7 @@ https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html
 
 **Macron Says Trump Does Not Like France and Distorts Its Troubles**\
 `Speaking in Qatar, President Emmanuel Macron railed against foreign leaders who he said had made false claims about unrest in France for their own political ends.`\
-https://www.nytimes.com/2026/10/21/world/europe/macron-trump-doesnt-like-france.html
+https://www.nytimes.com/2026/10/21/world/europe/macron-trump-france-protests.html
 
 **Goods Looted During Riots in France Hit Resale Sites**\
 `France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
