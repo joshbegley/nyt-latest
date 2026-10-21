@@ -1,3 +1,7 @@
+**Michael Kosta Supports Trump’s Midterms Man Crush**\
+`The “Daily Show” host said President Trump has spent too much time thinking about Senator Jon Husted’s physique.`\
+https://www.nytimes.com/2026/10/21/arts/television/late-night-michael-kosta-trump-jon-husted.html
+
 **Emissions Gap Report Identifies U.S. as Outlier Among G20 Nations**\
 `The scientific report, identifies the United States as an outlier among the nations responsible for the vast majority of greenhouse gas emissions.`\
 https://www.nytimes.com/2026/10/21/climate/united-states-climate-pledge-emissions-gap-report.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
 **In ‘School Pictures’ and ‘Two Girls,’ the Tweens Are Not All Right**\
 `Milo Cramer’s excellent lo-fi song-cycle and Eliya Smith’s verbatim play about a notorious video both reveal how young minds are made.`\
 https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
-
-**Christina Applegate Says Her MS Was Misdiagnosed**\
-`The actress, who was given a diagnosis of multiple sclerosis in 2021, was told by a doctor that she doesn’t have it after all.`\
-https://www.nytimes.com/2026/10/20/well/christina-applegate-misdiagnosis-ms.html
 

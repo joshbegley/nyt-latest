@@ -1,3 +1,7 @@
+**Michael Kosta Supports Trump’s Midterms Man Crush**\
+`The “Daily Show” host said President Trump has spent too much time thinking about Senator Jon Husted’s physique.`\
+https://www.nytimes.com/2026/10/21/arts/television/late-night-michael-kosta-trump-jon-husted.html
+
 **Emissions Gap Report Identifies U.S. as Outlier Among G20 Nations**\
 `The scientific report, identifies the United States as an outlier among the nations responsible for the vast majority of greenhouse gas emissions.`\
 https://www.nytimes.com/2026/10/21/climate/united-states-climate-pledge-emissions-gap-report.html
