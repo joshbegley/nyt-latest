@@ -1,3 +1,7 @@
+**El Salvador’s President Issues Harsh Warning to Haitian Gangs After 4 Soldiers Are Abducted**\
+`Four members of El Salvador’s military were abducted Sunday in Haiti, and their president wants them back.`\
+https://www.nytimes.com/2026/10/21/world/americas/el-salvador-military-haiti-gangs.html
+
 **U.S. and Israel Draw Up Plans for Renewed Strikes on Iran After Elections**\
 `Renewed hostilities might not be any more successful than the war’s first phase, and President Trump has repeatedly canceled plans for a return to major combat.`\
 https://www.nytimes.com/2026/10/21/us/politics/us-israel-renewed-iran-strikes.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Before Nathan Fielder, a modern detective story and little free everything.`\
 https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
-
-**Trump’s Abandonment of Ukraine**\
-`Readers sharply criticize what they view as appeasement of Russia. Also: Costly midterm ads.`\
-https://www.nytimes.com/2026/10/21/opinion/trump-ukraine-russia.html
 
