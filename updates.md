@@ -1,3 +1,7 @@
+**Brad Lander Is Detained by Israeli Military in West Bank During Volunteer Trip**\
+`Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
+https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
+
 **Drone Strike Kills More Than 150 in Abyei in Sudan’s Civil War**\
 `Struggling against each other on the battlefield, the sides in Sudan’s civil war are relying on drones to strike across vast distances, inflicting huge tolls on civilians in the process.`\
 https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
