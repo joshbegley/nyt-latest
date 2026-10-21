@@ -1,3 +1,7 @@
+**Who Is Stephen James Hubbard, the American Released From Russian Jail?**\
+`Mr. Hubbard, a 74-year-old teacher, was held for more than four years on what the State Department called fabricated charges.`\
+https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-russia-prisoner-release.html
+
 **I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
 `Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
 https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/movies/john-turturro-only-living-pickpocket-i
 **Death Toll From Venezuela Quakes Likely Far Exceeds Official Count**\
 `A Times analysis and U.S. Geological Survey data indicate that the official 6,509 death toll is probably a severe undercount.`\
 https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.html
-
-**Is Wikipedia the ‘Last Best Place on the Internet’?**\
-`Richard Cooke’s book, “The Last Best Place on the Internet” retells the history of Wikipedia with an emphasis on the human. Jennifer Szalai, a New York Times book critic, reviews the book.`\
-https://www.nytimes.com/video/books/100000011164788/is-wikipedia-the-last-best-place-on-the-internet.html
 
