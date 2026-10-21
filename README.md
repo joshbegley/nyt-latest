@@ -1,3 +1,7 @@
+**What We Really Learned from a Chaotic NBA Opening Night**\
+`“The Athletic NBA Daily” crew unpacks the lively tipoff action.`\
+https://www.nytimes.com/2026/10/21/podcasts/nba-opening-night-basketball.html
+
 **Australian Politicians Were Already on Edge Before One of Their Own Was Attacked**\
 `Much remains unclear about why a driver ran a car into Helen Haines, a lawmaker. Even so, fellow representatives, especially women, spoke of feeling threatened in a polarized atmosphere.`\
 https://www.nytimes.com/2026/10/21/world/asia/helen-haines-attack-australian-politicians.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
 **What We Saw at New York Bridal Fashion Week**\
 `Bridal hats, high necklines, low dropped waists and exaggerated hips were presented by new, emerging and legacy brands this season.`\
 https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-week.html
-
-**The British Police Rearrest Two in Connection With Alleged Terror Plot**\
-`The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
-https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html
 
