@@ -1,3 +1,7 @@
+**Discovery of New Fake Pollster, Wedgewood, Puts a Spotlight on Trust in Surveys**\
+`A supposed pollster had released a series of midterm surveys that were picked up by well-known polling aggregators. But on Tuesday, the group acknowledged that almost all of its work was fake.`\
+https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.html
+
 **Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
 `President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
 https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
