@@ -1,12 +1,40 @@
+**Thélyson Orélien's Quebec Publisher Cuts Ties Over A.I. Accusations**\
+`Thélyson Orélien, a celebrated novelist, used artificial intelligence while writing a breakout book, his publisher says.`\
+https://www.nytimes.com/2026/10/21/world/canada/thelyson-orelien-ai-publisher.html
+
+**Maps: Tracking Tropical Storm Vance**\
+`See the likely path and wind arrival times for Vance`\
+https://www.nytimes.com/interactive/2026/10/21/weather/tropical-storm-vance-hurricane-map-path.html
+
+**Top Mamdani Aide Fired Amid City Hall Shake-Up**\
+`The chiefs of staff for three deputy mayors were reassigned or dismissed, and the head of Mayor Zohran Mamdani’s advance team was also let go.`\
+https://www.nytimes.com/2026/10/21/nyregion/mamdani-staff-shakeup.html
+
+**Shark Returned to Sea After Over a Month in a South Korean Canal**\
+`A 10-foot-long dusky shark, nicknamed Bukangi, returned to sea after she was stuck in South Korean port canal for over a month. Crowds of people gathered along the banks as local officials used nets to set her free.`\
+https://www.nytimes.com/video/world/asia/100000011227711/shark-south-korea-bukangi-canal.html
+
+**A Debt-Fueled “Doom Loop”**\
+`Some democracies seem caught in a trap: Spend more and risk market panic, or cut benefits and empower the far right.`\
+https://www.nytimes.com/2026/10/21/world/debt-france-protests-russia-us.html
+
+**Anthropic Joins the A.I. Agent Race With Claude Duet**\
+`The tool, which is not yet widely available, will compete with OpenAI’s dots and Meta’s Muse. It is built for work and not personal errands.`\
+https://www.nytimes.com/2026/10/21/technology/anthropic-ai-agent-claude-duet.html
+
+**Gambling Hotline Ex-Director Stole $1.5M to Feed Betting Habit, Prosecutors Say**\
+`Philip L. Sullivan started running the Florida hotline in 2025, a year after he was accused of stealing from a previous employer. He was sentenced to nearly 10 years in prison.`\
+https://www.nytimes.com/2026/10/21/us/philip-sullivan-theft-sentencing-addicted-to-recovery-podcast.html
+
 **Meta Raises Its A.I. Spending, Even as Cash Pressures Grow**\
 `The spending is having an effect on the Silicon Valley giant’s cash flow, as Meta continues investing to lead in the technology.`\
 https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
 
 **AIPAC Makes Last-Minute Donation to Boost Rogers in Michigan Senate Race Against El-Sayed**\
-`The group generally supports Democrats, but it has spent heavily against Dr. Abdul El-Sayed, a vocal critic of Israel. Its general election spending comes after initial concerns from the campaign of Mike Rogers, the Republican.`\
+`The American Israel Public Affairs Committee generally supports Democrats, but it has spent heavily against Dr. Abdul El-Sayed, a vocal critic of Israel. Its general election spending comes after initial concerns from the campaign of Mike Rogers, the Republican.`\
 https://www.nytimes.com/2026/10/21/us/politics/aipac-michigan-senate-rogers-donation.html
 
-**Tesla Earnings Show Profit Declines Amid Talks to Merge With SpaceX**\
+**Tesla Profit Slumps as Elon Musk’s Car Company Considers Merging With SpaceX**\
 `The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
 https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
 
@@ -165,32 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-
 **NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
 `New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
 https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html
-
-**Go Stargazing**\
-`A meteor shower is expected to peak tonight.`\
-https://www.nytimes.com/2026/10/21/briefing/go-stargazing.html
-
-**Alaska’s Journalists Join Forces to Cover the Midterms**\
-`The state’s challenging geography and newspapers’ broader economic struggles have stretched reporters in Alaska, just as its competitive U.S. Senate race has grabbed national attention.`\
-https://www.nytimes.com/2026/10/21/business/media/alaska-journalists-sullivan-peltola-senate.html
-
-**Bronx Parents Are Accused of Killing Their 3-Year-Old Daughter**\
-`Prosecutors say they also neglected the girl’s twin brother, who was hospitalized for malnourishment.`\
-https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
-
-**Witkoff Calls Putin a ‘Humanitarian’ After Russia Releases an Imprisoned American**\
-`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who had been living in Ukraine when Russia invaded.`\
-https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-release-putin-witkoff.html
-
-**Is Rabies Making a Comeback?**\
-`As several states report surges in animal cases, federal officials are warning about an apparent increase in human exposures.`\
-https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
-
-**Brad Lander Is Detained by Israeli Military in West Bank During Volunteer Trip**\
-`Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
-https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
-
-**Toledo Chemical Leak That Forced Residents to Evacuate Is Slowing**\
-`Nearly 1,000 people in the Ohio city were told to leave the area and thousands more were urged to stay inside. The mayor said the spill did not present a long-term threat.`\
-https://www.nytimes.com/2026/10/21/us/toledo-ohio-chemical-explosion.html
 
