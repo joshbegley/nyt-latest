@@ -1,3 +1,7 @@
+**What We Really Learned from a Chaotic NBA Opening Night**\
+`“The Athletic NBA Daily” crew unpacks the lively tipoff action.`\
+https://www.nytimes.com/2026/10/21/podcasts/nba-opening-night-basketball.html
+
 **Australian Politicians Were Already on Edge Before One of Their Own Was Attacked**\
 `Much remains unclear about why a driver ran a car into Helen Haines, a lawmaker. Even so, fellow representatives, especially women, spoke of feeling threatened in a polarized atmosphere.`\
 https://www.nytimes.com/2026/10/21/world/asia/helen-haines-attack-australian-politicians.html
