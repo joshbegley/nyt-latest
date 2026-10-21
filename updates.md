@@ -1,3 +1,11 @@
+**What We Saw at Fast-Track Trials of Riot Suspects in France**\
+`At the Tribunal de Paris, judges have supervised a carousel of expedited and often chaotic hearings for those detained during recent unrest.`\
+https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
+
+**We Know What Prevents College Sexual Assault. Now We Should Act on It.**\
+`We can prepare young women for the real world without repressing their liberty.`\
+https://www.nytimes.com/2026/10/21/opinion/cornell-sexual-assault-prevention.html
+
 **Brad Lander Is Detained by Israeli Military in West Bank During Volunteer Trip**\
 `Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
 https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
