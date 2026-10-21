@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 21, 2026**\
+`Rebecca Goldstein keeps us on course.`\
+https://www.nytimes.com/2026/10/20/crosswords/daily-puzzle-2026-10-21.html
+
 **Agents Raid Adult Care Centers in Operation Focused on Medicaid Fraud**\
 `Federal, state and city authorities conducted searches in New York City as the Trump administration investigates allegations at centers in states Democrats control.`\
 https://www.nytimes.com/2026/10/20/nyregion/adult-day-care-raid-medicaid-fraud.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/france-senate-code-noir-slavery.html
 **How Venezuela’s Public Housing Towers Were Built to Fail**\
 `Venezuela’s government wanted housing built for its supporters — and fast. The design and construction flaws that followed proved deadly when earthquakes hit, a Times investigation found.`\
 https://www.nytimes.com/interactive/2026/10/20/world/americas/venezuela-public-housing-flawed-construction-earthquakes.html
-
-**‘King of the Yees’ Review: Buckle Up for a Daughter’s Fantastical Quest**\
-`The playwright Lauren Yee paints an amusing portrait of a Chinese American father-daughter relationship before taking audiences on a delightfully wild ride.`\
-https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html
 
