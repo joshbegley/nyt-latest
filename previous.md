@@ -1,3 +1,51 @@
+**The Persecution of Ilhan Omar Is a Sign of Trump’s Desperation**\
+`Trump is preoccupied with summoning the image of a consolidated authoritarian state.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
+
+**Sexual Assault Awareness Is Not Enough**\
+`We can prepare young women for the real world without repressing their liberty.`\
+https://www.nytimes.com/2026/10/21/opinion/cornell-sexual-assault-prevention.html
+
+**Democrats Have a Wide Lead in Our New Poll as Trump Slides**\
+`The map favors Republicans, but cracks in their base are leaving them vulnerable in defending House and Senate control.`\
+https://www.nytimes.com/2026/10/21/upshot/times-siena-poll-trump-midterms.html
+
+**Trump Approval Hits New Low Two Weeks Before Midterms, Poll Finds**\
+`Likely voters favored Democratic candidates over Republicans by 11 percentage points in their congressional district, a New York Times/Siena poll found.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-midterm-election-poll.html
+
+**Corrections: Oct. 26, 2026**\
+`Corrections that appeared in print on Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
+
+**On Our Third Date, I Asked for a Joint Bank Account (Encore)**\
+`Splitting the bill felt awkward. Paying it herself was getting expensive. Janene Lin had a different idea.`\
+https://www.nytimes.com/2026/10/21/podcasts/on-our-third-date-i-asked-for-a-joint-bank-account-encore.html
+
+**Senator Asks 4 Accounting Giants to Describe Malta Tax Advice**\
+`Ron Wyden, ranking Democrat on the Senate Finance Committee, is investigating the firms over their role in helping corporations dodge billions in taxes.`\
+https://www.nytimes.com/2026/10/21/business/ron-wyden-accounting-firms-malta.html
+
+**A Vote Tomorrow Could Ban Horse Carriages in Central Park**\
+`The City Council speaker, Julie Menin, says the city will work to help drivers who will lose their jobs if a ban passes. Some could operate pedicabs in the park, she suggests.`\
+https://www.nytimes.com/2026/10/21/nyregion/horse-carriage-ban-city-council.html
+
+**Review: ‘The New Stanford Prison Experiment’ Is a Stiff Sentence**\
+`Netflix’s reboot of a notoriously cruel and unusual psychological study makes for unenlightening reality TV.`\
+https://www.nytimes.com/2026/10/21/arts/television/review-the-new-stanford-prison-experiment.html
+
+**Which $1 Million Home Would You Choose?**\
+`This week’s listings are in Janesville, Wis.; Rollinsford, N.H.; and Nashville.`\
+https://www.nytimes.com/2026/10/21/realestate/million-dollar-homes-nashville-new-hampshire-wisconsin.html
+
+**A.I. Election Videos Are Flooding Brazil. Could They Sway the Vote?**\
+`Brazil spent years targeting electoral lies on the internet. Now, artificial intelligence is stumping the election authorities and reshaping a high-stakes race.`\
+https://www.nytimes.com/2026/10/21/world/americas/ai-election-videos-brazil.html
+
+**In Six Decades of Public Life, I Never Thought I Would Write This Piece**\
+`Trump’s meddling would have dark consequences for our democracy and our prosperity.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-midterms-election-threats-ice-economy.html
+
 **The Affordability Crisis Isn’t About Affordability. It’s About Something Much Bigger.**\
 `Whatever you call it, we can all agree this doesn’t feel good.`\
 https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
@@ -149,52 +197,4 @@ https://www.nytimes.com/2026/10/21/nyregion/holocaust-photos-recovery-library-bo
 **NYT Spelling Bee Answers for October 21, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/21/crosswords/spelling-bee-forum.html
-
-**China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
-`Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
-https://www.nytimes.com/2026/10/21/world/asia/china-exports-ai-controls.html
-
-**Britain Approves Long-Stalled Gas Drilling Project in the North Sea**\
-`The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts a pledge to reduce carbon emissions.`\
-https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
-
-**Michael Kosta Supports Trump’s Midterms Man Crush**\
-`The “Daily Show” host said President Trump has spent too much time thinking about Senator Jon Husted’s physique.`\
-https://www.nytimes.com/2026/10/21/arts/television/late-night-michael-kosta-trump-jon-husted.html
-
-**Emissions Gap Report Identifies U.S. as Outlier Among G20 Nations**\
-`The scientific report, identifies the United States as an outlier among the nations responsible for the vast majority of greenhouse gas emissions.`\
-https://www.nytimes.com/2026/10/21/climate/united-states-climate-pledge-emissions-gap-report.html
-
-**Serbia Is Going Through an Extraordinary Experiment**\
-`Serbia’s students are coming for the machine.`\
-https://www.nytimes.com/2026/10/21/opinion/serbia-elections-students-vucic.html
-
-**Modi Seeks to Calm Allies by Shackling Gen Z Protests**\
-`Leaders of India’s governing coalition are trying to frame the demonstrations as a power grab by traditional political parties rather than a grass-roots youth movement.`\
-https://www.nytimes.com/2026/10/21/world/asia/modi-india-protests-cockroach-party.html
-
-**UK to Headphone Dodgers on Trains: Shush**\
-`Prime Minister Andy Burnham announced a campaign against listening to music or videos without headphones on public transportation. We asked London commuters to weigh in.`\
-https://www.nytimes.com/2026/10/21/world/europe/uk-underground-headphones-commuters.html
-
-**Quote of the Day: Tehran Taunts Trump on Prices as Midterms Could Reset War**\
-`Quotation of the Day for Wednesday, October 21, 2026.`\
-https://www.nytimes.com/2026/10/21/pageoneplus/quote-of-the-day-tehran-taunts-trump-on-prices-as-midterms-could-reset-war.html
-
-**On This Day, Oct. 21: In 1879, Edison’s team tested a practical incandescent lamp.**\
-`In 1879, Thomas Edison and his research team successfully tested a long-lasting, practical incandescent lamp at his laboratory in Menlo Park, N.J.`\
-https://www.nytimes.com/2026/10/21/learning/on-this-day-oct-21.html
-
-**New Video Shows Chaotic Moments Before Police Shot 1-Year-Old Kohen Wiley**\
-`The body-camera and surveillance footage provides the first glimpse of a confrontation in a Walmart parking lot that left 1-year-old Kohen Wiley dead.`\
-https://www.nytimes.com/2026/10/20/us/kohen-wiley-video-mississippi-shooting.html
-
-**Trump Wields an Unprecedented $277 Million in Final Midterm Stretch**\
-`The enormous spending by the term-limited president’s super PAC has no parallel in American history, and could offer struggling Republican candidates a lifeline.`\
-https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
-
-**Man Is Fatally Shot on George Washington Bridge**\
-`A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
-https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html
 
