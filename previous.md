@@ -1,3 +1,11 @@
+**How Zelensky Is Trying to Navigate Trump’s Tilt Toward Russia**\
+`Peter Baker, our chief White House correspondent, reports from Oslo, where Ukraine’s President, Volodymyr Zelensky, met with President Trump’s special envoy, Steve Witkoff.`\
+https://www.nytimes.com/video/us/politics/100000011225769/how-zelensky-is-trying-to-navigate-trumps-tilt-toward-russia.html
+
+**Ahead of Midterms, Justice Kagan Says Rulings Have Intensified Polarization**\
+`The justice said during a discussion that recent Supreme Court decisions on voting rights, gerrymandering and campaign finance have deepened America’s divides.`\
+https://www.nytimes.com/2026/10/20/us/politics/kagan-supreme-court-rulings-polarization.html
+
 **U.S. Begins Disclosing C.I.A. Interview Reports From Scrutiny of Post-9/11 Torture**\
 `The rolling release of long-secret files could add detail to the history of a legally disputed Bush-era counterterrorism program.`\
 https://www.nytimes.com/2026/10/20/us/politics/cia-interview-reports-sept-11-torture.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/theater/king-of-the-yees-review.html
 **Student Protesters in France Have a Strange New Slogan. What Does It Mean?**\
 `“Bismillah, c’est les ténèbres” has appeared on signs at recent demonstrations. It doesn’t make much sense (it means, “In the name of God, it’s the darkness”) but is seen as shorthand for a generational divide.`\
 https://www.nytimes.com/2026/10/20/world/europe/france-student-protests-slogan.html
-
-**Straker’s Is the Latest NYC Dining Room With an English Accent**\
-`Sofra brings Egyptian cuisine to Bay Ridge, Anderson Café & Restaurant adds more bistro fare and more restaurant news.`\
-https://www.nytimes.com/2026/10/20/dining/nyc-restaurant-news.html
-
-**A Matter of Values, at Cornell and Beyond**\
-`Readers respond to articles about the crisis at Cornell and what it says about our society. Also: Voters vs. oligarchs.`\
-https://www.nytimes.com/2026/10/20/opinion/cornell-fraternities-college.html
 
