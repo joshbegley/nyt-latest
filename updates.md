@@ -1,3 +1,15 @@
+**UK to Headphone Dodgers on Trains: Shush**\
+`Prime Minister Andy Burnham announced a campaign against listening to music or videos without headphones on public transportation. We asked London commuters to weigh in.`\
+https://www.nytimes.com/2026/10/21/world/europe/uk-underground-headphones-commuters.html
+
+**Quote of the Day: Tehran Taunts Trump on Prices as Midterms Could Reset War**\
+`Quotation of the Day for Wednesday, October 21, 2026.`\
+https://www.nytimes.com/2026/10/21/pageoneplus/quote-of-the-day-tehran-taunts-trump-on-prices-as-midterms-could-reset-war.html
+
+**On This Day, Oct. 21: In 1879, Edison’s team tested a practical incandescent lamp.**\
+`In 1879, Thomas Edison and his research team successfully tested a long-lasting, practical incandescent lamp at his laboratory in Menlo Park, N.J.`\
+https://www.nytimes.com/2026/10/21/learning/on-this-day-oct-21.html
+
 **New Video Shows Chaotic Moments Before Police Shot 1-Year-Old Kohen Wiley**\
 `The body-camera and surveillance footage provides the first glimpse of a confrontation in a Walmart parking lot that left 1-year-old Kohen Wiley dead.`\
 https://www.nytimes.com/2026/10/20/us/kohen-wiley-video-mississippi-shooting.html

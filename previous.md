@@ -1,3 +1,15 @@
+**UK to Headphone Dodgers on Trains: Shush**\
+`Prime Minister Andy Burnham announced a campaign against listening to music or videos without headphones on public transportation. We asked London commuters to weigh in.`\
+https://www.nytimes.com/2026/10/21/world/europe/uk-underground-headphones-commuters.html
+
+**Quote of the Day: Tehran Taunts Trump on Prices as Midterms Could Reset War**\
+`Quotation of the Day for Wednesday, October 21, 2026.`\
+https://www.nytimes.com/2026/10/21/pageoneplus/quote-of-the-day-tehran-taunts-trump-on-prices-as-midterms-could-reset-war.html
+
+**On This Day, Oct. 21: In 1879, Edison’s team tested a practical incandescent lamp.**\
+`In 1879, Thomas Edison and his research team successfully tested a long-lasting, practical incandescent lamp at his laboratory in Menlo Park, N.J.`\
+https://www.nytimes.com/2026/10/21/learning/on-this-day-oct-21.html
+
 **New Video Shows Chaotic Moments Before Police Shot 1-Year-Old Kohen Wiley**\
 `The body-camera and surveillance footage provides the first glimpse of a confrontation in a Walmart parking lot that left 1-year-old Kohen Wiley dead.`\
 https://www.nytimes.com/2026/10/20/us/kohen-wiley-video-mississippi-shooting.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/20/climate/tree-plagues.html
 **If Democrats Win Congress, Could the G.O.P. Refuse to Seat Them?**\
 `A changing of the congressional guard in January could leave room for meddling, though most legal scholars doubt it would happen.`\
 https://www.nytimes.com/2026/10/20/us/politics/democrats-republicans-congress-midterm-elections.html
-
-**Man Who Took Flamingo From Las Vegas Hotel Is Found Guilty of Cruelty**\
-`The man, visiting from Canada, carried a flamingo named Peachy from its habitat to his hotel room. He was convicted of felony and misdemeanor charges.`\
-https://www.nytimes.com/2026/10/20/us/stolen-flamingo-las-vegas-hotel-animal-cruelty.html
-
-**Robert Kabera, Rwandan Government Critic, Beheaded in Uganda**\
-`The former soldier had been living in exile since 2020, and said in a video posted this month on TikTok that he feared for his life.`\
-https://www.nytimes.com/2026/10/20/world/africa/rwandan-beheaded-uganda-kabera.html
-
-**Joel Kaplan, Meta’s Global Policy Chief, to Leave After 15 Years**\
-`Joel Kaplan, a former adviser to George W. Bush known for his Republican ties, had helped Meta build its relationship with the Trump administration.`\
-https://www.nytimes.com/2026/10/20/technology/meta-joel-kaplan-policy-chief-depart.html
 
