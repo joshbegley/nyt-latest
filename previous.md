@@ -1,3 +1,7 @@
+**Maps: Tracking Subtropical Storm Josephine**\
+`See the likely path and wind arrival times for Josephine`\
+https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
+
 **Thélyson Orélien's Quebec Publisher Cuts Ties Over A.I. Accusations**\
 `Thélyson Orélien, a celebrated novelist, used artificial intelligence while writing a breakout book, his publisher says.`\
 https://www.nytimes.com/2026/10/21/world/canada/thelyson-orelien-ai-publisher.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/world/europe/macron-trump-france-protests.htm
 **Goods Looted During Riots in France Hit Resale Sites**\
 `France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
 https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-resale-sites.html
-
-**NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
-`New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
-https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html
 

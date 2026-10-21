@@ -1,3 +1,7 @@
+**Israeli Military Detains Brad Lander, N.Y. Congressional Candidate, in West Bank**\
+`The Israeli military detained Brad Lander, a New York congressional candidate, in the West Bank while he was helping Palestinian farmers.`\
+https://www.nytimes.com/video/world/europe/100000011227502/brad-lander-detained-israeli-military-west-bank.html
+
 **Maps: Tracking Subtropical Storm Josephine**\
 `See the likely path and wind arrival times for Josephine`\
 https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html
 **Macron Says Trump Does Not Like France and Distorts Its Troubles**\
 `Speaking in Qatar, President Emmanuel Macron railed against foreign leaders who he said had made false claims about unrest in France for their own political ends.`\
 https://www.nytimes.com/2026/10/21/world/europe/macron-trump-france-protests.html
-
-**Goods Looted During Riots in France Hit Resale Sites**\
-`France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
-https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-resale-sites.html
 

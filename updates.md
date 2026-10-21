@@ -1,3 +1,7 @@
+**Maps: Tracking Subtropical Storm Josephine**\
+`See the likely path and wind arrival times for Josephine`\
+https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
+
 **Thélyson Orélien's Quebec Publisher Cuts Ties Over A.I. Accusations**\
 `Thélyson Orélien, a celebrated novelist, used artificial intelligence while writing a breakout book, his publisher says.`\
 https://www.nytimes.com/2026/10/21/world/canada/thelyson-orelien-ai-publisher.html
