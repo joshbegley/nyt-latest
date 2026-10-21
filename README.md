@@ -1,3 +1,11 @@
+**New Rules in North Carolina Threaten Thousands of Mail Ballots**\
+`County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
+https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html
+
+**Hochul Leads Challenger Blakeman by 14 Points in Quinnipiac Poll**\
+`Gov. Kathy Hochul appears to be maintaining a comfortable lead over her Republican challenger, Bruce Blakeman, in her re-election bid in New York.`\
+https://www.nytimes.com/2026/10/21/nyregion/poll-hochul-blakeman-governor.html
+
 **Israeli Military Detains Brad Lander, N.Y. Congressional Candidate, in West Bank**\
 `The Israeli military detained Brad Lander, a New York congressional candidate, in the West Bank while he was helping Palestinian farmers.`\
 https://www.nytimes.com/video/world/europe/100000011227502/brad-lander-detained-israeli-military-west-bank.html
@@ -34,8 +42,8 @@ https://www.nytimes.com/2026/10/21/technology/anthropic-ai-agent-claude-duet.htm
 `Philip L. Sullivan started running the Florida hotline in 2025, a year after he was accused of stealing from a previous employer. He was sentenced to nearly 10 years in prison.`\
 https://www.nytimes.com/2026/10/21/us/philip-sullivan-theft-sentencing-addicted-to-recovery-podcast.html
 
-**Meta Raises Its A.I. Spending, Even as Cash Pressures Grow**\
-`The spending is having an effect on the Silicon Valley giant’s cash flow, as Meta continues investing to lead in the technology.`\
+**Meta Earnings Show Increased A.I. Spending, Even as Cash Pressures Grow**\
+`The spending has hurt the Silicon Valley giant’s cash flow, which turned negative. Meta said it would issue a new class of stock to help it raise more money.`\
 https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
 
 **AIPAC Makes Last-Minute Donation to Boost Rogers in Michigan Senate Race Against El-Sayed**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-ab
 **France Riots Expose the Rage Aimed at Dior, Hermès and Other Luxury Brands**\
 `The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
 https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
-
-**Who Is Ahead in Florida's 21st Congressional District?**\
-`Track the latest polls in Florida's 21st Congressional District.`\
-https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html
-
-**Macron Says Trump Does Not Like France and Distorts Its Troubles**\
-`Speaking in Qatar, President Emmanuel Macron railed against foreign leaders who he said had made false claims about unrest in France for their own political ends.`\
-https://www.nytimes.com/2026/10/21/world/europe/macron-trump-france-protests.html
 
