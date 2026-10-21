@@ -1,3 +1,11 @@
+**Vance Defends Ramaswamy’s Ad as Backlash Threatens Ohio Campaign**\
+`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
+https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
+
+**GM Aims to Bring ‘Eyes-Off’ Driving to AI-Powered Cars Within 2 Years**\
+`General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
+https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
+
 **Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
 `In the final weeks of Michigan’s Senate race, the Democratic nominee finds himself facing both ugly attacks and pointed questions about family members. He has pushed back forcefully.`\
 https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood-mother-half-sister.html
