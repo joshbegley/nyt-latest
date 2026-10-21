@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/21/business/media/alaska-journalists-sullivan-pe
 https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
 
 **Witkoff Calls Putin a ‘Humanitarian’ After Russia Releases an Imprisoned American**\
-`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who was living in Ukraine when Russia invaded.`\
+`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who had been living in Ukraine when Russia invaded.`\
 https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-release-putin-witkoff.html
 
 **Is Rabies Making a Comeback?**\
