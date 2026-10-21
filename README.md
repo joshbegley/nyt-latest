@@ -1,5 +1,5 @@
 **Britain Approves New Gas Drilling in the North Sea**\
-`The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts Britain’s pledge to reduce carbon emissions.`\
+`The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts a pledge to reduce carbon emissions.`\
 https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
 
 **Michael Kosta Supports Trump’s Midterms Man Crush**\
