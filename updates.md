@@ -1,3 +1,11 @@
+**We Still Need Riot Grrrl**\
+`The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
+https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
+
+**Live Updates: El-Sayed and Rogers to Debate Again in Michigan After Testy First Clash**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks two weeks ago.`\
+https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
+
 **Trump Envoy Calls Putin a ‘Humanitarian’**\
 `Also, Democrats lead in polls, but still face image problems. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/21/briefing/trump-russia-prisoner-release.html
