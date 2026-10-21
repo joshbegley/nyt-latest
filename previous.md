@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/10/21/world/americas/ai-election-videos-brazil.html
 `Trump’s meddling would have dark consequences for our democracy and our prosperity.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-midterms-election-threats-ice-economy.html
 
-**The Affordability Crisis Isn’t About Affordability. It’s About Something Much Bigger.**\
+**Everything Feels So Expensive. Here’s What’s Really Going On.**\
 `Whatever you call it, we can all agree this doesn’t feel good.`\
 https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
 

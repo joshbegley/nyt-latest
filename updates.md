@@ -1,3 +1,7 @@
+**Everything Feels So Expensive. Here’s What’s Really Going On.**\
+`Whatever you call it, we can all agree this doesn’t feel good.`\
+https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
+
 **Elon Musk Says SpaceX and Tesla Are Exploring a Merger**\
 `A deal would consolidate Elon Musk’s holdings in rockets, cars and artificial intelligence into a company worth well over $3 trillion.`\
 https://www.nytimes.com/2026/10/21/business/elon-musk-spacex-tesla-merger.html
