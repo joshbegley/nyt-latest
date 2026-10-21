@@ -1,3 +1,11 @@
+**Australian Politicians Were Already on Edge Before One of Their Own Was Attacked**\
+`Much remains unclear about why a driver ran a car into Helen Haines, a lawmaker. Even so, fellow representatives, especially women, spoke of feeling threatened in a polarized atmosphere.`\
+https://www.nytimes.com/2026/10/21/world/asia/helen-haines-attack-australian-politicians.html
+
+**15-Minute Lesson Plan: 100 Unanswered Questions in Science**\
+`What questions about ourselves, our world and our universe would you most like to have answered? Why?`\
+https://www.nytimes.com/2026/10/21/learning/15-minute-lesson-plan-100-unanswered-questions-in-science.html
+
 **China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
 `Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
 https://www.nytimes.com/2026/10/21/world/asia/china-exports-ai-controls.html

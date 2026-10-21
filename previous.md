@@ -1,3 +1,11 @@
+**Australian Politicians Were Already on Edge Before One of Their Own Was Attacked**\
+`Much remains unclear about why a driver ran a car into Helen Haines, a lawmaker. Even so, fellow representatives, especially women, spoke of feeling threatened in a polarized atmosphere.`\
+https://www.nytimes.com/2026/10/21/world/asia/helen-haines-attack-australian-politicians.html
+
+**15-Minute Lesson Plan: 100 Unanswered Questions in Science**\
+`What questions about ourselves, our world and our universe would you most like to have answered? Why?`\
+https://www.nytimes.com/2026/10/21/learning/15-minute-lesson-plan-100-unanswered-questions-in-science.html
+
 **These Photos Survived the Holocaust, Only to Be Lost in a Library Book**\
 `A collection of pictures depicting a Jewish family’s life before the Holocaust were sent on a wild journey through the Brooklyn Public Library system.`\
 https://www.nytimes.com/2026/10/21/nyregion/holocaust-photos-recovery-library-book.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-
 **The British Police Rearrest Two in Connection With Alleged Terror Plot**\
 `The counterterrorism police investigating a threat against an English air base used by U.S. bombers said the two men were working on behalf of Iran.`\
 https://www.nytimes.com/2026/10/20/world/europe/raf-fairfield-arrests-iran.html
-
-**Republican Women Hail Working-Mom Credentials to Boost Hinson in Iowa Senate Race**\
-`Senator Katie Britt of Alabama was the latest national Republican to visit Iowa to campaign for Representative Ashley Hinson. President Trump will follow on Thursday.`\
-https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race.html
-
-**Netflix Is Great at Making Money. Its Problem Is Keeping Viewers Hooked.**\
-`The streaming service reported a 12 percent increase in quarterly revenue, but acknowledged that stagnant viewership, particularly in the U.S. and Canada, was a major concern.`\
-https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-peter-rice.html
 
