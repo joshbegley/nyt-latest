@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘The Only Straight Man in London’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/21/style/tiny-modern-love-stories-the-only-straight-man-in-london.html
+
 **Democratic-Aligned Groups Sue Over Federal Crackdown on Voting**\
 `A sweeping lawsuit asked a judge to prevent the federal government from ordering voters disqualified, among other moves it said were engineered for voter suppression.`\
 https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/us/politics/trump-midterm-election-poll.html
 **Corrections: Oct. 21, 2026**\
 `Corrections that appeared in print on Wednesday, Oct. 21, 2026.`\
 https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
-
-**On Our Third Date, I Asked for a Joint Bank Account (Encore)**\
-`Splitting the bill felt awkward. Paying it herself was getting expensive. Janene Lin had a different idea.`\
-https://www.nytimes.com/2026/10/21/podcasts/on-our-third-date-i-asked-for-a-joint-bank-account-encore.html
 

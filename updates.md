@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘The Only Straight Man in London’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/21/style/tiny-modern-love-stories-the-only-straight-man-in-london.html
+
 **Democratic-Aligned Groups Sue Over Federal Crackdown on Voting**\
 `A sweeping lawsuit asked a judge to prevent the federal government from ordering voters disqualified, among other moves it said were engineered for voter suppression.`\
 https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump.html
