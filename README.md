@@ -1,3 +1,7 @@
+**Israeli Military Detains Brad Lander in West Bank During Volunteer Trip**\
+`Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
+https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
+
 **Toledo Residents Ordered to Evacuate After Chemical Explosion**\
 `Nearly 1,000 people were told to leave the area and others were urged to shelter in place, as a hazardous chemical was still leaking on Wednesday, officials said.`\
 https://www.nytimes.com/2026/10/21/us/toledo-ohio-chemical-explosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/t-magazine/greats-artists-cardi-b-steve-busce
 **Cardi B Is Using Her Music, Her Business and Her Politics to Express Herself**\
 `A shape-shifter with talent and personality to spare, the rapper keeps finding new ways to express herself.`\
 https://www.nytimes.com/2026/10/21/t-magazine/cardi-b-music-albums.html
-
-**My Greats | Cardi B**\
-`The rapper discusses everything from her greatest creation to the best advice she’s ever received.`\
-https://www.nytimes.com/video/t-magazine/100000011211582/my-greats-cardi-b.html
 
