@@ -1,3 +1,15 @@
+**Tesla Earnings Show Profit Declines Amid Talks to Merge With SpaceX**\
+`The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
+https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
+
+**Student Protests Mushroom Across Europe, Exposing Bleak Views of the Future**\
+`Since high school students began protesting in France in September, they’ve been joined by young demonstrators in at least seven other European countries.`\
+https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.html
+
+**Toledo Chemical Leak That Forced Residents to Evacuate Is Slowing**\
+`Nearly 1,000 people in the Ohio city were told to leave the area and thousands more were urged to stay inside. The mayor said the spill did not present a long-term threat.`\
+https://www.nytimes.com/2026/10/21/us/toledo-ohio-chemical-explosion.html
+
 **George W. Bush’s Brother Neil Bush Breaks G.O.P. Ranks to Vote for James Talarico in Texas**\
 `Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
