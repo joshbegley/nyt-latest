@@ -1,3 +1,7 @@
+**Russia Releases American Stephen Hubbard**\
+`The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
+https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
+
 **The Persecution of Ilhan Omar Is a Sign of Trump’s Desperation**\
 `Trump is preoccupied with summoning the image of a consolidated authoritarian state.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
