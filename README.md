@@ -182,7 +182,3 @@ https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
 `In the final weeks of Michigan’s Senate race, the Democratic nominee finds himself facing both ugly attacks and pointed questions about family members. He has pushed back forcefully.`\
 https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood-mother-half-sister.html
 
-**GM Aims to Bring ‘Eyes-Off’ Driving to AI-Powered Cars Within 2 Years**\
-`General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
-https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
-
