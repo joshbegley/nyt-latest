@@ -1,3 +1,15 @@
+**Drone Strike Kills More Than 150 in Abyei in Sudan’s Civil War**\
+`Struggling against each other on the battlefield, the sides in Sudan’s civil war are relying on drones to strike across vast distances, inflicting huge tolls on civilians in the process.`\
+https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
+
+**More Than 150 Killed After Drone Strikes Disputed Sudanese Town**\
+`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed South Sudan’s government forces for the attack.`\
+https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-abyei.html
+
+**In France, Raging Against the Luxury Machine**\
+`The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
+https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
+
 **Who Is Ahead in Florida's 21st Congressional District?**\
 `Track the latest polls in Florida's 21st Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html

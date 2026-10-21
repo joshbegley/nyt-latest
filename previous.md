@@ -1,3 +1,15 @@
+**Drone Strike Kills More Than 150 in Abyei in Sudan’s Civil War**\
+`Struggling against each other on the battlefield, the sides in Sudan’s civil war are relying on drones to strike across vast distances, inflicting huge tolls on civilians in the process.`\
+https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
+
+**More Than 150 Killed After Drone Strikes Disputed Sudanese Town**\
+`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed South Sudan’s government forces for the attack.`\
+https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-abyei.html
+
+**In France, Raging Against the Luxury Machine**\
+`The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
+https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
+
 **Who Is Ahead in Florida's 21st Congressional District?**\
 `Track the latest polls in Florida's 21st Congressional District.`\
 https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/21/us/christianity-today-magazine-layoffs.html
 **A Battle for Control of India’s Biggest Business Empire**\
 `A boardroom fight, an attempted veto and government intervention have plunged the Tata Group, one of India’s most revered institutions, into a fight over its future.`\
 https://www.nytimes.com/2026/10/21/business/tata-india-boardroom-fight.html
-
-**How to Lower Your Alzheimer’s Risk if You Have the APOE4 Gene Variant**\
-`People with the APOE4 gene variant have more to lose from unhealthy habits — and potentially more to gain from healthy ones.`\
-https://www.nytimes.com/2026/10/21/well/mind/alzheimers-apoe4-reduce-risk.html
-
-**This Shaker-Inspired Office Embodies Work-Life Balance**\
-`The Los Angeles designers Elora Joshi and Andrew Greene created their dream work space by pairing vintage artifacts with modern upgrades.`\
-https://www.nytimes.com/2026/10/21/realestate/this-shaker-inspired-office-embodies-work-life-balance.html
-
-**Rugby Star Ilona Maher’s 5 Favorite Places in Burlington, Vt.**\
-`The Olympic rugby powerhouse, “Dancing With the Stars” phenom, podcaster and Vermont native says her scenic hometown “feels like a movie” in the fall.`\
-https://www.nytimes.com/2026/10/21/travel/ilona-maher-burlington-vermont.html
 
