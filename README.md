@@ -1,5 +1,9 @@
+**A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
+`Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
+https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
+
 **A.I. Discovered a Critical Security Flaw Underpinning Websites**\
-`The disclosure further heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
+`The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
 
 **Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/podcasts/the-daily/us-economy-data-midterms.h
 **America’s Utility Bill Crisis, and Trump’s Approval Rating Hits a New Low**\
 `Plus, the big business of big scares.`\
 https://www.nytimes.com/2026/10/21/podcasts/the-headlines/utility-bill-costs-trump-approval-rating.html
-
-**NYT Connections Answers for October 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
-https://www.nytimes.com/2026/10/21/crosswords/connections-companion-1229.html
 
