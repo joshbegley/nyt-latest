@@ -1,3 +1,7 @@
+**Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
+`President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
+https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
+
 **Macron Says Foreign Leaders Shared Misinformation on France Protests**\
 `President Emmanuel Macron of France said President Trump and other foreign leaders made false claims about the protests in France.`\
 https://www.nytimes.com/video/world/europe/100000011228047/france-protests-macron-misinformation.html

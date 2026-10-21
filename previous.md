@@ -1,3 +1,7 @@
+**Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
+`President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
+https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
+
 **Macron Says Foreign Leaders Shared Misinformation on France Protests**\
 `President Emmanuel Macron of France said President Trump and other foreign leaders made false claims about the protests in France.`\
 https://www.nytimes.com/video/world/europe/100000011228047/france-protests-macron-misinformation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trum
 **Super Typhoon Champi Becomes Strongest Storm of 2026**\
 `The storm reached sustained winds of nearly 185 miles per hour on Wednesday. It is expected to weaken later, and its path remains uncertain.`\
 https://www.nytimes.com/2026/10/21/weather/super-typhoon-champi-strongest-storm-year.html
-
-**Trump’s Trade-War Miscalculation**\
-`Trump’s foreign policy is predicated on a miscalculation: that other countries will capitulate to his demands. On “The Ezra Klein Show,” Chrystia Freeland, a former deputy prime minister of Canada, explains how Trump’s approach has backfired in his negotiations with Canada and China.`\
-https://www.nytimes.com/video/opinion/100000011220111/trumps-trade-war-miscalculation.html
 
