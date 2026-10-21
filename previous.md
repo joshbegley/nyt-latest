@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/10/21/world/europe/pope-leo-cancer.html
 `The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
 https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
 
-**Live Updates: El-Sayed and Rogers Debate Again in Michigan After Testy First Clash**\
-`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks two weeks ago.`\
+**Live Updates: El-Sayed and Rogers Clash in Another Fiery Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded attacks on the economy, the Iran war and each other’s character in their second debate.`\
 https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
 
 **Trump Envoy Calls Putin a ‘Humanitarian’**\
@@ -185,8 +185,4 @@ https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood
 **GM Aims to Bring ‘Eyes-Off’ Driving to AI-Powered Cars Within 2 Years**\
 `General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
-
-**Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
-`The penalty, one of the largest levied against a tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
-https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
 
