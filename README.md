@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/10/21/business/taiwan-gender-quotas.html
 `An image of a highly venomous snake in Southern California prompted the police to warn residents. It turned out to be an A.I. hoax. How has A.I. changed whether you trust what you see online?`\
 https://www.nytimes.com/2026/10/21/learning/have-you-ever-been-fooled-by-an-ai-generated-photo-video-or-story.html
 
-**The Proponents of ‘Dark Nutrition’ Think Everything You Know About Food Is Wrong**\
+**Inside the World of ‘Dark Nutrition’**\
 `More Americans are rejecting everything they’ve been taught about food.`\
 https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
 
-**Discovering the Charm oft the Baltics on a Road Trip**\
+**Discovering the Charm of the Baltics on a Road Trip**\
 `A road trip through the countryside of Lithuania and Latvia turns up extraordinary country inns, where the flavor of the region shines through.`\
 https://www.nytimes.com/2026/10/21/travel/lithuania-latvia-baltics-road-trip.html
 
