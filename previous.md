@@ -1,3 +1,7 @@
+**SpaceX Boosts the A.I. Rally**\
+`Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
+https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
+
 **The Biggest Winner of Trumpism? China.**\
 `President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
 https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011160984/why-these-towers-co
 **Sleepy Hollow, N.Y.: Hardly Sleepy**\
 `The go-to Halloween destination in the Hudson Valley is experiencing a real estate development boom.`\
 https://www.nytimes.com/2026/10/21/realestate/sleepy-hollow-ny-hardly-sleepy.html
-
-**Why a Mother Writes ‘Son’ Across Stockholm**\
-`On cement walls and through dusty windows, a mother reaches out to her child.`\
-https://www.nytimes.com/2026/10/21/opinion/graffiti-mother-son-relationship-sweden.html
 

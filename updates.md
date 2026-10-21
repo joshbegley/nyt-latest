@@ -1,3 +1,7 @@
+**SpaceX Boosts the A.I. Rally**\
+`Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
+https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
+
 **The Biggest Winner of Trumpism? China.**\
 `President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
 https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
