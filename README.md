@@ -1,3 +1,11 @@
+**Bronx Parents Are Accused of Killing Their 3-Year-Old Daughter**\
+`Prosecutors say they also neglected the girl’s twin brother, who was hospitalized for malnourishment.`\
+https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
+
+**Witkoff Calls Putin a ‘Humanitarian’ After Russia Releases an Imprisoned American**\
+`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who was living in Ukraine when Russia invaded.`\
+https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-release-putin-witkoff.html
+
 **Is Rabies Making a Comeback?**\
 `As several states report surges in animal cases, federal officials are warning about an apparent increase in human exposures.`\
 https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
@@ -182,19 +190,11 @@ https://www.nytimes.com/2026/10/21/business/taiwan-gender-quotas.html
 `An image of a highly venomous snake in Southern California prompted the police to warn residents. It turned out to be an A.I. hoax. How has A.I. changed whether you trust what you see online?`\
 https://www.nytimes.com/2026/10/21/learning/have-you-ever-been-fooled-by-an-ai-generated-photo-video-or-story.html
 
-**Inside the World of Dark Nutrition**\
+**The Proponents of ‘Dark Nutrition’ Think Everything You Know About Food Is Wrong**\
 `More Americans are rejecting everything they’ve been taught about food.`\
 https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
 
 **Discovering the Charm oft the Baltics on a Road Trip**\
 `A road trip through the countryside of Lithuania and Latvia turns up extraordinary country inns, where the flavor of the region shines through.`\
 https://www.nytimes.com/2026/10/21/travel/lithuania-latvia-baltics-road-trip.html
-
-**How a Democrat Positioned Himself to Be Alaska’s Next Governor**\
-`As a mountaineer and extreme runner, Jonathan Kreiss-Tomkins is thoroughly Alaskan, and thanks to Republican infighting and the state’s deep troubles, he just might win next month.`\
-https://www.nytimes.com/2026/10/21/us/politics/alaska-governor-race-jkt.html
-
-**Letter From the Editors: T Magazine’s 2026 Greats Issue**\
-`It might be a willingness to honor their own individuality, wherever it takes them.`\
-https://www.nytimes.com/2026/10/21/t-magazine/greats-artists-cardi-b-steve-buscemi.html
 
