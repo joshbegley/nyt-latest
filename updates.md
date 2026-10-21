@@ -1,3 +1,15 @@
+**Democratic-Aligned Groups Sue Over Federal Crackdown on Voting**\
+`A sweeping lawsuit asked a judge to prevent the federal government from ordering voters disqualified, among other moves it said were engineered for voter suppression.`\
+https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump.html
+
+**Film Club: ‘Stalin Boys’**\
+`What did a group of middle school students learn about the world — and themselves — by creating a play for a History Day competition?`\
+https://www.nytimes.com/2026/10/21/learning/film-club-stalin-boys.html
+
+**Arizona Is Under Rare Tornado Warnings as Storms Blow Through**\
+`“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
+https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
+
 **Snoh Aalegra Put Her Secrets Into New Album, “Legendary Love”**\
 `The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
 https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html

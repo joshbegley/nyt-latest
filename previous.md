@@ -1,3 +1,15 @@
+**Democratic-Aligned Groups Sue Over Federal Crackdown on Voting**\
+`A sweeping lawsuit asked a judge to prevent the federal government from ordering voters disqualified, among other moves it said were engineered for voter suppression.`\
+https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump.html
+
+**Film Club: ‘Stalin Boys’**\
+`What did a group of middle school students learn about the world — and themselves — by creating a play for a History Day competition?`\
+https://www.nytimes.com/2026/10/21/learning/film-club-stalin-boys.html
+
+**Arizona Is Under Rare Tornado Warnings as Storms Blow Through**\
+`“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
+https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
+
 **Snoh Aalegra Put Her Secrets Into New Album, “Legendary Love”**\
 `The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
 https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html
@@ -181,20 +193,4 @@ https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
 **On Our Third Date, I Asked for a Joint Bank Account (Encore)**\
 `Splitting the bill felt awkward. Paying it herself was getting expensive. Janene Lin had a different idea.`\
 https://www.nytimes.com/2026/10/21/podcasts/on-our-third-date-i-asked-for-a-joint-bank-account-encore.html
-
-**Senator Asks 4 Accounting Giants to Describe Malta Tax Advice**\
-`Ron Wyden, ranking Democrat on the Senate Finance Committee, is investigating the firms over their role in helping corporations dodge billions in taxes.`\
-https://www.nytimes.com/2026/10/21/business/ron-wyden-accounting-firms-malta.html
-
-**A Vote Tomorrow Could Ban Horse Carriages in Central Park**\
-`The City Council speaker, Julie Menin, says the city will work to help drivers who will lose their jobs if a ban passes. Some could operate pedicabs in the park, she suggests.`\
-https://www.nytimes.com/2026/10/21/nyregion/horse-carriage-ban-city-council.html
-
-**Review: ‘The New Stanford Prison Experiment’ Is a Stiff Sentence**\
-`Netflix’s reboot of a notoriously cruel and unusual psychological study makes for unenlightening reality TV.`\
-https://www.nytimes.com/2026/10/21/arts/television/review-the-new-stanford-prison-experiment.html
-
-**Which $1 Million Home Would You Choose?**\
-`This week’s listings are in Janesville, Wis.; Rollinsford, N.H.; and Nashville.`\
-https://www.nytimes.com/2026/10/21/realestate/million-dollar-homes-nashville-new-hampshire-wisconsin.html
 
