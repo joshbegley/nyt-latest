@@ -1,3 +1,11 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Before Nathan Fielder, a modern detective story and little free everything.`\
+https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
+
+**Trump’s Abandonment of Ukraine**\
+`Readers sharply criticize what they view as appeasement of Russia. Also: Costly midterm ads.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-ukraine-russia.html
+
 **The Local: Tea and Timberwolves**\
 `Pumpkin spice? Sometimes. Chai spice? Always.`\
 https://www.nytimes.com/2026/10/21/briefing/tea-and-timberwolves.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-
 **The Hunting of Ilhan Omar**\
 `The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
-
-**We Know What Prevents College Sexual Assault. Now We Should Act on It.**\
-`We can prepare young women for the real world without repressing their liberty.`\
-https://www.nytimes.com/2026/10/21/opinion/cornell-sexual-assault-prevention.html
-
-**Democrats Have a Wide Lead in Our New Poll as Trump Slides**\
-`The map favors Republicans, but cracks in their base are leaving them vulnerable in defending House and Senate control.`\
-https://www.nytimes.com/2026/10/21/upshot/times-siena-poll-trump-midterms.html
 
