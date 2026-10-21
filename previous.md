@@ -1,3 +1,7 @@
+**G.M. Hopes to Design New Cars in as Little as 2 Years Using A.I.**\
+`General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
+https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
+
 **Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
 `The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/crosswords/strands-sidekick-963.html
 **Today’s Wordle Hints for October 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
 https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
-
-**Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
-`The move buys good will with President Trump while costing the President Vladimir V. Putin — who is wanted for war crimes — little.`\
-https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
 

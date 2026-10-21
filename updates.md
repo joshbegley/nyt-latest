@@ -1,3 +1,7 @@
+**G.M. Hopes to Design New Cars in as Little as 2 Years Using A.I.**\
+`General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
+https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
+
 **Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
 `The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
