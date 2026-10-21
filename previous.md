@@ -1,3 +1,11 @@
+**These Photos Survived the Holocaust, Only to Be Lost in a Library Book**\
+`A collection of pictures depicting a Jewish family’s life before the Holocaust were sent on a wild journey through the Brooklyn Public Library system.`\
+https://www.nytimes.com/2026/10/21/nyregion/holocaust-photos-recovery-library-book.html
+
+**NYT Spelling Bee Answers for October 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/21/crosswords/spelling-bee-forum.html
+
 **China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
 `Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
 https://www.nytimes.com/2026/10/21/world/asia/china-moves-to-tighten-its-grip-over-exports-of-top-ai-models.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/republican-women-iowa-senate-race
 **Netflix Is Great at Making Money. Its Problem Is Keeping Viewers Hooked.**\
 `The streaming service reported a 12 percent increase in quarterly revenue, but acknowledged that stagnant viewership, particularly in the U.S. and Canada, was a major concern.`\
 https://www.nytimes.com/2026/10/20/business/media/netflix-earnings-ted-sarandos-peter-rice.html
-
-**Restaurant Review: Andamiro in New York**\
-`There are many worthy dishes at Andamiro, but the rich, comforting gukbap is the real draw.`\
-https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
-
-**Alabama Man’s Death Sentence Is Commuted as Governor Cites Thin Evidence**\
-`Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
-https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
 
