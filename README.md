@@ -1,3 +1,11 @@
+**Who Is Ahead in Florida's 21st Congressional District?**\
+`Track the latest polls in Florida's 21st Congressional District.`\
+https://www.nytimes.com/interactive/polls/florida-us-house-21-polls-2026.html
+
+**Macron Says Trump Does Not Like France and Distorts Its Troubles**\
+`Speaking in Qatar, President Emmanuel Macron railed against foreign leaders who he said had made false claims about unrest in France for their own political ends.`\
+https://www.nytimes.com/2026/10/21/world/europe/macron-trump-doesnt-like-france.html
+
 **Goods Looted During Riots in France Hit Resale Sites**\
 `France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
 https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-resale-sites.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/21/realestate/this-shaker-inspired-office-embodi
 **Rugby Star Ilona Maher’s 5 Favorite Places in Burlington, Vt.**\
 `The Olympic rugby powerhouse, “Dancing With the Stars” phenom, podcaster and Vermont native says her scenic hometown “feels like a movie” in the fall.`\
 https://www.nytimes.com/2026/10/21/travel/ilona-maher-burlington-vermont.html
-
-**A Novelist Writes a Grown-Up American Girl's Story**\
-`For the first time, a young heroine from the toy juggernaut is at the center of a book for adults, written by a novelist who admires her pluck.`\
-https://www.nytimes.com/2026/10/21/books/review/american-girl-samantha-fiona-davis.html
-
-**Word of the Day: embroil**\
-`This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/21/learning/word-of-the-day-embroil.html
 

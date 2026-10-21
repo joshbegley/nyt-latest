@@ -1,3 +1,11 @@
+**Goods Looted During Riots in France Hit Resale Sites**\
+`France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
+https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-resale-sites.html
+
+**Witkoff Calls Putin a ‘Humanitarian’ After Russia Releases an Imprisoned American**\
+`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who had been living in Ukraine when Russia invaded.`\
+https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-release-putin-witkoff.html
+
 **Brad Lander Is Detained by I.D.F. in West Bank During a Volunteer Trip**\
 `Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
 https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
