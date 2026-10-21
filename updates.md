@@ -1,3 +1,15 @@
+**NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
+`New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
+https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html
+
+**Go Stargazing**\
+`A meteor shower is expected to peak tonight.`\
+https://www.nytimes.com/2026/10/21/briefing/go-stargazing.html
+
+**Alaska’s Journalists Join Forces to Cover the Midterms**\
+`The state’s challenging geography and newspapers’ broader economic struggles have stretched reporters in Alaska, just as its competitive U.S. Senate race has grabbed national attention.`\
+https://www.nytimes.com/2026/10/21/business/media/alaska-journalists-sullivan-peltola-senate.html
+
 **Inside the World of ‘Dark Nutrition’**\
 `More Americans are rejecting everything they’ve been taught about food.`\
 https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html

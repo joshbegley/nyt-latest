@@ -22,7 +22,7 @@ https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-relea
 `As several states report surges in animal cases, federal officials are warning about an apparent increase in human exposures.`\
 https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
 
-**Israeli Military Detains Brad Lander in West Bank During Volunteer Trip**\
+**Brad Lander Is Detained by I.D.F. in West Bank During a Volunteer Trip**\
 `Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
 https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
 
