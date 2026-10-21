@@ -1,3 +1,15 @@
+**Bronx Parents Are Accused of Killing Their 3-Year-Old Daughter**\
+`Prosecutors say they also neglected the girl’s twin brother, who was hospitalized for malnourishment.`\
+https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
+
+**Witkoff Calls Putin a ‘Humanitarian’ After Russia Releases an Imprisoned American**\
+`President Trump’s special envoy, Steve Witkoff, praised President Vladimir V. Putin of Russia as a “humanitarian” for releasing an imprisoned 74-year-old American who was living in Ukraine when Russia invaded.`\
+https://www.nytimes.com/video/world/europe/100000011227169/russia-prisoner-release-putin-witkoff.html
+
+**The Proponents of ‘Dark Nutrition’ Think Everything You Know About Food Is Wrong**\
+`More Americans are rejecting everything they’ve been taught about food.`\
+https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
+
 **Is Rabies Making a Comeback?**\
 `As several states report surges in animal cases, federal officials are warning about an apparent increase in human exposures.`\
 https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
