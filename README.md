@@ -1,3 +1,7 @@
+**Live Updates: Kansas Senate Debate Carries High Stakes as Polls Show a Dead Heat**\
+`Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that could be crucial to Senate control.`\
+https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
+
 **El Salvador’s President Issues Harsh Warning to Haitian Gangs After 4 Soldiers Are Abducted**\
 `Four members of El Salvador’s military were abducted Sunday in Haiti, and their president wants them back.`\
 https://www.nytimes.com/2026/10/21/world/americas/el-salvador-military-haiti-gangs.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/21/world/europe/pope-leo-cancer.html
 `The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
 https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
 
-**Live Updates: El-Sayed and Rogers to Debate Again in Michigan After Testy First Clash**\
+**Live Updates: El-Sayed and Rogers Debate Again in Michigan After Testy First Clash**\
 `Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks two weeks ago.`\
 https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
 
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
 `“John is the only person I know who could put out the entire New York Times by himself,” his boss once said. Mr. Geddes was 74.`\
 https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
 
-**Trump Administration Asks Supreme Court to Allow Border Wall Construction**\
+**Trump Asks Supreme Court to Allow Border Wall Construction in Big Bend**\
 `A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
 **Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
 `The penalty, one of the largest levied against a tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Before Nathan Fielder, a modern detective story and little free everything.`\
-https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
 

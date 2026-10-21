@@ -1,3 +1,7 @@
+**Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
+`The penalty, one of the largest levied against a tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
+https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
+
 **El Salvador’s President Issues Harsh Warning to Haitian Gangs After 4 Soldiers Are Abducted**\
 `Four members of El Salvador’s military were abducted Sunday in Haiti, and their president wants them back.`\
 https://www.nytimes.com/2026/10/21/world/americas/el-salvador-military-haiti-gangs.html
