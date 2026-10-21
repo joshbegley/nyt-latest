@@ -1,3 +1,7 @@
+**What Putin Gains From Releasing an American Prisoner**\
+`After Russia released an American prisoner, President Trump’s special envoy praised President Vladimir V. Putin as “a humanitarian.” Our White House and national security correspondent, David E. Sanger, describes how the release comes amid Mr. Trump’s broader shift toward Russia and away from Ukraine.`\
+https://www.nytimes.com/video/us/100000011223251/what-putin-gains-from-releasing-an-american-prisoner.html
+
 **Delhi’s Winter Season of Polluted Air Begins**\
 `As air quality plummeted in India’s largest city, the government said it would act to curtail the haze that blankets the capital every winter.`\
 https://www.nytimes.com/2026/10/21/world/asia/delhi-air-quality.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/world/americas/ai-election-videos-brazil.html
 **In Six Decades of Public Life, I Never Thought I Would Write This Piece**\
 `Trump’s meddling would have dark consequences for our democracy and our prosperity.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-midterms-election-threats-ice-economy.html
-
-**Everything Feels So Expensive. Here’s What’s Really Going On.**\
-`Whatever you call it, we can all agree this doesn’t feel good.`\
-https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
 
