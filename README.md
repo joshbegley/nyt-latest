@@ -1,3 +1,11 @@
+**5 Things to Know About Senator Roger Marshall of Kansas**\
+`The Republican incumbent is trying to hold on to his seat and keep his state from sending a Democrat to the Senate for the first time in nearly a century.`\
+https://www.nytimes.com/2026/10/21/us/5-things-to-know-about-roger-marshall.html
+
+**5 Things to Know About Adam Hamilton, the Pastor Running for Senate in Kansas**\
+`The candidate, a political newcomer, is hoping to be the first Democrat to represent the state in the Senate in nearly a century.`\
+https://www.nytimes.com/2026/10/21/us/adam-hamilton-kansas-senate.html
+
 **Live Updates: Kansas Senate Debate Carries High Stakes as Polls Show a Dead Heat**\
 `Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that could be crucial to Senate control.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
 **A.I. Discovered a Critical Vulnerability in PHP, a Coding Language Behind Many Websites**\
 `The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
-
-**Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
-`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Dr. Acton since her stepfather was charged with child rape.`\
-https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
-
-**Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
-`In the final weeks of Michigan’s Senate race, the Democratic nominee finds himself facing both ugly attacks and pointed questions about family members. He has pushed back forcefully.`\
-https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood-mother-half-sister.html
 
