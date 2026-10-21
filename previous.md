@@ -1,3 +1,7 @@
+**New Video Shows Chaotic Moments Before Police Shot 1-Year-Old Kohen Wiley**\
+`The body-camera and surveillance footage provides the first glimpse of a confrontation in a Walmart parking lot that left 1-year-old Kohen Wiley dead.`\
+https://www.nytimes.com/2026/10/20/us/kohen-wiley-video-mississippi-shooting.html
+
 **Trump Wields an Unprecedented $277 Million in Final Midterm Stretch**\
 `The enormous spending by the term-limited president’s super PAC has no parallel in American history, and could offer struggling Republican candidates a lifeline.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/world/africa/rwandan-beheaded-uganda-kabera.h
 **Joel Kaplan, Meta’s Global Policy Chief, to Leave After 15 Years**\
 `Joel Kaplan, a former adviser to George W. Bush known for his Republican ties, had helped Meta build its relationship with the Trump administration.`\
 https://www.nytimes.com/2026/10/20/technology/meta-joel-kaplan-policy-chief-depart.html
-
-**‘Nicole Kidman’ and Other Musical Odes to Actresses**\
-`Hear Adéla’s ubiquitous hit and tracks from SZA, the Go-Betweens, Nirvana and more.`\
-https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-kidman-actresses.html
 

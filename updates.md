@@ -1,3 +1,7 @@
+**New Video Shows Chaotic Moments Before Police Shot 1-Year-Old Kohen Wiley**\
+`The body-camera and surveillance footage provides the first glimpse of a confrontation in a Walmart parking lot that left 1-year-old Kohen Wiley dead.`\
+https://www.nytimes.com/2026/10/20/us/kohen-wiley-video-mississippi-shooting.html
+
 **Trump Wields an Unprecedented $277 Million in Final Midterm Stretch**\
 `The enormous spending by the term-limited president’s super PAC has no parallel in American history, and could offer struggling Republican candidates a lifeline.`\
 https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
