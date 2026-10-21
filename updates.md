@@ -1,3 +1,27 @@
+**Is This Economy as Awful as Voters Think? We Ask Our Expert.**\
+`As the midterms approach, our chief economics correspondent breaks down the data.`\
+https://www.nytimes.com/2026/10/21/podcasts/the-daily/us-economy-data-midterms.html
+
+**America’s Utility Bill Crisis, and Trump’s Approval Rating Hits a New Low**\
+`Plus, the big business of big scares.`\
+https://www.nytimes.com/2026/10/21/podcasts/the-headlines/utility-bill-costs-trump-approval-rating.html
+
+**NYT Connections Answers for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/connections-companion-1229.html
+
+**Cardi B’s Greats**\
+`The rapper Cardi B discusses everything from her greatest creation to the best advice she’s ever received.`\
+https://www.nytimes.com/video/t-magazine/100000011211649/cardi-bs-greats.html
+
+**NYT Strands Hints for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/strands-sidekick-963.html
+
+**Today’s Wordle Hints for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
+
 **Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
 `The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
