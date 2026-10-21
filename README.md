@@ -1,3 +1,7 @@
+**Discovery of New Fake Pollster, Wedgewood, Puts a Spotlight on Trust in Surveys**\
+`A supposed pollster had released a series of midterm surveys that were picked up by well-known polling aggregators. But on Tuesday, the group acknowledged that almost all of its work was fake.`\
+https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.html
+
 **Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
 `President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
 https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
 **The Biggest Winner of Trumpism? China.**\
 `President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
 https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
-
-**Super Typhoon Champi Becomes Strongest Storm of 2026**\
-`The storm reached sustained winds of nearly 185 miles per hour on Wednesday. It is expected to weaken later, and its path remains uncertain.`\
-https://www.nytimes.com/2026/10/21/weather/super-typhoon-champi-strongest-storm-year.html
 
