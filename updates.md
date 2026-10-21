@@ -1,3 +1,15 @@
+**A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
+`Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
+https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
+
+**A.I. Discovered a Critical Security Flaw Underpinning Websites**\
+`The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
+https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
+
+**Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
+`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
+https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
+
 **A.I. Discovered a Critical Security Flaw Underpinning Websites**\
 `The disclosure further heightened concerns that have been building over the last six months about A.I.’s potential to upend cybersecurity.`\
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html

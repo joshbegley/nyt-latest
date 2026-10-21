@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
 
 **Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
-`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
+`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Dr. Acton since her stepfather was charged with child rape.`\
 https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
 
 **Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
