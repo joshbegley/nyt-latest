@@ -1,3 +1,15 @@
+**Snoh Aalegra Put Her Secrets Into New Album, “Legendary Love”**\
+`The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
+https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html
+
+**In Trump’s World of International Diplomacy, Insults Are a One-Way Street**\
+`The latest rift with President Volodymyr Zelensky of Ukraine serves as a reminder that President Trump readily lashes out at other world leaders, only to grow outraged if they fight back.`\
+https://www.nytimes.com/2026/10/21/us/politics/trumps-diplomacy-insults.html
+
+**Supreme Court Blocks Trump From Denying Gender-Affirming Care to Trans Prisoners**\
+`The justices, for now, agreed to continue preventing the Bureau of Prisons from implementing a policy that would prohibit gender-transition medical treatments.`\
+https://www.nytimes.com/2026/10/21/us/politics/supreme-court-trump-transgender-prisoners.html
+
 **What Putin Gains From Releasing an American Prisoner**\
 `After Russia released an American prisoner, President Trump’s special envoy praised President Vladimir V. Putin as “a humanitarian.” Our White House and national security correspondent, David E. Sanger, describes how the release comes amid Mr. Trump’s broader shift toward Russia and away from Ukraine.`\
 https://www.nytimes.com/video/us/100000011223251/what-putin-gains-from-releasing-an-american-prisoner.html
