@@ -1,3 +1,7 @@
+**Britain Approves New Gas Drilling in the North Sea**\
+`The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts Britain’s pledge to reduce carbon emissions.`\
+https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
+
 **Michael Kosta Supports Trump’s Midterms Man Crush**\
 `The “Daily Show” host said President Trump has spent too much time thinking about Senator Jon Husted’s physique.`\
 https://www.nytimes.com/2026/10/21/arts/television/late-night-michael-kosta-trump-jon-husted.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-j
 **Boeing’s Large 737 Max Jet Secures U.S. Approval**\
 `After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
 https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
-
-**In ‘School Pictures’ and ‘Two Girls,’ the Tweens Are Not All Right**\
-`Milo Cramer’s excellent lo-fi song-cycle and Eliya Smith’s verbatim play about a notorious video both reveal how young minds are made.`\
-https://www.nytimes.com/2026/10/20/theater/school-pictures-two-girls-review.html
 
