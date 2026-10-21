@@ -1,3 +1,7 @@
+**Trump Wields an Unprecedented $277 Million in Final Midterm Stretch**\
+`The enormous spending by the term-limited president’s super PAC has no parallel in American history, and could offer struggling Republican candidates a lifeline.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
+
 **Man Is Fatally Shot on George Washington Bridge**\
 `A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
 https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html

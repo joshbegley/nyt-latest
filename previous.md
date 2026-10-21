@@ -1,3 +1,7 @@
+**Trump Wields an Unprecedented $277 Million in Final Midterm Stretch**\
+`The enormous spending by the term-limited president’s super PAC has no parallel in American history, and could offer struggling Republican candidates a lifeline.`\
+https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
+
 **Man Is Fatally Shot on George Washington Bridge**\
 `A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
 https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/technology/meta-joel-kaplan-policy-chief-depa
 **‘Nicole Kidman’ and Other Musical Odes to Actresses**\
 `Hear Adéla’s ubiquitous hit and tracks from SZA, the Go-Betweens, Nirvana and more.`\
 https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-kidman-actresses.html
-
-**178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
-`In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
-https://www.nytimes.com/2026/10/20/france-senate-code-noir-slavery.html
 
