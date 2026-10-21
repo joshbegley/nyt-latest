@@ -1,3 +1,7 @@
+**How The New York Times Reports on A.I. Images**\
+`A Times reporter and editors discuss the challenges of sifting through what’s real and what’s not in pursuit of the news.`\
+https://www.nytimes.com/2026/10/21/insider/trump-ai-videos-photos.html
+
 **When Starshield Cut Out, Ukrainian Drones Fell From the Skies**\
 `Ukraine says it still doesn’t know why the military satellite internet service, a sister to Starlink, was abruptly throttled, leaving troops vulnerable to Russian attacks.`\
 https://www.nytimes.com/2026/10/21/world/europe/starshield-starlink-ukraine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011211582/my-greats-cardi-b.html
 **Maximalist Bags and Shoes That Will Steal the Scene**\
 `Fall bags and shoes made memorable with wild fur and fringe, sparkling gems and flashes of bright color.`\
 https://www.nytimes.com/2026/10/21/t-magazine/maximalist-accessories-shoes-bags.html
-
-**John Turturro on ‘The Only Living Pickpocket in New York’**\
-`Though the actor has long been a welcome screen presence, this is his first starring role in years. “To carry the whole thing, that’s a big responsibility.”`\
-https://www.nytimes.com/2026/10/21/movies/john-turturro-only-living-pickpocket-in-new-york.html
 

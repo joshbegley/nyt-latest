@@ -1,3 +1,7 @@
+**When Starshield Cut Out, Ukrainian Drones Fell From the Skies**\
+`Ukraine says it still doesn’t know why the military satellite internet service, a sister to Starlink, was abruptly throttled, leaving troops vulnerable to Russian attacks.`\
+https://www.nytimes.com/2026/10/21/world/europe/starshield-starlink-ukraine.html
+
 **Who Is Stephen James Hubbard, the American Released From Russian Jail?**\
 `Mr. Hubbard, a 74-year-old teacher, was held for more than four years on what the State Department called fabricated charges.`\
 https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-russia-prisoner-release.html
@@ -82,7 +86,7 @@ https://www.nytimes.com/2026/10/21/upshot/times-siena-poll-trump-midterms.html
 `Likely voters favored Democratic candidates over Republicans by 11 percentage points in their congressional district, a New York Times/Siena poll found.`\
 https://www.nytimes.com/2026/10/21/us/politics/trump-midterm-election-poll.html
 
-**Corrections: Oct. 26, 2026**\
+**Corrections: Oct. 21, 2026**\
 `Corrections that appeared in print on Wednesday, Oct. 21, 2026.`\
 https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/t-magazine/maximalist-accessories-shoes-bags.
 **John Turturro on ‘The Only Living Pickpocket in New York’**\
 `Though the actor has long been a welcome screen presence, this is his first starring role in years. “To carry the whole thing, that’s a big responsibility.”`\
 https://www.nytimes.com/2026/10/21/movies/john-turturro-only-living-pickpocket-in-new-york.html
-
-**Death Toll From Venezuela Quakes Likely Far Exceeds Official Count**\
-`A Times analysis and U.S. Geological Survey data indicate that the official 6,509 death toll is probably a severe undercount.`\
-https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.html
 

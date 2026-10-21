@@ -1,3 +1,11 @@
+**When Starshield Cut Out, Ukrainian Drones Fell From the Skies**\
+`Ukraine says it still doesn’t know why the military satellite internet service, a sister to Starlink, was abruptly throttled, leaving troops vulnerable to Russian attacks.`\
+https://www.nytimes.com/2026/10/21/world/europe/starshield-starlink-ukraine.html
+
+**Corrections: Oct. 21, 2026**\
+`Corrections that appeared in print on Wednesday, Oct. 21, 2026.`\
+https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
+
 **Who Is Stephen James Hubbard, the American Released From Russian Jail?**\
 `Mr. Hubbard, a 74-year-old teacher, was held for more than four years on what the State Department called fabricated charges.`\
 https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-russia-prisoner-release.html
