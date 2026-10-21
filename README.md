@@ -1,8 +1,8 @@
 **A.I. Discovered a Critical Security Flaw Underpinning Websites**\
-`The disclosure further heightened concerns that have been building over the last six months about A.I.’s potential to upend cybersecurity.`\
+`The disclosure further heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
 
-**Vance Defends Ramaswamy’s Ad as Backlash Threatens Ohio Campaign**\
+**Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
 `The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
 https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
 
