@@ -1,3 +1,7 @@
+**China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
+`Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
+https://www.nytimes.com/2026/10/21/world/asia/china-exports-ai-controls.html
+
 **These Photos Survived the Holocaust, Only to Be Lost in a Library Book**\
 `A collection of pictures depicting a Jewish family’s life before the Holocaust were sent on a wild journey through the Brooklyn Public Library system.`\
 https://www.nytimes.com/2026/10/21/nyregion/holocaust-photos-recovery-library-book.html

@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/10/21/crosswords/spelling-bee-forum.html
 
 **China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
 `Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
-https://www.nytimes.com/2026/10/21/world/asia/china-moves-to-tighten-its-grip-over-exports-of-top-ai-models.html
+https://www.nytimes.com/2026/10/21/world/asia/china-exports-ai-controls.html
 
 **Britain Approves New Gas Drilling in the North Sea**\
 `The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts a pledge to reduce carbon emissions.`\
