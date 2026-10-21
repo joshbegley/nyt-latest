@@ -1,3 +1,7 @@
+**What We Saw at Fast-Track Trials of Riot Suspects in France**\
+`At the Tribunal de Paris, judges have supervised a carousel of expedited and often chaotic hearings for those detained during recent unrest.`\
+https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
+
 **Drone Strike Kills More Than 150 in Abyei in Sudan’s Civil War**\
 `Struggling against each other on the battlefield, the sides in Sudan’s civil war are relying on drones to strike across vast distances, inflicting huge tolls on civilians in the process.`\
 https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-
 `The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
 
-**Sexual Assault Awareness Is Not Enough**\
+**We Know What Prevents College Sexual Assault. Now We Should Act on It.**\
 `We can prepare young women for the real world without repressing their liberty.`\
 https://www.nytimes.com/2026/10/21/opinion/cornell-sexual-assault-prevention.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/books/review/the-last-best-place-on-the-inter
 **Christianity Today, a Voice of Centrist Evangelicalism, Is in Turmoil**\
 `Former employees of the publication say new leadership has been pushing back on independent journalism. About half of its staff members have left or been laid off over 14 months.`\
 https://www.nytimes.com/2026/10/21/us/christianity-today-magazine-layoffs.html
-
-**A Battle for Control of India’s Biggest Business Empire**\
-`A boardroom fight, an attempted veto and government intervention have plunged the Tata Group, one of India’s most revered institutions, into a fight over its future.`\
-https://www.nytimes.com/2026/10/21/business/tata-india-boardroom-fight.html
 
