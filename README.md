@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Allow Border Wall Construction**\
+`A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
+
 **New Rules in North Carolina Threaten Thousands of Mail Ballots**\
 `County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
 https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html
@@ -187,10 +191,6 @@ https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
 https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
 
 **More Than 150 Killed After Drone Strikes Disputed Sudanese Town**\
-`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed Sudan’s military for the attack.`\
+`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed Sudan’s military for the attack. Correction: An earlier version of this video appeared with an incorrect summary. Officials blamed Sudan’s military for the drone strikes, not the South Sudan government.`\
 https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-abyei.html
-
-**France Riots Expose the Rage Aimed at Dior, Hermès and Other Luxury Brands**\
-`The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
-https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
 

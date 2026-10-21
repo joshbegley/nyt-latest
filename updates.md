@@ -1,3 +1,19 @@
+**New Rules in North Carolina Threaten Thousands of Mail Ballots**\
+`County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
+https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html
+
+**Hochul Leads Challenger Blakeman by 14 Points in Quinnipiac Poll**\
+`Gov. Kathy Hochul appears to be maintaining a comfortable lead over her Republican challenger, Bruce Blakeman, in her re-election bid in New York.`\
+https://www.nytimes.com/2026/10/21/nyregion/poll-hochul-blakeman-governor.html
+
+**Israeli Military Detains Brad Lander, N.Y. Congressional Candidate, in West Bank**\
+`The Israeli military detained Brad Lander, a New York congressional candidate, in the West Bank while he was helping Palestinian farmers.`\
+https://www.nytimes.com/video/world/europe/100000011227502/brad-lander-detained-israeli-military-west-bank.html
+
+**Meta Earnings Show Increased A.I. Spending, Even as Cash Pressures Grow**\
+`The spending has hurt the Silicon Valley giant’s cash flow, which turned negative. Meta said it would issue a new class of stock to help it raise more money.`\
+https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
+
 **Maps: Tracking Subtropical Storm Josephine**\
 `See the likely path and wind arrival times for Josephine`\
 https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
