@@ -1,3 +1,11 @@
+**Elon Musk Says SpaceX and Tesla Are Exploring a Merger**\
+`A deal would consolidate Elon Musk’s holdings in rockets, cars and artificial intelligence into a company worth well over $3 trillion.`\
+https://www.nytimes.com/2026/10/21/business/elon-musk-spacex-tesla-merger.html
+
+**Idaho Falls**\
+`We look at the state of women’s health care in the state.`\
+https://www.nytimes.com/2026/10/21/briefing/idaho-womens-health.html
+
 **Parisians Split on Curfews After Riots in France**\
 `Several cities in France extended curfews on Tuesday to reassure rattled residents after the country’s largest riots in years. More protests are expected later in the week.`\
 https://www.nytimes.com/video/world/europe/100000011227065/paris-curfews-france-riots.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/21/us/san-francisco-cost-living-affordable-housi
 **How to Catch the Orionids, a Meteor Shower From Halley’s Comet**\
 `It’s a fall favorite among stargazers, known for bright, speedy streaks that can sometimes linger in the sky for minutes.`\
 https://www.nytimes.com/2026/10/21/science/space/orionids-meteor-shower-halleys-comet.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate**\
-`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
-https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-crosstabs.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of Registered Voters**\
-`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
-https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-rv-crosstabs.html
 
