@@ -1,3 +1,7 @@
+**A Strong Poll for Democrats, With Some Warning Signs**\
+`The party will be happy with the House outlook, but dismayed by some other findings.`\
+https://www.nytimes.com/2026/10/21/us/politics/a-strong-poll-for-democrats-with-some-warning-signs.html
+
 **Trump Says He’ll Decide Who Gets Rewards From Fraud Whistle-Blower Program**\
 `President Trump’s announcement raised concerns that he would use the program seeking information on fraud for political purposes.`\
 https://www.nytimes.com/2026/10/21/us/politics/trump-whistle-blower.html
