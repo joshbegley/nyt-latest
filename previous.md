@@ -1,13 +1,29 @@
+**The Midterms Pit the Democrats Against the Billionaires**\
+`Money probably can’t buy a midterm election.`\
+https://www.nytimes.com/2026/10/21/opinion/midterm-elections-billionaires.html
+
+**How Title IX Became a Political Tool**\
+`After a Cornell student’s lawsuit alleging the school failed her when she reported sexual assault, there’s a new focus on Title IX, the federal law barring sex discrimination in federally funded education. Our Washington correspondent Michael C. Bender traces how interpretations of the law shifted between the Obama and Trump administrations.`\
+https://www.nytimes.com/video/us/politics/100000011216870/how-title-ix-became-a-political-tool.html
+
+**Cornell Case Highlights Shifting Federal Title IX Enforcement**\
+`From Barack Obama to Donald Trump, ideology has infused the interpretation of the federal law banning sex discrimination on college campuses.`\
+https://www.nytimes.com/2026/10/21/us/politics/title-ix-trump-administration-cornell.html
+
+**America Mints a New National Park, Elevating an Arizonan ‘Sky Island’**\
+`After years of bipartisan effort, the former Chiricahua National Monument, in southeast Arizona, has become the United States’ 64th national park.`\
+https://www.nytimes.com/2026/10/21/travel/new-national-park-chiricahua.html
+
 **A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
 `Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
 https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
 
-**A.I. Discovered a Critical Security Flaw Underpinning Websites**\
+**A.I. Discovered a Critical Vulnerability in PHP, a Coding Language Behind Many Websites**\
 `The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
 https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
 
 **Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
-`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
+`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Dr. Acton since her stepfather was charged with child rape.`\
 https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
 
 **Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
@@ -177,20 +193,4 @@ https://www.nytimes.com/video/opinion/100000011220111/trumps-trade-war-miscalcul
 **Elon Musk Says SpaceX and Tesla Are Exploring a Merger**\
 `A deal would consolidate Elon Musk’s holdings in rockets, cars and artificial intelligence into a company worth well over $3 trillion.`\
 https://www.nytimes.com/2026/10/21/business/elon-musk-spacex-tesla-merger.html
-
-**Idaho Falls**\
-`We look at women’s health care in the state.`\
-https://www.nytimes.com/2026/10/21/briefing/idaho-womens-health.html
-
-**Parisians Split on Curfews After Riots in France**\
-`Several cities in France extended curfews on Tuesday to reassure rattled residents after the country’s largest riots in years. More protests are expected later in the week.`\
-https://www.nytimes.com/video/world/europe/100000011227065/paris-curfews-france-riots.html
-
-**Is This Economy as Awful as Voters Think? We Ask Our Expert.**\
-`As the midterms approach, our chief economics correspondent breaks down the data.`\
-https://www.nytimes.com/2026/10/21/podcasts/the-daily/us-economy-data-midterms.html
-
-**America’s Utility Bill Crisis, and Trump’s Approval Rating Hits a New Low**\
-`Plus, the big business of big scares.`\
-https://www.nytimes.com/2026/10/21/podcasts/the-headlines/utility-bill-costs-trump-approval-rating.html
 

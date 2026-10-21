@@ -1,3 +1,27 @@
+**The Midterms Pit the Democrats Against the Billionaires**\
+`Money probably can’t buy a midterm election.`\
+https://www.nytimes.com/2026/10/21/opinion/midterm-elections-billionaires.html
+
+**How Title IX Became a Political Tool**\
+`After a Cornell student’s lawsuit alleging the school failed her when she reported sexual assault, there’s a new focus on Title IX, the federal law barring sex discrimination in federally funded education. Our Washington correspondent Michael C. Bender traces how interpretations of the law shifted between the Obama and Trump administrations.`\
+https://www.nytimes.com/video/us/politics/100000011216870/how-title-ix-became-a-political-tool.html
+
+**Cornell Case Highlights Shifting Federal Title IX Enforcement**\
+`From Barack Obama to Donald Trump, ideology has infused the interpretation of the federal law banning sex discrimination on college campuses.`\
+https://www.nytimes.com/2026/10/21/us/politics/title-ix-trump-administration-cornell.html
+
+**America Mints a New National Park, Elevating an Arizonan ‘Sky Island’**\
+`After years of bipartisan effort, the former Chiricahua National Monument, in southeast Arizona, has become the United States’ 64th national park.`\
+https://www.nytimes.com/2026/10/21/travel/new-national-park-chiricahua.html
+
+**A.I. Discovered a Critical Vulnerability in PHP, a Coding Language Behind Many Websites**\
+`The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
+https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
+
+**Vance Defends Ramaswamy Ad Featuring Acton’s Mother Despite Backlash**\
+`The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Dr. Acton since her stepfather was charged with child rape.`\
+https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
+
 **A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
 `Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
 https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
