@@ -1,3 +1,11 @@
+**Trump Says He’ll Decide Who Gets Rewards From Fraud Whistle-Blower Program**\
+`President Trump’s announcement raised concerns that he would use the program seeking information on fraud for political purposes.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-whistle-blower.html
+
+**Pope Needs No Further Treatment for Lung Cancer, Doctors Say**\
+`Test results after the operation showed that the cancer was localized.`\
+https://www.nytimes.com/2026/10/21/world/europe/pope-leo-cancer.html
+
 **We Still Need Riot Grrrl**\
 `The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
 https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump
 **Film Club: ‘Stalin Boys’**\
 `What did a group of middle school students learn about the world — and themselves — by creating a play for a History Day competition?`\
 https://www.nytimes.com/2026/10/21/learning/film-club-stalin-boys.html
-
-**Arizona Faces Its First Tornado Watch in 15 Years as Rare Storms Blow Through**\
-`“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
-https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
-
-**Snoh Aalegra Put Her Secrets Into New Album, “Legendary Love”**\
-`The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
-https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html
 
