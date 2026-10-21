@@ -1,3 +1,11 @@
+**John Geddes, Former New York Times Newsroom Leader, Has Died**\
+`“John is the only person I know who could put out the entire New York Times by himself,” his boss once said. Mr. Geddes was 74.`\
+https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
+
+**Trump Administration Asks Supreme Court to Allow Border Wall Construction**\
+`A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
+
 **New Rules in North Carolina Threaten Thousands of Mail Ballots**\
 `County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
 https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html

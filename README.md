@@ -1,3 +1,7 @@
+**GMA Co-Hosts’ Ex-Spouses, Marilee Fiebig and Andrew Shue, Are Engaged**\
+`Marilee Fiebig and Andrew Shue — whose exes are T.J. Holmes and Amy Robach — have announced that they plan to marry.`\
+https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
+
 **John Geddes, Former New York Times Newsroom Leader, Has Died**\
 `“John is the only person I know who could put out the entire New York Times by himself,” his boss once said. Mr. Geddes was 74.`\
 https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/magazine/patient-death-lying-ethics.html
 **What We Saw at Fast-Track Trials of Riot Suspects in France**\
 `At the Tribunal de Paris, judges have supervised a carousel of expedited and often chaotic hearings for those detained during recent unrest.`\
 https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
-
-**Drone Strike Kills More Than 150 in Abyei in Sudan’s Civil War**\
-`Struggling against each other on the battlefield, the sides in Sudan’s civil war are relying on drones to strike across vast distances, inflicting huge tolls on civilians in the process.`\
-https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
 
