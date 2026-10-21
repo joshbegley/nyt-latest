@@ -1,3 +1,119 @@
+**The Affordability Crisis Isn’t About Affordability. It’s About Something Much Bigger.**\
+`Whatever you call it, we can all agree this doesn’t feel good.`\
+https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
+
+**They Promised Luxury Condos. $1 Billion Later, Buyers Are Still Waiting.**\
+`A housing and hotel project in Boca Raton, Fla., is tied up in lawsuits and buyers are seeking refunds on seven-figure deposits.`\
+https://www.nytimes.com/2026/10/21/realestate/they-promised-luxury-condos-1-billion-later-buyers-are-still-waiting.html
+
+**Book Review: ‘The Last Best Place on the Internet,’ by Richard Cooke**\
+`A jaunty new history recounts how the online encyclopedia turned the promise of collective creation into a global juggernaut.`\
+https://www.nytimes.com/2026/10/21/books/review/the-last-best-place-on-the-internet-richard-cooke.html
+
+**Christianity Today, a Voice of Centrist Evangelicalism, Is in Turmoil**\
+`Former employees of the publication say new leadership has been pushing back on independent journalism. About half of its staff members have left or been laid off over 14 months.`\
+https://www.nytimes.com/2026/10/21/us/christianity-today-magazine-layoffs.html
+
+**A Battle for Control of India’s Biggest Business Empire**\
+`A boardroom fight, an attempted veto and government intervention have plunged the Tata Group, one of India’s most revered institutions, into a fight over its future.`\
+https://www.nytimes.com/2026/10/21/business/tata-india-boardroom-fight.html
+
+**How to Lower Your Alzheimer’s Risk if You Have the APOE4 Gene Variant**\
+`People with the APOE4 gene variant have more to lose from unhealthy habits — and potentially more to gain from healthy ones.`\
+https://www.nytimes.com/2026/10/21/well/mind/alzheimers-apoe4-reduce-risk.html
+
+**This Shaker-Inspired Office Embodies Work-Life Balance**\
+`The Los Angeles designers Elora Joshi and Andrew Greene created their dream work space by pairing vintage artifacts with modern upgrades.`\
+https://www.nytimes.com/2026/10/21/realestate/this-shaker-inspired-office-embodies-work-life-balance.html
+
+**Rugby Star Ilona Maher’s 5 Favorite Places in Burlington, Vt.**\
+`The Olympic rugby powerhouse, “Dancing With the Stars” phenom, podcaster and Vermont native says her scenic hometown “feels like a movie” in the fall.`\
+https://www.nytimes.com/2026/10/21/travel/ilona-maher-burlington-vermont.html
+
+**A Novelist Writes a Grown-Up American Girl's Story**\
+`For the first time, a young heroine from the toy juggernaut is at the center of a book for adults, written by a novelist who admires her pluck.`\
+https://www.nytimes.com/2026/10/21/books/review/american-girl-samantha-fiona-davis.html
+
+**Word of the Day: embroil**\
+`This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/21/learning/word-of-the-day-embroil.html
+
+**For an Experiment in Political Affirmative Action, Look to Taiwan**\
+`The island adopted quotas for women running for public office decades before other countries. The upshot? Today, few of them need quotas to get elected.`\
+https://www.nytimes.com/2026/10/21/business/taiwan-gender-quotas.html
+
+**Have You Ever Been Fooled by an A.I.-Generated Photo, Video or Story?**\
+`An image of a highly venomous snake in Southern California prompted the police to warn residents. It turned out to be an A.I. hoax. How has A.I. changed whether you trust what you see online?`\
+https://www.nytimes.com/2026/10/21/learning/have-you-ever-been-fooled-by-an-ai-generated-photo-video-or-story.html
+
+**Inside the World of Dark Nutrition**\
+`More Americans are rejecting everything they’ve been taught about food.`\
+https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
+
+**Discovering the Charm oft the Baltics on a Road Trip**\
+`A road trip through the countryside of Lithuania and Latvia turns up extraordinary country inns, where the flavor of the region shines through.`\
+https://www.nytimes.com/2026/10/21/travel/lithuania-latvia-baltics-road-trip.html
+
+**How a Democrat Positioned Himself to Be Alaska’s Next Governor**\
+`As a mountaineer and extreme runner, Jonathan Kreiss-Tomkins is thoroughly Alaskan, and thanks to Republican infighting and the state’s deep troubles, he just might win next month.`\
+https://www.nytimes.com/2026/10/21/us/politics/alaska-governor-race-jkt.html
+
+**Letter From the Editors: T Magazine’s 2026 Greats Issue**\
+`It might be a willingness to honor their own individuality, wherever it takes them.`\
+https://www.nytimes.com/2026/10/21/t-magazine/greats-artists-cardi-b-steve-buscemi.html
+
+**Cardi B Is Using Her Music, Her Business and Her Politics to Express Herself**\
+`A shape-shifter with talent and personality to spare, the rapper keeps finding new ways to express herself.`\
+https://www.nytimes.com/2026/10/21/t-magazine/cardi-b-music-albums.html
+
+**My Greats | Cardi B**\
+`The rapper discusses everything from her greatest creation to the best advice she’s ever received.`\
+https://www.nytimes.com/video/t-magazine/100000011211582/my-greats-cardi-b.html
+
+**Maximalist Bags and Shoes That Will Steal the Scene**\
+`Fall bags and shoes made memorable with wild fur and fringe, sparkling gems and flashes of bright color.`\
+https://www.nytimes.com/2026/10/21/t-magazine/maximalist-accessories-shoes-bags.html
+
+**John Turturro on ‘The Only Living Pickpocket in New York’**\
+`Though the actor has long been a welcome screen presence, this is his first starring role in years. “To carry the whole thing, that’s a big responsibility.”`\
+https://www.nytimes.com/2026/10/21/movies/john-turturro-only-living-pickpocket-in-new-york.html
+
+**Death Toll From Venezuela Quakes Likely Far Exceeds Official Count**\
+`A Times analysis and U.S. Geological Survey data indicate that the official 6,509 death toll is probably a severe undercount.`\
+https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.html
+
+**Is Wikipedia the ‘Last Best Place on the Internet’?**\
+`Richard Cooke’s book, “The Last Best Place on the Internet” retells the history of Wikipedia with an emphasis on the human. Jennifer Szalai, a New York Times book critic, reviews the book.`\
+https://www.nytimes.com/video/books/100000011164788/is-wikipedia-the-last-best-place-on-the-internet.html
+
+**Why These Towers Collapsed in Venezuela’s Earthquakes**\
+`A 3-D reconstruction reveals why multiple apartment towers toppled in the earthquakes that struck Venezuela in June. Our reporter Julie Turkewitz examines how structural flaws — not just the strength of the quakes — left the towers vulnerable to collapse.`\
+https://www.nytimes.com/video/world/americas/100000011160984/why-these-towers-collapsed-in-venezuelas-earthquakes.html
+
+**Sleepy Hollow, N.Y.: Hardly Sleepy**\
+`The go-to Halloween destination in the Hudson Valley is experiencing a real estate development boom.`\
+https://www.nytimes.com/2026/10/21/realestate/sleepy-hollow-ny-hardly-sleepy.html
+
+**Why a Mother Writes ‘Son’ Across Stockholm**\
+`On cement walls and through dusty windows, a mother reaches out to her child.`\
+https://www.nytimes.com/2026/10/21/opinion/graffiti-mother-son-relationship-sweden.html
+
+**SON**\
+`On cement walls and through dusty windows, a mother reaches out to her son.`\
+https://www.nytimes.com/video/opinion/100000010887063/son.html
+
+**In San Francisco, a Family Earning $325,000 Qualifies for Government Aid**\
+`With the A.I. boom driving up prices, the city is subsidizing child care for households with high incomes. Even with the help, families say they are struggling.`\
+https://www.nytimes.com/2026/10/21/us/san-francisco-cost-living-affordable-housing.html
+
+**How to Catch the Orionids, a Meteor Shower From Halley’s Comet**\
+`It’s a fall favorite among stargazers, known for bright, speedy streaks that can sometimes linger in the sky for minutes.`\
+https://www.nytimes.com/2026/10/21/science/space/orionids-meteor-shower-halleys-comet.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate**\
+`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
+https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-crosstabs.html
+
 **Cross-Tabs: October 2026 Times/Siena Poll of Registered Voters**\
 `Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
 https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-rv-crosstabs.html
@@ -38,7 +154,7 @@ https://www.nytimes.com/2026/10/21/crosswords/spelling-bee-forum.html
 `Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
 https://www.nytimes.com/2026/10/21/world/asia/china-exports-ai-controls.html
 
-**Britain Approves New Gas Drilling in the North Sea**\
+**Britain Approves Long-Stalled Gas Drilling Project in the North Sea**\
 `The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts a pledge to reduce carbon emissions.`\
 https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
 
@@ -81,120 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-midterms.html
 **Man Is Fatally Shot on George Washington Bridge**\
 `A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
 https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html
-
-**NYT Crossword Answers for Oct. 21, 2026**\
-`Rebecca Goldstein keeps us on course.`\
-https://www.nytimes.com/2026/10/20/crosswords/daily-puzzle-2026-10-21.html
-
-**Agents Raid Adult Care Centers in Operation Focused on Medicaid Fraud**\
-`Federal, state and city authorities conducted searches in New York City as the Trump administration investigates allegations at centers in states Democrats control.`\
-https://www.nytimes.com/2026/10/20/nyregion/adult-day-care-raid-medicaid-fraud.html
-
-**How Zelensky Is Trying to Navigate Trump’s Tilt Toward Russia**\
-`Peter Baker, our chief White House correspondent, reports from Oslo, where Ukraine’s President, Volodymyr Zelensky, met with President Trump’s special envoy, Steve Witkoff.`\
-https://www.nytimes.com/video/us/politics/100000011225769/how-zelensky-is-trying-to-navigate-trumps-tilt-toward-russia.html
-
-**Ahead of Midterms, Justice Kagan Says Rulings Have Intensified Polarization**\
-`The justice said during a discussion that recent Supreme Court decisions on voting rights, gerrymandering and campaign finance have deepened America’s divides.`\
-https://www.nytimes.com/2026/10/20/us/politics/kagan-supreme-court-rulings-polarization.html
-
-**U.S. Begins Disclosing C.I.A. Interview Reports From Scrutiny of Post-9/11 Torture**\
-`The rolling release of long-secret files could add detail to the history of a legally disputed Bush-era counterterrorism program.`\
-https://www.nytimes.com/2026/10/20/us/politics/cia-interview-reports-sept-11-torture.html
-
-**N.B.A. Tunnel Walk: LeBron James, Jalen Brunson, Karl-Anthony Towns and More**\
-`Playing for a new team, he sent a message that he was taking this season seriously.`\
-https://www.nytimes.com/2026/10/20/style/lebron-james-jalen-brunson-tunnel-walk-76ers-knicks.html
-
-**As Alberta Rejects Canada Separatism, Carney Gets Much of the Credit**\
-`Prime Minister Mark Carney won over Canada’s most conservative province by promising a pipeline and campaigning hard, defeating its efforts to secede.`\
-https://www.nytimes.com/2026/10/20/world/canada/carney-alberta-referendum-trump.html
-
-**ICE Says It Didn’t Hit a Biker With a Car. Video Raises Questions.**\
-`Video footage shows the moment in Long Beach, Calif., when a vehicle swerves toward an oncoming cyclist. The mayor has called for an investigation into ICE agents’ treatment of the rider.`\
-https://www.nytimes.com/2026/10/20/us/ice-detain-citizen-california-video-ricardo-gonzalez.html
-
-**Germophobe Primates Want to Avoid Getting Sick, Too**\
-`Some monkeys become significantly more cautious about food sources that appear contaminated after experiencing deadly outbreaks of disease.`\
-https://www.nytimes.com/2026/10/20/science/primates-germaphobe-avoid-sickness.html
-
-**Canada Said No, Again**\
-`The country has never been more united.`\
-https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
-
-**How Two Colorado House Candidates Are Thinking About AI**\
-`In Colorado, two millennial candidates are thinking about A.I.`\
-https://www.nytimes.com/2026/10/20/us/politics/colorado-elections-ai.html
-
-**A Billionaire Wanted a Trump Pardon. His Family Gave Alina Habba a $50 Million Deal.**\
-`Julio Herrera Velutini, a prominent Venezuelan, was seeking clemency. He got it not long after his daughter gave Ms. Habba, a lawyer close to President Trump, an extraordinarily lucrative job.`\
-https://www.nytimes.com/2026/10/20/us/politics/julio-herrera-pardon-alina-habba.html
-
-**MAGA Inc. Unleashes Millions to Turn Out Republicans At the Polls**\
-`MAGA Inc. is now flooding the social media platforms with targeted ads as it seeks to turn out Republicans amid the president’s historically low approval ratings.`\
-https://www.nytimes.com/2026/10/20/us/politics/trump-maga-inc-super-pac.html
-
-**Trump Announces Plans to Spend Another $100 Million by Election Day**\
-`Also, a new N.B.A. season begins. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/10/20/briefing/trump-midterm-spending.html
-
-**Ambulance Response Times Soar in New York: ‘This Is Unacceptable’**\
-`A City Council hearing focused on why ambulances are taking far longer to respond than a decade earlier, with fewer hospitals and a shortage of emergency workers partly to blame.`\
-https://www.nytimes.com/2026/10/20/nyregion/nyc-ambulance-response-times-hospital-closures-staffing.html
-
-**Nikole Hannah-Jones on the Response to Her Essay**\
-`Nikole Hannah-Jones discusses the response to her recent magazine essay with Patrick Healy, an assistant managing editor at The New York Times.`\
-https://www.nytimes.com/video/insider/100000011226393/nikole-hannah-jones-on-the-response-to-her-essay.html
-
-**A Storm Will Bring Rain to California This Week**\
-`The heaviest rain was expected in Southern California through Thursday.`\
-https://www.nytimes.com/2026/10/20/weather/california-rain-la-sf.html
-
-**Michigan Senate Candidates Make Dueling Pitches to Business Leaders in Detroit**\
-`Mike Rogers and Dr. Abdul El-Sayed, the candidates in the tight race, defended their economic policies at the Detroit Economic Club.`\
-https://www.nytimes.com/2026/10/20/us/michigan-senate-el-sayed-rogers-economy.html
-
-**In Texas’ Senate Race, Paxton and Talarico Converge on Key Battleground**\
-`In Tarrant County, a fight over polling places has energized Democrats as Republicans seek to defend their grip on a longtime stronghold.`\
-https://www.nytimes.com/2026/10/20/us/paxton-talarico-fort-worth-tarrant-county-texas.html
-
-**Mailers About Transgender Students Mysteriously Appear at Texas Homes**\
-`The messages purporting to offer help for transgender students are tied to a group set up last month in Wyoming.`\
-https://www.nytimes.com/2026/10/20/us/transgender-mailers-texas.html
-
-**She Braved Sharks and Storms to Swim the Length of California**\
-`“It feels surreal being done, this has been my entire life for nearly four months,” said Catherine Breed, who finished her historic journey near the Mexico border on Monday.`\
-https://www.nytimes.com/2026/10/20/us/catherine-breed-first-swim-california-length.html
-
-**Art Basel Paris Preview Draws Interest Despite Protests**\
-`The Avant-Première preview of the Art Basel Paris fair attracted major collectors despite an escalation of anti-government protests, riots and looting across French cities.`\
-https://www.nytimes.com/2026/10/20/arts/art-basel-paris-france-protests.html
-
-**Trump Invokes Antisemitic Slur at Rally Again**\
-`President Trump alluded to the antisemitic term “Shylock” at a rally in Kansas on Monday. The word is associated with a centuries-old antisemitic trope of a moneylender. Mr. Trump said “Shylock” at a rally last year and said that he didn’t know it was an antisemitic slur.`\
-https://www.nytimes.com/video/us/politics/100000011225025/donald-trump-midterms-rally-slur-antisemitic.html
-
-**Nigeria Announces First Case of Ebola in Current Outbreak**\
-`Health officials praised the Nigerian authorities for their transparency in reporting the spread of the virus.`\
-https://www.nytimes.com/2026/10/20/world/africa/nigeria-ebola-outbreak.html
-
-**Nikole Hannah-Jones on Writing About Her Daughter**\
-`Nikole Hannah-Jones discusses her approach to writing her recent essay with Patrick Healy, an assistant managing editor at The New York Times.`\
-https://www.nytimes.com/video/insider/100000011225956/nikole-hannah-jones-on-writing-about-her-daughter.html
-
-**Trump Says He Asked Putin to Release an American Jailed in Russia**\
-`The president called for the return of Stephen James Hubbard, a Michigan teacher seized from his home in Ukraine months after Russia invaded that country.`\
-https://www.nytimes.com/2026/10/20/us/politics/trump-russia-prisoner-stephen-hubbard.html
-
-**China Criticizes U.S. Ban on DeepSeek A.I. in Government Systems**\
-`The response came after Homeland Security ordered the removal and exclusion of products developed by the Chinese company.`\
-https://www.nytimes.com/2026/10/20/world/asia/china-deepseek-us-ban.html
-
-**Trump Pushes to Evict White House Press Corps**\
-`President Trump has talked about replacing the James S. Brady Press Briefing Room with an indoor swimming pool.`\
-https://www.nytimes.com/2026/10/20/us/politics/trump-white-house-media.html
-
-**Britain Is Said to Approve New Gas Drilling in the North Sea**\
-`Jackdaw, a natural gas field off the coast of Scotland, would be the first new gas extraction project in the North Sea since a government moratorium in 2024.`\
-https://www.nytimes.com/2026/10/20/business/uk-north-sea-drilling-jackdaw.html
 

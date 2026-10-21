@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of Registered Voters**\
+`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
+https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-rv-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of Registered Voters**\
+`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
+https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-toplines.html
+
+**Palestinians Hope Israeli Election Will Oust Netanyahu**\
+`Many in Gaza and the West Bank are desperate to avoid more years of Prime Minister Benjamin Netanyahu’s right-wing government, which has made life close to unbearable.`\
+https://www.nytimes.com/2026/10/21/world/middleeast/stakes-for-palestinians-of-israel-election.html
+
 **Video Shows ICE Vehicle Swerving Toward Biker**\
 `Immigration and Customs Enforcement on Tuesday denied that it had hit a cyclist with a car in Long Beach, Calif., last week. But footage obtained by The New York Times shows the car swerving toward the biker.`\
 https://www.nytimes.com/video/us/100000011225815/ice-detain-citizen-california-video-ricardo-gonzalez.html

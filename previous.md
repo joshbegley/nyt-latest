@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of Registered Voters**\
+`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
+https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-rv-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of Registered Voters**\
+`Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
+https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-toplines.html
+
+**Palestinians Hope Israeli Election Will Oust Netanyahu**\
+`Many in Gaza and the West Bank are desperate to avoid more years of Prime Minister Benjamin Netanyahu’s right-wing government, which has made life close to unbearable.`\
+https://www.nytimes.com/2026/10/21/world/middleeast/stakes-for-palestinians-of-israel-election.html
+
 **Video Shows ICE Vehicle Swerving Toward Biker**\
 `Immigration and Customs Enforcement on Tuesday denied that it had hit a cyclist with a car in Long Beach, Calif., last week. But footage obtained by The New York Times shows the car swerving toward the biker.`\
 https://www.nytimes.com/video/us/100000011225815/ice-detain-citizen-california-video-ricardo-gonzalez.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/20/us/politics/trump-white-house-media.html
 **Britain Is Said to Approve New Gas Drilling in the North Sea**\
 `Jackdaw, a natural gas field off the coast of Scotland, would be the first new gas extraction project in the North Sea since a government moratorium in 2024.`\
 https://www.nytimes.com/2026/10/20/business/uk-north-sea-drilling-jackdaw.html
-
-**SpaceX Swings to a Profit, as A.I. Business Grows**\
-`Elon Musk’s rocket company said its artificial intelligence spending had soared, but revenue more than doubled from its Starlink internet satellite service and A.I. products.`\
-https://www.nytimes.com/2026/10/20/technology/spacex-earnings-elon-musk.html
-
-**Is Putin’s Waiting Game Working?**\
-`Trump’s push for deals and Europe’s political fractures seem to be giving the Russian president the opening he’s been waiting for.`\
-https://www.nytimes.com/2026/10/20/world/putin-trump-ukraine-war.html
-
-**Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
-`A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
-https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
 
