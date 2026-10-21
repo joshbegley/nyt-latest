@@ -1,3 +1,7 @@
+**Brad Lander Is Detained by I.D.F. in West Bank During a Volunteer Trip**\
+`Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
+https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
+
 **NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
 `New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
 https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html

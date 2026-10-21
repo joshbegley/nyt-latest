@@ -1,3 +1,7 @@
+**Goods Looted During Riots in France Hit Resale Sites**\
+`France is trying to crack down on the resale of goods believed to have been stolen over the weekend when antigovernment protests descended into riots across the country.`\
+https://www.nytimes.com/video/world/europe/100000011227211/france-riots-looting-resale-sites.html
+
 **NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
 `New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
 https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/books/review/american-girl-samantha-fiona-dav
 **Word of the Day: embroil**\
 `This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/21/learning/word-of-the-day-embroil.html
-
-**For an Experiment in Political Affirmative Action, Look to Taiwan**\
-`The island adopted quotas for women running for public office decades before other countries. The upshot? Today, few of them need quotas to get elected.`\
-https://www.nytimes.com/2026/10/21/business/taiwan-gender-quotas.html
 
