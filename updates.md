@@ -1,3 +1,7 @@
+**Britain Approves New Gas Drilling in the North Sea**\
+`The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts Britain’s pledge to reduce carbon emissions.`\
+https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
+
 **Michael Kosta Supports Trump’s Midterms Man Crush**\
 `The “Daily Show” host said President Trump has spent too much time thinking about Senator Jon Husted’s physique.`\
 https://www.nytimes.com/2026/10/21/arts/television/late-night-michael-kosta-trump-jon-husted.html
