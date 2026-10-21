@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
 `The enigmatic R&B singer returns with an intimate LP made her way. Inspired by ’80s sounds, it draws on her connections to Babyface, Stevie Wonder and Prince.`\
 https://www.nytimes.com/2026/10/21/arts/music/snoh-aalegra-legendary-love-album.html
 
-**In Trump’s World of International Diplomacy, Insults Are a One-Way Street**\
+**In Trump’s Diplomacy, Insults Are a One-Way Street. Ukraine Is the Latest Example.**\
 `The latest rift with President Volodymyr Zelensky of Ukraine serves as a reminder that President Trump readily lashes out at other world leaders, only to grow outraged if they fight back.`\
 https://www.nytimes.com/2026/10/21/us/politics/trumps-diplomacy-insults.html
 
