@@ -1,3 +1,7 @@
+**Video Shows ICE Vehicle Swerving Toward Biker**\
+`Immigration and Customs Enforcement on Tuesday denied that it had hit a cyclist with a car in Long Beach, Calif., last week. But footage obtained by The New York Times shows the car swerving toward the biker.`\
+https://www.nytimes.com/video/us/100000011225815/ice-detain-citizen-california-video-ricardo-gonzalez.html
+
 **What We Really Learned from a Chaotic NBA Opening Night**\
 `“The Athletic NBA Daily” crew unpacks the lively tipoff action.`\
 https://www.nytimes.com/2026/10/21/podcasts/nba-opening-night-basketball.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/world/putin-trump-ukraine-war.html
 **Felicity Green, British Tabloid Editor Who Championed the Mini, Dies at 100**\
 `A fashion editor in London during the Swinging Sixties, she courted controversy by promoting skimpy new styles — and the undergarments they required.`\
 https://www.nytimes.com/2026/10/20/style/felicity-green-dead.html
-
-**What We Saw at New York Bridal Fashion Week**\
-`Bridal hats, high necklines, low dropped waists and exaggerated hips were presented by new, emerging and legacy brands this season.`\
-https://www.nytimes.com/2026/10/20/style/what-we-saw-at-new-york-bridal-fashion-week.html
 

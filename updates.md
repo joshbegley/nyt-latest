@@ -1,3 +1,7 @@
+**Video Shows ICE Vehicle Swerving Toward Biker**\
+`Immigration and Customs Enforcement on Tuesday denied that it had hit a cyclist with a car in Long Beach, Calif., last week. But footage obtained by The New York Times shows the car swerving toward the biker.`\
+https://www.nytimes.com/video/us/100000011225815/ice-detain-citizen-california-video-ricardo-gonzalez.html
+
 **What We Really Learned from a Chaotic NBA Opening Night**\
 `“The Athletic NBA Daily” crew unpacks the lively tipoff action.`\
 https://www.nytimes.com/2026/10/21/podcasts/nba-opening-night-basketball.html
