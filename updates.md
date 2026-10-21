@@ -1,3 +1,7 @@
+**Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
+`The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
+https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
+
 **Russia Releases American Stephen Hubbard**\
 `The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html

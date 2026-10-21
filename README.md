@@ -1,3 +1,27 @@
+**Is This Economy as Awful as Voters Think? We Ask Our Expert.**\
+`As the midterms approach, our chief economics correspondent breaks down the data.`\
+https://www.nytimes.com/2026/10/21/podcasts/the-daily/us-economy-data-midterms.html
+
+**America’s Utility Bill Crisis, and Trump’s Approval Rating Hits a New Low**\
+`Plus, the big business of big scares.`\
+https://www.nytimes.com/2026/10/21/podcasts/the-headlines/utility-bill-costs-trump-approval-rating.html
+
+**NYT Connections Answers for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/connections-companion-1229.html
+
+**Cardi B’s Greats**\
+`The rapper Cardi B discusses everything from her greatest creation to the best advice she’s ever received.`\
+https://www.nytimes.com/video/t-magazine/100000011211649/cardi-bs-greats.html
+
+**NYT Strands Hints for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/strands-sidekick-963.html
+
+**Today’s Wordle Hints for October 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
+https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
+
 **Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
 `The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-rv-crossta
 **Toplines: October 2026 Times/Siena Poll of Registered Voters**\
 `Results of a New York Times/Siena poll conducted among 3,494 voters from Oct. 12 to 19, 2026.`\
 https://www.nytimes.com/interactive/2026/10/21/polls/times-siena-poll-toplines.html
-
-**Palestinians Hope Israeli Election Will Oust Netanyahu**\
-`Many in Gaza and the West Bank are desperate to avoid more years of Prime Minister Benjamin Netanyahu’s right-wing government, which has made life close to unbearable.`\
-https://www.nytimes.com/2026/10/21/world/middleeast/stakes-for-palestinians-of-israel-election.html
-
-**Video Shows ICE Vehicle Swerving Toward Biker**\
-`Immigration and Customs Enforcement on Tuesday denied that it had hit a cyclist with a car in Long Beach, Calif., last week. But footage obtained by The New York Times shows the car swerving toward the biker.`\
-https://www.nytimes.com/video/us/100000011225815/ice-detain-citizen-california-video-ricardo-gonzalez.html
-
-**What We Really Learned from a Chaotic NBA Opening Night**\
-`“The Athletic NBA Daily” crew unpacks the lively tipoff action.`\
-https://www.nytimes.com/2026/10/21/podcasts/nba-opening-night-basketball.html
-
-**Australian Politicians Were Already on Edge Before One of Their Own Was Attacked**\
-`Much remains unclear about why a driver ran a car into Helen Haines, a lawmaker. Even so, fellow representatives, especially women, spoke of feeling threatened in a polarized atmosphere.`\
-https://www.nytimes.com/2026/10/21/world/asia/helen-haines-attack-australian-politicians.html
-
-**15-Minute Lesson Plan: 100 Unanswered Questions in Science**\
-`What questions about ourselves, our world and our universe would you most like to have answered? Why?`\
-https://www.nytimes.com/2026/10/21/learning/15-minute-lesson-plan-100-unanswered-questions-in-science.html
-
-**These Photos Survived the Holocaust, Only to Be Lost in a Library Book**\
-`A collection of pictures depicting a Jewish family’s life before the Holocaust were sent on a wild journey through the Brooklyn Public Library system.`\
-https://www.nytimes.com/2026/10/21/nyregion/holocaust-photos-recovery-library-book.html
 
