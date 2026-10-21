@@ -1,3 +1,7 @@
+**What Putin Gains From Releasing an American Prisoner**\
+`After Russia released an American prisoner, President Trump’s special envoy praised President Vladimir V. Putin as “a humanitarian.” Our White House and national security correspondent, David E. Sanger, describes how the release comes amid Mr. Trump’s broader shift toward Russia and away from Ukraine.`\
+https://www.nytimes.com/video/us/100000011223251/what-putin-gains-from-releasing-an-american-prisoner.html
+
 **Delhi’s Winter Season of Polluted Air Begins**\
 `As air quality plummeted in India’s largest city, the government said it would act to curtail the haze that blankets the capital every winter.`\
 https://www.nytimes.com/2026/10/21/world/asia/delhi-air-quality.html
