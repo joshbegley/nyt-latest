@@ -1,3 +1,19 @@
+**Trump Envoy Calls Putin a ‘Humanitarian’**\
+`Also, Democrats lead in polls, but still face image problems. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/21/briefing/trump-russia-prisoner-release.html
+
+**Ramaswamy Backs Controversial Ohio Political Ad After Backlash**\
+`An ad from Vivek Ramaswamy, the Republican candidate for Ohio governer, shows the mother of the Democratic candidate, Amy Acton, calling her estranged daughter a liar.`\
+https://www.nytimes.com/video/us/politics/100000011228488/elections-midterms-vivek-ramaswamy-politics.html
+
+**Florida Mayor Is Accused of Taking Covid Grant Funds She Helped Approve**\
+`Mayor Jackie Espinosa of Kissimmee, Fla., and her family received money from a grant program she helped create during the pandemic, the state attorney general said. She was arrested on Wednesday.`\
+https://www.nytimes.com/2026/10/21/us/florida-mayor-kissimmee-arrested-fraud.html
+
+**Oregon Teacher Disputes Account of Her Heroism During School Shooting**\
+`Becky Drury, who was said to have shielded a student during a deadly shooting in Bend, refuted the account. “The truth is I was shot before I had any chance to act.”`\
+https://www.nytimes.com/2026/10/21/us/bend-oregon-school-shooting-teacher-hero.html
+
 **GMA Co-Hosts’ Ex-Spouses, Marilee Fiebig and Andrew Shue, Are Engaged**\
 `Marilee Fiebig and Andrew Shue — whose exes are T.J. Holmes and Amy Robach — have announced that they plan to marry.`\
 https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
