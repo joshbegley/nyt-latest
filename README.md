@@ -1,3 +1,11 @@
+**Tesla Earnings Show Profit Declines Amid Talks to Merge With SpaceX**\
+`The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
+https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
+
+**Student Protests Mushroom Across Europe, Exposing Bleak Views of the Future**\
+`Since high school students began protesting in France in September, they’ve been joined by young demonstrators in at least seven other European countries.`\
+https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.html
+
 **George W. Bush’s Brother Neil Bush Breaks G.O.P. Ranks to Vote for James Talarico in Texas**\
 `Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
@@ -174,8 +182,8 @@ https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
 `Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
 https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
 
-**Toledo Residents Ordered to Evacuate After Chemical Explosion**\
-`Nearly 1,000 people were told to leave the area and others were urged to shelter in place, as a hazardous chemical was still leaking on Wednesday, officials said.`\
+**Toledo Chemical Leak That Forced Residents to Evacuate Is Slowing**\
+`Nearly 1,000 people in the Ohio city were told to leave the area and thousands more were urged to stay inside. The mayor said the spill did not present a long-term threat.`\
 https://www.nytimes.com/2026/10/21/us/toledo-ohio-chemical-explosion.html
 
 **How The New York Times Reports on A.I. Images**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/insider/trump-ai-videos-photos.html
 **When Starshield Cut Out, Ukrainian Drones Fell From the Skies**\
 `Ukraine says it still doesn’t know why the military satellite internet service, a sister to Starlink, was abruptly throttled, leaving troops vulnerable to Russian attacks.`\
 https://www.nytimes.com/2026/10/21/world/europe/starshield-starlink-ukraine.html
-
-**Who Is Stephen James Hubbard, the American Released From Russian Jail?**\
-`Mr. Hubbard, a 74-year-old teacher, was held for more than four years on what the State Department called fabricated charges.`\
-https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-russia-prisoner-release.html
-
-**I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
-`Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
-https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
 
