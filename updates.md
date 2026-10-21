@@ -1,3 +1,7 @@
+**Man Is Fatally Shot on George Washington Bridge**\
+`A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
+https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html
+
 **NYT Crossword Answers for Oct. 21, 2026**\
 `Rebecca Goldstein keeps us on course.`\
 https://www.nytimes.com/2026/10/20/crosswords/daily-puzzle-2026-10-21.html
