@@ -166,13 +166,13 @@ https://www.nytimes.com/2026/10/21/t-magazine/maximalist-accessories-shoes-bags.
 `Though the actor has long been a welcome screen presence, this is his first starring role in years. “To carry the whole thing, that’s a big responsibility.”`\
 https://www.nytimes.com/2026/10/21/movies/john-turturro-only-living-pickpocket-in-new-york.html
 
-**Death Toll From Venezuela Quakes Likely Far Exceeds Official Count**\
-`A Times analysis and U.S. Geological Survey data indicate that the official 6,509 death toll is probably a severe undercount.`\
-https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.html
-
 **Is Wikipedia the ‘Last Best Place on the Internet’?**\
 `Richard Cooke’s book, “The Last Best Place on the Internet” retells the history of Wikipedia with an emphasis on the human. Jennifer Szalai, a New York Times book critic, reviews the book.`\
 https://www.nytimes.com/video/books/100000011164788/is-wikipedia-the-last-best-place-on-the-internet.html
+
+**Death Toll From Venezuela Quakes Likely Far Exceeds Official Count**\
+`A Times analysis and U.S. Geological Survey data indicate that the official 6,509 death toll is probably a severe undercount.`\
+https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.html
 
 **Why These Towers Collapsed in Venezuela’s Earthquakes**\
 `A 3-D reconstruction reveals why multiple apartment towers toppled in the earthquakes that struck Venezuela in June. Our reporter Julie Turkewitz examines how structural flaws — not just the strength of the quakes — left the towers vulnerable to collapse.`\
