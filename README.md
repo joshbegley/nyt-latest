@@ -1,3 +1,7 @@
+**A.I. Discovered a Critical Security Flaw Underpinning Websites**\
+`The disclosure further heightened concerns that have been building over the last six months about A.I.’s potential to upend cybersecurity.`\
+https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
+
 **Vance Defends Ramaswamy’s Ad as Backlash Threatens Ohio Campaign**\
 `The vice president backed an advertisement featuring Democrat Amy Acton’s mother, who has been estranged from Ms. Acton since her stepfather was charged with child rape.`\
 https://www.nytimes.com/2026/10/21/us/politics/ramaswamy-acton-ad-ohio.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/podcasts/the-headlines/utility-bill-costs-tru
 **NYT Connections Answers for October 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
 https://www.nytimes.com/2026/10/21/crosswords/connections-companion-1229.html
-
-**Cardi B’s Greats**\
-`The rapper Cardi B discusses everything from her greatest creation to the best advice she’s ever received.`\
-https://www.nytimes.com/video/t-magazine/100000011211649/cardi-bs-greats.html
 
