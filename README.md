@@ -1,3 +1,15 @@
+**Delhi’s Winter Season of Polluted Air Begins**\
+`As air quality plummeted in India’s largest city, the government said it would act to curtail the haze that blankets the capital every winter.`\
+https://www.nytimes.com/2026/10/21/world/asia/delhi-air-quality.html
+
+**Supreme Court Blocks Trump From Denying Gender-Affirming Care to Trans Prisoners**\
+`The justices, for now, agreed to continue blocking a Bureau of Prisons policy that would prohibit gender-transition medical treatments.`\
+https://www.nytimes.com/2026/10/21/us/politics/supreme-court-trump-transgender-prisoners.html
+
+**A Patient’s Son Asked if His Father Died Peacefully. Was I Wrong to Lie?**\
+`The honest answer would have been to tell him that I did not know.`\
+https://www.nytimes.com/2026/10/21/magazine/patient-death-lying-ethics.html
+
 **What We Saw at Fast-Track Trials of Riot Suspects in France**\
 `At the Tribunal de Paris, judges have supervised a carousel of expedited and often chaotic hearings for those detained during recent unrest.`\
 https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
@@ -10,7 +22,7 @@ https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
 `A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed South Sudan’s government forces for the attack.`\
 https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-abyei.html
 
-**In France, Raging Against the Luxury Machine**\
+**France Riots Expose the Rage Aimed at Dior, Hermès and Other Luxury Brands**\
 `The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
 https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/21/opinion/trump-midterms-election-threats-ice-e
 **Everything Feels So Expensive. Here’s What’s Really Going On.**\
 `Whatever you call it, we can all agree this doesn’t feel good.`\
 https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
-
-**They Promised Luxury Condos. $1 Billion Later, Buyers Are Still Waiting.**\
-`A housing and hotel project in Boca Raton, Fla., is tied up in lawsuits and buyers are seeking refunds on seven-figure deposits.`\
-https://www.nytimes.com/2026/10/21/realestate/they-promised-luxury-condos-1-billion-later-buyers-are-still-waiting.html
-
-**Book Review: ‘The Last Best Place on the Internet,’ by Richard Cooke**\
-`A jaunty new history recounts how the online encyclopedia turned the promise of collective creation into a global juggernaut.`\
-https://www.nytimes.com/2026/10/21/books/review/the-last-best-place-on-the-internet-richard-cooke.html
-
-**Christianity Today, a Voice of Centrist Evangelicalism, Is in Turmoil**\
-`Former employees of the publication say new leadership has been pushing back on independent journalism. About half of its staff members have left or been laid off over 14 months.`\
-https://www.nytimes.com/2026/10/21/us/christianity-today-magazine-layoffs.html
 
