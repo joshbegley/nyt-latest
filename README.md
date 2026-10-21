@@ -1,3 +1,7 @@
+**Alaska’s Journalists Join Forces to Cover the Midterms**\
+`The state’s challenging geography and newspapers’ broader economic struggles have stretched reporters in Alaska, just as its competitive U.S. Senate race has grabbed national attention.`\
+https://www.nytimes.com/2026/10/21/business/media/alaska-journalists-sullivan-peltola-senate.html
+
 **Bronx Parents Are Accused of Killing Their 3-Year-Old Daughter**\
 `Prosecutors say they also neglected the girl’s twin brother, who was hospitalized for malnourishment.`\
 https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/learning/have-you-ever-been-fooled-by-an-ai-g
 **Inside the World of ‘Dark Nutrition’**\
 `More Americans are rejecting everything they’ve been taught about food.`\
 https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
-
-**Discovering the Charm of the Baltics on a Road Trip**\
-`A road trip through the countryside of Lithuania and Latvia turns up extraordinary country inns, where the flavor of the region shines through.`\
-https://www.nytimes.com/2026/10/21/travel/lithuania-latvia-baltics-road-trip.html
 

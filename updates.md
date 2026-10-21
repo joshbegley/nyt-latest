@@ -1,3 +1,11 @@
+**Inside the World of ‘Dark Nutrition’**\
+`More Americans are rejecting everything they’ve been taught about food.`\
+https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
+
+**Discovering the Charm of the Baltics on a Road Trip**\
+`A road trip through the countryside of Lithuania and Latvia turns up extraordinary country inns, where the flavor of the region shines through.`\
+https://www.nytimes.com/2026/10/21/travel/lithuania-latvia-baltics-road-trip.html
+
 **Bronx Parents Are Accused of Killing Their 3-Year-Old Daughter**\
 `Prosecutors say they also neglected the girl’s twin brother, who was hospitalized for malnourishment.`\
 https://www.nytimes.com/2026/10/21/nyregion/bronx-parents-daughter-death.html
