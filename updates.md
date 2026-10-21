@@ -1,3 +1,19 @@
+**Delhi’s Winter Season of Polluted Air Begins**\
+`As air quality plummeted in India’s largest city, the government said it would act to curtail the haze that blankets the capital every winter.`\
+https://www.nytimes.com/2026/10/21/world/asia/delhi-air-quality.html
+
+**Supreme Court Blocks Trump From Denying Gender-Affirming Care to Trans Prisoners**\
+`The justices, for now, agreed to continue blocking a Bureau of Prisons policy that would prohibit gender-transition medical treatments.`\
+https://www.nytimes.com/2026/10/21/us/politics/supreme-court-trump-transgender-prisoners.html
+
+**A Patient’s Son Asked if His Father Died Peacefully. Was I Wrong to Lie?**\
+`The honest answer would have been to tell him that I did not know.`\
+https://www.nytimes.com/2026/10/21/magazine/patient-death-lying-ethics.html
+
+**France Riots Expose the Rage Aimed at Dior, Hermès and Other Luxury Brands**\
+`The looting of stores belonging to brands like Dior, Celine and Hermès has exposed a crack in the glossy facade.`\
+https://www.nytimes.com/2026/10/21/style/france-riots-luxury-dior-hermes.html
+
 **What We Saw at Fast-Track Trials of Riot Suspects in France**\
 `At the Tribunal de Paris, judges have supervised a carousel of expedited and often chaotic hearings for those detained during recent unrest.`\
 https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
