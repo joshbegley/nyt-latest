@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/10/21/us/politics/democratic-lawsuit-election-trump
 `What did a group of middle school students learn about the world — and themselves — by creating a play for a History Day competition?`\
 https://www.nytimes.com/2026/10/21/learning/film-club-stalin-boys.html
 
-**Arizona Is Under Rare Tornado Warnings as Storms Blow Through**\
+**Arizona Faces Its First Tornado Watch in 15 Years as Rare Storms Blow Through**\
 `“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
 https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
 

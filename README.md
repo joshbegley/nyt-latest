@@ -1,3 +1,11 @@
+**The Local: Tea and Timberwolves**\
+`Pumpkin spice? Sometimes. Chai spice? Always.`\
+https://www.nytimes.com/2026/10/21/briefing/tea-and-timberwolves.html
+
+**U.S. to Tap Heating Oil Reserves Ahead of Midterm Elections**\
+`The Trump administration will release 315,000 barrels of heating oil, but analysts say the amount is too small to make much of a difference.`\
+https://www.nytimes.com/2026/10/21/business/heating-oil-emergency-reserve-prices.html
+
 **Tiny Love Stories: ‘The Only Straight Man in London’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/21/style/tiny-modern-love-stories-the-only-straight-man-in-london.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/opinion/cornell-sexual-assault-prevention.htm
 **Democrats Have a Wide Lead in Our New Poll as Trump Slides**\
 `The map favors Republicans, but cracks in their base are leaving them vulnerable in defending House and Senate control.`\
 https://www.nytimes.com/2026/10/21/upshot/times-siena-poll-trump-midterms.html
-
-**Trump Approval Hits New Low Two Weeks Before Midterms, Poll Finds**\
-`Likely voters favored Democratic candidates over Republicans by 11 percentage points in their congressional district, a New York Times/Siena poll found.`\
-https://www.nytimes.com/2026/10/21/us/politics/trump-midterm-election-poll.html
-
-**Corrections: Oct. 21, 2026**\
-`Corrections that appeared in print on Wednesday, Oct. 21, 2026.`\
-https://www.nytimes.com/2026/10/21/pageoneplus/corrections-oct-21-2026.html
 

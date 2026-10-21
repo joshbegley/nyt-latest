@@ -1,3 +1,7 @@
+**Arizona Faces Its First Tornado Watch in 15 Years as Rare Storms Blow Through**\
+`“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
+https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
+
 **Tiny Love Stories: ‘The Only Straight Man in London’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/21/style/tiny-modern-love-stories-the-only-straight-man-in-london.html
