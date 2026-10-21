@@ -2,7 +2,7 @@
 `The spending is having an effect on the Silicon Valley giant’s cash flow, as Meta continues investing to lead in the technology.`\
 https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
 
-**Pro-Israel Lobby Puts Rare Money Behind Republican to Thwart El-Sayed**\
+**AIPAC Makes Last-Minute Donation to Boost Rogers in Michigan Senate Race Against El-Sayed**\
 `The group generally supports Democrats, but it has spent heavily against Dr. Abdul El-Sayed, a vocal critic of Israel. Its general election spending comes after initial concerns from the campaign of Mike Rogers, the Republican.`\
 https://www.nytimes.com/2026/10/21/us/politics/aipac-michigan-senate-rogers-donation.html
 
@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/10/21/france-riots-court-trials.html
 https://www.nytimes.com/2026/10/21/world/africa/sudan-drone-strikes.html
 
 **More Than 150 Killed After Drone Strikes Disputed Sudanese Town**\
-`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed South Sudan’s government forces for the attack.`\
+`A drone strike on a market in Abyei, a disputed region between Sudan and South Sudan, killed at least 153 people on Monday, a local official said. Officials blamed Sudan’s military for the attack.`\
 https://www.nytimes.com/video/world/africa/100000011227229/sudan-drone-attack-abyei.html
 
 **France Riots Expose the Rage Aimed at Dior, Hermès and Other Luxury Brands**\
