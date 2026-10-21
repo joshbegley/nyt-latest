@@ -1,3 +1,7 @@
+**Modi Seeks to Calm Allies by Shackling Gen Z Protests**\
+`Leaders of India’s governing coalition are trying to frame the demonstrations as a power grab by traditional political parties rather than a grass-roots youth movement.`\
+https://www.nytimes.com/2026/10/21/world/asia/modi-india-protests-cockroach-party.html
+
 **UK to Headphone Dodgers on Trains: Shush**\
 `Prime Minister Andy Burnham announced a campaign against listening to music or videos without headphones on public transportation. We asked London commuters to weigh in.`\
 https://www.nytimes.com/2026/10/21/world/europe/uk-underground-headphones-commuters.html
