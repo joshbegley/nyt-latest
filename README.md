@@ -1,3 +1,7 @@
+**U.S. Begins Disclosing C.I.A. Interview Reports From Scrutiny of Post-9/11 Torture**\
+`The rolling release of long-secret files could add detail to the history of a legally disputed Bush-era counterterrorism program.`\
+https://www.nytimes.com/2026/10/20/us/politics/cia-interview-reports-sept-11-torture.html
+
 **N.B.A. Tunnel Walk: LeBron James, Jalen Brunson, Karl-Anthony Towns and More**\
 `Playing for a new team, he sent a message that he was taking this season seriously.`\
 https://www.nytimes.com/2026/10/20/style/lebron-james-jalen-brunson-tunnel-walk-76ers-knicks.html
@@ -14,8 +18,8 @@ https://www.nytimes.com/2026/10/20/us/ice-detain-citizen-california-video-ricard
 `Some monkeys become significantly more cautious about food sources that appear contaminated after experiencing deadly outbreaks of disease.`\
 https://www.nytimes.com/2026/10/20/science/primates-germaphobe-avoid-sickness.html
 
-**Canada Has Never Been More United**\
-`Alberta says no to a secession vote, and no to Trump.`\
+**Canada Said No, Again**\
+`The country has never been more united.`\
 https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
 
 **How Two Colorado House Candidates Are Thinking About AI**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/dining/nyc-restaurant-news.html
 **A Matter of Values, at Cornell and Beyond**\
 `Readers respond to articles about the crisis at Cornell and what it says about our society. Also: Voters vs. oligarchs.`\
 https://www.nytimes.com/2026/10/20/opinion/cornell-fraternities-college.html
-
-**Trump’s D.C. Golf Course Renovation Plan Has Many Residents Feeling Discouraged**\
-`At East Potomac Park, several residents bemoaned a plan to revamp the federal property that might wipe out features they have cherished for years.`\
-https://www.nytimes.com/2026/10/20/us/trump-dc-golf-course-renovation-residents.html
 
