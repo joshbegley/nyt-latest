@@ -1,3 +1,11 @@
+**NYC Ballet Fall Highlights: A Balanchine Revival, Adrian Danchig-Waring’s Farewell and More**\
+`New York City Ballet’s fall highlights included the return of “Pithoprakta,” the magic of Mira Nadon and the farewell performance of Adrian Danchig-Waring.`\
+https://www.nytimes.com/2026/10/21/arts/dance/new-york-city-ballet-fall-season-highlights.html
+
+**Go Stargazing**\
+`A meteor shower is expected to peak tonight.`\
+https://www.nytimes.com/2026/10/21/briefing/go-stargazing.html
+
 **Alaska’s Journalists Join Forces to Cover the Midterms**\
 `The state’s challenging geography and newspapers’ broader economic struggles have stretched reporters in Alaska, just as its competitive U.S. Senate race has grabbed national attention.`\
 https://www.nytimes.com/2026/10/21/business/media/alaska-journalists-sullivan-peltola-senate.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/21/learning/word-of-the-day-embroil.html
 **For an Experiment in Political Affirmative Action, Look to Taiwan**\
 `The island adopted quotas for women running for public office decades before other countries. The upshot? Today, few of them need quotas to get elected.`\
 https://www.nytimes.com/2026/10/21/business/taiwan-gender-quotas.html
-
-**Have You Ever Been Fooled by an A.I.-Generated Photo, Video or Story?**\
-`An image of a highly venomous snake in Southern California prompted the police to warn residents. It turned out to be an A.I. hoax. How has A.I. changed whether you trust what you see online?`\
-https://www.nytimes.com/2026/10/21/learning/have-you-ever-been-fooled-by-an-ai-generated-photo-video-or-story.html
-
-**Inside the World of ‘Dark Nutrition’**\
-`More Americans are rejecting everything they’ve been taught about food.`\
-https://www.nytimes.com/2026/10/21/magazine/dark-nutrition-raw-meat-diet.html
 
