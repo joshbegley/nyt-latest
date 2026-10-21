@@ -1,3 +1,7 @@
+**China Moves to Tighten Its Grip Over Exports of Top A.I. Models**\
+`Draft rules on the export of artificial intelligence technology show how China is trying to balance national security risks with its desire to outpace the United States.`\
+https://www.nytimes.com/2026/10/21/world/asia/china-moves-to-tighten-its-grip-over-exports-of-top-ai-models.html
+
 **Britain Approves New Gas Drilling in the North Sea**\
 `The project will lessen the country’s dependence on imported energy, though environmental advocates say it undercuts a pledge to reduce carbon emissions.`\
 https://www.nytimes.com/2026/10/21/business/uk-jackdaw-gas-drilling.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/dining/restaurant-review-andamiro-nyc.html
 **Alabama Man’s Death Sentence Is Commuted as Governor Cites Thin Evidence**\
 `Toforest Johnson’s conviction in the 1995 killing of a sheriff’s deputy relied on the testimony of a woman who was paid a $5,000 reward by the state for providing information.`\
 https://www.nytimes.com/2026/10/20/us/death-sentence-commuted-alabama-toforest-johnson.html
-
-**Boeing’s Large 737 Max Jet Secures U.S. Approval**\
-`After years of delay, the Federal Aviation Administration certified the 737 Max 10, the largest version of Boeing’s most popular plane.`\
-https://www.nytimes.com/2026/10/20/business/boeing-737-max-10-faa.html
 
