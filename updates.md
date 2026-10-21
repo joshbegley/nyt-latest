@@ -1,3 +1,7 @@
+**Who Is Stephen James Hubbard, the American Released From Russian Jail?**\
+`Mr. Hubbard, a 74-year-old teacher, was held for more than four years on what the State Department called fabricated charges.`\
+https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-russia-prisoner-release.html
+
 **I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
 `Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
 https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
