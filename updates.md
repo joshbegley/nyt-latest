@@ -1,3 +1,7 @@
+**Macron Says Foreign Leaders Shared Misinformation on France Protests**\
+`President Emmanuel Macron of France said President Trump and other foreign leaders made false claims about the protests in France.`\
+https://www.nytimes.com/video/world/europe/100000011228047/france-protests-macron-misinformation.html
+
 **The Midterms Pit the Democrats Against the Billionaires**\
 `Money probably can’t buy a midterm election.`\
 https://www.nytimes.com/2026/10/21/opinion/midterm-elections-billionaires.html
