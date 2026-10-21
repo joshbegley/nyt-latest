@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
 
 **Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
-`The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
+`The penalty, one of the largest levied against a tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
 
 **The Good List: 6 Things to Add Delight to Your Day**\
