@@ -1,3 +1,7 @@
+**Man Is Fatally Shot on George Washington Bridge**\
+`A man was found alone in his car on Tuesday night with a gunshot wound to his head, the police said.`\
+https://www.nytimes.com/2026/10/20/nyregion/fatal-shooting-george-washington-bridge.html
+
 **NYT Crossword Answers for Oct. 21, 2026**\
 `Rebecca Goldstein keeps us on course.`\
 https://www.nytimes.com/2026/10/20/crosswords/daily-puzzle-2026-10-21.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/20/arts/music/amplifier-newsletter-adela-nicole-
 **178 Years After Banning Slavery, France Scraps ‘Code Noir’ Rules That Governed It**\
 `In a symbolic move, the French Senate approved the repeal of regulations that had remained on the books long after slavery’s abolition.`\
 https://www.nytimes.com/2026/10/20/france-senate-code-noir-slavery.html
-
-**How Venezuela’s Public Housing Towers Were Built to Fail**\
-`Venezuela’s government wanted housing built for its supporters — and fast. The design and construction flaws that followed proved deadly when earthquakes hit, a Times investigation found.`\
-https://www.nytimes.com/interactive/2026/10/20/world/americas/venezuela-public-housing-flawed-construction-earthquakes.html
 
