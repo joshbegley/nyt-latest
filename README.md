@@ -1,3 +1,7 @@
+**Is Rabies Making a Comeback?**\
+`As several states report surges in animal cases, federal officials are warning about an apparent increase in human exposures.`\
+https://www.nytimes.com/2026/10/21/science/rabies-virus-animals.html
+
 **Israeli Military Detains Brad Lander in West Bank During Volunteer Trip**\
 `Mr. Lander, a Democratic congressional nominee from New York, had been helping Palestinian farmers. He said he was released after about three hours, but that other volunteers were still in custody.`\
 https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/21/us/politics/alaska-governor-race-jkt.html
 **Letter From the Editors: T Magazine’s 2026 Greats Issue**\
 `It might be a willingness to honor their own individuality, wherever it takes them.`\
 https://www.nytimes.com/2026/10/21/t-magazine/greats-artists-cardi-b-steve-buscemi.html
-
-**Cardi B Is Using Her Music, Her Business and Her Politics to Express Herself**\
-`A shape-shifter with talent and personality to spare, the rapper keeps finding new ways to express herself.`\
-https://www.nytimes.com/2026/10/21/t-magazine/cardi-b-music-albums.html
 
