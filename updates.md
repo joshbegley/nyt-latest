@@ -1,3 +1,7 @@
+**Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
+`In the final weeks of Michigan’s Senate race, the Democratic nominee finds himself facing both ugly attacks and pointed questions about family members. He has pushed back forcefully.`\
+https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood-mother-half-sister.html
+
 **In Trump’s Diplomacy, Insults Are a One-Way Street. Ukraine Is the Latest Example.**\
 `The latest rift with President Volodymyr Zelensky of Ukraine serves as a reminder that President Trump readily lashes out at other world leaders, only to grow outraged if they fight back.`\
 https://www.nytimes.com/2026/10/21/us/politics/trumps-diplomacy-insults.html

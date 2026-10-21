@@ -1,3 +1,7 @@
+**Abdul El-Sayed Confronts Attacks on His Faith and Family Ties**\
+`In the final weeks of Michigan’s Senate race, the Democratic nominee finds himself facing both ugly attacks and pointed questions about family members. He has pushed back forcefully.`\
+https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood-mother-half-sister.html
+
 **G.M. Hopes to Design New Cars in as Little as 2 Years Using A.I.**\
 `General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/t-magazine/100000011211649/cardi-bs-greats.html
 **NYT Strands Hints for October 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
 https://www.nytimes.com/2026/10/21/crosswords/strands-sidekick-963.html
-
-**Today’s Wordle Hints for October 22, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 22, 2026.`\
-https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
 
