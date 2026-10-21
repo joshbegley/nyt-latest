@@ -1,3 +1,19 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Before Nathan Fielder, a modern detective story and little free everything.`\
+https://www.nytimes.com/2026/10/21/briefing/21-the-good-list-nathan-fielder.html
+
+**Trump’s Abandonment of Ukraine**\
+`Readers sharply criticize what they view as appeasement of Russia. Also: Costly midterm ads.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-ukraine-russia.html
+
+**The Local: Tea and Timberwolves**\
+`Pumpkin spice? Sometimes. Chai spice? Always.`\
+https://www.nytimes.com/2026/10/21/briefing/tea-and-timberwolves.html
+
+**U.S. to Tap Heating Oil Reserves Ahead of Midterm Elections**\
+`The Trump administration will release 315,000 barrels of heating oil, but analysts say the amount is too small to make much of a difference.`\
+https://www.nytimes.com/2026/10/21/business/heating-oil-emergency-reserve-prices.html
+
 **Arizona Faces Its First Tornado Watch in 15 Years as Rare Storms Blow Through**\
 `“Very unusual” weather is expected to last through Thursday, a meteorologist said.`\
 https://www.nytimes.com/2026/10/21/weather/arizona-tornado.html
