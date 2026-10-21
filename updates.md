@@ -1,3 +1,19 @@
+**The Biggest Winner of Trumpism? China.**\
+`President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
+https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
+
+**Super Typhoon Champi Becomes Strongest Storm of 2026**\
+`The storm reached sustained winds of nearly 185 miles per hour on Wednesday. It is expected to weaken later, and its path remains uncertain.`\
+https://www.nytimes.com/2026/10/21/weather/super-typhoon-champi-strongest-storm-year.html
+
+**Trump’s Trade-War Miscalculation**\
+`Trump’s foreign policy is predicated on a miscalculation: that other countries will capitulate to his demands. On “The Ezra Klein Show,” Chrystia Freeland, a former deputy prime minister of Canada, explains how Trump’s approach has backfired in his negotiations with Canada and China.`\
+https://www.nytimes.com/video/opinion/100000011220111/trumps-trade-war-miscalculation.html
+
+**The Hunting of Ilhan Omar**\
+`The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
+https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
+
 **Idaho Falls**\
 `We look at women’s health care in the state.`\
 https://www.nytimes.com/2026/10/21/briefing/idaho-womens-health.html

@@ -1,3 +1,15 @@
+**The Biggest Winner of Trumpism? China.**\
+`President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
+https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
+
+**Super Typhoon Champi Becomes Strongest Storm of 2026**\
+`The storm reached sustained winds of nearly 185 miles per hour on Wednesday. It is expected to weaken later, and its path remains uncertain.`\
+https://www.nytimes.com/2026/10/21/weather/super-typhoon-champi-strongest-storm-year.html
+
+**Trump’s Trade-War Miscalculation**\
+`Trump’s foreign policy is predicated on a miscalculation: that other countries will capitulate to his demands. On “The Ezra Klein Show,” Chrystia Freeland, a former deputy prime minister of Canada, explains how Trump’s approach has backfired in his negotiations with Canada and China.`\
+https://www.nytimes.com/video/opinion/100000011220111/trumps-trade-war-miscalculation.html
+
 **Elon Musk Says SpaceX and Tesla Are Exploring a Merger**\
 `A deal would consolidate Elon Musk’s holdings in rockets, cars and artificial intelligence into a company worth well over $3 trillion.`\
 https://www.nytimes.com/2026/10/21/business/elon-musk-spacex-tesla-merger.html
@@ -38,7 +50,7 @@ https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
 `The move buys good will with President Trump while costing the President Vladimir V. Putin — who is wanted for war crimes — little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
 
-**The Persecution of Ilhan Omar Is a Sign of Trump’s Desperation**\
+**The Hunting of Ilhan Omar**\
 `The president is preoccupied with summoning the image of a consolidated authoritarian state.`\
 https://www.nytimes.com/2026/10/21/opinion/trump-ilhan-omar-emma-goldman.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/21/realestate/sleepy-hollow-ny-hardly-sleepy.htm
 **Why a Mother Writes ‘Son’ Across Stockholm**\
 `On cement walls and through dusty windows, a mother reaches out to her child.`\
 https://www.nytimes.com/2026/10/21/opinion/graffiti-mother-son-relationship-sweden.html
-
-**SON**\
-`On cement walls and through dusty windows, a mother reaches out to her son.`\
-https://www.nytimes.com/video/opinion/100000010887063/son.html
-
-**In San Francisco, a Family Earning $325,000 Qualifies for Government Aid**\
-`With the A.I. boom driving up prices, the city is subsidizing child care for households with high incomes. Even with the help, families say they are struggling.`\
-https://www.nytimes.com/2026/10/21/us/san-francisco-cost-living-affordable-housing.html
-
-**How to Catch the Orionids, a Meteor Shower From Halley’s Comet**\
-`It’s a fall favorite among stargazers, known for bright, speedy streaks that can sometimes linger in the sky for minutes.`\
-https://www.nytimes.com/2026/10/21/science/space/orionids-meteor-shower-halleys-comet.html
 
