@@ -1,3 +1,7 @@
+**GMA Co-Hosts’ Ex-Spouses, Marilee Fiebig and Andrew Shue, Are Engaged**\
+`Marilee Fiebig and Andrew Shue — whose exes are T.J. Holmes and Amy Robach — have announced that they plan to marry.`\
+https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
+
 **John Geddes, Former New York Times Newsroom Leader, Has Died**\
 `“John is the only person I know who could put out the entire New York Times by himself,” his boss once said. Mr. Geddes was 74.`\
 https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
