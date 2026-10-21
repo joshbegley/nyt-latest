@@ -1,3 +1,11 @@
+**George W. Bush’s Brother Neil Bush Breaks G.O.P. Ranks to Vote for James Talarico in Texas**\
+`Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
+https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
+
+**Su Wu Celebrates Her Book “Mesoamerican Modern” at Mexico City’s Casa Möbius**\
+`To toast her new design book, “Mesoamerican Modern,” Su Wu co-hosted a dinner at Mexico City’s Casa Möbius.`\
+https://www.nytimes.com/2026/10/21/t-magazine/mesoamerican-modern-su-wu-mexico-city-party.html
+
 **C.D.C. Ignored Request From States to Validate a New Measles Test**\
 `The agency replied two months later, saying it had “competing priorities,” officials from a coalition of Western states said.`\
 https://www.nytimes.com/2026/10/21/health/measles-test-cdc.html
@@ -50,7 +58,7 @@ https://www.nytimes.com/2026/10/21/us/politics/abdul-el-sayed-muslim-brotherhood
 `General Motors is seeking help from artificial intelligence to keep up with Chinese companies that introduce vehicles very quickly.`\
 https://www.nytimes.com/2026/10/21/business/gm-ai-electric-vehicles-china.html
 
-**Meta Ordered to Pay $25 Billion for Deceiving Users on Privacy**\
+**Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
 `The penalty, one of the largest levied against the tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/world/europe/who-stephen-hubbard-american-rus
 **I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
 `Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
 https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
-
-**Shark Returns to Sea After Over a Month Stuck in a South Korean Port Canal**\
-`The 10-foot-long dusky shark, nicknamed “Bukangi,” was successfully guided back to the open ocean after a third rescue attempt.`\
-https://www.nytimes.com/2026/10/21/world/asia/south-korea-shark-bukangi-busan.html
-
-**SpaceX Boosts the A.I. Rally**\
-`Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
-https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
 
