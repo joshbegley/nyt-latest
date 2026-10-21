@@ -1,3 +1,15 @@
+**Live Updates: Kansas Senate Debate Carries High Stakes as Polls Show a Dead Heat**\
+`Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that could be crucial to Senate control.`\
+https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
+
+**Live Updates: El-Sayed and Rogers Debate Again in Michigan After Testy First Clash**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded sharply personal attacks two weeks ago.`\
+https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
+
+**Trump Asks Supreme Court to Allow Border Wall Construction in Big Bend**\
+`A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
+
 **Meta Ordered to Pay $25 Billion Over Cambridge Analytica Privacy Violations**\
 `The penalty, one of the largest levied against a tech giant, stemmed from a lawsuit by New Mexico claiming the social media company had misled users about their data privacy.`\
 https://www.nytimes.com/2026/10/21/technology/meta-penalty-new-mexico.html
