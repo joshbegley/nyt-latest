@@ -1,3 +1,11 @@
+**U.S. Begins Disclosing C.I.A. Interview Reports From Scrutiny of Post-9/11 Torture**\
+`The rolling release of long-secret files could add detail to the history of a legally disputed Bush-era counterterrorism program.`\
+https://www.nytimes.com/2026/10/20/us/politics/cia-interview-reports-sept-11-torture.html
+
+**Canada Said No, Again**\
+`The country has never been more united.`\
+https://www.nytimes.com/2026/10/20/opinion/canada-alberta-referendum-trump.html
+
 **N.B.A. Tunnel Walk: LeBron James, Jalen Brunson, Karl-Anthony Towns and More**\
 `Playing for a new team, he sent a message that he was taking this season seriously.`\
 https://www.nytimes.com/2026/10/20/style/lebron-james-jalen-brunson-tunnel-walk-76ers-knicks.html
