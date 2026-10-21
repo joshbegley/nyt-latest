@@ -1,3 +1,7 @@
+**C.D.C. Ignored Request From States to Validate a New Measles Test**\
+`The agency replied two months later, saying it had “competing priorities,” officials from a coalition of Western states said.`\
+https://www.nytimes.com/2026/10/21/health/measles-test-cdc.html
+
 **Discovery of New Fake Pollster, Wedgewood, Puts a Spotlight on Trust in Surveys**\
 `A supposed pollster had released a series of midterm surveys that were picked up by well-known polling aggregators. But on Tuesday, the group acknowledged that almost all of its work was fake.`\
 https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/21/world/asia/south-korea-shark-bukangi-busan.ht
 **SpaceX Boosts the A.I. Rally**\
 `Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
 https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
-
-**The Biggest Winner of Trumpism? China.**\
-`President Trump’s erratic foreign policy has actually helped China on the world stage, argues Chrystia Freeland, a former deputy prime minister of Canada. On “The Ezra Klein Show,” she discusses how the rest of the world sees America and its biggest rival.`\
-https://www.nytimes.com/video/opinion/100000011220110/the-biggest-winner-of-trumpism-china.html
 
