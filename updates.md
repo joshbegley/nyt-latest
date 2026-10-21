@@ -1,3 +1,15 @@
+**El Salvador’s President Issues Harsh Warning to Haitian Gangs After 4 Soldiers Are Abducted**\
+`Four members of El Salvador’s military were abducted Sunday in Haiti, and their president wants them back.`\
+https://www.nytimes.com/2026/10/21/world/americas/el-salvador-military-haiti-gangs.html
+
+**U.S. and Israel Draw Up Plans for Renewed Strikes on Iran After Elections**\
+`Renewed hostilities might not be any more successful than the war’s first phase, and President Trump has repeatedly canceled plans for a return to major combat.`\
+https://www.nytimes.com/2026/10/21/us/politics/us-israel-renewed-iran-strikes.html
+
+**This Emily Dickinson Poem Will Hit You Where You Live**\
+`Emily Dickinson makes 50 words contain endless possibilities.`\
+https://www.nytimes.com/interactive/2026/10/21/books/emily-dickinson-poem-i-dwell-in-possibility.html
+
 **Video Game Studio BioWare Shutting Down**\
 `The studio was behind popular games such as Baldur’s Gate, Dragon Age and Mass Effect. Its parent company, Electronic Arts, is expected to lay off some of its staff as part of cost cuts.`\
 https://www.nytimes.com/2026/10/21/arts/bioware-closing-baldurs-gate.html
