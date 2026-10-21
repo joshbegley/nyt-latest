@@ -1,3 +1,11 @@
+**Meta Raises Its A.I. Spending, Even as Cash Pressures Grow**\
+`The spending is having an effect on the Silicon Valley giant’s cash flow, as Meta continues investing to lead in the technology.`\
+https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
+
+**Pro-Israel Lobby Puts Rare Money Behind Republican to Thwart El-Sayed**\
+`The group generally supports Democrats, but it has spent heavily against Dr. Abdul El-Sayed, a vocal critic of Israel. Its general election spending comes after initial concerns from the campaign of Mike Rogers, the Republican.`\
+https://www.nytimes.com/2026/10/21/us/politics/aipac-michigan-senate-rogers-donation.html
+
 **Tesla Earnings Show Profit Declines Amid Talks to Merge With SpaceX**\
 `The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
 https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/21/nyregion/brad-lander-west-bank-idf-detained.h
 **Toledo Chemical Leak That Forced Residents to Evacuate Is Slowing**\
 `Nearly 1,000 people in the Ohio city were told to leave the area and thousands more were urged to stay inside. The mayor said the spill did not present a long-term threat.`\
 https://www.nytimes.com/2026/10/21/us/toledo-ohio-chemical-explosion.html
-
-**How The New York Times Reports on A.I. Images**\
-`A Times reporter and editors discuss the challenges of sifting through what’s real and what’s not in pursuit of the news.`\
-https://www.nytimes.com/2026/10/21/insider/trump-ai-videos-photos.html
-
-**When Starshield Cut Out, Ukrainian Drones Fell From the Skies**\
-`Ukraine says it still doesn’t know why the military satellite internet service, a sister to Starlink, was abruptly throttled, leaving troops vulnerable to Russian attacks.`\
-https://www.nytimes.com/2026/10/21/world/europe/starshield-starlink-ukraine.html
 
