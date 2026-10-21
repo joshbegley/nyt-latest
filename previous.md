@@ -1,3 +1,11 @@
+**I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
+`Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
+https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
+
+**Shark Returns to Sea After Over a Month Stuck in a South Korean Port Canal**\
+`The 10-foot-long dusky shark, nicknamed “Bukangi,” was successfully guided back to the open ocean after a third rescue attempt.`\
+https://www.nytimes.com/2026/10/21/world/asia/south-korea-shark-bukangi-busan.html
+
 **SpaceX Boosts the A.I. Rally**\
 `Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
 https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/21/world/americas/venezuela-earthquakes-deaths.h
 **Is Wikipedia the ‘Last Best Place on the Internet’?**\
 `Richard Cooke’s book, “The Last Best Place on the Internet” retells the history of Wikipedia with an emphasis on the human. Jennifer Szalai, a New York Times book critic, reviews the book.`\
 https://www.nytimes.com/video/books/100000011164788/is-wikipedia-the-last-best-place-on-the-internet.html
-
-**Why These Towers Collapsed in Venezuela’s Earthquakes**\
-`A 3-D reconstruction reveals why multiple apartment towers toppled in the earthquakes that struck Venezuela in June. Our reporter Julie Turkewitz examines how structural flaws — not just the strength of the quakes — left the towers vulnerable to collapse.`\
-https://www.nytimes.com/video/world/americas/100000011160984/why-these-towers-collapsed-in-venezuelas-earthquakes.html
-
-**Sleepy Hollow, N.Y.: Hardly Sleepy**\
-`The go-to Halloween destination in the Hudson Valley is experiencing a real estate development boom.`\
-https://www.nytimes.com/2026/10/21/realestate/sleepy-hollow-ny-hardly-sleepy.html
 

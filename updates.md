@@ -1,3 +1,11 @@
+**I’m 9. How Can I Get My Older Sister Out of Bed in the Morning?**\
+`Frustrated at being denied TV time because of her 12-year-old sister’s dawdling, a young girl seeks advice on how to get her sister to pick up the pace.`\
+https://www.nytimes.com/2026/10/21/style/siblings-discipline-misbehavior.html
+
+**Shark Returns to Sea After Over a Month Stuck in a South Korean Port Canal**\
+`The 10-foot-long dusky shark, nicknamed “Bukangi,” was successfully guided back to the open ocean after a third rescue attempt.`\
+https://www.nytimes.com/2026/10/21/world/asia/south-korea-shark-bukangi-busan.html
+
 **SpaceX Boosts the A.I. Rally**\
 `Tech stocks are up after the rocket and artificial intelligence company beat earnings estimates — and Elon Musk confirmed it is weighing a deal with Tesla.`\
 https://www.nytimes.com/2026/10/21/business/dealbook/spacex-musk-tesla.html
