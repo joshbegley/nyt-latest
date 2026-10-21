@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/21/business/elon-musk-spacex-tesla-merger.html
 
 **Idaho Falls**\
-`We look at the state of women’s health care in the state.`\
+`We look at women’s health care in the state.`\
 https://www.nytimes.com/2026/10/21/briefing/idaho-womens-health.html
 
 **Parisians Split on Curfews After Riots in France**\
@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/21/crosswords/strands-sidekick-963.html
 https://www.nytimes.com/2026/10/21/crosswords/wordle-review-1951.html
 
 **Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
-`The move buys good will with President Trump while costing the Russian leader, Vladimir V. Putin, little.`\
+`The move buys good will with President Trump while costing the President Vladimir V. Putin — who is wanted for war crimes — little.`\
 https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
 
 **The Persecution of Ilhan Omar Is a Sign of Trump’s Desperation**\

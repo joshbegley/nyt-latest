@@ -1,3 +1,11 @@
+**Idaho Falls**\
+`We look at women’s health care in the state.`\
+https://www.nytimes.com/2026/10/21/briefing/idaho-womens-health.html
+
+**Russia Releases American Stephen Hubbard From Prison, State Media Reports**\
+`The move buys good will with President Trump while costing the President Vladimir V. Putin — who is wanted for war crimes — little.`\
+https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html
+
 **Everything Feels So Expensive. Here’s What’s Really Going On.**\
 `Whatever you call it, we can all agree this doesn’t feel good.`\
 https://www.nytimes.com/2026/10/21/opinion/affordability-crisis-prices-economics.html
