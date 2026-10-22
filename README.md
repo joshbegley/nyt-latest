@@ -1,3 +1,7 @@
+**Australian Zoo Plays Matchmaker for Giant Birds, and Big Green Eggs Are Proof**\
+`A southern cassowary at the Adelaide Zoo has laid eggs there for the first time in 34 years, after a carefully managed breeding process.`\
+https://www.nytimes.com/2026/10/21/world/australia/green-egg-cassowary-zoo-australia.html
+
 **How Mark Zuckerberg Pushed Meta to Shield Him From California’s Proposed Wealth Tax**\
 `The billionaire told Meta’s board that he planned to list his Silicon Valley home for sale. The company remade its stock structure to help him pay the tax if voters pass it.`\
 https://www.nytimes.com/2026/10/21/technology/mark-zuckerberg-meta-california-wealth-tax.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/opinion/midterm-elections-billionaires.html
 **How Title IX Became a Political Tool**\
 `After a Cornell student’s lawsuit alleging the school failed her when she reported sexual assault, there’s a new focus on Title IX, the federal law barring sex discrimination in federally funded education. Our Washington correspondent Michael C. Bender traces how interpretations of the law shifted between the Obama and Trump administrations.`\
 https://www.nytimes.com/video/us/politics/100000011216870/how-title-ix-became-a-political-tool.html
-
-**Cornell Case Highlights Shifting Federal Title IX Enforcement**\
-`From Barack Obama to Donald Trump, ideology has infused the interpretation of the federal law banning sex discrimination on college campuses.`\
-https://www.nytimes.com/2026/10/21/us/politics/title-ix-trump-administration-cornell.html
 
