@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/10/22/magazine/tabloid-headline-breaks-silence.html
 `New surveys show that increases in premiums and deductibles are forcing people to forgo treatments or doctor’s visits while budgets are strained by higher food and gas prices.`\
 https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premiums-deductibles.html
 
+**36 Hours in Kansas City, Mo.: Things to Do and See**\
+`Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
+https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
+
 **The Case for an A.S.L. ‘Sign of the Year’**\
 `Deaf linguists and professors consider the case for an A.S.L. “sign of the year.”`\
 https://www.nytimes.com/2026/10/22/crosswords/sign-of-the-year-american-sign-language.html
-
-**36 Hours in Kansas City, Mo.: Things to Do and See**\
-`TKTKTKTK`\
-https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
 
 **‘Metro,’ the Podcast That Tells Stories of This New York Moment**\
 `Sarah Koenig, from “Serial” and “This American Life,” is debuting an audio show that features New York Times Metro reporters.`\
