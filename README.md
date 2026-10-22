@@ -1,3 +1,7 @@
+**Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
+`Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
+https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
+
 **Nicole Brown Simpson’s Sister: ‘We Deserve Answers’ on Accomplice Question**\
 `Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
 https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-prot
 **Stream These 6 Movies and Shows Before They Leave Netflix in November**\
 `“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
-
-**Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
-`Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
-https://www.nytimes.com/2026/10/22/arts/subway-takes-conan-obrien-debbie-shields.html
 
