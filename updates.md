@@ -1,3 +1,15 @@
+**What Is PHP? Why Are Government and Business Websites Going Offline?**\
+`A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
+https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
+
+**Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
+`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
+https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
+
+**PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
+`Governments and businesses around the world scrambled to prevent hackers from exploiting a vulnerability in PHP, a popular programming language.`\
+https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
+
 **He Told Us About an O.J. Accomplice. Then Said He’d Lied. What Next?**\
 `A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
 https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html

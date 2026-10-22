@@ -1,3 +1,7 @@
+**What Is PHP? Why Are Government and Business Websites Going Offline?**\
+`A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
+https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
+
 **He Told Us About an O.J. Accomplice. Then Said He’d Lied. What Next?**\
 `A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
 https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/22/insider/elizabeth-holmes-backstory.html
 `Australian television reporter Will Murray told The New York Times how he and a bystander rescued a man from his vehicle seconds before it completely submerged in a Queensland suburb.`\
 https://www.nytimes.com/video/world/australia/100000011230113/australia-floods-queensland-reporter-rescue.html
 
-**Ohio’s Republican Governor Calls on Ramaswamy to Take Down Attack Ad**\
+**Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
 `The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
 https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
 
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
 https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
 
 **PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
-`Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
+`Governments and businesses around the world scrambled to prevent hackers from exploiting a vulnerability in PHP, a popular programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
 
 **Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/22/opinion/focus-group-iowa-voters-m
 **Space Debris Found Twice Within Days Amid ‘Growing Casualty Risk’**\
 `Debris was found in Indonesia on Monday, just days after a farmer across the globe in Minnesota reported a massive metal object thought to be space junk in a cornfield.`\
 https://www.nytimes.com/2026/10/22/world/asia/space-debris-indonesia-minnesota.html
-
-**For These Die-Hards, October Is Hallmark Christmas Movie Time**\
-`The Hallmark Channel’s holiday offerings are already starting to air, and these devoted fans are happy to snuggle in for comfort viewing.`\
-https://www.nytimes.com/2026/10/22/movies/hallmark-countdown-to-christmas-october.html
 
