@@ -1,3 +1,11 @@
+**Billy Corgan Is Tired of Your ‘Mocking, Bullying, Laughing’**\
+`Watch the full conversation with Billy Corgan. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011225986/billy-corgan-is-tired-of-your-mocking-bullying-laughing.html
+
+**What Teenagers Are Saying About the Pressure of Grades**\
+`Students react to the University of Michigan’s new pass/fail policy for first-semester freshmen and debate whether grades motivate learning or fuel a mental health crisis.`\
+https://www.nytimes.com/2026/10/22/learning/what-teenagers-are-saying-about-the-pressure-of-grades.html
+
 **Should We Shut Down Business Schools?**\
 `Readers discuss a professor’s Opinion essay that suggested doing so. Also: Children without lawyers at deportation hearings; legal rights for robots?`\
 https://www.nytimes.com/2026/10/22/opinion/business-schools.html
