@@ -1,3 +1,7 @@
+**Live Updates: Senate Candidates Spar in Kansas, a Surprise Battleground That Could Swing Control**\
+`Senator Roger Marshall urged Kansans to keep the seat in Republicans’ hands, stoking fears of Democrats being in charge. Adam Hamilton, a megachurch pastor who recently switched parties, struck a centrist tone.`\
+https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
+
 **Australian Zoo Plays Matchmaker for Giant Birds, and Big Green Eggs Are Proof**\
 `A southern cassowary at the Adelaide Zoo has laid eggs there for the first time in 34 years, after a carefully managed breeding process.`\
 https://www.nytimes.com/2026/10/21/world/australia/green-egg-cassowary-zoo-australia.html
