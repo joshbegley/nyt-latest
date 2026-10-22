@@ -1,3 +1,11 @@
+**Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
+`Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
+https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
+
+**Nicole Brown Simpson’s Sister: ‘We Deserve Answers’ on Accomplice Question**\
+`Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
+https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
+
 **Jim Knipfel, Blind, Dyspeptic Memoirist, Dies at 61**\
 `His Slackjaw column drew on his life, which included going blind and being locked up in a psychiatric ward. Two of his books were praised by Thomas Pynchon.`\
 https://www.nytimes.com/2026/10/22/obituaries/jim-knipfel-dead.html
@@ -182,19 +190,11 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
-`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
-
 **The Only Thing We Can All Agree On Is That the World Is on Fire**\
 `How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
 https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 
-**Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
-`Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
-https://www.nytimes.com/2026/10/22/arts/subway-takes-conan-obrien-debbie-shields.html
-
-**A New Art-Filled Hotel Adds to Cape Town’s Skyline**\
-`Plus: a sommelier makes mezcal, knitwear inspired by Scandinavian winters and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/10/22/t-magazine/cape-town-hotel.html
+**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
+`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
 

@@ -1,3 +1,11 @@
+**Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
+`Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
+https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
+
+**Nicole Brown Simpson’s Sister: ‘We Deserve Answers’ on Accomplice Question**\
+`Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
+https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
+
 **Jim Knipfel, Blind, Dyspeptic Memoirist, Dies at 61**\
 `His Slackjaw column drew on his life, which included going blind and being locked up in a psychiatric ward. Two of his books were praised by Thomas Pynchon.`\
 https://www.nytimes.com/2026/10/22/obituaries/jim-knipfel-dead.html
