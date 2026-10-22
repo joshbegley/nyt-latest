@@ -1,3 +1,27 @@
+**New U.S.-Israeli Plans to Attack Iran, and Trump’s Whistle-Blower Rewards Program**\
+`Plus, America’s newest national park.`\
+https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-whistleblower.html
+
+**The Election That Will Define Israel’s Future**\
+`Israelis on both sides of the political spectrum see next week’s vote as the most consequential in their country’s history.`\
+https://www.nytimes.com/2026/10/22/podcasts/the-daily/israel-election-netanyahu.html
+
+**Today’s Wordle Hints for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/wordle-review-1952.html
+
+**NYT Connections Answers for Friday, October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1230.html
+
+**NYT Strands Hints for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/strands-sidekick-964.html
+
+**NYT Connections Answers for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1229.html
+
 **Putin Nears a Prize: Restoring Ties With the U.S. While Giving Up Nothing**\
 `Russia has sought to separate the war in Ukraine from potential business deals and diplomacy with the United States. Its efforts now appear to be working.`\
 https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
