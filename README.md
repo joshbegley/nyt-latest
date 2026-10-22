@@ -1,3 +1,11 @@
+**Bernie Sanders Gives $1 Million to Bolster El-Sayed and Counter AIPAC in Michigan**\
+`The transfer came day after the news that the pro-Israel lobby was planning to contribute as much as $9 million to defeat the Democratic nominee for Senate.`\
+https://www.nytimes.com/2026/10/22/us/politics/sanders-el-sayed-aipac-michigan.html
+
+**Heat Waves Killed an Estimated 50,000 in European Cities, a Likely Record**\
+`This summer’s heat was the continent’s deadliest by far this century, according to new peer-reviewed estimates.`\
+https://www.nytimes.com/2026/10/22/climate/europe-summer-heat-deaths.html
+
 **Bus Commuters Fume as Port Authority Bus Terminal Revamp Causes Delays**\
 `Detours and demolition tied to the $11 billion replacement of the bus terminal are causing rush-hour headaches for commuters.`\
 https://www.nytimes.com/2026/10/22/nyregion/commuter-buses-delays-port-authority.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.htm
 **Elizabeth Holmes Quote Drama**\
 `In today’s Backstory, the new Holmes film takes issue with our profile, Nikole Hannah-Jones unpacks her viral essay and a professor shares why he thinks we apply “conservative” and “liberal” labels inconsistently.`\
 https://www.nytimes.com/2026/10/22/insider/elizabeth-holmes-backstory.html
-
-**Australian TV Reporter Rescues Man From Sinking Vehicle During Floods**\
-`Australian television reporter Will Murray told The New York Times how he and a bystander rescued a man from his vehicle seconds before it completely submerged in a Queensland suburb.`\
-https://www.nytimes.com/video/world/australia/100000011230113/australia-floods-queensland-reporter-rescue.html
-
-**Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
-`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though President Trump strongly defended it.`\
-https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
 
