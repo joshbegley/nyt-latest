@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
 `If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
 https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
 
-**PHP Security Flaw Sparks Global Rush to Patch, Leaving Websites Offline**\
+**PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
 `Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
 

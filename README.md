@@ -1,3 +1,7 @@
+**Powerful Virginia Lawmaker Indicted Over Marijuana Business**\
+`L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
+https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
+
 **A.I. and Its Dangers Are Embedded In the Midterm Elections**\
 `The midterms are the first elections in which artificial intelligence is integrated into every major social media platform. Efforts to blunt its harms are uneven.`\
 https://www.nytimes.com/2026/10/22/business/media/ai-disinfo-chatbots-elections.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
 `One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
 https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
 
-**‘Blindsided:’ Plaza Weddings Abruptly Canceled Amid Renovation**\
+**Plaza Weddings Canceled Amid Renovation: ‘We Were Blindsided’**\
 `As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/us/roller-coaster-safety.html
 **The Brief, Messy Political Career of Paolo Zampolli, a Trump Ally**\
 `He had an unlikely rise, from modeling agent to presidential special envoy. After his firing, he was unrepentant: “I need to make money.”`\
 https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-political-career.html
-
-**Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
-`After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
-https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
 

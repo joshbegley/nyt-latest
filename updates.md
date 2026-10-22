@@ -1,3 +1,7 @@
+**PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
+`Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
+https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
+
 **A.I. and Its Dangers Are Embedded In the Midterm Elections**\
 `The midterms are the first elections in which artificial intelligence is integrated into every major social media platform. Efforts to blunt its harms are uneven.`\
 https://www.nytimes.com/2026/10/22/business/media/ai-disinfo-chatbots-elections.html
