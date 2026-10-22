@@ -1,3 +1,7 @@
+**Justice Dept. Opens Inquiry Into Lewandoski**\
+`The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
+https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
+
 **Tom Skerritt, Who Had Key Roles in ‘M*A*S*H,’ ‘Alien’ and ‘Steel Magnolias,’ Has Died**\
 `His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
 https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
 **New Airbnb Rules Will Limit Chores Hosts Can Require**\
 `The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
 https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
-
-**As Typhoon Champi Nears, Taiwan’s Mayors Bet on a Popular Day Off**\
-`One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
-https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
 

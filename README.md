@@ -1,3 +1,7 @@
+**Cancer Vaccine Cuts the Risk of Melanoma Recurrence, Merck and Moderna Report**\
+`Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
+https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
+
 **Justice Dept. Opens Inquiry Into Lewandoski**\
 `The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
 https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
@@ -123,7 +127,7 @@ https://www.nytimes.com/2026/10/22/insider/elizabeth-holmes-backstory.html
 https://www.nytimes.com/video/world/australia/100000011230113/australia-floods-queensland-reporter-rescue.html
 
 **Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
-`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
+`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though President Trump strongly defended it.`\
 https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
 
 **Art Basel Paris to End Early Because of France Riots**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
 **Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
 `The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
-
-**New Airbnb Rules Will Limit Chores Hosts Can Require**\
-`The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
-https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
 
