@@ -1,3 +1,7 @@
+**A Golden Age of Science’ Brought to You by the White House**\
+`The Trump administration’s plan to supercharge scientific discovery.`\
+https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
+
 **New U.S.-Israeli Plans to Attack Iran, and Trump’s Whistle-Blower Rewards Program**\
 `Plus, America’s newest national park.`\
 https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-whistleblower.html

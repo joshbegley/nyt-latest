@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/10/22/world/asia/space-debris-indonesia-minnesota.h
 `The Hallmark Channel’s holiday offerings are already starting to air, and these devoted fans are happy to snuggle in for comfort viewing.`\
 https://www.nytimes.com/2026/10/22/movies/hallmark-countdown-to-christmas-october.html
 
-**Inside the White House’s Push for More A.I.**\
+**A Golden Age of Science’ Brought to You by the White House**\
 `The Trump administration’s plan to supercharge scientific discovery.`\
 https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
 
