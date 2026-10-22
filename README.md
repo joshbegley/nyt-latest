@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.
 `“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
 
-**The One Thing We Can All Agree On Is That the World Is on Fire**\
+**The Only Thing We Can All Agree On Is That the World Is on Fire**\
 `How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
 https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 

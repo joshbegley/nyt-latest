@@ -1,3 +1,7 @@
+**Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
+`For weeks, the Iran-backed Houthis have been attacking the kingdom’s aviation and energy sectors.`\
+https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
+
 **A Shifting Standard**\
 `We look at how Title IX keeps changing.`\
 https://www.nytimes.com/2026/10/22/briefing/title-ix.html

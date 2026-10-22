@@ -1,3 +1,7 @@
+**Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
+`For weeks, the Iran-backed Houthis have been attacking the kingdom’s aviation and energy sectors.`\
+https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
+
 **A Shifting Standard**\
 `We look at how Title IX keeps changing.`\
 https://www.nytimes.com/2026/10/22/briefing/title-ix.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/world/europe/serbia-elections-nationalist-pol
 **For Clues About How A.I. Will Change Work, Look to the Past**\
 `Economists hope earlier episodes of labor disruption, from the Industrial Revolution to the Great Depression, can help us prepare for the age of artificial intelligence.`\
 https://www.nytimes.com/2026/10/22/business/economy/ai-economy-jobs-history.html
-
-**My Brother Won’t Leave His Awful Wife. Do I Have to Be Around Her?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who knows too much about a sibling’s troubled marriage.`\
-https://www.nytimes.com/2026/10/22/well/mind/cheating-secrets-brother-sister-in-law.html
 
