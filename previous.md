@@ -1,3 +1,7 @@
+**Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
+`The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
+https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
+
 **New Airbnb Rules Will Limit Chores Hosts Can Require**\
 `The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
 https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/television/jackie-tohn-nobody-wants-this
 **‘Wildwood’ Review: A Magical, Stop-Motion Adventure**\
 `This adaptation of Colin Meloy’s fantasy novel is painstakingly rendered by human hands; it is equal parts magic and tragedy.`\
 https://www.nytimes.com/2026/10/22/movies/wildwood-review.html
-
-**‘Wicker’ Review: Getting Twiggy With It**\
-`A man woven from willow branches disrupts the rigid customs of a rural village in this wonderfully raunchy satire.`\
-https://www.nytimes.com/2026/10/22/movies/wicker-review-getting-twiggy-with-it.html
 

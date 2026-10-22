@@ -1,3 +1,7 @@
+**Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
+`The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
+https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
+
 **New Airbnb Rules Will Limit Chores Hosts Can Require**\
 `The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
 https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html

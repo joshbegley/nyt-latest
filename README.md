@@ -1,3 +1,7 @@
+**In Wake of Riots, French Authorities Ban Some Protests**\
+`President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
+https://www.nytimes.com/2026/10/22/france-protests-macron.html
+
 **Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
 `The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/podcasts/karat-and-schtick.html
 **A ‘Nobody Wants This’ Star Embraces ‘Jewish Joy’**\
 `The time since last season has been eventful for both Jackie Tohn’s character and the actress herself.`\
 https://www.nytimes.com/2026/10/22/arts/television/jackie-tohn-nobody-wants-this-interview.html
-
-**‘Wildwood’ Review: A Magical, Stop-Motion Adventure**\
-`This adaptation of Colin Meloy’s fantasy novel is painstakingly rendered by human hands; it is equal parts magic and tragedy.`\
-https://www.nytimes.com/2026/10/22/movies/wildwood-review.html
 
