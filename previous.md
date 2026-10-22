@@ -1,3 +1,11 @@
+**Palestinian Voters Could Determine Israel’s Future**\
+`Palestinian citizens may have the electoral weight to influence Israeli politics, even as they feel they have so little control over their lives.`\
+https://www.nytimes.com/2026/10/22/opinion/palestinians-citizens-israel-election-voting.html
+
+**Trump Doesn’t Get That Ukraine Isn’t His to Give Away**\
+`Mr. Trump has been searching for his Yalta in the war in Ukraine ever since he returned to the Oval Office.`\
+https://www.nytimes.com/2026/10/22/opinion/trump-ukraine-russia-war-yalta.html
+
 **Protests in Indonesia Demand Action to Stop Rainforest Fires**\
 `Smoke from the blazes, blamed on destructive agricultural practices, has sickened hundreds of thousands and blanketed neighboring countries.`\
 https://www.nytimes.com/2026/10/22/world/asia/indonesia-protests-rainforest-haze.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephi
 **Thélyson Orélien's Quebec Publisher Cuts Ties Over A.I. Accusations**\
 `Thélyson Orélien, a celebrated novelist, used artificial intelligence while writing a breakout book, his publisher says.`\
 https://www.nytimes.com/2026/10/21/world/canada/thelyson-orelien-ai-publisher.html
-
-**Maps: Tracking Tropical Storm Vance**\
-`See the likely path and wind arrival times for Vance`\
-https://www.nytimes.com/interactive/2026/10/21/weather/tropical-storm-vance-hurricane-map-path.html
-
-**Top Mamdani Aide Fired Amid City Hall Shake-Up**\
-`The chiefs of staff for three deputy mayors were reassigned or dismissed, and the head of Mayor Zohran Mamdani’s advance team was also let go.`\
-https://www.nytimes.com/2026/10/21/nyregion/mamdani-staff-shakeup.html
 

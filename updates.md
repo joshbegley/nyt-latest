@@ -1,3 +1,11 @@
+**Palestinian Voters Could Determine Israel’s Future**\
+`Palestinian citizens may have the electoral weight to influence Israeli politics, even as they feel they have so little control over their lives.`\
+https://www.nytimes.com/2026/10/22/opinion/palestinians-citizens-israel-election-voting.html
+
+**Trump Doesn’t Get That Ukraine Isn’t His to Give Away**\
+`Mr. Trump has been searching for his Yalta in the war in Ukraine ever since he returned to the Oval Office.`\
+https://www.nytimes.com/2026/10/22/opinion/trump-ukraine-russia-war-yalta.html
+
 **Protests in Indonesia Demand Action to Stop Rainforest Fires**\
 `Smoke from the blazes, blamed on destructive agricultural practices, has sickened hundreds of thousands and blanketed neighboring countries.`\
 https://www.nytimes.com/2026/10/22/world/asia/indonesia-protests-rainforest-haze.html
