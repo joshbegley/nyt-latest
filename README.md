@@ -1,3 +1,7 @@
+**Cassowary Lays Rare Egg at Australian Zoo for First Time in Decades**\
+`A southern cassowary, which is a protected species, has laid bright green eggs at an Australian zoo for the first time in 34 years.`\
+https://www.nytimes.com/video/world/australia/100000011229378/green-egg-rare-cassowary-zoo-australia.html
+
 **The Dream House With a Radioactive Backyard**\
 `A young family thought they had escaped the toxic legacy of Love Canal with a dream house near a creek in the suburbs. Then the men in the hazmat suits showed up.`\
 https://www.nytimes.com/2026/10/22/nyregion/niagara-new-york-radioactive-waste.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/22/arts/television/late-night-trump-jon-husted.h
 `Palestinian citizens may have the electoral weight to influence Israeli politics, even as they feel they have so little control over their lives.`\
 https://www.nytimes.com/2026/10/22/opinion/palestinians-citizens-israel-election-voting.html
 
-**Trump Doesn’t Get That Ukraine Isn’t His to Give Away**\
+**Trump Is Still Chasing His Yalta. Here’s What He Doesn’t Get.**\
 `Mr. Trump has been searching for his Yalta in the war in Ukraine ever since he returned to the Oval Office.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-ukraine-russia-war-yalta.html
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
 **Trump Asks Supreme Court to Allow Border Wall Construction in Big Bend**\
 `A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
-
-**New Rules in North Carolina Threaten Thousands of Mail Ballots**\
-`County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
-https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html
 
