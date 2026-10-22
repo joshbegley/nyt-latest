@@ -1,3 +1,11 @@
+**Should We Shut Down Business Schools?**\
+`Readers discuss a professor’s Opinion essay that suggested doing so. Also: Children without lawyers at deportation hearings; legal rights for robots?`\
+https://www.nytimes.com/2026/10/22/opinion/business-schools.html
+
+**No Sleep Till the End of ‘The Bell Jar’**\
+`Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel in Manhattan.`\
+https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-plath.html
+
 **Louise Lucas, Powerful Virginia Lawmaker, Indicted Over Marijuana Business**\
 `L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
 https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html

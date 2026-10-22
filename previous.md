@@ -1,5 +1,9 @@
+**Should We Shut Down Business Schools?**\
+`Readers discuss a professor’s Opinion essay that suggested doing so. Also: Children without lawyers at deportation hearings; legal rights for robots?`\
+https://www.nytimes.com/2026/10/22/opinion/business-schools.html
+
 **No Sleep Till the End of ‘The Bell Jar’**\
-`Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel at a nightclub in Manhattan.`\
+`Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel in Manhattan.`\
 https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-plath.html
 
 **What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/crosswords/strands-sidekick-964.html
 **NYT Connections Answers for October 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Oct. 23, 2026.`\
 https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1229.html
-
-**Putin Nears a Prize: Restoring Ties With the U.S. While Giving Up Nothing**\
-`Russia has sought to separate the war in Ukraine from potential business deals and diplomacy with the United States. Its efforts now appear to be working.`\
-https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
 
