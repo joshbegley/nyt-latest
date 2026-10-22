@@ -1,3 +1,7 @@
+**Ohio’s Republican Governor Calls on Ramaswamy to Take Down Attack Ad**\
+`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
+https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
+
 **Art Basel Paris to End Early Because of France Riots**\
 `Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
 https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/us/politics/iowa-farmers-republicans-trump.ht
 **Some Tabloid Headline Staples Are Fun. Then There’s ‘Breaks Silence.’**\
 `It’s a term like “bombshell” or “flop,” but it often implies a more sinister set of assumptions the press has about celebrities.`\
 https://www.nytimes.com/2026/10/22/magazine/tabloid-headline-breaks-silence.html
-
-**Employers Shift Rising Health Care Costs Onto Millions of Workers**\
-`New surveys show that increases in premiums and deductibles are forcing people to forgo treatments or doctor’s visits while budgets are strained by higher food and gas prices.`\
-https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premiums-deductibles.html
 

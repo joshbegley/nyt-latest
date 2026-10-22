@@ -1,3 +1,7 @@
+**Ohio’s Republican Governor Calls on Ramaswamy to Take Down Attack Ad**\
+`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
+https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
+
 **Art Basel Paris to End Early Because of France Riots**\
 `Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
 https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
