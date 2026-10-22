@@ -1,3 +1,7 @@
+**Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
+`The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
+https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
+
 **The Only Thing We Can All Agree On Is That the World Is on Fire**\
 `How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
 https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html

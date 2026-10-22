@@ -1,3 +1,7 @@
+**Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
+`The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
+https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
+
 **Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
 `For weeks, the Iran-backed Houthis have been attacking the kingdom’s aviation and energy sectors.`\
 https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
@@ -42,13 +46,13 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**The Only Thing We Can All Agree On Is That the World Is on Fire**\
-`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
-https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
-
 **Stream These 6 Movies and Shows Before They Leave Netflix in November**\
 `“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
+
+**The Only Thing We Can All Agree On Is That the World Is on Fire**\
+`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
+https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 
 **Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
 `Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/science/space/earth-mars-formed-different.htm
 **Serbian Election Underscores the Region’s Long Political Limbo**\
 `Aleksandar Vucic, Serbia’s dominant political figure since 2012, may extend his grip, using the Balkans’ unresolved nationalist resentments.`\
 https://www.nytimes.com/2026/10/22/world/europe/serbia-elections-nationalist-politics.html
-
-**For Clues About How A.I. Will Change Work, Look to the Past**\
-`Economists hope earlier episodes of labor disruption, from the Industrial Revolution to the Great Depression, can help us prepare for the age of artificial intelligence.`\
-https://www.nytimes.com/2026/10/22/business/economy/ai-economy-jobs-history.html
 
