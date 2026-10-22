@@ -1,3 +1,7 @@
+**5 Things to Know About Senator Roger Marshall of Kansas**\
+`The Republican incumbent is trying to hold on to his seat and keep his state from sending a Democrat to the Senate for the first time in nearly a century.`\
+https://www.nytimes.com/2026/10/21/us/roger-marshall-kansas-senate.html
+
 **Officer Who Killed Man in 2016 Will Face N.Y.P.D. Trial**\
 `Officer Wayne Isaacs was acquitted of murder in the fatal shooting of Delrawn Small, but he could still lose his job.`\
 https://www.nytimes.com/2026/10/21/nyregion/nypd-officer-delrawn-small-shooting-trial.html
