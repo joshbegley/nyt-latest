@@ -1,3 +1,11 @@
+**Michigan’s Senate Candidates Clash in Last Debate**\
+`Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, and Mike Rogers, the Republican candidate, sparred in their final debate on Wednesday.`\
+https://www.nytimes.com/video/us/politics/100000011229585/michigan-senate-debate-el-sayed-rogers.html
+
+**15-Minute Lesson Plan: John Coltrane**\
+`What do you notice and wonder as you listen to five minutes from the saxophonist’s masterpiece, “A Love Supreme”?`\
+https://www.nytimes.com/2026/10/22/learning/15-minute-lesson-plan-john-coltrane.html
+
 **Cassowary Lays Rare Egg at Australian Zoo for First Time in Decades**\
 `A southern cassowary, which is a protected species, has laid bright green eggs at an Australian zoo for the first time in 34 years.`\
 https://www.nytimes.com/video/world/australia/100000011229378/green-egg-rare-cassowary-zoo-australia.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/21/us/bend-oregon-school-shooting-teacher-hero.h
 **GMA Co-Hosts’ Ex-Spouses, Marilee Fiebig and Andrew Shue, Are Engaged**\
 `Marilee Fiebig and Andrew Shue — whose exes are T.J. Holmes and Amy Robach — have announced that they plan to marry.`\
 https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
-
-**John Geddes, Former New York Times Newsroom Leader, Has Died**\
-`“John is the only person I know who could put out the entire New York Times by himself,” his boss once said. Mr. Geddes was 74.`\
-https://www.nytimes.com/2026/10/21/obituaries/john-geddes-dead.html
-
-**Trump Asks Supreme Court to Allow Border Wall Construction in Big Bend**\
-`A lower court judge had halted the administration’s plan to erect hundreds of miles of barriers in the Big Bend region of Texas.`\
-https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.html
 
