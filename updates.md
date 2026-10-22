@@ -1,3 +1,7 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/22/books/review/new-recommended-books.html
+
 **Billy Corgan Is Tired of Your ‘Mocking, Bullying, Laughing’**\
 `Watch the full conversation with Billy Corgan. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011225986/billy-corgan-is-tired-of-your-mocking-bullying-laughing.html
