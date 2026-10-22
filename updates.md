@@ -1,3 +1,7 @@
+**Clavicular, the ‘Looksmaxxing’ Influencer, Pleads Not Guilty to Rape Charge**\
+`The social media figure, whose real name is Braden Peters, appeared briefly for the arraignment in Orleans, Mass., on Cape Cod.`\
+https://www.nytimes.com/2026/10/22/us/clavicular-rape-hearing.html
+
 **Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
 `Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
 https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
