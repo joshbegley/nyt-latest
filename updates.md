@@ -1,3 +1,7 @@
+**Zuckerberg’s Big Deal to Stay in California**\
+`The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
+https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html
+
 **Stocks Fall and Oil Rises as Investors Retreat from Mounting Risks**\
 `Earnings reports from big technology companies spooked investors and the price of oil jumped to its highest level in months.`\
 https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
