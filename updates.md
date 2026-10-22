@@ -1,3 +1,7 @@
+**Should Living Be Enough ‘Lived Experience’ for a Writer?**\
+`Imagination, empathy and intelligence should matter as well as identity`\
+https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.html
+
 **President Trump Appears to Celebrate After a Rallygoer Punched a Protester**\
 `President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
 https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html

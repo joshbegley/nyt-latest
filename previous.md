@@ -1,3 +1,7 @@
+**Should Living Be Enough ‘Lived Experience’ for a Writer?**\
+`Imagination, empathy and intelligence should matter as well as identity`\
+https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.html
+
 **President Trump Appears to Celebrate After a Rallygoer Punched a Protester**\
 `President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
 https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
 **What Role, If Any, Should Law Enforcement Have in Schools?**\
 `A Times investigation revealed that an increase of police officers in Texas schools since 2021 has led to more criminal charges for minor misbehavior.`\
 https://www.nytimes.com/2026/10/22/learning/what-role-if-any-should-law-enforcement-have-in-schools.html
-
-**Zuckerberg’s Big Deal to Stay in California**\
-`The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
-https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html
 
