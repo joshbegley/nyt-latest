@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old
 `We look at findings from our new poll.`\
 https://www.nytimes.com/2026/10/22/briefing/how-young-voters-are-feeling.html
 
-**Powerful Virginia Lawmaker Indicted Over Marijuana Business**\
+**Louise Lucas, Powerful Virginia Lawmaker, Indicted Over Marijuana Business**\
 `L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
 https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
 
