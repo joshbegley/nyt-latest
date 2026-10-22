@@ -1,3 +1,15 @@
+**President Trump Appears to Celebrate After a Rallygoer Punched a Protester**\
+`President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
+https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html
+
+**What’s Going On in This Picture? | Oct. 19, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-picture-oct-19-2026.html
+
+**What’s Going On in This Graph? | Oct. 28, 2026**\
+`How much confidence do you have in U.S. institutions?`\
+https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-graph-oct-28-2026.html
+
 **French Officials Ban Some Protests Amid Nationwide Riots**\
 `French officials banned gatherings in some cities on Thursday and over the coming days. President Macron of France said the bans were necessary to avoid a repeat of the riots last weekend.`\
 https://www.nytimes.com/video/world/europe/100000011230075/france-protests-ban-riots.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/22/learning/what-role-if-any-should-law-enforcem
 **Zuckerberg’s Big Deal to Stay in California**\
 `The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
 https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html
-
-**Stocks Fall and Oil Rises as Investors Retreat from Mounting Risks**\
-`Earnings reports from big technology companies spooked investors and the price of oil jumped to its highest level in months.`\
-https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
-
-**I.U.C.N. Red List Classifies Most Shallow Coral Reefs as Critically Endangered**\
-`If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
-https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
-
-**PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
-`Governments and businesses around the world scrambled to prevent hackers from exploiting a vulnerability in PHP, a popular programming language.`\
-https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
 
