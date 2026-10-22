@@ -1,3 +1,7 @@
+**Map: 7.0-Magnitude Earthquake Strikes China**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
+
 **Hegseth Fired Her. Now She’s Running for Congress.**\
 `A former three-star admiral fired by Pete Hegseth is making his competence a campaign issue.`\
 https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carolina.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
 https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html
 
 **Sound Off: A Double Standard for ‘Conservative’ and ‘Liberal’ Labels?**\
-`Josh Blackman, a professor at the South Texas College of Law, on why he sees a bias in the way The Times uses political labels.`\
+`Josh Blackman, a professor at the South Texas College of Law Houston, on why he sees a bias in the way The Times uses political labels.`\
 https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-labels.html
 
 **International Criminal Court Wins E.U.’s Top Human Rights Prize**\
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**The Only Thing We Can All Agree On Is That the World Is on Fire**\
-`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
-https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
-
 **Stream These 6 Movies and Shows Before They Leave Netflix in November**\
 `“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
+
+**The Only Thing We Can All Agree On Is That the World Is on Fire**\
+`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
+https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 
 **Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
 `Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premi
 **36 Hours in Kansas City, Mo.: Things to Do and See**\
 `Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
 https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
-
-**The Case for an A.S.L. ‘Sign of the Year’**\
-`Deaf linguists and professors consider the case for an A.S.L. “sign of the year.”`\
-https://www.nytimes.com/2026/10/22/crosswords/sign-of-the-year-american-sign-language.html
 
