@@ -1,3 +1,7 @@
+**Stocks Fall and Oil Rises as Investors Retreat from Mounting Risks**\
+`Earnings reports from big technology companies spooked investors and the price of oil jumped to its highest level in months.`\
+https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
+
 **I.U.C.N. Red List Classifies Most Shallow Coral Reefs as Critically Endangered**\
 `If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
 https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/making-marie-antoinette-review-a-subli
 **‘Klara and the Sun’ Review: She’s Not Like the Other Girls**\
 `In Taika Waititi’s latest film, Jenna Ortega plays a futuristic android with a winsome outlook. Unfortunately, no emotional button goes unpushed.`\
 https://www.nytimes.com/2026/10/22/movies/klara-and-the-sun-review.html
-
-**‘Clayface’ Review: A Stage Fright and Vengeance**\
-`An lesser-known character from the DC Comics universe makes a surprisingly vivid impression in this body-horror movie with a unique antihero.`\
-https://www.nytimes.com/2026/10/22/movies/clayface-review.html
 

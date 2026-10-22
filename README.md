@@ -1,3 +1,7 @@
+**Zuckerberg’s Big Deal to Stay in California**\
+`The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
+https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html
+
 **Stocks Fall and Oil Rises as Investors Retreat from Mounting Risks**\
 `Earnings reports from big technology companies spooked investors and the price of oil jumped to its highest level in months.`\
 https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/the-only-living-pickpocket-in-new-york
 **‘Making Marie Antoinette’ Review: A Sublime Documentary**\
 `Eleanor Coppola lovingly records her daughter, Sofia, during the making of Sofia’s third feature, shot at Versailles.`\
 https://www.nytimes.com/2026/10/22/movies/making-marie-antoinette-review-a-sublime-documentary.html
-
-**‘Klara and the Sun’ Review: She’s Not Like the Other Girls**\
-`In Taika Waititi’s latest film, Jenna Ortega plays a futuristic android with a winsome outlook. Unfortunately, no emotional button goes unpushed.`\
-https://www.nytimes.com/2026/10/22/movies/klara-and-the-sun-review.html
 
