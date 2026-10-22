@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/10/22/nyregion/metro-podcast-sarah-koenig.html
 `A coaster dares riders to be daring, with steep drops, high speeds and improbably tight curves. But safety has become a concern again after a man was thrown from his seat and died in Georgia.`\
 https://www.nytimes.com/2026/10/22/us/roller-coaster-safety.html
 
-**The Brief, Messy Political Career of Paolo Zampolli, a Trump Ally**\
-`He had an unlikely rise, from modeling agent to presidential special envoy. After his firing, he was unrepentant: “I need to make money.”`\
-https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-political-career.html
-
 **Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
 `After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
 https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
+
+**The Brief, Messy Political Career of Paolo Zampolli, a Trump Ally**\
+`He had an unlikely rise, from modeling agent to presidential special envoy. After his firing, he was unrepentant: “I need to make money.”`\
+https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-political-career.html
 
 **Why Many Voters Are Unhappy With the Economy**\
 `With the midterms approaching, the economy is a top concern for voters. Our chief economic correspondent, Ben Casselman, describes which aspects of the economy have voters so frustrated.`\
