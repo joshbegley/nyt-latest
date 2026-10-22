@@ -1,3 +1,11 @@
+**The Ad Dividing the Republican Party**\
+`Trump got behind a much-criticized spot in the Ohio governor’s race.`\
+https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
+
+**Omar Case Could Hinge on Her Birth Date, but She Says No Records Exist**\
+`The Justice Department is reviewing whether Representative Ilhan Omar, a Minnesota Democrat, broke the law when she became a U.S. citizen decades ago. Here’s what we know.`\
+https://www.nytimes.com/2026/10/22/us/ilhan-omar-federal-investigation-immigration.html
+
 **Bernie Sanders Gives $1 Million to Bolster El-Sayed and Counter AIPAC in Michigan**\
 `The transfer came day after the news that the pro-Israel lobby was planning to contribute as much as $9 million to defeat the Democratic nominee for Senate.`\
 https://www.nytimes.com/2026/10/22/us/politics/sanders-el-sayed-aipac-michigan.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusa
 **What Is PHP? Why Are Government and Business Websites Going Offline?**\
 `A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
 https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
-
-**He Told Us About an O.J. Accomplice. Then He Said He’d Lied. What Next?**\
-`A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
-https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html
-
-**Elizabeth Holmes Quote Drama**\
-`In today’s Backstory, the new Holmes film takes issue with our profile, Nikole Hannah-Jones unpacks her viral essay and a professor shares why he thinks we apply “conservative” and “liberal” labels inconsistently.`\
-https://www.nytimes.com/2026/10/22/insider/elizabeth-holmes-backstory.html
 

@@ -1,3 +1,11 @@
+**The Ad Dividing the Republican Party**\
+`Trump got behind a much-criticized spot in the Ohio governor’s race.`\
+https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
+
+**Omar Case Could Hinge on Her Birth Date, but She Says No Records Exist**\
+`The Justice Department is reviewing whether Representative Ilhan Omar, a Minnesota Democrat, broke the law when she became a U.S. citizen decades ago. Here’s what we know.`\
+https://www.nytimes.com/2026/10/22/us/ilhan-omar-federal-investigation-immigration.html
+
 **Bernie Sanders Gives $1 Million to Bolster El-Sayed and Counter AIPAC in Michigan**\
 `The transfer came day after the news that the pro-Israel lobby was planning to contribute as much as $9 million to defeat the Democratic nominee for Senate.`\
 https://www.nytimes.com/2026/10/22/us/politics/sanders-el-sayed-aipac-michigan.html
