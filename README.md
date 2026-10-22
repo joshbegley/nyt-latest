@@ -1,6 +1,6 @@
 **Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
 `The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
-https://www.nytimes.com/2026/10/22/world/europe/above-irans-capital-a-trump-impersonator-dances-in-a-jail-cell.html
+https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html
 
 **Iran Mocks Trump With Billboard Featuring Impersonator**\
 `Iran has a long history of using billboards for messaging, but this piece of performance propaganda is perhaps the most eccentric yet. A live impersonator of President Trump locked in a jail cell is attached to the billboard.`\
