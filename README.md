@@ -1,4 +1,8 @@
-**Jeffries Plans Final Midterm Sprint Through Battleground Districts**\
+**He Was Reporting on Floods in Australia. Then He Jumped to the Rescue.**\
+`Will Murray of Australia’s public broadcaster spotted a man in a sinking truck, then jumped in the water with a bystander. (Just don’t call him Clark Kent.)`\
+https://www.nytimes.com/2026/10/22/world/australia/brisbane-flooding-car-rescue-abc-reporter.html
+
+**Hakeem Jeffries Launches Final Midterm Sprint for House Majority**\
 `The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
 https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurit
 **Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
 `The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
 https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
-
-**Houthi Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
-`The airport is in Dammam, which is near the headquarters of oil giant Saudi Aramco. For weeks, Yemen’s Iran-backed Houthi militia has been attacking the kingdom’s aviation and energy sectors.`\
-https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
 
