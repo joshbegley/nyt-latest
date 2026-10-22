@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/10/21/world/europe/pope-leo-cancer.html
 `The Vancouver punk band PISS embeds raw, political lyricism into exhilarating riot grrrl on their song “Time Loop at Hot Slit.” Our critic Jon Caramanica explores how frontwoman Tay Zantingh confronts gendered presumptions and systemic pressures through her performance and writing on the track.`\
 https://www.nytimes.com/video/podcasts/100000011229106/we-still-need-riot-grrrl.html
 
-**Live Updates: El-Sayed and Rogers Clash in Another Fiery Michigan Senate Debate**\
+**El-Sayed and Rogers Clash in Another Fiery Michigan Senate Debate**\
 `Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded attacks on the economy, the Iran war and each other’s character in their second debate.`\
 https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
 

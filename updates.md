@@ -1,3 +1,7 @@
+**El-Sayed and Rogers Clash in Another Fiery Michigan Senate Debate**\
+`Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded attacks on the economy, the Iran war and each other’s character in their second debate.`\
+https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
+
 **MAGA Bingo and Questions of Loyalty: 5 Michigan Senate Debate Takeaways**\
 `Abdul El-Sayed accused Mike Rogers of being overly devoted to President Trump. Mr. Rogers accused Dr. El-Sayed of not enough loyalty to the country. It was still more cordial than their last debate.`\
 https://www.nytimes.com/2026/10/21/us/politics/michigan-senate-debate-takeaways-el-sayed-rogers.html
