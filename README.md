@@ -1,3 +1,7 @@
+**MAGA Bingo and Questions of Loyalty: 5 Michigan Senate Debate Takeaways**\
+`Abdul El-Sayed accused Mike Rogers of being overly devoted to President Trump. Mr. Rogers accused Dr. El-Sayed of not enough loyalty to the country. It was still more cordial than their last debate.`\
+https://www.nytimes.com/2026/10/21/us/politics/michigan-senate-debate-takeaways-el-sayed-rogers.html
+
 **Judge Restricts D.H.S. Field Operations Aimed at Unearthing Voter Fraud**\
 `The ruling largely blocked homeland security agents from carrying out field interviews in nine states, including California, as part of a sprawling effort to find noncitizens registered to vote.`\
 https://www.nytimes.com/2026/10/21/us/politics/judge-dhs-voter-fraud-elections.html
