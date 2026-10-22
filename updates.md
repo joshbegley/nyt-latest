@@ -1,3 +1,11 @@
+**Justice Dept. Opens Inquiry Into Corey Lewandowski**\
+`The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
+https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
+
+**What’s Going On in This Picture? | Oct. 26, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-picture-oct-19-2026.html
+
 **Losing Ground in the Climate Fight**\
 `From Brazil to the North Sea, economic interests have been edging out climate priorities this week.`\
 https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html

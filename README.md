@@ -1,3 +1,7 @@
+**Monet Painting Sells for $56 Million in France**\
+`The artwork, titled “Iris,” is among the painter’s later works, which wealthy collectors have coveted in recent years.`\
+https://www.nytimes.com/2026/10/22/arts/design/claude-monet-painting-auction-paris.html
+
 **Losing Ground in the Climate Fight**\
 `From Brazil to the North Sea, economic interests have been edging out climate priorities this week.`\
 https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.
 **Covert Russian Group Targets James Talarico With Baseless Claims in Texas Senate Race**\
 `Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
 https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
-
-**In the Wake of Riots, the French Authorities Ban Some Protests**\
-`President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
-https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
 

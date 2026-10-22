@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
 `Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
 https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
 
-**Justice Dept. Opens Inquiry Into Lewandoski**\
+**Justice Dept. Opens Inquiry Into Corey Lewandowski**\
 `The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
 https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
 
@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.
 `President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
 https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html
 
-**What’s Going On in This Picture? | Oct. 19, 2026**\
+**What’s Going On in This Picture? | Oct. 26, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-picture-oct-19-2026.html
 
