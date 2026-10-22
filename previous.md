@@ -1,3 +1,19 @@
+**Hegseth Fired Her. Now She’s Running for Congress.**\
+`A former three-star admiral fired by Pete Hegseth is making his competence a campaign issue.`\
+https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carolina.html
+
+**Old-Fashioned Beef Stew Never Gets Old**\
+`Its popularity lies in its simplicity, a classic and harmonious combination of meat, onions, carrots and potatoes all simmered in red wine and beef broth.`\
+https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old.html
+
+**How Young Voters Are Feeling**\
+`We look at findings from our new poll.`\
+https://www.nytimes.com/2026/10/22/briefing/how-young-voters-are-feeling.html
+
+**Powerful Virginia Lawmaker Indicted Over Marijuana Business**\
+`L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
+https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
+
 **A.I. and Its Dangers Are Embedded In the Midterm Elections**\
 `The midterms are the first elections in which artificial intelligence is integrated into every major social media platform. Efforts to blunt its harms are uneven.`\
 https://www.nytimes.com/2026/10/22/business/media/ai-disinfo-chatbots-elections.html
@@ -46,7 +62,7 @@ https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
 `One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
 https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
 
-**‘Blindsided:’ Plaza Weddings Abruptly Canceled Amid Renovation**\
+**Plaza Weddings Canceled Amid Renovation: ‘We Were Blindsided’**\
 `As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
 
@@ -118,13 +134,13 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
-`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
-
 **The Only Thing We Can All Agree On Is That the World Is on Fire**\
 `How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
 https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
+
+**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
+`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
 
 **Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
 `Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.h
 **The Case for an A.S.L. ‘Sign of the Year’**\
 `Deaf linguists and professors consider the case for an A.S.L. “sign of the year.”`\
 https://www.nytimes.com/2026/10/22/crosswords/sign-of-the-year-american-sign-language.html
-
-**‘Metro,’ the Podcast That Tells Stories of This New York Moment**\
-`Sarah Koenig, from “Serial” and “This American Life,” is debuting an audio show that features New York Times Metro reporters.`\
-https://www.nytimes.com/2026/10/22/nyregion/metro-podcast-sarah-koenig.html
-
-**Higher, Faster, Gnarlier: Have Roller Coasters Become Too Extreme?**\
-`A coaster dares riders to be daring, with steep drops, high speeds and improbably tight curves. But safety has become a concern again after a man was thrown from his seat and died in Georgia.`\
-https://www.nytimes.com/2026/10/22/us/roller-coaster-safety.html
-
-**The Brief, Messy Political Career of Paolo Zampolli, a Trump Ally**\
-`He had an unlikely rise, from modeling agent to presidential special envoy. After his firing, he was unrepentant: “I need to make money.”`\
-https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-political-career.html
-
-**Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
-`After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
-https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
 

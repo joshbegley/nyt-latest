@@ -1,3 +1,23 @@
+**Hegseth Fired Her. Now She’s Running for Congress.**\
+`A former three-star admiral fired by Pete Hegseth is making his competence a campaign issue.`\
+https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carolina.html
+
+**Old-Fashioned Beef Stew Never Gets Old**\
+`Its popularity lies in its simplicity, a classic and harmonious combination of meat, onions, carrots and potatoes all simmered in red wine and beef broth.`\
+https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old.html
+
+**How Young Voters Are Feeling**\
+`We look at findings from our new poll.`\
+https://www.nytimes.com/2026/10/22/briefing/how-young-voters-are-feeling.html
+
+**Powerful Virginia Lawmaker Indicted Over Marijuana Business**\
+`L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
+https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
+
+**Plaza Weddings Canceled Amid Renovation: ‘We Were Blindsided’**\
+`As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
+https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
+
 **PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
 `Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
