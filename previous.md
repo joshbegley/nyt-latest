@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/10/21/us/5-things-to-know-about-roger-marshall.html
 `The candidate, a political newcomer, is hoping to be the first Democrat to represent the state in the Senate in nearly a century.`\
 https://www.nytimes.com/2026/10/21/us/adam-hamilton-kansas-senate.html
 
-**Live Updates: Kansas Senate Debate Carries High Stakes as Polls Show a Dead Heat**\
-`Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that could be crucial to Senate control.`\
+**Live Updates: Kansas Candidates Debate in High-Stakes Contest That Could Determine Senate Control**\
+`Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that polls suggest is neck and neck.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
 
 **El Salvador’s President Issues Harsh Warning to Haitian Gangs After 4 Soldiers Are Abducted**\
