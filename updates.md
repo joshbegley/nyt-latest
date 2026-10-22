@@ -1,3 +1,7 @@
+**Four Takeaways From the Debate for Wisconsin Governor**\
+`The Democrat, David Crowley, and the Republican, Tom Tiffany, sparred over taxes, abortion, data centers and legalizing marijuana in their only debate before the election.`\
+https://www.nytimes.com/2026/10/21/us/takeaways-debate-wisconsin-governor.html
+
 **Farmers, Health Care and Highways: 5 Takeaways from the Kansas Senate Debate**\
 `The Republican incumbent, Roger Marshall, is facing a surprisingly tough challenge from the Democratic nominee, Adam Hamilton.`\
 https://www.nytimes.com/2026/10/21/us/kansas-senate-debate-marshall-hamilton-takeaways.html
