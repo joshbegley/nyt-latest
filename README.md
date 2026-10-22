@@ -1,3 +1,7 @@
+**French Officials Ban Some Protests Amid Nationwide Riots**\
+`French officials banned gatherings in some cities on Thursday and over the coming days. President Macron of France said the bans were necessary to avoid a repeat of the riots last weekend.`\
+https://www.nytimes.com/video/world/europe/100000011230075/france-protests-ban-riots.html
+
 **He Was Reporting on Floods in Australia. Then He Jumped to the Rescue.**\
 `Will Murray of Australia’s public broadcaster spotted a man in a sinking truck, then jumped in the water with a bystander. (Just don’t call him Clark Kent.)`\
 https://www.nytimes.com/2026/10/22/world/australia/brisbane-flooding-car-rescue-abc-reporter.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-cora
 **PHP Security Flaw Sets Off Global Rush to Patch, Leaving Websites Offline**\
 `Governments and businesses around the world scrambled to prevent hackers from exploiting a vulnerability in PHP, a popular programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
-
-**Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
-`The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
-https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
 

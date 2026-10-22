@@ -1,3 +1,11 @@
+**He Was Reporting on Floods in Australia. Then He Jumped to the Rescue.**\
+`Will Murray of Australia’s public broadcaster spotted a man in a sinking truck, then jumped in the water with a bystander. (Just don’t call him Clark Kent.)`\
+https://www.nytimes.com/2026/10/22/world/australia/brisbane-flooding-car-rescue-abc-reporter.html
+
+**Hakeem Jeffries Launches Final Midterm Sprint for House Majority**\
+`The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
+https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
+
 **Jeffries Plans Final Midterm Sprint Through Battleground Districts**\
 `The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
 https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
