@@ -1,3 +1,19 @@
+**Chad Harbach Returns to a Different Literary Playing Field**\
+`Chad Harbach broke big with “The Art of Fielding.” While set on the same campus, his long-awaited follow-up arrives at a different literary moment.`\
+https://www.nytimes.com/2026/10/22/books/review/chad-harbach-the-brightness.html
+
+**METRO with Sarah Koenig: Episode 1**\
+`Sarah Koenig goes on a whirlwind tour of New York City to find out what New Yorkers are worrying about.`\
+https://www.nytimes.com/2026/10/22/podcasts/nice-to-meet-you.html
+
+**He Couldn’t Say No to a Job in New York. Which Home Did the Family Choose?**\
+`A couple with deep Chicago roots and their two children left Illinois for Westchester County with $1.8 million to spend.`\
+https://www.nytimes.com/quiz/2026/10/22/realestate/homes-for-sale-westchester-county-ny.html
+
+**Inside the White House’s Push for More A.I.**\
+`The Trump administration’s plan to supercharge scientific discovery.`\
+https://www.nytimes.com/video/opinion/100000011225438/inside-the-white-houses-push-for-more-ai.html
+
 **Michigan’s Senate Candidates Clash in Last Debate**\
 `Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, and Mike Rogers, the Republican candidate, sparred in their final debate on Wednesday.`\
 https://www.nytimes.com/video/us/politics/100000011229585/michigan-senate-debate-el-sayed-rogers.html
