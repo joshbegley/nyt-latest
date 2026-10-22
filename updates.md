@@ -1,3 +1,11 @@
+**Michigan’s Senate Candidates Clash in Last Debate**\
+`Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, and Mike Rogers, the Republican candidate, sparred in their final debate on Wednesday.`\
+https://www.nytimes.com/video/us/politics/100000011229585/michigan-senate-debate-el-sayed-rogers.html
+
+**15-Minute Lesson Plan: John Coltrane**\
+`What do you notice and wonder as you listen to five minutes from the saxophonist’s masterpiece, “A Love Supreme”?`\
+https://www.nytimes.com/2026/10/22/learning/15-minute-lesson-plan-john-coltrane.html
+
 **Cassowary Lays Rare Egg at Australian Zoo for First Time in Decades**\
 `A southern cassowary, which is a protected species, has laid bright green eggs at an Australian zoo for the first time in 34 years.`\
 https://www.nytimes.com/video/world/australia/100000011229378/green-egg-rare-cassowary-zoo-australia.html
