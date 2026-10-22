@@ -1,3 +1,11 @@
+**Protests in Indonesia Demand Action to Stop Rainforest Fires**\
+`Smoke from the blazes, blamed on destructive agricultural practices, has sickened hundreds of thousands and blanketed neighboring countries.`\
+https://www.nytimes.com/2026/10/22/world/asia/indonesia-protests-rainforest-haze.html
+
+**Toxic Haze From Wildfires Brings Anger and Grief in Indonesia**\
+`As Indonesia’s rainforests burn, frustration over deadly toxic haze from the fires has turned into protests. One widow mourned her husband, a volunteer firefighter who died from smoke exposure.`\
+https://www.nytimes.com/video/world/asia/100000011226898/indonesia-protests-rainforest-haze.html
+
 **Quote of the Day: Backlash on Data Centers Reaches Rural Corner of England**\
 `Quotation of the Day for Thursday, October 22, 2026.`\
 https://www.nytimes.com/2026/10/22/pageoneplus/quote-of-the-day-backlash-on-data-centers-reaches-rural-corner-of-england.html
