@@ -1,3 +1,7 @@
+**Tom Skerritt, Who Had Key Roles in ‘M*A*S*H,’ ‘Alien’ and ‘Steel Magnolias,’ Has Died**\
+`His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
+https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
+
 **Where to Buy Candy in New York City**\
 `Three candy shops to stock up on sweets for Halloween (and the rest of the year).`\
 https://www.nytimes.com/2026/10/22/dining/candy-shops.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/10/22/theater/tom-hanks-broadway-this-world-of-tomo
 `Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
 https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
 
-**Nicole Brown Simpson’s Sister: ‘We Deserve Answers’ on Accomplice Question**\
+**Unsealed O.J. Simpson Records Prompt a Request for a New Investigation**\
 `Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
 https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
 **As Typhoon Champi Nears, Taiwan’s Mayors Bet on a Popular Day Off**\
 `One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
 https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
-
-**Plaza Weddings Canceled Amid Renovation: ‘We Were Blindsided’**\
-`As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
-https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
 
