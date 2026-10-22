@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-sc
 https://www.nytimes.com/2026/10/22/world/cancer-new-treatment-pope-france.html
 
 **MTA Suspends Fare Enforcement on Buses After Altercations With Passengers**\
-`Transit officials said they would halt the enforcement program while they investigate two disputes between passengers and inspectors.`\
+`Transit officials said they would pause an enforcement program while they investigated two disputes between passengers and inspectors.`\
 https://www.nytimes.com/2026/10/22/nyregion/mta-suspends-bus-fare-nyc-kyle-taylor.html
 
 **Monet Painting Sells for $56 Million in France**\

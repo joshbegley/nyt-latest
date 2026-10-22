@@ -1,3 +1,7 @@
+**MTA Suspends Fare Enforcement on Buses After Altercations With Passengers**\
+`Transit officials said they would pause an enforcement program while they investigated two disputes between passengers and inspectors.`\
+https://www.nytimes.com/2026/10/22/nyregion/mta-suspends-bus-fare-nyc-kyle-taylor.html
+
 **Florida Police Officer Is Accused in Scheme to Seize a Dead Man’s House**\
 `The Broward County Sheriff’s Office arrested the officer, Brian Sguros, alleging that he used the man’s identity after finding him dead at home during a welfare check.`\
 https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-scheme.html
