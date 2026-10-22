@@ -1,3 +1,7 @@
+**No Sleep Till the End of ‘The Bell Jar’**\
+`Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel at a nightclub in Manhattan.`\
+https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-plath.html
+
 **What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
 `President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
 https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1229.html
 **Putin Nears a Prize: Restoring Ties With the U.S. While Giving Up Nothing**\
 `Russia has sought to separate the war in Ukraine from potential business deals and diplomacy with the United States. Its efforts now appear to be working.`\
 https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
-
-**What ‘You Can See Everything’ Is Really About, With Wesley Morris**\
-`The choices and strategies of Nathan Fielder.`\
-https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-morris-elizabeth-holmes-theranos.html
 
