@@ -167,7 +167,7 @@ https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
 https://www.nytimes.com/2026/10/22/business/media/ai-disinfo-chatbots-elections.html
 
 **New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
-`The City Council is set to pass a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
+`The City Council passed a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
 https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
 
 **How a Legal Backlash Against Big Tech Is Forcing Big Changes**\

@@ -1,3 +1,7 @@
+**Monet Painting Sells for $56 Million in France**\
+`The artwork, titled “Iris,” is among the painter’s later works, which wealthy collectors have coveted in recent years.`\
+https://www.nytimes.com/2026/10/22/arts/design/claude-monet-painting-auction-paris.html
+
 **Justice Dept. Opens Inquiry Into Corey Lewandowski**\
 `The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
 https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
