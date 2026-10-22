@@ -1,3 +1,7 @@
+**Live Updates: With Senate Control on the Line, Kansas Candidates Trade Barbs on Fuel, War and More**\
+`Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that polls suggest is neck and neck.`\
+https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
+
 **5 Things to Know About Senator Roger Marshall of Kansas**\
 `The Republican incumbent is trying to hold on to his seat and keep his state from sending a Democrat to the Senate for the first time in nearly a century.`\
 https://www.nytimes.com/2026/10/21/us/roger-marshall-kansas-senate.html
