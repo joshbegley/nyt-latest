@@ -1,3 +1,15 @@
+**Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
+`The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
+https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html
+
+**Iran Mocks Trump With Billboard Featuring Impersonator**\
+`Iran has a long history of using billboards for messaging, but this piece of performance propaganda is perhaps the most eccentric yet. A live impersonator of President Trump locked in a jail cell is attached to the billboard.`\
+https://www.nytimes.com/video/world/middleeast/100000011230015/donald-trump-billboard-iran-tehran.html
+
+**17-Year-Old Charged With Murder in Midtown Subway Station Shooting**\
+`The teenage boy was arrested on Thursday in connection with the killing of Darrel Rodriguez, a security guard, in a fight on an E train platform.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-subway-shooting-arrest.html
+
 **Why James Talarico Thinks He Can Win Over Republicans in Texas**\
 `In bright red Texas, James Talarico is asking Texas to do something it hasn’t done in nearly 40 years: elect a Democrat to the U.S. Senate. Talarico is running against Ken Paxton, the Texas attorney general and a Trump ally, in what’s become the most expensive and ferocious campaign of this year’s midterm elections. Ahead of Election Day, Talarico recently joined Michael Barbaro on “The Daily” to discuss his campaign, the highly personal attacks against him, his viewpoint on partisan politics and what he wants Democrats to do if they take back control of Congress.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011228792/why-james-talarico-thinks-he-can-win-over-republicans-in-texas.html
