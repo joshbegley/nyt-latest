@@ -1,3 +1,23 @@
+**Quote of the Day: Backlash on Data Centers Reaches Rural Corner of England**\
+`Quotation of the Day for Thursday, October 22, 2026.`\
+https://www.nytimes.com/2026/10/22/pageoneplus/quote-of-the-day-backlash-on-data-centers-reaches-rural-corner-of-england.html
+
+**Archers Mount Their Steeds in Pursuit of Centuries-Old Warrior Spirit**\
+`Horseback archery is making a comeback at a time when modern warfare has become high-tech and impersonal. The sport was featured at the World Nomad Games.`\
+https://www.nytimes.com/2026/10/22/world/middleeast/archers-mount-their-steeds-in-pursuit-of-centuries-old-warrior-spirit.html
+
+**‘Open War’ Between Afghanistan and Pakistan Adds a Volatile Element**\
+`The two sides turn to proxy groups after eight months of a conflict that has taken a heavy toll on civilians.`\
+https://www.nytimes.com/2026/10/22/world/asia/afghanistan-pakistan-proxy-war.html
+
+**Looted Goods From French Stores Appear on Resale Sites After Riots**\
+`Officials in France are pressing online platforms like eBay and Vinted to remove items that were stolen during public disturbances over the weekend.`\
+https://www.nytimes.com/2026/10/22/business/france-riots-looting-resale.html
+
+**From the Front Page: On Oct. 22, 1962, Kennedy Announces a Blockade of Cuba**\
+`In 1962, President John F. Kennedy announced a naval “quarantine” of Cuba after the discovery of Soviet missile sites on the island.`\
+https://www.nytimes.com/2026/10/22/learning/from-the-front-page-on-oct-22-1962-kennedy-announces-a-blockade-of-cuba.html
+
 **Four Takeaways From the Debate for Wisconsin Governor**\
 `The Democrat, David Crowley, and the Republican, Tom Tiffany, sparred over taxes, abortion, data centers and legalizing marijuana in their only debate before the election.`\
 https://www.nytimes.com/2026/10/21/us/takeaways-debate-wisconsin-governor.html
@@ -161,24 +181,4 @@ https://www.nytimes.com/video/world/asia/100000011227711/shark-south-korea-bukan
 **A Debt-Fueled “Doom Loop”**\
 `Some democracies seem caught in a trap: Spend more and risk market panic, or cut benefits and empower the far right.`\
 https://www.nytimes.com/2026/10/21/world/debt-france-protests-russia-us.html
-
-**Anthropic Joins the A.I. Agent Race With Claude Duet**\
-`The tool, which is not yet widely available, will compete with OpenAI’s dots and Meta’s Muse. It is built for work and not personal errands.`\
-https://www.nytimes.com/2026/10/21/technology/anthropic-ai-agent-claude-duet.html
-
-**Gambling Hotline Ex-Director Stole $1.5M to Feed Betting Habit, Prosecutors Say**\
-`Philip L. Sullivan started running the Florida hotline in 2025, a year after he was accused of stealing from a previous employer. He was sentenced to nearly 10 years in prison.`\
-https://www.nytimes.com/2026/10/21/us/philip-sullivan-theft-sentencing-addicted-to-recovery-podcast.html
-
-**Meta Earnings Show Increased A.I. Spending, Even as Cash Pressures Grow**\
-`The spending has hurt the Silicon Valley giant’s cash flow, which turned negative. Meta said it would issue a new class of stock to help it raise more money.`\
-https://www.nytimes.com/2026/10/21/technology/meta-earnings.html
-
-**AIPAC Makes Last-Minute Donation to Boost Rogers in Michigan Senate Race Against El-Sayed**\
-`The American Israel Public Affairs Committee generally supports Democrats, but it has spent heavily against Dr. Abdul El-Sayed, a vocal critic of Israel. Its general election spending comes after initial concerns from the campaign of Mike Rogers, the Republican.`\
-https://www.nytimes.com/2026/10/21/us/politics/aipac-michigan-senate-rogers-donation.html
-
-**Tesla Profit Slumps as Elon Musk’s Car Company Considers Merging With SpaceX**\
-`The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
-https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
 
