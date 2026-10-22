@@ -1,3 +1,23 @@
+**Quote of the Day: Backlash on Data Centers Reaches Rural Corner of England**\
+`Quotation of the Day for Thursday, October 22, 2026.`\
+https://www.nytimes.com/2026/10/22/pageoneplus/quote-of-the-day-backlash-on-data-centers-reaches-rural-corner-of-england.html
+
+**Archers Mount Their Steeds in Pursuit of Centuries-Old Warrior Spirit**\
+`Horseback archery is making a comeback at a time when modern warfare has become high-tech and impersonal. The sport was featured at the World Nomad Games.`\
+https://www.nytimes.com/2026/10/22/world/middleeast/archers-mount-their-steeds-in-pursuit-of-centuries-old-warrior-spirit.html
+
+**‘Open War’ Between Afghanistan and Pakistan Adds a Volatile Element**\
+`The two sides turn to proxy groups after eight months of a conflict that has taken a heavy toll on civilians.`\
+https://www.nytimes.com/2026/10/22/world/asia/afghanistan-pakistan-proxy-war.html
+
+**Looted Goods From French Stores Appear on Resale Sites After Riots**\
+`Officials in France are pressing online platforms like eBay and Vinted to remove items that were stolen during public disturbances over the weekend.`\
+https://www.nytimes.com/2026/10/22/business/france-riots-looting-resale.html
+
+**From the Front Page: On Oct. 22, 1962, Kennedy Announces a Blockade of Cuba**\
+`In 1962, President John F. Kennedy announced a naval “quarantine” of Cuba after the discovery of Soviet missile sites on the island.`\
+https://www.nytimes.com/2026/10/22/learning/from-the-front-page-on-oct-22-1962-kennedy-announces-a-blockade-of-cuba.html
+
 **Four Takeaways From the Debate for Wisconsin Governor**\
 `The Democrat, David Crowley, and the Republican, Tom Tiffany, sparred over taxes, abortion, data centers and legalizing marijuana in their only debate before the election.`\
 https://www.nytimes.com/2026/10/21/us/takeaways-debate-wisconsin-governor.html
