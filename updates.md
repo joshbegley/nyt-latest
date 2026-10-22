@@ -1,3 +1,19 @@
+**Losing Ground in the Climate Fight**\
+`From Brazil to the North Sea, economic interests have been edging out climate priorities this week.`\
+https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
+
+**Cancer Vaccine Cuts the Risk of Melanoma Recurrence, Merck and Moderna Report**\
+`Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
+https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
+
+**Tom Skerritt, Who Had Key Roles in ‘Picket Fences’ and ‘Top Gun,’ Dies at 93**\
+`His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
+https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
+
+**Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
+`The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though President Trump strongly defended it.`\
+https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
+
 **Justice Dept. Opens Inquiry Into Lewandoski**\
 `The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
 https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
