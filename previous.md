@@ -1,3 +1,11 @@
+**Jeffries Plans Final Midterm Sprint Through Battleground Districts**\
+`The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
+https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
+
+**Key Trump Health Adviser Resigns Ahead of Midterm Elections**\
+`Calley Means, who helped unite Robert F. Kennedy Jr. and President Trump, pushed food reforms but grew frustrated with stalled progress on the MAHA agenda.`\
+https://www.nytimes.com/2026/10/22/us/politics/calley-means-resigns-rfk-trump.html
+
 **The First Story That Scared Leigh Bardugo**\
 `Leigh Bardugo is the best-selling author behind the Ninth House trilogy, which just concluded with the release of “Dead Beat.” But her introduction to the joys of being scared out of her wits was way back in fifth grade.`\
 https://www.nytimes.com/video/podcasts/100000011230463/the-first-story-that-scared-leigh-bardugo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-a
 **A Shifting Standard**\
 `We look at how Title IX keeps changing.`\
 https://www.nytimes.com/2026/10/22/briefing/title-ix.html
-
-**New U.S.-Israeli Plans to Attack Iran, and Trump’s Whistle-Blower Rewards Program**\
-`Plus, America’s newest national park.`\
-https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-whistleblower.html
-
-**The Election That Will Define Israel’s Future**\
-`Israelis on both sides of the political spectrum see next week’s vote as the most consequential in their country’s history.`\
-https://www.nytimes.com/2026/10/22/podcasts/the-daily/israel-election-netanyahu.html
 

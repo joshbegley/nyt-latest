@@ -1,3 +1,11 @@
+**Jeffries Plans Final Midterm Sprint Through Battleground Districts**\
+`The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
+https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
+
+**Key Trump Health Adviser Resigns Ahead of Midterm Elections**\
+`Calley Means, who helped unite Robert F. Kennedy Jr. and President Trump, pushed food reforms but grew frustrated with stalled progress on the MAHA agenda.`\
+https://www.nytimes.com/2026/10/22/us/politics/calley-means-resigns-rfk-trump.html
+
 **In the Wake of Riots, the French Authorities Ban Some Protests**\
 `President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
 https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html

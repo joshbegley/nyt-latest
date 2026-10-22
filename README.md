@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.htm
 `The airport is in Dammam, which is near the headquarters of oil giant Saudi Aramco. For weeks, Yemen’s Iran-backed Houthi militia has been attacking the kingdom’s aviation and energy sectors.`\
 https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
 
-**A Shifting Standard**\
-`We look at how Title IX keeps changing.`\
-https://www.nytimes.com/2026/10/22/briefing/title-ix.html
-
