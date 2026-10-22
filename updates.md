@@ -1,3 +1,19 @@
+**New Airbnb Rules Will Limit Chores Hosts Can Require**\
+`The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
+https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
+
+**As Typhoon Champi Nears, Taiwan’s Mayors Bet on a Popular Day Off**\
+`One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
+https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
+
+**Would You Listen to A.I. Music? Maybe You Already Do.**\
+`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
+https://www.nytimes.com/interactive/2026/10/22/business/media/ai-music-streaming-spotify-apple-music.html
+
+**Iowa, Usually Red, Is in Play This Midterm as Economic Woes Mount**\
+`The Trump administration’s policies could cost Republicans in a state that is being hit hard by expensive diesel prices and uncertainty over trade.`\
+https://www.nytimes.com/2026/10/22/us/politics/iowa-farmers-republicans-trump.html
+
 **All They Wanted Was to Get Married at the Plaza**\
 `As the hotel announced it would close for at least four years to undergo renovations, some couples with events next year were blindsided.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html

@@ -1,3 +1,11 @@
+**New Airbnb Rules Will Limit Chores Hosts Can Require**\
+`The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
+https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
+
+**As Typhoon Champi Nears, Taiwan’s Mayors Bet on a Popular Day Off**\
+`One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
+https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
+
 **All They Wanted Was to Get Married at the Plaza**\
 `As the hotel announced it would close for at least four years to undergo renovations, some couples with events next year were blindsided.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
@@ -95,7 +103,7 @@ https://www.nytimes.com/2026/10/22/pageoneplus/corrections-oct-22-2026.html
 https://www.nytimes.com/interactive/2026/10/22/us/ice-shooting-phoenix.html
 
 **Would You Listen to A.I. Music? Maybe You Already Do.**\
-`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
+`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
 https://www.nytimes.com/interactive/2026/10/22/business/media/ai-music-streaming-spotify-apple-music.html
 
 **Why More Than Half of These 13 Iowa Voters Are Considering Splitting Their Vote**\
@@ -114,7 +122,7 @@ https://www.nytimes.com/2026/10/22/movies/hallmark-countdown-to-christmas-octobe
 `The Trump administration’s plan to supercharge scientific discovery.`\
 https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
 
-**Reliably Red Iowa in Play as Economic Woes Mount**\
+**Iowa, Usually Red, Is in Play This Midterm as Economic Woes Mount**\
 `The Trump administration’s policies could cost Republicans in a state that is being hit hard by expensive diesel prices and uncertainty over trade.`\
 https://www.nytimes.com/2026/10/22/us/politics/iowa-farmers-republicans-trump.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/wildwood-review.html
 **‘Wicker’ Review: Getting Twiggy With It**\
 `A man woven from willow branches disrupts the rigid customs of a rural village in this wonderfully raunchy satire.`\
 https://www.nytimes.com/2026/10/22/movies/wicker-review-getting-twiggy-with-it.html
-
-**‘A Talent for Murder’ Review: Ripley and the Creator**\
-`Helen Mirren and Alden Ehrenreich star in a psychological thriller about Patricia Highsmith as she grapples with her most famous creation.`\
-https://www.nytimes.com/2026/10/22/movies/a-talent-for-murder-review.html
-
-**‘Possible Love’ Review: The Lives of Others**\
-`In his first movie since his celebrated drama “Burning,” the South Korean director Lee Chang-dong focuses on two couples from very different worlds.`\
-https://www.nytimes.com/2026/10/22/movies/possible-love-review-the-lives-of-others.html
 
