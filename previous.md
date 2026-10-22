@@ -1,3 +1,7 @@
+**Supreme Court Allows Blanket Ban on Student IDs at Polls in New Hampshire**\
+`The justices had been asked to weigh in on a New Hampshire directive that prevented election officials from considering student IDs to prove a voter’s identity.`\
+https://www.nytimes.com/2026/10/22/us/politics/supreme-court-new-hampshire-election-student-id.html
+
 **What Dueling Visits by Ocasio-Cortez and Manchin Say About Maine’s Senate Race**\
 `Senator Susan Collins, a Republican in a tight race, is keying her closing pitch to the middle, while her progressive challenger, Troy Jackson, is seeking to excite the left.`\
 https://www.nytimes.com/2026/10/22/us/politics/maine-aoc-jackson-collins-manchin-senate.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
 **Art Basel Paris to End Early Because of France Riots**\
 `Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
 https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
-
-**Map: 7.0-Magnitude Earthquake Strikes China**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
 

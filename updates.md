@@ -1,3 +1,7 @@
+**Supreme Court Allows Blanket Ban on Student IDs at Polls in New Hampshire**\
+`The justices had been asked to weigh in on a New Hampshire directive that prevented election officials from considering student IDs to prove a voter’s identity.`\
+https://www.nytimes.com/2026/10/22/us/politics/supreme-court-new-hampshire-election-student-id.html
+
 **What Dueling Visits by Ocasio-Cortez and Manchin Say About Maine’s Senate Race**\
 `Senator Susan Collins, a Republican in a tight race, is keying her closing pitch to the middle, while her progressive challenger, Troy Jackson, is seeking to excite the left.`\
 https://www.nytimes.com/2026/10/22/us/politics/maine-aoc-jackson-collins-manchin-senate.html
