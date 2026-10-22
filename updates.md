@@ -1,3 +1,15 @@
+**The Dream House With a Radioactive Backyard**\
+`A young family thought they had escaped the toxic legacy of Love Canal with a dream house near a creek in the suburbs. Then the men in the hazmat suits showed up.`\
+https://www.nytimes.com/2026/10/22/nyregion/niagara-new-york-radioactive-waste.html
+
+**With Horse Carriage Ban Set to Pass, Workers’ Future Remains Murky**\
+`New York City lawmakers are expected to vote on Thursday to banish the carriages from Central Park. Details for addressing the economic fallout have not been finalized.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-horse-carriage-ban-workers-jobs.html
+
+**NYT Spelling Bee Answers for October 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/22/crosswords/spelling-bee-forum.html
+
 **Late Night: Trump Can’t Stop Talking About Jon Husted’s Rear End**\
 `“Honestly, it’s nice to see that Trump can make men just as uncomfortable as women,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/10/22/arts/television/late-night-trump-jon-husted.html

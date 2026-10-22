@@ -1,3 +1,15 @@
+**The Dream House With a Radioactive Backyard**\
+`A young family thought they had escaped the toxic legacy of Love Canal with a dream house near a creek in the suburbs. Then the men in the hazmat suits showed up.`\
+https://www.nytimes.com/2026/10/22/nyregion/niagara-new-york-radioactive-waste.html
+
+**With Horse Carriage Ban Set to Pass, Workers’ Future Remains Murky**\
+`New York City lawmakers are expected to vote on Thursday to banish the carriages from Central Park. Details for addressing the economic fallout have not been finalized.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-horse-carriage-ban-workers-jobs.html
+
+**NYT Spelling Bee Answers for October 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/22/crosswords/spelling-bee-forum.html
+
 **Late Night: Trump Can’t Stop Talking About Jon Husted’s Rear End**\
 `“Honestly, it’s nice to see that Trump can make men just as uncomfortable as women,” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/10/22/arts/television/late-night-trump-jon-husted.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/2026/10/21/us/politics/trump-supreme-court-border-wall.h
 **New Rules in North Carolina Threaten Thousands of Mail Ballots**\
 `County election officials have rejected ballots for such issues as an unsealed “inner” envelope. Voting rights groups are urging voters to fix their ballots or vote in other ways.`\
 https://www.nytimes.com/2026/10/21/us/politics/north-carolina-senate-mail-ballot-rejections.html
-
-**Hochul Leads Challenger Blakeman by 14 Points in Quinnipiac Poll**\
-`Gov. Kathy Hochul appears to be maintaining a comfortable lead over her Republican challenger, Bruce Blakeman, in her re-election bid in New York.`\
-https://www.nytimes.com/2026/10/21/nyregion/poll-hochul-blakeman-governor.html
-
-**Israeli Military Detains Brad Lander, N.Y. Congressional Candidate, in West Bank**\
-`The Israeli military detained Brad Lander, a New York congressional candidate, in the West Bank while he was helping Palestinian farmers.`\
-https://www.nytimes.com/video/world/europe/100000011227502/brad-lander-detained-israeli-military-west-bank.html
-
-**Maps: Tracking Subtropical Storm Josephine**\
-`See the likely path and wind arrival times for Josephine`\
-https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
 
