@@ -1,3 +1,7 @@
+**Covert Russian Group Targets James Talarico With Baseless Claims in Texas Senate Race**\
+`Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
+https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
+
 **In Wake of Riots, French Authorities Ban Some Protests**\
 `President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
 https://www.nytimes.com/2026/10/22/france-protests-macron.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/realestate/housing-market-nyc.html
 **METRO with Sarah Koenig: Episode 2**\
 `In New York’s diamond district, there’s a war on: real vs. fake. It’s hard to know which side is which.`\
 https://www.nytimes.com/2026/10/22/podcasts/karat-and-schtick.html
-
-**A ‘Nobody Wants This’ Star Embraces ‘Jewish Joy’**\
-`The time since last season has been eventful for both Jackie Tohn’s character and the actress herself.`\
-https://www.nytimes.com/2026/10/22/arts/television/jackie-tohn-nobody-wants-this-interview.html
 
