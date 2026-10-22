@@ -1,3 +1,7 @@
+**Art Basel Paris to End Early Because of France Riots**\
+`Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
+https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
+
 **Map: 7.0-Magnitude Earthquake Strikes China**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/magazine/tabloid-headline-breaks-silence.html
 **Employers Shift Rising Health Care Costs Onto Millions of Workers**\
 `New surveys show that increases in premiums and deductibles are forcing people to forgo treatments or doctor’s visits while budgets are strained by higher food and gas prices.`\
 https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premiums-deductibles.html
-
-**36 Hours in Kansas City, Mo.: Things to Do and See**\
-`Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
-https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
 

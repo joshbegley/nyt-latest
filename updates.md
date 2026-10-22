@@ -1,3 +1,7 @@
+**Art Basel Paris to End Early Because of France Riots**\
+`Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
+https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
+
 **Map: 7.0-Magnitude Earthquake Strikes China**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
