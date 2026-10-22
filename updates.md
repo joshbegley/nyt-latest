@@ -1,3 +1,11 @@
+**Cassowary Lays Rare Egg at Australian Zoo for First Time in Decades**\
+`A southern cassowary, which is a protected species, has laid bright green eggs at an Australian zoo for the first time in 34 years.`\
+https://www.nytimes.com/video/world/australia/100000011229378/green-egg-rare-cassowary-zoo-australia.html
+
+**Trump Is Still Chasing His Yalta. Here’s What He Doesn’t Get.**\
+`Mr. Trump has been searching for his Yalta in the war in Ukraine ever since he returned to the Oval Office.`\
+https://www.nytimes.com/2026/10/22/opinion/trump-ukraine-russia-war-yalta.html
+
 **The Dream House With a Radioactive Backyard**\
 `A young family thought they had escaped the toxic legacy of Love Canal with a dream house near a creek in the suburbs. Then the men in the hazmat suits showed up.`\
 https://www.nytimes.com/2026/10/22/nyregion/niagara-new-york-radioactive-waste.html
