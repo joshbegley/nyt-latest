@@ -1,3 +1,11 @@
+**Trump Goes to Iowa, Hoping to Stop Farmers From Voting Blue**\
+`Also, a top Trump health adviser resigns. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/22/briefing/trump-iowa-roller-coaster-safety.html
+
+**Bard College Hires Forensic Firm to Investigate a Damning Epstein Email**\
+`The firm suggested the former Bard president’s email to Jeffrey Epstein about a young woman may have been fake. Congressional Democrats who publicized the message disagree.`\
+https://www.nytimes.com/2026/10/22/us/bard-college-forensic-cybersecurity-epstein-email.html
+
 **Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
 `The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
 https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html

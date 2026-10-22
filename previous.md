@@ -1,3 +1,11 @@
+**Trump Goes to Iowa, Hoping to Stop Farmers From Voting Blue**\
+`Also, a top Trump health adviser resigns. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/22/briefing/trump-iowa-roller-coaster-safety.html
+
+**Bard College Hires Forensic Firm to Investigate a Damning Epstein Email**\
+`The firm suggested the former Bard president’s email to Jeffrey Epstein about a young woman may have been fake. Congressional Democrats who publicized the message disagree.`\
+https://www.nytimes.com/2026/10/22/us/bard-college-forensic-cybersecurity-epstein-email.html
+
 **Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
 `The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
 https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carol
 **Old-Fashioned Beef Stew Never Gets Old**\
 `Its popularity lies in its simplicity, a classic and harmonious combination of meat, onions, carrots and potatoes all simmered in red wine and beef broth.`\
 https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old.html
-
-**How Young Voters Are Feeling**\
-`We look at findings from our new poll.`\
-https://www.nytimes.com/2026/10/22/briefing/how-young-voters-are-feeling.html
-
-**Louise Lucas, Powerful Virginia Lawmaker, Indicted Over Marijuana Business**\
-`L. Louise Lucas, a Democrat from Portsmouth, was the focus of F.B.I. searches earlier this year.`\
-https://www.nytimes.com/2026/10/22/us/louise-lucas-marijuana-charges.html
 
