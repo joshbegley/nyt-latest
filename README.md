@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/21/nyregion/nypd-officer-delrawn-small-shooting-
 
 **5 Things to Know About Senator Roger Marshall of Kansas**\
 `The Republican incumbent is trying to hold on to his seat and keep his state from sending a Democrat to the Senate for the first time in nearly a century.`\
-https://www.nytimes.com/2026/10/21/us/5-things-to-know-about-roger-marshall.html
+https://www.nytimes.com/2026/10/21/us/roger-marshall-kansas-senate.html
 
 **5 Things to Know About Adam Hamilton, the Pastor Running for Senate in Kansas**\
 `The candidate, a political newcomer, is hoping to be the first Democrat to represent the state in the Senate in nearly a century.`\
