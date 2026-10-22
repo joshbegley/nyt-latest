@@ -1,3 +1,7 @@
+**A.I. and Its Dangers Are Embedded In the Midterm Elections**\
+`The midterms are the first elections in which artificial intelligence is integrated into every major social media platform. Efforts to blunt its harms are uneven.`\
+https://www.nytimes.com/2026/10/22/business/media/ai-disinfo-chatbots-elections.html
+
 **New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
 `The City Council is set to pass a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
 https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/10/22/business/stocks-oil-prices.html
 `If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
 https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
 
-**Global Rush to Fix PHP Security Flaw Leaves Some Websites Offline**\
+**PHP Security Flaw Sparks Global Rush to Patch, Leaving Websites Offline**\
 `Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-polit
 **Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
 `After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
 https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
-
-**Why Many Voters Are Unhappy With the Economy**\
-`With the midterms approaching, the economy is a top concern for voters. Our chief economic correspondent, Ben Casselman, describes which aspects of the economy have voters so frustrated.`\
-https://www.nytimes.com/video/business/100000011216716/why-many-voters-are-unhappy-with-the-economy.html
 
