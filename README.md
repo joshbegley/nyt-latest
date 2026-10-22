@@ -1,3 +1,11 @@
+**International Criminal Court Wins E.U.’s Top Human Rights Prize**\
+`The win is a show of support for the International Criminal Court as the Trump administration moves to thwart its work.`\
+https://www.nytimes.com/2026/10/22/world/europe/icc-sarkharov-eu-trump-sanctions-human-rights.html
+
+**Manosphere Influencer Clavicular Pleads Not Guilty to Rape Charge**\
+`The social media figure, whose real name is Braden Peters, appeared briefly for the arraignment in Orleans, Mass., on Cape Cod.`\
+https://www.nytimes.com/2026/10/22/us/clavicular-rape-hearing.html
+
 **John Anderson, Country Music Hall of Famer, Dies at 71**\
 `His gravelly vocals propelled a career that spanned nearly five decades and earned him a spot in the Country Music Hall of Fame.`\
 https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.html
@@ -50,8 +58,8 @@ https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurit
 `The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
 https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
 
-**Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
-`For weeks, the Iran-backed Houthis have been attacking the kingdom’s aviation and energy sectors.`\
+**Houthi Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
+`The airport is in Dammam, which is near the headquarters of oil giant Saudi Aramco. For weeks, Yemen’s Iran-backed Houthi militia has been attacking the kingdom’s aviation and energy sectors.`\
 https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
 
 **A Shifting Standard**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/design/constantin-brancusi-moma-sculptur
 **Homes for Sale in Connecticut and New York**\
 `This week’s properties are a four-bedroom in Katonah, N.Y., and a three-bedroom in Fairfield, Conn.`\
 https://www.nytimes.com/2026/10/22/realestate/housing-market-near-nyc.html
-
-**Siena and the Art of What Lies Behind**\
-`A show of bronzes at the Frick Collection reveals a divine and ancient craft they’d revived — and lessons in gluteal grace.`\
-https://www.nytimes.com/2026/10/22/arts/design/frick-siena-bronzes.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are on Central Park West, in Yorkville and Williamsburg.`\
-https://www.nytimes.com/2026/10/22/realestate/housing-market-nyc.html
 
