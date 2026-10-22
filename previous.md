@@ -1,3 +1,7 @@
+**Bus Commuters Fume as Port Authority Bus Terminal Revamp Causes Delays**\
+`Detours and demolition tied to the $11 billion replacement of the bus terminal are causing rush-hour headaches for commuters.`\
+https://www.nytimes.com/2026/10/22/nyregion/commuter-buses-delays-port-authority.html
+
 **Supreme Court Allows Blanket Ban on Student IDs at Polls in New Hampshire**\
 `The justices had been asked to weigh in on a New Hampshire directive that prevented election officials from considering student IDs to prove a voter’s identity.`\
 https://www.nytimes.com/2026/10/22/us/politics/supreme-court-new-hampshire-election-student-id.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/australia/100000011230113/australia-floods-q
 **Republican Gov. Mike DeWine Calls on Ramaswamy to Remove Acton Attack Ad**\
 `The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though President Trump strongly defended it.`\
 https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
-
-**Art Basel Paris to End Early Because of France Riots**\
-`Organizers cut the fair short after days of brisk sales at V.I.P. previews, citing safety concerns amid weeks of demonstrations in France.`\
-https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
 
