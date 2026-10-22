@@ -1,3 +1,7 @@
+**New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
+`The City Council is set to pass a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
+
 **‘Blindsided:’ Plaza Weddings Abruptly Canceled Amid Renovation**\
 `As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
