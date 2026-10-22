@@ -1,3 +1,7 @@
+**Late Night: Trump Can’t Stop Talking About Jon Husted’s Rear End**\
+`“Honestly, it’s nice to see that Trump can make men just as uncomfortable as women,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/10/22/arts/television/late-night-trump-jon-husted.html
+
 **Palestinian Voters Could Determine Israel’s Future**\
 `Palestinian citizens may have the electoral weight to influence Israeli politics, even as they feel they have so little control over their lives.`\
 https://www.nytimes.com/2026/10/22/opinion/palestinians-citizens-israel-election-voting.html

@@ -1,3 +1,7 @@
+**Late Night: Trump Can’t Stop Talking About Jon Husted’s Rear End**\
+`“Honestly, it’s nice to see that Trump can make men just as uncomfortable as women,” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/10/22/arts/television/late-night-trump-jon-husted.html
+
 **Palestinian Voters Could Determine Israel’s Future**\
 `Palestinian citizens may have the electoral weight to influence Israeli politics, even as they feel they have so little control over their lives.`\
 https://www.nytimes.com/2026/10/22/opinion/palestinians-citizens-israel-election-voting.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/world/europe/100000011227502/brad-lander-detained-
 **Maps: Tracking Subtropical Storm Josephine**\
 `See the likely path and wind arrival times for Josephine`\
 https://www.nytimes.com/interactive/2026/10/21/weather/subtropical-storm-josephine-map-path-tracker.html
-
-**Thélyson Orélien's Quebec Publisher Cuts Ties Over A.I. Accusations**\
-`Thélyson Orélien, a celebrated novelist, used artificial intelligence while writing a breakout book, his publisher says.`\
-https://www.nytimes.com/2026/10/21/world/canada/thelyson-orelien-ai-publisher.html
 
