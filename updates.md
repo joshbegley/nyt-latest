@@ -1,3 +1,15 @@
+**Florida Police Officer Is Accused in Scheme to Seize a Dead Man’s House**\
+`The Broward County Sheriff’s Office arrested the officer, Brian Sguros, alleging that he used the man’s identity after finding him dead at home during a welfare check.`\
+https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-scheme.html
+
+**A Cancer Revolution**\
+`We look at how screening and groundbreaking treatments have radically reduced death rates.`\
+https://www.nytimes.com/2026/10/22/world/cancer-new-treatment-pope-france.html
+
+**MTA Suspends Fare Enforcement on Buses After Altercations With Passengers**\
+`Transit officials said they would halt the enforcement program while they investigate two disputes between passengers and inspectors.`\
+https://www.nytimes.com/2026/10/22/nyregion/mta-suspends-bus-fare-nyc-kyle-taylor.html
+
 **New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
 `The City Council passed a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
 https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html

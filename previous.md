@@ -1,3 +1,15 @@
+**Florida Police Officer Is Accused in Scheme to Seize a Dead Man’s House**\
+`The Broward County Sheriff’s Office arrested the officer, Brian Sguros, alleging that he used the man’s identity after finding him dead at home during a welfare check.`\
+https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-scheme.html
+
+**A Cancer Revolution**\
+`We look at how screening and groundbreaking treatments have radically reduced death rates.`\
+https://www.nytimes.com/2026/10/22/world/cancer-new-treatment-pope-france.html
+
+**MTA Suspends Fare Enforcement on Buses After Altercations With Passengers**\
+`Transit officials said they would halt the enforcement program while they investigate two disputes between passengers and inspectors.`\
+https://www.nytimes.com/2026/10/22/nyregion/mta-suspends-bus-fare-nyc-kyle-taylor.html
+
 **Monet Painting Sells for $56 Million in France**\
 `The artwork, titled “Iris,” is among the painter’s later works, which wealthy collectors have coveted in recent years.`\
 https://www.nytimes.com/2026/10/22/arts/design/claude-monet-painting-auction-paris.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-
 **International Criminal Court Wins E.U.’s Top Human Rights Prize**\
 `The win is a show of support for the International Criminal Court as the Trump administration moves to thwart its work.`\
 https://www.nytimes.com/2026/10/22/world/europe/icc-sarkharov-eu-trump-sanctions-human-rights.html
-
-**Clavicular, the ‘Looksmaxxing’ Influencer, Pleads Not Guilty to Rape Charge**\
-`The social media figure, whose real name is Braden Peters, appeared briefly for the arraignment in Orleans, Mass., on Cape Cod.`\
-https://www.nytimes.com/2026/10/22/us/clavicular-rape-hearing.html
-
-**John Anderson, Country Music Hall of Famer, Dies at 71**\
-`His gravelly vocals propelled a career that spanned nearly five decades and earned him a spot in the Country Music Hall of Fame.`\
-https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.html
-
-**Covert Russian Group Targets James Talarico With Baseless Claims in Texas Senate Race**\
-`Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
-https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
 
