@@ -1,3 +1,7 @@
+**Map: 7.0-Magnitude Earthquake Strikes China**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
+
 **Hegseth Fired Her. Now She’s Running for Congress.**\
 `A former three-star admiral fired by Pete Hegseth is making his competence a campaign issue.`\
 https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premi
 **36 Hours in Kansas City, Mo.: Things to Do and See**\
 `Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
 https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
-
-**The Case for an A.S.L. ‘Sign of the Year’**\
-`Deaf linguists and professors consider the case for an A.S.L. “sign of the year.”`\
-https://www.nytimes.com/2026/10/22/crosswords/sign-of-the-year-american-sign-language.html
 
