@@ -1,3 +1,7 @@
+**Global Rush to Fix PHP Security Flaw Leaves Some Websites Offline**\
+`Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
+https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
+
 **Google Eyes Large ‘Virtual Power Plant’ for Data Centers**\
 `The tech giant is funding one of the nation’s largest “virtual power plants,” which would pay homes and businesses to adjust their energy use when grids are strained.`\
 https://www.nytimes.com/2026/10/22/climate/google-voltus-virtual-power-plant.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/clayface-review.html
 **Earth and Mars May Have Formed in Weirdly Different Ways**\
 `Chemical clues and computer simulations suggest the two rocky planets have unique origin stories.`\
 https://www.nytimes.com/2026/10/22/science/space/earth-mars-formed-different.html
-
-**Serbian Election Underscores the Region’s Long Political Limbo**\
-`Aleksandar Vucic, Serbia’s dominant political figure since 2012, may extend his grip, using the Balkans’ unresolved nationalist resentments.`\
-https://www.nytimes.com/2026/10/22/world/europe/serbia-elections-nationalist-politics.html
 
