@@ -1,3 +1,27 @@
+**Ebola Outbreak in Africa Reaches Widest Expansion Ever**\
+`Health officials are urgently seeking answers about the origins of a case newly identified in Nigeria, the first in that West African nation.`\
+https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
+
+**‘Fatherland’ Review: Returning to a Divided Germany**\
+`Four years after World War II, the writer Thomas Mann returned to his birthplace with his daughter, played by Sandra Hüller in this luminous fictional account.`\
+https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
+
+**Mortgage Rates Remain Above 7%, Pushing Home Prices Lower in Some Areas**\
+`The 30-year, fixed-rate mortgage dropped slightly to 7.32 percent as prospective home buyers continue to struggle with affordability. But home prices are starting to drop in some areas.`\
+https://www.nytimes.com/2026/10/22/business/mortgage-rates-housing-costs.html
+
+**Is Citizens United to blame for everything?**\
+`Plus: The justices’ book deals mean the court can’t rule on cases involving a media conglomerate.`\
+https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusals.html
+
+**He Told Us About an O.J. Accomplice. Then He Said He’d Lied. What Next?**\
+`A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
+https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html
+
+**In the Wake of Riots, French Authorities Ban Some Protests**\
+`President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
+https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
+
 **What Is PHP? Why Are Government and Business Websites Going Offline?**\
 `A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
 https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
