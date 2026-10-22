@@ -1,3 +1,7 @@
+**How a Legal Backlash Against Big Tech Is Forcing Big Changes**\
+`A series of lawsuits has created a new de facto regulatory regime as courts order companies like Meta and Google to change their business practices — and pay up.`\
+https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html
+
 **Sound Off: A Double Standard for ‘Conservative’ and ‘Liberal’ Labels?**\
 `Josh Blackman, a professor at the South Texas College of Law, on why he sees a bias in the way The Times uses political labels.`\
 https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-labels.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/business/100000011216716/why-many-voters-are-unhap
 **How the A.I. Boom Is Driving Up Sales of Gray Paint**\
 `Tech companies are painting data centers with gray coatings on top of gray concrete and steel to resist fire, rust and static electricity. That has made data centers a fast-growing market for paint makers.`\
 https://www.nytimes.com/2026/10/22/technology/ai-data-centers-paint.html
-
-**If You Think You Know Brancusi’s Sculptures, Step Into His Studio**\
-`Rare artworks, photographs, films and tools have traveled from Paris to MoMA, revealing the father of modern sculpture as newly earthy.`\
-https://www.nytimes.com/2026/10/22/arts/design/constantin-brancusi-moma-sculpture-review.html
 
