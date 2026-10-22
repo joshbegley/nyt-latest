@@ -1,3 +1,11 @@
+**All They Wanted Was to Get Married at the Plaza**\
+`As the hotel announced it would close for at least four years to undergo renovations, some couples with events next year were blindsided.`\
+https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
+
+**What Role, If Any, Should Law Enforcement Have in Schools?**\
+`A Times investigation revealed that an increase of police officers in Texas schools since 2021 has led to more criminal charges for minor misbehavior.`\
+https://www.nytimes.com/2026/10/22/learning/what-role-if-any-should-law-enforcement-have-in-schools.html
+
 **Zuckerberg’s Big Deal to Stay in California**\
 `The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
 https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html

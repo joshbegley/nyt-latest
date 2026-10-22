@@ -1,3 +1,11 @@
+**All They Wanted Was to Get Married at the Plaza**\
+`As the hotel announced it would close for at least four years to undergo renovations, some couples with events next year were blindsided.`\
+https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
+
+**What Role, If Any, Should Law Enforcement Have in Schools?**\
+`A Times investigation revealed that an increase of police officers in Texas schools since 2021 has led to more criminal charges for minor misbehavior.`\
+https://www.nytimes.com/2026/10/22/learning/what-role-if-any-should-law-enforcement-have-in-schools.html
+
 **Zuckerberg’s Big Deal to Stay in California**\
 `The agreement that Mark Zuckerberg, Meta’s chief executive, cut to stay in California underscores businesses’ fears about a major tax proposal.`\
 https://www.nytimes.com/2026/10/22/business/dealbook/zuckerbergs-big-deal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/a-talent-for-murder-review.html
 **‘Possible Love’ Review: The Lives of Others**\
 `In his first movie since his celebrated drama “Burning,” the South Korean director Lee Chang-dong focuses on two couples from very different worlds.`\
 https://www.nytimes.com/2026/10/22/movies/possible-love-review-the-lives-of-others.html
-
-**‘The Only Living Pickpocket in New York’ Review: Last Man Standing**\
-`A dynamite John Turturro plays an aging thief who runs into trouble and looks for help from his friends.`\
-https://www.nytimes.com/2026/10/22/movies/the-only-living-pickpocket-in-new-york-review.html
-
-**‘Making Marie Antoinette’ Review: A Sublime Documentary**\
-`Eleanor Coppola lovingly records her daughter, Sofia, during the making of Sofia’s third feature, shot at Versailles.`\
-https://www.nytimes.com/2026/10/22/movies/making-marie-antoinette-review-a-sublime-documentary.html
 
