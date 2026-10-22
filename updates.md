@@ -1,3 +1,15 @@
+**Tom Skerritt, Who Had Key Roles in ‘M*A*S*H,’ ‘Alien’ and ‘Steel Magnolias,’ Has Died**\
+`His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
+https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
+
+**Where to Buy Candy in New York City**\
+`Three candy shops to stock up on sweets for Halloween (and the rest of the year).`\
+https://www.nytimes.com/2026/10/22/dining/candy-shops.html
+
+**Unsealed O.J. Simpson Records Prompt a Request for a New Investigation**\
+`Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
+https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
+
 **Should Living Be Enough ‘Lived Experience’ for a Writer?**\
 `Imagination, empathy and intelligence should matter as well as identity`\
 https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.html
