@@ -1,3 +1,15 @@
+**He Told Us About an O.J. Accomplice. Then Said He’d Lied. What Next?**\
+`A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
+https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html
+
+**Elizabeth Holmes Quote Drama**\
+`In today’s Backstory, the new Holmes film takes issue with our profile, Nikole Hannah-Jones unpacks her viral essay and a professor shares why he thinks we apply “conservative” and “liberal” labels inconsistently.`\
+https://www.nytimes.com/2026/10/22/insider/elizabeth-holmes-backstory.html
+
+**Australian TV Reporter Rescues Man From Sinking Vehicle During Floods**\
+`Australian television reporter Will Murray told The New York Times how he and a bystander rescued a man from his vehicle seconds before it completely submerged in a Queensland suburb.`\
+https://www.nytimes.com/video/world/australia/100000011230113/australia-floods-queensland-reporter-rescue.html
+
 **Ohio’s Republican Governor Calls on Ramaswamy to Take Down Attack Ad**\
 `The ad featuring the estranged mother of Vivek Ramaswamy’s Democratic opponent, Dr. Amy Acton, has been widely criticized, though Vice President JD Vance strongly defended it.`\
 https://www.nytimes.com/2026/10/22/us/dewine-ohio-ramaswamy-acton-attack-ad.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/22/world/asia/space-debris-indonesia-minnesota.h
 **For These Die-Hards, October Is Hallmark Christmas Movie Time**\
 `The Hallmark Channel’s holiday offerings are already starting to air, and these devoted fans are happy to snuggle in for comfort viewing.`\
 https://www.nytimes.com/2026/10/22/movies/hallmark-countdown-to-christmas-october.html
-
-**‘A Golden Age of Science’ Brought to You by the White House**\
-`The Trump administration’s plan to supercharge scientific discovery.`\
-https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
-
-**Iowa, Usually Red, Is in Play This Midterm as Economic Woes Mount**\
-`The Trump administration’s policies could cost Republicans in a state that is being hit hard by expensive diesel prices and uncertainty over trade.`\
-https://www.nytimes.com/2026/10/22/us/politics/iowa-farmers-republicans-trump.html
-
-**Some Tabloid Headline Staples Are Fun. Then There’s ‘Breaks Silence.’**\
-`It’s a term like “bombshell” or “flop,” but it often implies a more sinister set of assumptions the press has about celebrities.`\
-https://www.nytimes.com/2026/10/22/magazine/tabloid-headline-breaks-silence.html
 
