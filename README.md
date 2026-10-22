@@ -1,3 +1,11 @@
+**Why James Talarico Thinks He Can Win Over Republicans in Texas**\
+`In bright red Texas, James Talarico is asking Texas to do something it hasn’t done in nearly 40 years: elect a Democrat to the U.S. Senate. Talarico is running against Ken Paxton, the Texas attorney general and a Trump ally, in what’s become the most expensive and ferocious campaign of this year’s midterm elections. Ahead of Election Day, Talarico recently joined Michael Barbaro on “The Daily” to discuss his campaign, the highly personal attacks against him, his viewpoint on partisan politics and what he wants Democrats to do if they take back control of Congress.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011228792/why-james-talarico-thinks-he-can-win-over-republicans-in-texas.html
+
+**Why Horror Was an Escape From High School**\
+`For the best-selling fantasy author Leigh Bardugo, the worlds of Stephen King were more appealing than the world of “Sweet Valley High.” Growing up surrounded by popular kids who played volleyball and drove convertibles, she found more of an escape in horror and science fiction than in stories that reminded her of her own life.`\
+https://www.nytimes.com/video/podcasts/100000011231404/why-horror-was-an-escape-from-high-school.html
+
 **Florida Police Officer Is Accused in Scheme to Seize a Dead Man’s House**\
 `The Broward County Sheriff’s Office arrested the officer, Brian Sguros, alleging that he used the man’s identity after finding him dead at home during a welfare check.`\
 https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-scheme.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
 **How a Legal Backlash Against Big Tech Is Forcing Big Changes**\
 `A series of lawsuits has created a new de facto regulatory regime as courts order companies like Meta and Google to change their business practices — and pay up.`\
 https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html
-
-**Sound Off: A Double Standard for ‘Conservative’ and ‘Liberal’ Labels?**\
-`Josh Blackman, a professor at the South Texas College of Law Houston, on why he sees a bias in the way The Times uses political labels.`\
-https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-labels.html
-
-**International Criminal Court Wins E.U.’s Top Human Rights Prize**\
-`The win is a show of support for the International Criminal Court as the Trump administration moves to thwart its work.`\
-https://www.nytimes.com/2026/10/22/world/europe/icc-sarkharov-eu-trump-sanctions-human-rights.html
 
