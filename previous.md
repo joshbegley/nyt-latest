@@ -1,3 +1,7 @@
+**MAGA Bingo and Questions of Loyalty: 5 Michigan Senate Debate Takeaways**\
+`Abdul El-Sayed accused Mike Rogers of being overly devoted to President Trump. Mr. Rogers accused Dr. El-Sayed of not enough loyalty to the country. It was still more cordial than their last debate.`\
+https://www.nytimes.com/2026/10/21/us/politics/michigan-senate-debate-takeaways-el-sayed-rogers.html
+
 **Judge Restricts D.H.S. Field Operations Aimed at Unearthing Voter Fraud**\
 `The ruling largely blocked homeland security agents from carrying out field interviews in nine states, including California, as part of a sprawling effort to find noncitizens registered to vote.`\
 https://www.nytimes.com/2026/10/21/us/politics/judge-dhs-voter-fraud-elections.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.htm
 **George W. Bush’s Brother Neil Bush Breaks G.O.P. Ranks to Vote for James Talarico in Texas**\
 `Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
-
-**Su Wu Celebrates Her Book “Mesoamerican Modern” at Mexico City’s Casa Möbius**\
-`To toast her new design book, “Mesoamerican Modern,” Su Wu co-hosted a dinner at Mexico City’s Casa Möbius.`\
-https://www.nytimes.com/2026/10/21/t-magazine/mesoamerican-modern-su-wu-mexico-city-party.html
 
