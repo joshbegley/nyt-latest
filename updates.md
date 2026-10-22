@@ -1,3 +1,7 @@
+**Australian Zoo Plays Matchmaker for Giant Birds, and Big Green Eggs Are Proof**\
+`A southern cassowary at the Adelaide Zoo has laid eggs there for the first time in 34 years, after a carefully managed breeding process.`\
+https://www.nytimes.com/2026/10/21/world/australia/green-egg-cassowary-zoo-australia.html
+
 **How Mark Zuckerberg Pushed Meta to Shield Him From California’s Proposed Wealth Tax**\
 `The billionaire told Meta’s board that he planned to list his Silicon Valley home for sale. The company remade its stock structure to help him pay the tax if voters pass it.`\
 https://www.nytimes.com/2026/10/21/technology/mark-zuckerberg-meta-california-wealth-tax.html
