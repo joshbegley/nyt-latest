@@ -1,3 +1,7 @@
+**Officer Who Killed Man in 2016 Will Face N.Y.P.D. Trial**\
+`Officer Wayne Isaacs was acquitted of murder in the fatal shooting of Delrawn Small, but he could still lose his job.`\
+https://www.nytimes.com/2026/10/21/nyregion/nypd-officer-delrawn-small-shooting-trial.html
+
 **Live Updates: Kansas Candidates Debate in High-Stakes Contest That Could Determine Senate Control**\
 `Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that polls suggest is neck and neck.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
