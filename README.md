@@ -1,3 +1,7 @@
+**Four Takeaways From the Debate for Wisconsin Governor**\
+`The Democrat, David Crowley, and the Republican, Tom Tiffany, sparred over taxes, abortion, data centers and legalizing marijuana in their only debate before the election.`\
+https://www.nytimes.com/2026/10/21/us/takeaways-debate-wisconsin-governor.html
+
 **Farmers, Health Care and Highways: 5 Takeaways from the Kansas Senate Debate**\
 `The Republican incumbent, Roger Marshall, is facing a surprisingly tough challenge from the Democratic nominee, Adam Hamilton.`\
 https://www.nytimes.com/2026/10/21/us/kansas-senate-debate-marshall-hamilton-takeaways.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/us/politics/aipac-michigan-senate-rogers-dona
 **Tesla Profit Slumps as Elon Musk’s Car Company Considers Merging With SpaceX**\
 `The carmaker, which is controlled by Elon Musk and is considering merging with another of his companies, SpaceX, spent heavily on artificial intelligence and other new technologies.`\
 https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
-
-**Student Protests Mushroom Across Europe, Exposing Bleak Views of the Future**\
-`Since high school students began protesting in France in September, they’ve been joined by young demonstrators in at least seven other European countries.`\
-https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.html
 
