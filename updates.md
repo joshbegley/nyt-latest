@@ -1,3 +1,7 @@
+**The Only Thing We Can All Agree On Is That the World Is on Fire**\
+`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
+https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
+
 **Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave**\
 `For weeks, the Iran-backed Houthis have been attacking the kingdom’s aviation and energy sectors.`\
 https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html
