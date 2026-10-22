@@ -1,3 +1,27 @@
+**New U.S.-Israeli Plans to Attack Iran, and Trump’s Whistle-Blower Rewards Program**\
+`Plus, America’s newest national park.`\
+https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-whistleblower.html
+
+**The Election That Will Define Israel’s Future**\
+`Israelis on both sides of the political spectrum see next week’s vote as the most consequential in their country’s history.`\
+https://www.nytimes.com/2026/10/22/podcasts/the-daily/israel-election-netanyahu.html
+
+**Today’s Wordle Hints for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/wordle-review-1952.html
+
+**NYT Connections Answers for Friday, October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1230.html
+
+**NYT Strands Hints for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/strands-sidekick-964.html
+
+**NYT Connections Answers for October 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Oct. 23, 2026.`\
+https://www.nytimes.com/2026/10/22/crosswords/connections-companion-1229.html
+
 **Putin Nears a Prize: Restoring Ties With the U.S. While Giving Up Nothing**\
 `Russia has sought to separate the war in Ukraine from potential business deals and diplomacy with the United States. Its efforts now appear to be working.`\
 https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/22/well/mind/cheating-secrets-brother-sister-in-
 **Caryl Churchill’s Latest Play: 20 Minutes That Cost Nothing**\
 `Our reporter met some of the people waiting for free tickets to see the British playwright’s newest microplay at the Public Theater in Manhattan.`\
 https://www.nytimes.com/2026/10/22/theater/caryl-churchill-triumph-free-public-theater.html
-
-**When Do Rules on Historic Preservation Go Too Far?**\
-`Saratoga Springs, N.Y., stands out for its preservation efforts. But some say strict designs have become a burden for residents.`\
-https://www.nytimes.com/2026/10/22/business/saratoga-springs-historic-preservation.html
-
-**Steamy New Paranormal Romance Books**\
-`Just in time for Halloween.`\
-https://www.nytimes.com/2026/10/22/books/review/new-romance-books.html
-
-**Just How Much Are Young Voters Backing Democrats Now? See the Shift.**\
-`In the new Times/Siena poll, 70 percent of young voters identified as Democrats or leaned that way — a jump from just two years ago.`\
-https://www.nytimes.com/2026/10/22/upshot/young-voters-polls-midterms.html
-
-**Help! Why Won’t Travel Insurance Pay for My $17,500 Broken Leg?**\
-`An American tourist had emergency surgery in Thailand after tripping and falling at an ice cream counter. Good thing he bought insurance — or so it seemed.`\
-https://www.nytimes.com/2026/10/22/travel/travel-insurance-broken-leg-claim.html
-
-**Amsterdam’s Drift Museum Is a New Place to Experiment With Light and Form**\
-`A new art destination in Amsterdam will be filled with experiments in light and form.`\
-https://www.nytimes.com/2026/10/22/t-magazine/drift-museum-amsterdam.html
-
-**Word of the Day: sinuous**\
-`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/22/learning/word-of-the-day-sinuous.html
 
