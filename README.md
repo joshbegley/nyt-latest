@@ -1,3 +1,7 @@
+**New Airbnb Rules Will Limit Chores Hosts Can Require**\
+`The company will limit the chores hosts can require of guests, responding to complaints from travelers who said they shouldn’t have to do housekeeping while paying cleaning fees.`\
+https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
+
 **As Typhoon Champi Nears, Taiwan’s Mayors Bet on a Popular Day Off**\
 `One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
 https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/wildwood-review.html
 **‘Wicker’ Review: Getting Twiggy With It**\
 `A man woven from willow branches disrupts the rigid customs of a rural village in this wonderfully raunchy satire.`\
 https://www.nytimes.com/2026/10/22/movies/wicker-review-getting-twiggy-with-it.html
-
-**‘A Talent for Murder’ Review: Ripley and the Creator**\
-`Helen Mirren and Alden Ehrenreich star in a psychological thriller about Patricia Highsmith as she grapples with her most famous creation.`\
-https://www.nytimes.com/2026/10/22/movies/a-talent-for-murder-review.html
 
