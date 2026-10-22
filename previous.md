@@ -1,3 +1,15 @@
+**‘The Lowdown’ Season 2, Episode 3 Recap: Hellhounds on Your Trail**\
+`Lee escapes multiple jams only to return home to a growing pile of personal calamities.`\
+https://www.nytimes.com/2026/10/21/arts/television/the-lowdown-season-2-episode-3-recap.html
+
+**‘860’ Review: Billy Crystal Is Back on Broadway, After the Palisades Fire**\
+`The actor revisits his annus horribilis, and what came before it, in a warm and very funny solo Broadway play.`\
+https://www.nytimes.com/2026/10/21/theater/860-review-billy-crystal.html
+
+**NYT Crossword Answers for Oct. 22, 2026**\
+`Let’s meditate on David J. Kahn’s puzzle.`\
+https://www.nytimes.com/2026/10/21/crosswords/daily-puzzle-2026-10-22.html
+
 **Australian Zoo Plays Matchmaker for Giant Birds, and Big Green Eggs Are Proof**\
 `A southern cassowary at the Adelaide Zoo has laid eggs there for the first time in 34 years, after a carefully managed breeding process.`\
 https://www.nytimes.com/2026/10/21/world/australia/green-egg-cassowary-zoo-australia.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.ht
 **Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
 `President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
 https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
-
-**Macron Says Foreign Leaders Shared Misinformation on France Protests**\
-`President Emmanuel Macron of France said President Trump and other foreign leaders made false claims about the protests in France.`\
-https://www.nytimes.com/video/world/europe/100000011228047/france-protests-macron-misinformation.html
-
-**The Midterms Pit the Democrats Against the Billionaires**\
-`Money probably can’t buy a midterm election.`\
-https://www.nytimes.com/2026/10/21/opinion/midterm-elections-billionaires.html
-
-**How Title IX Became a Political Tool**\
-`After a Cornell student’s lawsuit alleging the school failed her when she reported sexual assault, there’s a new focus on Title IX, the federal law barring sex discrimination in federally funded education. Our Washington correspondent Michael C. Bender traces how interpretations of the law shifted between the Obama and Trump administrations.`\
-https://www.nytimes.com/video/us/politics/100000011216870/how-title-ix-became-a-political-tool.html
 

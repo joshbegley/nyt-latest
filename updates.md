@@ -1,3 +1,15 @@
+**‘The Lowdown’ Season 2, Episode 3 Recap: Hellhounds on Your Trail**\
+`Lee escapes multiple jams only to return home to a growing pile of personal calamities.`\
+https://www.nytimes.com/2026/10/21/arts/television/the-lowdown-season-2-episode-3-recap.html
+
+**‘860’ Review: Billy Crystal Is Back on Broadway, After the Palisades Fire**\
+`The actor revisits his annus horribilis, and what came before it, in a warm and very funny solo Broadway play.`\
+https://www.nytimes.com/2026/10/21/theater/860-review-billy-crystal.html
+
+**NYT Crossword Answers for Oct. 22, 2026**\
+`Let’s meditate on David J. Kahn’s puzzle.`\
+https://www.nytimes.com/2026/10/21/crosswords/daily-puzzle-2026-10-22.html
+
 **Live Updates: Senate Candidates Spar in Kansas, a Surprise Battleground That Could Swing Control**\
 `Senator Roger Marshall urged Kansans to keep the seat in Republicans’ hands, stoking fears of Democrats being in charge. Adam Hamilton, a megachurch pastor who recently switched parties, struck a centrist tone.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
