@@ -1,3 +1,7 @@
+**Ebola Outbreak in Africa Reaches Widest Expansion Ever**\
+`Health officials are urgently seeking answers about the origins of a case newly identified in Nigeria, the first in that West African nation.`\
+https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
+
 **‘Fatherland’ Review: Returning to a Divided Germany**\
 `Four years after World War II, the writer Thomas Mann returned to his birthplace with his daughter, played by Sandra Hüller in this luminous fictional account.`\
 https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusa
 `A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
 https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
 
-**He Told Us About an O.J. Accomplice. Then Said He’d Lied. What Next?**\
+**He Told Us About an O.J. Accomplice. Then He Said He’d Lied. What Next?**\
 `A source said his brother had been with O.J. Simpson the night of the murders in 1994. But when we refused to pay, he retracted his story.`\
 https://www.nytimes.com/2026/10/22/insider/oj-simpson-accomplice-1994-murder.html
 
@@ -86,9 +90,9 @@ https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.
 `Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
 https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
 
-**In Wake of Riots, French Authorities Ban Some Protests**\
+**In the Wake of Riots, French Authorities Ban Some Protests**\
 `President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
-https://www.nytimes.com/2026/10/22/france-protests-macron.html
+https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
 
 **Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
 `The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/t-magazine/cape-town-hotel.html
 **Corrections: Oct. 22, 2026**\
 `Corrections that appeared in print on Thursday, Oct. 22, 2026.`\
 https://www.nytimes.com/2026/10/22/pageoneplus/corrections-oct-22-2026.html
-
-**Why Did an ICE Officer Shoot This Man?**\
-`A year later, and with a bullet lodged in his spine, José García-Sorto still wants answers.`\
-https://www.nytimes.com/interactive/2026/10/22/us/ice-shooting-phoenix.html
 
