@@ -1,3 +1,7 @@
+**In the Wake of Riots, the French Authorities Ban Some Protests**\
+`President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
+https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
+
 **The First Story That Scared Leigh Bardugo**\
 `Leigh Bardugo is the best-selling author behind the Ninth House trilogy, which just concluded with the release of “Dead Beat.” But her introduction to the joys of being scared out of her wits was way back in fifth grade.`\
 https://www.nytimes.com/video/podcasts/100000011230463/the-first-story-that-scared-leigh-bardugo.html

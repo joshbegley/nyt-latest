@@ -138,7 +138,7 @@ https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.
 `Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
 https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
 
-**In the Wake of Riots, French Authorities Ban Some Protests**\
+**In the Wake of Riots, the French Authorities Ban Some Protests**\
 `President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
 https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
 
