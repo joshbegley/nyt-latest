@@ -1,3 +1,7 @@
+**Where to Buy Candy in New York City**\
+`Three candy shops to stock up on sweets for Halloween (and the rest of the year).`\
+https://www.nytimes.com/2026/10/22/dining/candy-shops.html
+
 **Should Living Be Enough ‘Lived Experience’ for a Writer?**\
 `Imagination, empathy and intelligence should matter as well as identity`\
 https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
 **Plaza Weddings Canceled Amid Renovation: ‘We Were Blindsided’**\
 `As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
-
-**What Role, If Any, Should Law Enforcement Have in Schools?**\
-`A Times investigation revealed that an increase of police officers in Texas schools since 2021 has led to more criminal charges for minor misbehavior.`\
-https://www.nytimes.com/2026/10/22/learning/what-role-if-any-should-law-enforcement-have-in-schools.html
 
