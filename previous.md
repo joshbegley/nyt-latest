@@ -1,3 +1,7 @@
+**Farmers, Health Care and Highways: 5 Takeaways from the Kansas Senate Debate**\
+`The Republican incumbent, Roger Marshall, is facing a surprisingly tough challenge from the Democratic nominee, Adam Hamilton.`\
+https://www.nytimes.com/2026/10/21/us/kansas-senate-debate-marshall-hamilton-takeaways.html
+
 **MAGA Bingo and Questions of Loyalty: 5 Michigan Senate Debate Takeaways**\
 `Abdul El-Sayed accused Mike Rogers of being overly devoted to President Trump. Mr. Rogers accused Dr. El-Sayed of not enough loyalty to the country. It was still more cordial than their last debate.`\
 https://www.nytimes.com/2026/10/21/us/politics/michigan-senate-debate-takeaways-el-sayed-rogers.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/10/21/us/roger-marshall-kansas-senate.html
 `The candidate, a political newcomer, is hoping to be the first Democrat to represent the state in the Senate in nearly a century.`\
 https://www.nytimes.com/2026/10/21/us/adam-hamilton-kansas-senate.html
 
-**Live Updates: Senate Candidates Spar in Kansas, a Surprise Battleground That Could Swing Control**\
+**Senate Candidates Spar in Kansas, a Surprise Battleground That Could Swing Control**\
 `Senator Roger Marshall urged Kansans to keep the seat in Republicans’ hands, stoking fears of Democrats being in charge. Adam Hamilton, a megachurch pastor who recently switched parties, struck a centrist tone.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/business/tesla-earnings-ai-robots.html
 **Student Protests Mushroom Across Europe, Exposing Bleak Views of the Future**\
 `Since high school students began protesting in France in September, they’ve been joined by young demonstrators in at least seven other European countries.`\
 https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.html
-
-**George W. Bush’s Brother Neil Bush Breaks G.O.P. Ranks to Vote for James Talarico in Texas**\
-`Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
-https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
 

@@ -1,3 +1,11 @@
+**Farmers, Health Care and Highways: 5 Takeaways from the Kansas Senate Debate**\
+`The Republican incumbent, Roger Marshall, is facing a surprisingly tough challenge from the Democratic nominee, Adam Hamilton.`\
+https://www.nytimes.com/2026/10/21/us/kansas-senate-debate-marshall-hamilton-takeaways.html
+
+**Senate Candidates Spar in Kansas, a Surprise Battleground That Could Swing Control**\
+`Senator Roger Marshall urged Kansans to keep the seat in Republicans’ hands, stoking fears of Democrats being in charge. Adam Hamilton, a megachurch pastor who recently switched parties, struck a centrist tone.`\
+https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election
+
 **El-Sayed and Rogers Clash in Another Fiery Michigan Senate Debate**\
 `Dr. Abdul El-Sayed, a Democrat, and his Republican opponent, former Representative Mike Rogers, traded attacks on the economy, the Iran war and each other’s character in their second debate.`\
 https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
