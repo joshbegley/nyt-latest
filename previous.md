@@ -1,3 +1,7 @@
+**A Shifting Standard**\
+`We look at how Title IX keeps changing.`\
+https://www.nytimes.com/2026/10/22/briefing/title-ix.html
+
 **New U.S.-Israeli Plans to Attack Iran, and Trump’s Whistle-Blower Rewards Program**\
 `Plus, America’s newest national park.`\
 https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-whistleblower.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/10/22/world/asia/space-debris-indonesia-minnesota.h
 `The Hallmark Channel’s holiday offerings are already starting to air, and these devoted fans are happy to snuggle in for comfort viewing.`\
 https://www.nytimes.com/2026/10/22/movies/hallmark-countdown-to-christmas-october.html
 
-**A Golden Age of Science’ Brought to You by the White House**\
+**‘A Golden Age of Science’ Brought to You by the White House**\
 `The Trump administration’s plan to supercharge scientific discovery.`\
 https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/business/economy/ai-economy-jobs-history.html
 **My Brother Won’t Leave His Awful Wife. Do I Have to Be Around Her?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who knows too much about a sibling’s troubled marriage.`\
 https://www.nytimes.com/2026/10/22/well/mind/cheating-secrets-brother-sister-in-law.html
-
-**Caryl Churchill’s Latest Play: 20 Minutes That Cost Nothing**\
-`Our reporter met some of the people waiting for free tickets to see the British playwright’s newest microplay at the Public Theater in Manhattan.`\
-https://www.nytimes.com/2026/10/22/theater/caryl-churchill-triumph-free-public-theater.html
 

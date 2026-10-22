@@ -1,3 +1,11 @@
+**A Shifting Standard**\
+`We look at how Title IX keeps changing.`\
+https://www.nytimes.com/2026/10/22/briefing/title-ix.html
+
+**‘A Golden Age of Science’ Brought to You by the White House**\
+`The Trump administration’s plan to supercharge scientific discovery.`\
+https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
+
 **A Golden Age of Science’ Brought to You by the White House**\
 `The Trump administration’s plan to supercharge scientific discovery.`\
 https://www.nytimes.com/2026/10/22/opinion/interesting-times-tyler-cowen-michael-kratsios.html
