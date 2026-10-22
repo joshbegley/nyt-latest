@@ -1,3 +1,7 @@
+**Sound Off: A Double Standard for ‘Conservative’ and ‘Liberal’ Labels?**\
+`Josh Blackman, a professor at the South Texas College of Law, on why he sees a bias in the way The Times uses political labels.`\
+https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-labels.html
+
 **International Criminal Court Wins E.U.’s Top Human Rights Prize**\
 `The win is a show of support for the International Criminal Court as the Trump administration moves to thwart its work.`\
 https://www.nytimes.com/2026/10/22/world/europe/icc-sarkharov-eu-trump-sanctions-human-rights.html

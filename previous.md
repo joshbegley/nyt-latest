@@ -1,3 +1,7 @@
+**Sound Off: A Double Standard for ‘Conservative’ and ‘Liberal’ Labels?**\
+`Josh Blackman, a professor at the South Texas College of Law, on why he sees a bias in the way The Times uses political labels.`\
+https://www.nytimes.com/2026/10/22/insider/sound-off-times-conservative-liberal-labels.html
+
 **International Criminal Court Wins E.U.’s Top Human Rights Prize**\
 `The win is a show of support for the International Criminal Court as the Trump administration moves to thwart its work.`\
 https://www.nytimes.com/2026/10/22/world/europe/icc-sarkharov-eu-trump-sanctions-human-rights.html
@@ -102,13 +106,13 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
-`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
-
 **The Only Thing We Can All Agree On Is That the World Is on Fire**\
 `How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
 https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
+
+**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
+`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
 
 **Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
 `Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/10/22/nyregion/metro-podcast-sarah-koenig.html
 `A coaster dares riders to be daring, with steep drops, high speeds and improbably tight curves. But safety has become a concern again after a man was thrown from his seat and died in Georgia.`\
 https://www.nytimes.com/2026/10/22/us/roller-coaster-safety.html
 
-**Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
-`After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
-https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
-
 **The Brief, Messy Political Career of Paolo Zampolli, a Trump Ally**\
 `He had an unlikely rise, from modeling agent to presidential special envoy. After his firing, he was unrepentant: “I need to make money.”`\
 https://www.nytimes.com/2026/10/22/style/paolo-zampolli-trump-friend-brief-political-career.html
+
+**Bumped From the National Mall, Smithsonian Folklife Fest Hit the Road**\
+`After being denied its customary spot on the National Mall, the Folklife Festival embarked on a nine-month journey through America’s local traditions.`\
+https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-america-250.html
 
 **Why Many Voters Are Unhappy With the Economy**\
 `With the midterms approaching, the economy is a top concern for voters. Our chief economic correspondent, Ben Casselman, describes which aspects of the economy have voters so frustrated.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/technology/ai-data-centers-paint.html
 **If You Think You Know Brancusi’s Sculptures, Step Into His Studio**\
 `Rare artworks, photographs, films and tools have traveled from Paris to MoMA, revealing the father of modern sculpture as newly earthy.`\
 https://www.nytimes.com/2026/10/22/arts/design/constantin-brancusi-moma-sculpture-review.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a four-bedroom in Katonah, N.Y., and a three-bedroom in Fairfield, Conn.`\
-https://www.nytimes.com/2026/10/22/realestate/housing-market-near-nyc.html
 
