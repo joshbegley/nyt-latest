@@ -1,3 +1,7 @@
+**Trump Goes to Iowa, Hoping to Stop Farmers From Voting Blue**\
+`Also, a top Trump health adviser resigns. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/22/briefing/trump-iowa-roller-coaster-safety.html
+
 **Bard College Hires Forensic Firm to Investigate a Damning Epstein Email**\
 `The firm suggested the former Bard president’s email to Jeffrey Epstein about a young woman may have been fake. Congressional Democrats who publicized the message disagree.`\
 https://www.nytimes.com/2026/10/22/us/bard-college-forensic-cybersecurity-epstein-email.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carol
 **Old-Fashioned Beef Stew Never Gets Old**\
 `Its popularity lies in its simplicity, a classic and harmonious combination of meat, onions, carrots and potatoes all simmered in red wine and beef broth.`\
 https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old.html
-
-**How Young Voters Are Feeling**\
-`We look at findings from our new poll.`\
-https://www.nytimes.com/2026/10/22/briefing/how-young-voters-are-feeling.html
 
