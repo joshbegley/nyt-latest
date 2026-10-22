@@ -1,3 +1,7 @@
+**Judge Restricts D.H.S. Field Operations Aimed at Unearthing Voter Fraud**\
+`The ruling largely blocked homeland security agents from carrying out field interviews in nine states, including California, as part of a sprawling effort to find noncitizens registered to vote.`\
+https://www.nytimes.com/2026/10/21/us/politics/judge-dhs-voter-fraud-elections.html
+
 **Review: Todrick Hall’s Audacious ‘Midnight’ and a Curious ‘Benjamin Button’ Musical**\
 `Todrick Hall’s overstuffed quasi-opera is beautifully sung but discombobulated, while a cutesy Fitzgerald adaptation has a talented cast but lacks depth.`\
 https://www.nytimes.com/2026/10/21/theater/midnight-todrick-hall-benjamin-button-review.html
