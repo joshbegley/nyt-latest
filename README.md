@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/10/22/travel/airbnb-host-rules-cleaning-chores.html
 `One expert said the likelihood that a mayor announces closure of work and school because of a typhoon increases 31 percent during an election year.`\
 https://www.nytimes.com/2026/10/22/world/asia/taiwan-typhoon-champi-mayors.html
 
-**All They Wanted Was to Get Married at the Plaza**\
-`As the hotel announced it would close for at least four years to undergo renovations, some couples with events next year were blindsided.`\
+**‘Blindsided:’ Plaza Weddings Abruptly Canceled Amid Renovation**\
+`As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
 https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
 
 **What Role, If Any, Should Law Enforcement Have in Schools?**\
