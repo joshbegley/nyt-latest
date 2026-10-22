@@ -1,3 +1,11 @@
+**Protests in Indonesia Demand Action to Stop Rainforest Fires**\
+`Smoke from the blazes, blamed on destructive agricultural practices, has sickened hundreds of thousands and blanketed neighboring countries.`\
+https://www.nytimes.com/2026/10/22/world/asia/indonesia-protests-rainforest-haze.html
+
+**Toxic Haze From Wildfires Brings Anger and Grief in Indonesia**\
+`As Indonesia’s rainforests burn, frustration over deadly toxic haze from the fires has turned into protests. One widow mourned her husband, a volunteer firefighter who died from smoke exposure.`\
+https://www.nytimes.com/video/world/asia/100000011226898/indonesia-protests-rainforest-haze.html
+
 **Quote of the Day: Backlash on Data Centers Reaches Rural Corner of England**\
 `Quotation of the Day for Thursday, October 22, 2026.`\
 https://www.nytimes.com/2026/10/22/pageoneplus/quote-of-the-day-backlash-on-data-centers-reaches-rural-corner-of-england.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/interactive/2026/10/21/weather/tropical-storm-vance-hurr
 **Top Mamdani Aide Fired Amid City Hall Shake-Up**\
 `The chiefs of staff for three deputy mayors were reassigned or dismissed, and the head of Mayor Zohran Mamdani’s advance team was also let go.`\
 https://www.nytimes.com/2026/10/21/nyregion/mamdani-staff-shakeup.html
-
-**Shark Returned to Sea After Over a Month in a South Korean Canal**\
-`A 10-foot-long dusky shark, nicknamed Bukangi, returned to sea after she was stuck in South Korean port canal for over a month. Crowds of people gathered along the banks as local officials used nets to set her free.`\
-https://www.nytimes.com/video/world/asia/100000011227711/shark-south-korea-bukangi-canal.html
-
-**A Debt-Fueled “Doom Loop”**\
-`Some democracies seem caught in a trap: Spend more and risk market panic, or cut benefits and empower the far right.`\
-https://www.nytimes.com/2026/10/21/world/debt-france-protests-russia-us.html
 
