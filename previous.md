@@ -1,3 +1,7 @@
+**I.U.C.N. Red List Classifies Most Shallow Coral Reefs as Critically Endangered**\
+`If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
+https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
+
 **Global Rush to Fix PHP Security Flaw Leaves Some Websites Offline**\
 `Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
@@ -50,13 +54,13 @@ https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-m
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
-**The Only Thing We Can All Agree On Is That the World Is on Fire**\
-`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
-https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
-
 **Stream These 6 Movies and Shows Before They Leave Netflix in November**\
 `“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
 https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
+
+**The Only Thing We Can All Agree On Is That the World Is on Fire**\
+`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
+https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 
 **Meet the Woman Who Made Conan O’Brien Cackle on ‘Subway Takes’**\
 `Debbie Shields, a Brooklyn bar owner, stole the show on a recent episode of the subterranean social media show by spontaneously bantering with the famed comedian.`\
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/10/22/magazine/tabloid-headline-breaks-silence.html
 `New surveys show that increases in premiums and deductibles are forcing people to forgo treatments or doctor’s visits while budgets are strained by higher food and gas prices.`\
 https://www.nytimes.com/2026/10/22/business/health-insurance-costs-workers-premiums-deductibles.html
 
+**36 Hours in Kansas City, Mo.: Things to Do and See**\
+`Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
+https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
+
 **The Case for an A.S.L. ‘Sign of the Year’**\
 `Deaf linguists and professors consider the case for an A.S.L. “sign of the year.”`\
 https://www.nytimes.com/2026/10/22/crosswords/sign-of-the-year-american-sign-language.html
-
-**36 Hours in Kansas City, Mo.: Things to Do and See**\
-`TKTKTKTK`\
-https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
 
 **‘Metro,’ the Podcast That Tells Stories of This New York Moment**\
 `Sarah Koenig, from “Serial” and “This American Life,” is debuting an audio show that features New York Times Metro reporters.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/movies/klara-and-the-sun-review.html
 **‘Clayface’ Review: A Stage Fright and Vengeance**\
 `An lesser-known character from the DC Comics universe makes a surprisingly vivid impression in this body-horror movie with a unique antihero.`\
 https://www.nytimes.com/2026/10/22/movies/clayface-review.html
-
-**Earth and Mars May Have Formed in Weirdly Different Ways**\
-`Chemical clues and computer simulations suggest the two rocky planets have unique origin stories.`\
-https://www.nytimes.com/2026/10/22/science/space/earth-mars-formed-different.html
 

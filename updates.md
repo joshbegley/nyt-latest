@@ -1,3 +1,11 @@
+**I.U.C.N. Red List Classifies Most Shallow Coral Reefs as Critically Endangered**\
+`If climate change continues apace, 96 percent of shallow coral reef ecosystems may collapse within 50 years, including in Australia’s Great Barrier reef.`\
+https://www.nytimes.com/2026/10/22/climate/nearly-all-of-the-worlds-shallow-coral-reefs-are-now-critically-endangered.html
+
+**36 Hours in Kansas City, Mo.: Things to Do and See**\
+`Bounce between the Missouri city and its same-named Kansas neighbor for lip-smacking barbecue, live jazz, a taco trail and a spirited sports scene.`\
+https://www.nytimes.com/interactive/2026/10/22/travel/things-to-do-kansas-city.html
+
 **Global Rush to Fix PHP Security Flaw Leaves Some Websites Offline**\
 `Governments and businesses in Kenya, the Netherlands and elsewhere were scrambling to prevent hackers from exploiting a vulnerability in PHP, a widely used programming language.`\
 https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html
