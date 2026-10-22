@@ -1,3 +1,7 @@
+**New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
+`The City Council is set to pass a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
+
 **How a Legal Backlash Against Big Tech Is Forcing Big Changes**\
 `A series of lawsuits has created a new de facto regulatory regime as courts order companies like Meta and Google to change their business practices — and pay up.`\
 https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/design/smithsonian-folklife-festival-ame
 **Why Many Voters Are Unhappy With the Economy**\
 `With the midterms approaching, the economy is a top concern for voters. Our chief economic correspondent, Ben Casselman, describes which aspects of the economy have voters so frustrated.`\
 https://www.nytimes.com/video/business/100000011216716/why-many-voters-are-unhappy-with-the-economy.html
-
-**How the A.I. Boom Is Driving Up Sales of Gray Paint**\
-`Tech companies are painting data centers with gray coatings on top of gray concrete and steel to resist fire, rust and static electricity. That has made data centers a fast-growing market for paint makers.`\
-https://www.nytimes.com/2026/10/22/technology/ai-data-centers-paint.html
 

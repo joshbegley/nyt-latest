@@ -1,3 +1,7 @@
+**‘Blindsided:’ Plaza Weddings Abruptly Canceled Amid Renovation**\
+`As the hotel announced it would close for at least four years, some couples with events next year were left scrambling to find new venues.`\
+https://www.nytimes.com/2026/10/22/style/plaza-hotel-weddings-canceled.html
+
 **How a Legal Backlash Against Big Tech Is Forcing Big Changes**\
 `A series of lawsuits has created a new de facto regulatory regime as courts order companies like Meta and Google to change their business practices — and pay up.`\
 https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html
