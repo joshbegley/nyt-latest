@@ -1,3 +1,7 @@
+**New York City Wants to Control Who Can Buy Troubled Housing. Here’s How.**\
+`The City Council passed a bill, the Community Opportunity to Purchase Act, that gives certain nonprofits a head start on buying distressed buildings.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-housing-bill-copa.html
+
 **Monet Painting Sells for $56 Million in France**\
 `The artwork, titled “Iris,” is among the painter’s later works, which wealthy collectors have coveted in recent years.`\
 https://www.nytimes.com/2026/10/22/arts/design/claude-monet-painting-auction-paris.html
