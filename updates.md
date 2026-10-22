@@ -1,3 +1,11 @@
+**Covert Russian Group Targets James Talarico With Baseless Claims in Texas Senate Race**\
+`Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
+https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
+
+**In Wake of Riots, French Authorities Ban Some Protests**\
+`President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
+https://www.nytimes.com/2026/10/22/france-protests-macron.html
+
 **Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
 `The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
 https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
