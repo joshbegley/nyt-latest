@@ -1,3 +1,7 @@
+**Losing Ground in the Climate Fight**\
+`From Brazil to the North Sea, economic interests have been edging out climate priorities this week.`\
+https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
+
 **Cancer Vaccine Cuts the Risk of Melanoma Recurrence, Merck and Moderna Report**\
 `Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
 https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.ht
 `The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
 https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
 
-**Tom Skerritt, Who Had Key Roles in ‘M*A*S*H,’ ‘Alien’ and ‘Steel Magnolias,’ Has Died**\
+**Tom Skerritt, Who Had Key Roles in ‘Picket Fences’ and ‘Top Gun,’ Dies at 93**\
 `His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
 https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
 **In the Wake of Riots, the French Authorities Ban Some Protests**\
 `President Emmanuel Macron said the move was necessary “so that calm prevails.”`\
 https://www.nytimes.com/2026/10/22/world/europe/france-protests-macron.html
-
-**Barclays to Cut 5,000 Jobs in A.I.-Driven Push to Lower Costs**\
-`The move is the latest illustration of a company saying it believes it can be more efficient with fewer workers because of artificial intelligence.`\
-https://www.nytimes.com/2026/10/22/business/barclays-job-cuts-ai.html
 
