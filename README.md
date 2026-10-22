@@ -1,3 +1,7 @@
+**Officer Who Killed Man in 2016 Will Face N.Y.P.D. Trial**\
+`Officer Wayne Isaacs was acquitted of murder in the fatal shooting of Delrawn Small, but he could still lose his job.`\
+https://www.nytimes.com/2026/10/21/nyregion/nypd-officer-delrawn-small-shooting-trial.html
+
 **5 Things to Know About Senator Roger Marshall of Kansas**\
 `The Republican incumbent is trying to hold on to his seat and keep his state from sending a Democrat to the Senate for the first time in nearly a century.`\
 https://www.nytimes.com/2026/10/21/us/5-things-to-know-about-roger-marshall.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/travel/new-national-park-chiricahua.html
 **A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
 `Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
 https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
-
-**A.I. Discovered a Critical Vulnerability in PHP, a Coding Language Behind Many Websites**\
-`The disclosure heightened concerns about A.I.’s potential to upend cybersecurity unless shortcomings are addressed.`\
-https://www.nytimes.com/2026/10/21/us/politics/php-vulnerability-ai-openai-cybersecurity.html
 
