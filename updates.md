@@ -1,3 +1,15 @@
+**What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
+`President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
+https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
+
+**I Made You a Soup Bucket List**\
+`Cabbage lentil, tomato-orzo, coconut black bean and more.`\
+https://www.nytimes.com/2026/10/22/dining/i-made-you-a-soup-bucket-list.html
+
+**Tom Hanks Will Return to Broadway in ‘This World of Tomorrow,’ a Time-Travel Romance**\
+`“This World of Tomorrow,” co-starring Kelli O’Hara, will come to Broadway next fall.`\
+https://www.nytimes.com/2026/10/22/theater/tom-hanks-broadway-this-world-of-tomorrow.html
+
 **Clavicular, the ‘Looksmaxxing’ Influencer, Pleads Not Guilty to Rape Charge**\
 `The social media figure, whose real name is Braden Peters, appeared briefly for the arraignment in Orleans, Mass., on Cape Cod.`\
 https://www.nytimes.com/2026/10/22/us/clavicular-rape-hearing.html

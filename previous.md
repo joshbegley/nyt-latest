@@ -1,3 +1,15 @@
+**What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
+`President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
+https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
+
+**I Made You a Soup Bucket List**\
+`Cabbage lentil, tomato-orzo, coconut black bean and more.`\
+https://www.nytimes.com/2026/10/22/dining/i-made-you-a-soup-bucket-list.html
+
+**Tom Hanks Will Return to Broadway in ‘This World of Tomorrow,’ a Time-Travel Romance**\
+`“This World of Tomorrow,” co-starring Kelli O’Hara, will come to Broadway next fall.`\
+https://www.nytimes.com/2026/10/22/theater/tom-hanks-broadway-this-world-of-tomorrow.html
+
 **Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
 `Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
 https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
 **What ‘You Can See Everything’ Is Really About, With Wesley Morris**\
 `The choices and strategies of Nathan Fielder.`\
 https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-morris-elizabeth-holmes-theranos.html
-
-**Impeachment. It’s Not Just for Presidents.**\
-`Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
-https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
-
-**Stream These 6 Movies and Shows Before They Leave Netflix in November**\
-`“Speed,” “True Romance” and “The Girl With the Dragon Tattoo” are among the titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/10/22/arts/television/netflix-expiring-november.html
-
-**The Only Thing We Can All Agree On Is That the World Is on Fire**\
-`How is it that Marine Le Pen is probably the odds-on favorite to be the next president of France?`\
-https://www.nytimes.com/2026/10/22/opinion/france-riots-belgium-immigration-protests.html
 
