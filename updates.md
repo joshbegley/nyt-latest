@@ -1,3 +1,11 @@
+**Bernie Sanders Gives $1 Million to Bolster El-Sayed and Counter AIPAC in Michigan**\
+`The transfer came day after the news that the pro-Israel lobby was planning to contribute as much as $9 million to defeat the Democratic nominee for Senate.`\
+https://www.nytimes.com/2026/10/22/us/politics/sanders-el-sayed-aipac-michigan.html
+
+**Heat Waves Killed an Estimated 50,000 in European Cities, a Likely Record**\
+`This summer’s heat was the continent’s deadliest by far this century, according to new peer-reviewed estimates.`\
+https://www.nytimes.com/2026/10/22/climate/europe-summer-heat-deaths.html
+
 **Bus Commuters Fume as Port Authority Bus Terminal Revamp Causes Delays**\
 `Detours and demolition tied to the $11 billion replacement of the bus terminal are causing rush-hour headaches for commuters.`\
 https://www.nytimes.com/2026/10/22/nyregion/commuter-buses-delays-port-authority.html
