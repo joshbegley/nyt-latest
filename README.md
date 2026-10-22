@@ -1,3 +1,7 @@
+**John Anderson, Country Music Hall of Famer, Dies at 71**\
+`His gravelly vocals propelled a career that spanned nearly five decades and earned him a spot in the Country Music Hall of Fame.`\
+https://www.nytimes.com/2026/10/22/arts/music/john-anderson-country-singer-dead.html
+
 **Covert Russian Group Targets James Talarico With Baseless Claims in Texas Senate Race**\
 `Russian influence operations appear to be stepping up efforts to meddle in the midterms, according to intelligence officials. Most are targeting Democrats.`\
 https://www.nytimes.com/2026/10/22/us/texas-senate-race-russia-influence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/design/frick-siena-bronzes.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are on Central Park West, in Yorkville and Williamsburg.`\
 https://www.nytimes.com/2026/10/22/realestate/housing-market-nyc.html
-
-**METRO with Sarah Koenig: Episode 2**\
-`In New York’s diamond district, there’s a war on: real vs. fake. It’s hard to know which side is which.`\
-https://www.nytimes.com/2026/10/22/podcasts/karat-and-schtick.html
 
