@@ -1,3 +1,11 @@
+**Review: Todrick Hall’s Audacious ‘Midnight’ and a Curious ‘Benjamin Button’ Musical**\
+`Todrick Hall’s overstuffed quasi-opera is beautifully sung but discombobulated, while a cutesy Fitzgerald adaptation has a talented cast but lacks depth.`\
+https://www.nytimes.com/2026/10/21/theater/midnight-todrick-hall-benjamin-button-review.html
+
+**Clashes Darken Rally in South Carolina as Trump Seeks to Boost Darline Graham**\
+`Mr. Trump is barnstorming across conservative America this week to shore up support for Republican candidates in unexpectedly competitive races.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-rally-south-carolina-darline-graham.html
+
 **‘The Lowdown’ Season 2, Episode 3 Recap: Hellhounds on Your Trail**\
 `Lee escapes multiple jams only to return home to a growing pile of personal calamities.`\
 https://www.nytimes.com/2026/10/21/arts/television/the-lowdown-season-2-episode-3-recap.html

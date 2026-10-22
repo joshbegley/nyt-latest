@@ -1,3 +1,11 @@
+**Review: Todrick Hall’s Audacious ‘Midnight’ and a Curious ‘Benjamin Button’ Musical**\
+`Todrick Hall’s overstuffed quasi-opera is beautifully sung but discombobulated, while a cutesy Fitzgerald adaptation has a talented cast but lacks depth.`\
+https://www.nytimes.com/2026/10/21/theater/midnight-todrick-hall-benjamin-button-review.html
+
+**Clashes Darken Rally in South Carolina as Trump Seeks to Boost Darline Graham**\
+`Mr. Trump is barnstorming across conservative America this week to shore up support for Republican candidates in unexpectedly competitive races.`\
+https://www.nytimes.com/2026/10/21/us/politics/trump-rally-south-carolina-darline-graham.html
+
 **‘The Lowdown’ Season 2, Episode 3 Recap: Hellhounds on Your Trail**\
 `Lee escapes multiple jams only to return home to a growing pile of personal calamities.`\
 https://www.nytimes.com/2026/10/21/arts/television/the-lowdown-season-2-episode-3-recap.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/10/21/t-magazine/mesoamerican-modern-su-wu-mexico-c
 **C.D.C. Ignored Request From States to Validate a New Measles Test**\
 `The agency replied two months later, saying it had “competing priorities,” officials from a coalition of Western states said.`\
 https://www.nytimes.com/2026/10/21/health/measles-test-cdc.html
-
-**Discovery of New Fake Pollster, Wedgewood, Puts a Spotlight on Trust in Surveys**\
-`A supposed pollster had released a series of midterm surveys that were picked up by well-known polling aggregators. But on Tuesday, the group acknowledged that almost all of its work was fake.`\
-https://www.nytimes.com/2026/10/21/us/midterm-election-fake-polling-wedgewood.html
-
-**Trump Ties Disaster Aid to Votes as Midterm Fight Heats Up**\
-`President Trump and Vice President JD Vance have dangled FEMA money to disaster-struck states during recent campaign rallies.`\
-https://www.nytimes.com/2026/10/21/climate/disaster-aid-politics-trump-north-carolina.html
 
