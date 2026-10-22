@@ -1,3 +1,11 @@
+**What Dueling Visits by Ocasio-Cortez and Manchin Say About Maine’s Senate Race**\
+`Senator Susan Collins, a Republican in a tight race, is keying her closing pitch to the middle, while her progressive challenger, Troy Jackson, is seeking to excite the left.`\
+https://www.nytimes.com/2026/10/22/us/politics/maine-aoc-jackson-collins-manchin-senate.html
+
+**Road Rage Over Lane Change Led to Fatal Bridge Shooting, Prosecutors Say**\
+`Koran Irvine, 46, died from a single gunshot wound on the George Washington Bridge during his evening commute on Tuesday.`\
+https://www.nytimes.com/2026/10/22/nyregion/nyc-shooting-george-washington-bridge.html
+
 **Trump Goes to Iowa, Hoping to Stop Farmers From Voting Blue**\
 `Also, a top Trump health adviser resigns. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/22/briefing/trump-iowa-roller-coaster-safety.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/arts/design/art-basel-paris-france-riots.html
 **Map: 7.0-Magnitude Earthquake Strikes China**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/10/22/world/quake-tracker-china.html
-
-**Hegseth Fired Her. Now She’s Running for Congress.**\
-`A former three-star admiral fired by Pete Hegseth is making his competence a campaign issue.`\
-https://www.nytimes.com/2026/10/22/opinion/nancy-lacore-pete-hegseth-south-carolina.html
-
-**Old-Fashioned Beef Stew Never Gets Old**\
-`Its popularity lies in its simplicity, a classic and harmonious combination of meat, onions, carrots and potatoes all simmered in red wine and beef broth.`\
-https://www.nytimes.com/2026/10/22/dining/old-fashioned-beef-stew-never-gets-old.html
 
