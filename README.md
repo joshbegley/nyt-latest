@@ -1,3 +1,7 @@
+**Judge Restricts D.H.S. Field Operations Aimed at Unearthing Voter Fraud**\
+`The ruling largely blocked homeland security agents from carrying out field interviews in nine states, including California, as part of a sprawling effort to find noncitizens registered to vote.`\
+https://www.nytimes.com/2026/10/21/us/politics/judge-dhs-voter-fraud-elections.html
+
 **Review: Todrick Hall’s Audacious ‘Midnight’ and a Curious ‘Benjamin Button’ Musical**\
 `Todrick Hall’s overstuffed quasi-opera is beautifully sung but discombobulated, while a cutesy Fitzgerald adaptation has a talented cast but lacks depth.`\
 https://www.nytimes.com/2026/10/21/theater/midnight-todrick-hall-benjamin-button-review.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-s
 **Su Wu Celebrates Her Book “Mesoamerican Modern” at Mexico City’s Casa Möbius**\
 `To toast her new design book, “Mesoamerican Modern,” Su Wu co-hosted a dinner at Mexico City’s Casa Möbius.`\
 https://www.nytimes.com/2026/10/21/t-magazine/mesoamerican-modern-su-wu-mexico-city-party.html
-
-**C.D.C. Ignored Request From States to Validate a New Measles Test**\
-`The agency replied two months later, saying it had “competing priorities,” officials from a coalition of Western states said.`\
-https://www.nytimes.com/2026/10/21/health/measles-test-cdc.html
 
