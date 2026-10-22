@@ -1,3 +1,11 @@
+**What ‘You Can See Everything’ Is Really About, With Wesley Morris**\
+`The choices and strategies of Nathan Fielder.`\
+https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-morris-elizabeth-holmes-theranos.html
+
+**Would You Listen to A.I. Music? Maybe You Already Do.**\
+`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
+https://www.nytimes.com/interactive/2026/10/22/business/media/ai-music-streaming-spotify-apple-music.html
+
 **Impeachment. It’s Not Just for Presidents.**\
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html

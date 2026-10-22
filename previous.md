@@ -1,3 +1,7 @@
+**What ‘You Can See Everything’ Is Really About, With Wesley Morris**\
+`The choices and strategies of Nathan Fielder.`\
+https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-morris-elizabeth-holmes-theranos.html
+
 **Impeachment. It’s Not Just for Presidents.**\
 `Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
 https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/10/22/pageoneplus/corrections-oct-22-2026.html
 https://www.nytimes.com/interactive/2026/10/22/us/ice-shooting-phoenix.html
 
 **Would You Listen to A.I. Music? Maybe You Already Do.**\
-`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
+`Music from artificial intelligence is proliferating across Spotify, Apple and other platforms — but it’s not always clear what you’re getting.`\
 https://www.nytimes.com/interactive/2026/10/22/business/media/ai-music-streaming-spotify-apple-music.html
 
 **Why More Than Half of These 13 Iowa Voters Are Considering Splitting Their Vote**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/learning/word-of-the-day-sinuous.html
 **How to Buy a House if You Have a Gig-Economy Income**\
 `Freelancers, content creators and others face higher scrutiny in getting a mortgage than those with traditional incomes. Here’s what you should know before starting the hunt.`\
 https://www.nytimes.com/2026/10/22/realestate/how-to-buy-a-house-if-you-have-a-gig-economy-income.html
-
-**Book Review: ‘The Shadow of the Object,’ by Chloe Aridjis**\
-`Magic lanterns, doppelgängers and unsettling events haunt “The Shadow of the Object,” an intoxicatingly off-kilter novel.`\
-https://www.nytimes.com/2026/10/22/books/review/the-shadow-of-the-object-chloe-aridjis.html
 
