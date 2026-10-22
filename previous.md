@@ -1,3 +1,7 @@
+**Jim Knipfel, Blind, Dyspeptic Memoirist, Dies at 61**\
+`His Slackjaw column drew on his life, which included going blind and being locked up in a psychiatric ward. Two of his books were praised by Thomas Pynchon.`\
+https://www.nytimes.com/2026/10/22/obituaries/jim-knipfel-dead.html
+
 **Ebola Outbreak in Africa Reaches Widest Expansion Ever**\
 `Health officials are urgently seeking answers about the origins of a case newly identified in Nigeria, the first in that West African nation.`\
 https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
 `The 30-year, fixed-rate mortgage dropped slightly to 7.32 percent as prospective home buyers continue to struggle with affordability. But home prices are starting to drop in some areas.`\
 https://www.nytimes.com/2026/10/22/business/mortgage-rates-housing-costs.html
 
-**Is Citizens United to blame for everything?**\
+**Is Citizens United to Blame for Everything?**\
 `Plus: The justices’ book deals mean the court can’t rule on cases involving a media conglomerate.`\
 https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusals.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/subway-takes-conan-obrien-debbie-shields
 **A New Art-Filled Hotel Adds to Cape Town’s Skyline**\
 `Plus: a sommelier makes mezcal, knitwear inspired by Scandinavian winters and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/22/t-magazine/cape-town-hotel.html
-
-**Corrections: Oct. 22, 2026**\
-`Corrections that appeared in print on Thursday, Oct. 22, 2026.`\
-https://www.nytimes.com/2026/10/22/pageoneplus/corrections-oct-22-2026.html
 
