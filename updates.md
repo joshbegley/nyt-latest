@@ -1,3 +1,7 @@
+**Life Feeling Too Expensive? Here's How Prices Have Risen For Homes, College and Health Care.**\
+`Affordability is expected to be a major issue for younger voters in the midterms. Here’s a snapshot of some reasons people are feeling pinched.`\
+https://www.nytimes.com/interactive/2026/10/21/us/inflation-prices-real-estate-child-care-affordabilty.html
+
 **Live Updates: With Senate Control on the Line, Kansas Candidates Trade Barbs on Fuel, War and More**\
 `Senator Roger Marshall, the Republican incumbent, and Adam Hamilton, the Democratic nominee, are locked in a race that polls suggest is neck and neck.`\
 https://www.nytimes.com/live/2026/10/21/us/kansas-senate-debate-election

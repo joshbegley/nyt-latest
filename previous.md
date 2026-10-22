@@ -1,3 +1,7 @@
+**Life Feeling Too Expensive? Here's How Prices Have Risen For Homes, College and Health Care.**\
+`Affordability is expected to be a major issue for younger voters in the midterms. Here’s a snapshot of some reasons people are feeling pinched.`\
+https://www.nytimes.com/interactive/2026/10/21/us/inflation-prices-real-estate-child-care-affordabilty.html
+
 **Officer Who Killed Man in 2016 Will Face N.Y.P.D. Trial**\
 `Officer Wayne Isaacs was acquitted of murder in the fatal shooting of Delrawn Small, but he could still lose his job.`\
 https://www.nytimes.com/2026/10/21/nyregion/nypd-officer-delrawn-small-shooting-trial.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/21/us/politics/title-ix-trump-administration-cor
 **America Mints a New National Park, Elevating an Arizonan ‘Sky Island’**\
 `After years of bipartisan effort, the former Chiricahua National Monument, in southeast Arizona, has become the United States’ 64th national park.`\
 https://www.nytimes.com/2026/10/21/travel/new-national-park-chiricahua.html
-
-**A Democratic Candidate for Governor Is Traversing Alaska to Flip the State**\
-`Democrats are hoping that Jonathan Kreiss-Tomkins’s voter outreach could help them win an Alaska governor’s race for the first time since 1998.`\
-https://www.nytimes.com/2026/10/21/us/democrat-alaska-governor-outreach.html
 
