@@ -1,3 +1,7 @@
+**The First Story That Scared Leigh Bardugo**\
+`Leigh Bardugo is the best-selling author behind the Ninth House trilogy, which just concluded with the release of “Dead Beat.” But her introduction to the joys of being scared out of her wits was way back in fifth grade.`\
+https://www.nytimes.com/video/podcasts/100000011230463/the-first-story-that-scared-leigh-bardugo.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/22/books/review/new-recommended-books.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/podcasts/the-headlines/us-israel-iran-trump-w
 **The Election That Will Define Israel’s Future**\
 `Israelis on both sides of the political spectrum see next week’s vote as the most consequential in their country’s history.`\
 https://www.nytimes.com/2026/10/22/podcasts/the-daily/israel-election-netanyahu.html
-
-**Today’s Wordle Hints for October 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 23, 2026.`\
-https://www.nytimes.com/2026/10/22/crosswords/wordle-review-1952.html
 

@@ -1,3 +1,7 @@
+**The First Story That Scared Leigh Bardugo**\
+`Leigh Bardugo is the best-selling author behind the Ninth House trilogy, which just concluded with the release of “Dead Beat.” But her introduction to the joys of being scared out of her wits was way back in fifth grade.`\
+https://www.nytimes.com/video/podcasts/100000011230463/the-first-story-that-scared-leigh-bardugo.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/22/books/review/new-recommended-books.html
