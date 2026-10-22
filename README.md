@@ -1,3 +1,19 @@
+**Chad Harbach Returns to a Different Literary Playing Field**\
+`Chad Harbach broke big with “The Art of Fielding.” While set on the same campus, his long-awaited follow-up arrives at a different literary moment.`\
+https://www.nytimes.com/2026/10/22/books/review/chad-harbach-the-brightness.html
+
+**METRO with Sarah Koenig: Episode 1**\
+`Sarah Koenig goes on a whirlwind tour of New York City to find out what New Yorkers are worrying about.`\
+https://www.nytimes.com/2026/10/22/podcasts/nice-to-meet-you.html
+
+**He Couldn’t Say No to a Job in New York. Which Home Did the Family Choose?**\
+`A couple with deep Chicago roots and their two children left Illinois for Westchester County with $1.8 million to spend.`\
+https://www.nytimes.com/quiz/2026/10/22/realestate/homes-for-sale-westchester-county-ny.html
+
+**Inside the White House’s Push for More A.I.**\
+`The Trump administration’s plan to supercharge scientific discovery.`\
+https://www.nytimes.com/video/opinion/100000011225438/inside-the-white-houses-push-for-more-ai.html
+
 **Michigan’s Senate Candidates Clash in Last Debate**\
 `Dr. Abdul El-Sayed, the Democratic nominee for Senate in Michigan, and Mike Rogers, the Republican candidate, sparred in their final debate on Wednesday.`\
 https://www.nytimes.com/video/us/politics/100000011229585/michigan-senate-debate-el-sayed-rogers.html
@@ -165,20 +181,4 @@ https://www.nytimes.com/live/2026/10/21/us/michigan-senate-debate-election
 **Trump Envoy Calls Putin a ‘Humanitarian’**\
 `Also, Democrats lead in polls, but still face image problems. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/21/briefing/trump-russia-prisoner-release.html
-
-**Ramaswamy Backs Controversial Ohio Political Ad After Backlash**\
-`An ad from Vivek Ramaswamy, the Republican candidate for Ohio governer, shows the mother of the Democratic candidate, Amy Acton, calling her estranged daughter a liar.`\
-https://www.nytimes.com/video/us/politics/100000011228488/elections-midterms-vivek-ramaswamy-politics.html
-
-**Florida Mayor Is Accused of Taking Covid Grant Funds She Helped Approve**\
-`Mayor Jackie Espinosa of Kissimmee, Fla., and her family received money from a grant program she helped create during the pandemic, the state attorney general said. She was arrested on Wednesday.`\
-https://www.nytimes.com/2026/10/21/us/florida-mayor-kissimmee-arrested-fraud.html
-
-**Oregon Teacher Disputes Account of Her Heroism During School Shooting**\
-`Becky Drury, who was said to have shielded a student during a deadly shooting in Bend, refuted the account. “The truth is I was shot before I had any chance to act.”`\
-https://www.nytimes.com/2026/10/21/us/bend-oregon-school-shooting-teacher-hero.html
-
-**GMA Co-Hosts’ Ex-Spouses, Marilee Fiebig and Andrew Shue, Are Engaged**\
-`Marilee Fiebig and Andrew Shue — whose exes are T.J. Holmes and Amy Robach — have announced that they plan to marry.`\
-https://www.nytimes.com/2026/10/21/style/amy-robach-tj-holmes-gma-exes.html
 
