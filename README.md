@@ -1,3 +1,7 @@
+**What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
+`President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
+https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
+
 **I Made You a Soup Bucket List**\
 `Cabbage lentil, tomato-orzo, coconut black bean and more.`\
 https://www.nytimes.com/2026/10/22/dining/i-made-you-a-soup-bucket-list.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html
 **What ‘You Can See Everything’ Is Really About, With Wesley Morris**\
 `The choices and strategies of Nathan Fielder.`\
 https://www.nytimes.com/2026/10/22/podcasts/what-you-can-see-everything-wesley-morris-elizabeth-holmes-theranos.html
-
-**Impeachment. It’s Not Just for Presidents.**\
-`Trump’s grotesque rerun of the Gilded Age demands a rebuke.`\
-https://www.nytimes.com/2026/10/22/opinion/trump-slotkin-corruption-impeachment.html
 
