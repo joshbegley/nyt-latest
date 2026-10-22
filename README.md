@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/10/21/world/europe/europe-protests-youth-future.htm
 `Neil M. Bush, a brother of former President George W. Bush, expressed “deep concern about Ken Paxton’s record” and said he voted for James Talarico, the Democrat running for Senate in Texas.`\
 https://www.nytimes.com/2026/10/21/us/politics/neil-bush-talarico-paxton-texas-senate.html
 
-**Su Wu Celebrates Her Book “Mesoamerican Modern” at Mexico City’s Casa Möbius**\
-`To toast her new design book, “Mesoamerican Modern,” Su Wu co-hosted a dinner at Mexico City’s Casa Möbius.`\
-https://www.nytimes.com/2026/10/21/t-magazine/mesoamerican-modern-su-wu-mexico-city-party.html
-
