@@ -1,3 +1,7 @@
+**How Mark Zuckerberg Pushed Meta to Shield Him From California’s Proposed Wealth Tax**\
+`The billionaire told Meta’s board that he planned to list his Silicon Valley home for sale. The company remade its stock structure to help him pay the tax if voters pass it.`\
+https://www.nytimes.com/2026/10/21/technology/mark-zuckerberg-meta-california-wealth-tax.html
+
 **Life Feeling Too Expensive? Here's How Prices Have Risen For Homes, College and Health Care.**\
 `Affordability is expected to be a major issue for younger voters in the midterms. Here’s a snapshot of some reasons people are feeling pinched.`\
 https://www.nytimes.com/interactive/2026/10/21/us/inflation-prices-real-estate-child-care-affordabilty.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/us/politics/100000011216870/how-title-ix-became-a-
 **Cornell Case Highlights Shifting Federal Title IX Enforcement**\
 `From Barack Obama to Donald Trump, ideology has infused the interpretation of the federal law banning sex discrimination on college campuses.`\
 https://www.nytimes.com/2026/10/21/us/politics/title-ix-trump-administration-cornell.html
-
-**America Mints a New National Park, Elevating an Arizonan ‘Sky Island’**\
-`After years of bipartisan effort, the former Chiricahua National Monument, in southeast Arizona, has become the United States’ 64th national park.`\
-https://www.nytimes.com/2026/10/21/travel/new-national-park-chiricahua.html
 

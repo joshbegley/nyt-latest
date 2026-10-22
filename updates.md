@@ -1,3 +1,7 @@
+**How Mark Zuckerberg Pushed Meta to Shield Him From California’s Proposed Wealth Tax**\
+`The billionaire told Meta’s board that he planned to list his Silicon Valley home for sale. The company remade its stock structure to help him pay the tax if voters pass it.`\
+https://www.nytimes.com/2026/10/21/technology/mark-zuckerberg-meta-california-wealth-tax.html
+
 **Life Feeling Too Expensive? Here's How Prices Have Risen For Homes, College and Health Care.**\
 `Affordability is expected to be a major issue for younger voters in the midterms. Here’s a snapshot of some reasons people are feeling pinched.`\
 https://www.nytimes.com/interactive/2026/10/21/us/inflation-prices-real-estate-child-care-affordabilty.html
