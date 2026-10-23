@@ -1,3 +1,7 @@
+**Judge Denies Medical Release for N.Y.C. Man Shot by ICE**\
+`Oscar Belgal, a Dominican immigrant, was shot in the neck on Oct. 8 and detained at a federal prison. His lawyers had said he needed outside medical care.`\
+https://www.nytimes.com/2026/10/23/nyregion/ice-shooting-oscar-belgal-judge-ruling.html
+
 **The Evening: D.O.J. Moves to Block Alaska Result if G.O.P. Loses**\
 `Plus, a promising cancer vaccine. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/23/opinion/you-can-see-everything-janet-malcolm.
 **How Patricia Highsmith Came to Star in a Ripley-esque Movie**\
 `“A Talent for Murder” turns the novelist into a suspicious character in a psychological thriller. The author’s caustic personality makes the leap plausible.`\
 https://www.nytimes.com/2026/10/23/movies/patricia-highsmith-a-talent-for-murder-helen-mirren.html
-
-**Put Cottage Cheese in Your Meatballs**\
-`And the most popular recipes from the week.`\
-https://www.nytimes.com/2026/10/23/dining/put-cottage-cheese-in-your-meatballs.html
 
 **Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
 `(No description)`\

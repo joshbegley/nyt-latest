@@ -1,3 +1,7 @@
+**Judge Denies Medical Release for N.Y.C. Man Shot by ICE**\
+`Oscar Belgal, a Dominican immigrant, was shot in the neck on Oct. 8 and detained at a federal prison. His lawyers had said he needed outside medical care.`\
+https://www.nytimes.com/2026/10/23/nyregion/ice-shooting-oscar-belgal-judge-ruling.html
+
 **The Evening: D.O.J. Moves to Block Alaska Result if G.O.P. Loses**\
 `Plus, a promising cancer vaccine. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
