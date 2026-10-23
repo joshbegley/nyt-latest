@@ -1,3 +1,15 @@
+**Bard Names Marvin Krislov as President, as Former Leader Fends Off Epstein Allegations**\
+`The new president, Marvin Krislov, has led Pace University and Oberlin College. He replaces Leon Botstein, who retired and has faced scrutiny over ties to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
+
+**The Local: Seitu K. Jones gets overdue museum show**\
+`Plus, a fight over free speech and election law.`\
+https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
+
+**Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
+`Wisconsin’s Republican candidate for governor, Tom Tiffany, is talking about nearly anything but President Trump. And as Republicans watch Mr. Trump’s approval ratings plummet, he is hardly alone.`\
+https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
+
 **Should Horse-Drawn Carriages Be Banned in New York City?**\
 `Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
 https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html

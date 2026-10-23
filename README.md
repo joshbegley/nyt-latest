@@ -1,3 +1,11 @@
+**They Made the Skirt of the Week**\
+`The design duo behind Chopova Lowena on Alexander Skarsgard’s red carpet look.`\
+https://www.nytimes.com/2026/10/23/style/chopova-lowena-made-the-skirt-of-the-week.html
+
+**Under U.S. Watch, Venezuela Grapples With Tensions Over Democracy**\
+`President Trump says Venezuela is not ready for elections, and he focuses instead on its oil. But Secretary of State Marco Rubio is nudging talks between opposing politicians.`\
+https://www.nytimes.com/2026/10/23/us/politics/venezuela-trump-rubio-elections.html
+
 **Bard Names Marvin Krislov as President, as Former Leader Fends Off Epstein Allegations**\
 `The new president, Marvin Krislov, has led Pace University and Oberlin College. He replaces Leon Botstein, who retired and has faced scrutiny over ties to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestini
 
 **Here’s What Democrats Plan to Do With Their Power if They Win Back Congress**\
 `Democrats have campaigned on lowering living costs and holding the Trump administration accountable. This is a look at their to-do list if they win the majority.`\
-https://www.nytimes.com/2026/10/23/us/politics/democratic-agenda.html
+https://www.nytimes.com/2026/10/23/us/politics/democrats-congress-majority-agenda.html
 
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011231911/whats-the-deal-with-billy
 **‘The Headlines’ News Quiz: Oct. 23, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/23/podcasts/the-headlines/the-headlines-news-quiz-oct-23-2026.html
-
-**You Are Being Watched**\
-`Especially on the southern border.`\
-https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
-
-**Today’s Wordle Answers for October 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
-https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
 

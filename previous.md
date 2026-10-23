@@ -1,3 +1,11 @@
+**Bard Names Marvin Krislov as President, as Former Leader Fends Off Epstein Allegations**\
+`The new president, Marvin Krislov, has led Pace University and Oberlin College. He replaces Leon Botstein, who retired and has faced scrutiny over ties to Jeffrey Epstein.`\
+https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
+
+**The Local: Seitu K. Jones gets overdue museum show**\
+`Plus, a fight over free speech and election law.`\
+https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
+
 **Should Horse-Drawn Carriages Be Banned in New York City?**\
 `Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
 https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
@@ -115,7 +123,7 @@ https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
 https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
 
 **Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
-`The Republican candidate for governor, Tom Tiffany, is best known as a staunch ally of the president. He’s trying to change that.`\
+`Wisconsin’s Republican candidate for governor, Tom Tiffany, is talking about nearly anything but President Trump. And as Republicans watch Mr. Trump’s approval ratings plummet, he is hardly alone.`\
 https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
 
 **Judge Orders Trump to Sit for Deposition in BBC Defamation Case**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
 **Today’s Wordle Answers for October 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
 https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
-
-**The A.I.-Powered Cameras Watching Border Towns, and a Midterms Attack Ad Causes Outrage**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/10/23/podcasts/the-headlines/ai-cameras-border-towns-midterms-ad.html
-
-**NYT Connections Answers for October 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
-https://www.nytimes.com/2026/10/23/crosswords/connections-companion-1231.html
 
