@@ -1,3 +1,15 @@
+**Would Your Life Make a Good Documentary?**\
+`TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
+https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
+
+**A Tech Rotation Roils the Markets, Again**\
+`Investors are bracing for a one-two punch: rising oil prices and concerns about the soaring costs of the artificial intelligence buildout.`\
+https://www.nytimes.com/2026/10/23/business/dealbook/tech-rotation-nasdaq-ai.html
+
+**A.I. and New Rules for Accounting Are an Opportunity for Start-Ups**\
+`Pennylane, a French company, has gained market share in its home country by helping accountants work with clients. It’s aiming to expand internationally.`\
+https://www.nytimes.com/2026/10/23/business/dealbook/pennylane-ai-accounting-france.html
+
 **What’s the Deal With Billy Evans? A Spoiler-Filled Guide to ‘You Can See Everything’**\
 `“You shouldn’t overbeat scrambled eggs.”`\
 https://www.nytimes.com/2026/10/23/podcasts/hardfork-billy-evans-holmes.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/23/books/review/lindsey-fitzharris-sleuth-hound-
 **At Rikers, Inmates See Themselves in a Film About America’s Jails**\
 `Residents of one of the country’s most troubled facilities were given a preview of “Crime and Punishment in America,” a docuseries premiering on PBS next month.`\
 https://www.nytimes.com/2026/10/23/movies/rikers-island-film-crime-punishment.html
-
-**Military Boards Are Defying Orders and Letting Trans Troops Serve**\
-`The service members at Navy and Marine Corps hearings are finding ways to keep trans troops in uniform.`\
-https://www.nytimes.com/2026/10/23/us/trans-troops-military-boards-retain.html
-
-**Paul Stankard, Revered Paperweight Artist, Has Died**\
-`Yes, paperweights. Working over a nearly 5,000-degree gas flame, he created glass marvels that sold for tens of thousands of dollars. He was 83.`\
-https://www.nytimes.com/2026/10/23/obituaries/paul-stankard-dead.html
-
-**What Personal Questions Do You Ask A.I.?**\
-`If you’ve turned to A.I. for emotional support or help with sticky situations, Times Opinion wants to hear from you.`\
-https://www.nytimes.com/2026/10/23/opinion/ai-chat-personal-questions.html
 

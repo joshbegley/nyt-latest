@@ -1,3 +1,15 @@
+**Would Your Life Make a Good Documentary?**\
+`TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
+https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
+
+**A Tech Rotation Roils the Markets, Again**\
+`Investors are bracing for a one-two punch: rising oil prices and concerns about the soaring costs of the artificial intelligence buildout.`\
+https://www.nytimes.com/2026/10/23/business/dealbook/tech-rotation-nasdaq-ai.html
+
+**A.I. and New Rules for Accounting Are an Opportunity for Start-Ups**\
+`Pennylane, a French company, has gained market share in its home country by helping accountants work with clients. It’s aiming to expand internationally.`\
+https://www.nytimes.com/2026/10/23/business/dealbook/pennylane-ai-accounting-france.html
+
 **You Are Being Watched**\
 `Especially on the southern border.`\
 https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
