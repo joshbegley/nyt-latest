@@ -1,3 +1,7 @@
+**Trees Fall on Cars as Typhoon Champi Hits Taiwan**\
+`Trees smashed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and has injured dozens of others, the National Fire Agency of Taiwan said.`\
+https://www.nytimes.com/video/weather/100000011232104/taiwan-typhoon-champi.html
+
 **Taiwan Shuts Down as Typhoon Champi Approaches**\
 `The storm has caused at least one death and dozens of injuries, officials said. Schools have closed on the island and hundreds of flights have been canceled.`\
 https://www.nytimes.com/2026/10/23/weather/super-typhoon-champi-taiwan-japan.html
