@@ -1,3 +1,11 @@
+**Meghan Says She Is ‘Distressed’ by Claim Her Father Kept Child Abuse Images**\
+`The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
+https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html
+
+**A Fight Over Felon Voting Fuels a Free Speech Debate**\
+`A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
+https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
+
 **Republicans Cut Taxes to Win the Midterms. It May Not Work Out.**\
 `Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
 https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html
@@ -46,8 +54,8 @@ https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-
 `“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
 https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
 
-**Gunmen Open Fire at Church in Jordan, Killing Several People**\
-`The attack took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. Security forces are pursuing the gunmen, the state broadcaster reported.`\
+**Gunmen Open Fire at Church in Jordan, Killing at Least Six**\
+`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. It was one of the kingdom’s deadliest attacks in years.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
 
 **Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/movies/new-movies-this-week-critics.html
 **There Are Solutions to This Crazy Economy. Voters Will Hate Them.**\
 `Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
 https://www.nytimes.com/2026/10/23/opinion/trump-economy-artificial-intelligence-midterms.html
-
-**Manhattan Bookstore Crawl: Where to Shop in Chinatown, the Lower East Side and the East Village**\
-`This Manhattan walking tour includes used-book emporiums, animal- and vegetable-themed stores and bookshop bars that serve up literature with a boozy twist.`\
-https://www.nytimes.com/interactive/2026/10/23/books/bookstores-nyc-chinatown-east-village.html
-
-**In New York, Early Voting Starts Saturday**\
-`It’s 11 days until Election Day. In New York City, there are a governor’s race and five ballot proposals.`\
-https://www.nytimes.com/2026/10/23/nyregion/early-voting-election-2026-nyc.html
 
