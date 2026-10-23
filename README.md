@@ -1,3 +1,11 @@
+**Share Your Experiences With Medicaid Claims for Repayment**\
+`The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
+https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
+
+**How a U.K. Official’s Wife Set Off a Debate Over Free Speech and Palestinians**\
+`Sarah Helm, who is married to Britain’s national security adviser, posted of her support for the author Sally Rooney and a banned pro-Palestinian activist group. A furor ensued.`\
+https://www.nytimes.com/2026/10/23/world/europe/uk-powell-sarah-helm-palestine.html
+
 **Is Everything Expensive?**\
 `We look at how much prices have risen.`\
 https://www.nytimes.com/2026/10/23/briefing/is-everything-expensive.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/pageoneplus/corrections-oct-23-2026.html
 **What to Read This Halloween, According to Two Best-Selling Writers**\
 `Leigh Bardugo and Paul Tremblay share the books that scared them as kids, the stories that still unnerve them and their recommendations for readers new to horror.`\
 https://www.nytimes.com/2026/10/23/podcasts/what-to-read-this-halloween.html
-
-**Campaigns Spend Over $1 Billion Over Two Weeks in Final Search for Votes**\
-`Fueled by tens of millions from Elon Musk, President Trump’s super PAC, Michael Bloomberg and other big donors, both parties are pumping enormous amounts into the final days of the midterms.`\
-https://www.nytimes.com/2026/10/23/us/midterm-campaign-finance.html
-
-**Most Voters Believe the Midterm Elections Will Be Accurate, Poll Finds**\
-`But about half expressed concerns that Republicans could try to overturn the results, a New York Times/Siena poll found.`\
-https://www.nytimes.com/2026/10/23/us/politics/election-integrity-trust-poll.html
 
