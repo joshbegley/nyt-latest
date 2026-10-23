@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/10/22/us/aoc-trans-rights-democrats.html
 
 **Trump Administration Asks Appeals Court to Intervene in California Mail Ballot Suit**\
 `The Justice Department sought to jump-start a lawsuit aimed at compelling the state to not count as many as 20,000 mail ballots it claims were sent to noncitizens.`\
-https://www.nytimes.com/2026/10/22/us/politics/administration-california-ballot-suit.html
+https://www.nytimes.com/2026/10/22/us/politics/trump-california-mail-ballot-lawsuit.html
 
 **Video by Left-Wing Group Claims Lindsey Graham Paid Men for Sex**\
 `Progressive activists released a video of three men making the allegations about the South Carolina Republican, who died in July. The New York Times has not confirmed their claims.`\

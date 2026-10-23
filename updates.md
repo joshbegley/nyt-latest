@@ -1,3 +1,7 @@
+**Trump Administration Asks Appeals Court to Intervene in California Mail Ballot Suit**\
+`The Justice Department sought to jump-start a lawsuit aimed at compelling the state to not count as many as 20,000 mail ballots it claims were sent to noncitizens.`\
+https://www.nytimes.com/2026/10/22/us/politics/trump-california-mail-ballot-lawsuit.html
+
 **Ocasio-Cortez Says Democrats Should Stand Up for Trans Americans**\
 `At an event in Maine, an audience member told the New York progressive that “a lot of trans people in America feel that we have been abandoned by the Democratic Party.”`\
 https://www.nytimes.com/2026/10/22/us/aoc-trans-rights-democrats.html
