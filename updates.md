@@ -1,3 +1,7 @@
+**How, and Why, We’re Adding A.I. Tools to NYT Cooking**\
+`New features can help home cooks customize thousands of New York Times recipes. But our human editors remain in charge.`\
+https://www.nytimes.com/2026/10/23/insider/cooking-recipes-ai.html
+
 **iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
 `Fans lined up for hours outside stores of Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
 https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
