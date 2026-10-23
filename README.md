@@ -1,3 +1,7 @@
+**Trump Says Musk Has Restored Ukraine’s Access to Starshield**\
+`President Trump said on Thursday that Elon Musk had put the Starshield satellite communications network back online in Ukraine.`\
+https://www.nytimes.com/video/us/politics/100000011232054/starshield-ukraine-musk-trump.html
+
 **Deadly 7.0-Magnitude Quake Hits Tibet**\
 `Video footage released by Chinese state media showed people fleeing and items falling from shelves as a deadly 7.0-magnitude earthquake hit Tibet.`\
 https://www.nytimes.com/video/world/asia/100000011231917/tibet-earthquake-damage.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011230015/donald-trump-bill
 **17-Year-Old Charged With Murder in Midtown Subway Station Shooting**\
 `The teenage boy was arrested on Thursday in connection with the killing of Darrel Rodriguez, a security guard, in a fight on an E train platform.`\
 https://www.nytimes.com/2026/10/22/nyregion/nyc-subway-shooting-arrest.html
-
-**Why James Talarico Thinks He Can Win Over Republicans in Texas**\
-`In bright red Texas, James Talarico is asking Texas to do something it hasn’t done in nearly 40 years: elect a Democrat to the U.S. Senate. Talarico is running against Ken Paxton, the Texas attorney general and a Trump ally, in what’s become the most expensive and ferocious campaign of this year’s midterm elections. Ahead of Election Day, Talarico recently joined Michael Barbaro on “The Daily” to discuss his campaign, the highly personal attacks against him, his viewpoint on partisan politics and what he wants Democrats to do if they take back control of Congress.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011228792/why-james-talarico-thinks-he-can-win-over-republicans-in-texas.html
 
