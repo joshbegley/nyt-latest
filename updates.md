@@ -1,3 +1,35 @@
+**When My Husband Blacked Out, I Crash-Landed Our Plane**\
+`Would I ever fly again?`\
+https://www.nytimes.com/2026/10/23/style/modern-love-when-my-husband-blacked-out-i-crash-landed-our-plane.html
+
+**Walking Into the Wrong Movie Was Just the Start of Their Own Rom-Com**\
+`Josh Guttman and Julia Mazza both love movies — and each other.`\
+https://www.nytimes.com/2026/10/23/style/joshua-guttman-julia-mazza-wedding.html
+
+**Building, Then Rebuilding, a Life Together After the Palisades Fire**\
+`David Goldblum and Andrea Martinez lost everything in 2025. “I had no possessions,” she said. “But I had the one person that mattered.”`\
+https://www.nytimes.com/2026/10/23/style/david-goldblum-andrea-martinez-wedding.html
+
+**What Happened in Vegas Took Years to Develop**\
+`After several “electric” meet-ups in Las Vegas during college, it took Benjamin Glasser and Jacquelyn Silverman six years to meet again.`\
+https://www.nytimes.com/2026/10/23/style/jacquelyn-silverman-benjamin-glasser-wedding.html
+
+**Caleb Freundlich, Julianne Moore’s Son, and Kibriyaá Morgan Marry**\
+`Kibriyaá Morgan and Caleb Freundlich had been in each other’s orbit since early childhood. It took a mutual friend and glowing reviews from his mother, the actress Julianne Moore, to bring them together in college.`\
+https://www.nytimes.com/2026/10/23/style/kibriyaa-morgan-caleb-freundlich-wedding.html
+
+**Finding Many Things in Common, Big and Small**\
+`“I’d never connected with anyone just like me,” said Casey Echols of Kyle Sutton. Their interests included snowboarding and the Grateful Dead.`\
+https://www.nytimes.com/2026/10/23/style/casey-echols-kyle-sutton-wedding.html
+
+**From the Front Page: Beirut Bombings on Oct. 23, 1983**\
+`A suicide truck bombing at Beirut International Airport in Lebanon killed 241 U.S. service members, the highest number of American military personnel killed in a single attack since the Vietnam War. An almost simultaneous attack on French forces killed 58 paratroopers.`\
+https://www.nytimes.com/2026/10/23/learning/on-this-day-oct-23.html
+
+**Powerful Earthquake in Tibet Kills at Least 16**\
+`Dozens were injured and more than 300 homes were toppled by the 7.0-magnitude quake, which sent residents fleeing into the cold night air, state media said.`\
+https://www.nytimes.com/2026/10/22/world/asia/earthquake-tibet-china.html
+
 **Trump Rallies to Shore Up Iowa Senate Race for Ashley Hinson**\
 `The president visited Sioux City, part of deep-red Western Iowa, in an effort to boost GOP turnout in a state that was once solidly Republican.`\
 https://www.nytimes.com/2026/10/22/us/elections/trump-rally-iowa-senate-race.html

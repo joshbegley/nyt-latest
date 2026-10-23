@@ -1,3 +1,15 @@
+**How Pastors Mobilize Communities in Congo’s Fight Against Ebola**\
+`As health care workers fought to control the latest outbreak this year, they got crucial aid from churches in beating back fear and misinformation.`\
+https://www.nytimes.com/2026/10/23/world/africa/congo-ebola-catholic-church-rumors.html
+
+**Quote of the Day: Europeans Have a Love-Hate Relationship With Chinese Cars**\
+`Quotation of the Day for Friday, October 23, 2026.`\
+https://www.nytimes.com/2026/10/23/pageoneplus/quote-of-the-day-europeans-have-a-love-hate-relationship-with-chinese-cars.html
+
+**Gadi Eisenkot Couldn’t Be More Unlike Netanyahu. Can He Beat Him?**\
+`Mr. Eisenkot, an ex-military chief leading in the polls, calls the Israeli prime minister an “anti-leader.” But his low-key campaigning style is worrying supporters.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/gadi-eisenkot-israel-election.html
+
 **When My Husband Blacked Out, I Crash-Landed Our Plane**\
 `Would I ever fly again?`\
 https://www.nytimes.com/2026/10/23/style/modern-love-when-my-husband-blacked-out-i-crash-landed-our-plane.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-r
 **What’s Going On in This Picture? | Oct. 26, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-picture-oct-19-2026.html
-
-**What’s Going On in This Graph? | Oct. 28, 2026**\
-`How much confidence do you have in U.S. institutions?`\
-https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-graph-oct-28-2026.html
-
-**French Officials Ban Some Protests Amid Nationwide Riots**\
-`French officials banned gatherings in some cities on Thursday and over the coming days. President Macron of France said the bans were necessary to avoid a repeat of the riots last weekend.`\
-https://www.nytimes.com/video/world/europe/100000011230075/france-protests-ban-riots.html
-
-**He Was Reporting on Floods in Australia. Then He Jumped to the Rescue.**\
-`Will Murray of Australia’s public broadcaster spotted a man in a sinking truck, then jumped in the water with a bystander. (Just don’t call him Clark Kent.)`\
-https://www.nytimes.com/2026/10/22/world/australia/brisbane-flooding-car-rescue-abc-reporter.html
 
