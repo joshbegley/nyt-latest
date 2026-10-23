@@ -1,3 +1,7 @@
+**Are Fewer Teens Identifying as Gay or Bisexual? It’s Complicated.**\
+`New data have prompted questions about changes in teens’ sexual orientations. But researchers disagree on how much the numbers can really tell us.`\
+https://www.nytimes.com/2026/10/23/science/lgbt-teens-identification.html
+
 **Why Anger About Data Centers and Energy Prices May Not Swing Votes**\
 `In Ohio, many voters say their frustration about the increase in electricity and fuel prices and the growth of data centers won’t influence whom they vote for.`\
 https://www.nytimes.com/2026/10/23/business/energy-environment/ohio-election-gas-prices.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
 **How to Write a Great Letter**\
 `An expert in correspondence shares how to craft letters with impact for both the sender and the recipient.`\
 https://www.nytimes.com/2026/10/23/well/letter-writing-tips.html
-
-**Where Brazil’s Left Is Losing Voters**\
-`Far from Rio and São Paulo, small towns like Nanuque, with big agricultural businesses and a surging evangelical Christian movement, are swinging to the right.`\
-https://www.nytimes.com/video/world/americas/100000011230998/brazil-nanuque-election-shift.html
 

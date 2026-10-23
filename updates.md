@@ -1,3 +1,27 @@
+**Why Anger About Data Centers and Energy Prices May Not Swing Votes**\
+`In Ohio, many voters say their frustration about the increase in electricity and fuel prices and the growth of data centers won’t influence whom they vote for.`\
+https://www.nytimes.com/2026/10/23/business/energy-environment/ohio-election-gas-prices.html
+
+**Flashback: Your Weekly History Quiz, Oct. 24, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/23/upshot/flashback.html
+
+**U.S. Government Takes a Cut of Chip Business in Japan-Funded Deal**\
+`President Trump’s novel deal-making is on display in upstate New York, where the administration is funneling Japanese funds into a government-owned chip factory.`\
+https://www.nytimes.com/2026/10/23/business/economy/us-japan-chip-deal.html
+
+**Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
+`Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
+https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
+
+**Apple’s Foldable iPhone Duo Arrives in Stores: Smartphone Review**\
+`The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
+https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
+
+**Gunmen Open Fire at Church in Jordan, Killing at Least Seven**\
+`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s police chief.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
+
 **A Fight Over Felon Voting Prompts a Free Speech Debate**\
 `A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
 https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
