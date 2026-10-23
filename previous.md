@@ -1,3 +1,7 @@
+**Who is the Understudy for the Understudies?**\
+`A day in the life of a Broadway “swing” requires knowing the choreography and the harmonies for the whole show. And sometimes, a swing even gets onstage.`\
+https://www.nytimes.com/interactive/2026/10/22/nyregion/new-york-at-work-broadway-swing.html
+
 **Ocasio-Cortez Says Democrats Should Stand Up for Trans Americans**\
 `At an event in Maine, an audience member told the New York progressive that “a lot of trans people in America feel that we have been abandoned by the Democratic Party.”`\
 https://www.nytimes.com/2026/10/22/us/aoc-trans-rights-democrats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-pl
 **What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
 `President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
 https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
-
-**I Made You a Soup Bucket List**\
-`Cabbage lentil, tomato-orzo, coconut black bean and more.`\
-https://www.nytimes.com/2026/10/22/dining/i-made-you-a-soup-bucket-list.html
 

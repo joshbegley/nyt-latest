@@ -1,3 +1,7 @@
+**Who is the Understudy for the Understudies?**\
+`A day in the life of a Broadway “swing” requires knowing the choreography and the harmonies for the whole show. And sometimes, a swing even gets onstage.`\
+https://www.nytimes.com/interactive/2026/10/22/nyregion/new-york-at-work-broadway-swing.html
+
 **Trump Administration Asks Appeals Court to Intervene in California Mail Ballot Suit**\
 `The Justice Department sought to jump-start a lawsuit aimed at compelling the state to not count as many as 20,000 mail ballots it claims were sent to noncitizens.`\
 https://www.nytimes.com/2026/10/22/us/politics/trump-california-mail-ballot-lawsuit.html
