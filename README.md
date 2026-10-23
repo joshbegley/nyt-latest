@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-
 https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
 
 **Gunmen Open Fire at Church in Jordan, Killing Several People**\
-`The attack took place during a funeral in the southern province of Karak, according to Jordan’s state broadcaster.`\
+`The attack took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. Security forces are pursuing the gunmen, the state broadcaster reported.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
 
 **Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
