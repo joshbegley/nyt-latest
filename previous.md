@@ -1,3 +1,7 @@
+**Dale Brown Has Died. As L.S.U. Coach, He Discovered Shaquille O’Neal.**\
+`A fierce critic of the N.C.A.A., he twice took Louisiana State to the Final Four. He was 90.`\
+https://www.nytimes.com/2026/10/23/sports/dale-brown-dead.html
+
 **Two Former F.B.I. Officials Charged With False Statements About Hunter Biden**\
 `The charges intensified the administration’s efforts to go after the law enforcement and intelligence personnel who cast doubt on unsubstantiated claims that Joseph R. Biden Jr. engaged in corrupt dealings in Ukraine.`\
 https://www.nytimes.com/2026/10/23/us/politics/hunter-biden-ex-fbi-officials-charged.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-
 **Jonathan Groff Heads to Broadway in ‘Amish Project,’ a Play About a School Shooting**\
 `“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
 https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
-
-**Gunmen Open Fire at Church in Jordan, Killing at Least Seven**\
-`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s police chief.`\
-https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
 
