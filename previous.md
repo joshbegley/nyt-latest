@@ -1,3 +1,7 @@
+**Who Is Ahead in Idaho's 2nd Congressional District?**\
+`Track the latest polls in Idaho's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/idaho-us-house-2-polls-2026.html
+
 **Ahead of Tight Race, Trump Exempts Some Canadian Goods From Tariffs**\
 `The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
 https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
 **One Killed Near Paris After Gunman Fires at Random, Officials Say**\
 `The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
 https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
-
-**Americans Are Struggling to Pay Rising Medical Costs**\
-`Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
-https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
 

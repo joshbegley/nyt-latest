@@ -1,3 +1,7 @@
+**Who Is Ahead in Idaho's 2nd Congressional District?**\
+`Track the latest polls in Idaho's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/idaho-us-house-2-polls-2026.html
+
 **Ahead of Tight Race, Trump Exempts Some Canadian Goods From Tariffs**\
 `The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
 https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html

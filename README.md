@@ -1,3 +1,7 @@
+**Is There a Post-Partisan Way to Win in Texas? Gina Hinojosa Is Betting on It.**\
+`The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in “the culture wars.”`\
+https://www.nytimes.com/video/podcasts/100000011212001/is-there-a-post-partisan-way-to-win-in-texas-gina-hinojosa-is-betting-on-it.html
+
 **Who Is Ahead in Idaho's 2nd Congressional District?**\
 `Track the latest polls in Idaho's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-2-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/us/trump-bbc-lawsuit-deposition.html
 **Chimps Steal Less Often From Their Friends, Even When Offered Pineapple**\
 `The discovery may hint at the roots of human norms around fairness and friendship.`\
 https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
-
-**One Killed Near Paris After Gunman Fires at Random, Officials Say**\
-`The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
-https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
 
