@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/10/23/podcasts/the-daily/black-representation-voter
 https://www.nytimes.com/2026/10/23/crosswords/strands-sidekick-965.html
 
 **Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
-`The Israeli military said two soldiers had been killed, and Prime Minister Benjamin Netanyahu threatened to launch a major offensive in the Israeli-occupied territory.`\
+`The Israeli military said two soldiers and two attackers had been killed, and Prime Minister Benjamin Netanyahu vowed to launch a major offensive in the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
 
