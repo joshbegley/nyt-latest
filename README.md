@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/10/23/movies/five-science-fiction-movies-to-stream-
 `It’s not impossible to spot the characteristics of a brewing financial crisis. We can look to 2008 for clues.`\
 https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
 
-**Finland’s Puppy Livestream Provides Comfort in Troubled Times**\
-`“Puppy Live,” a round-the-clock livestream of a litter, has become a national phenomenon. “Nothing bad happens in the puppy box,” one fan explained.`\
-https://www.nytimes.com/2026/10/23/world/europe/finland-puppies-livestream-slow-tv.html
+**Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/23/us/midterm-elections-trump
 
