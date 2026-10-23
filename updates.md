@@ -1,3 +1,7 @@
+**Most Voters Believe the Midterm Elections Will Be Accurate, Poll Finds**\
+`But about half expressed concerns that Republicans could try to overturn the results, a New York Times/Siena poll found.`\
+https://www.nytimes.com/2026/10/23/us/politics/election-integrity-trust-poll.html
+
 **What’s the Deal With Billy Evans? A Spoiler-Filled Guide to ‘You Can See Everything’**\
 `“You shouldn’t overbeat scrambled eggs.”`\
 https://www.nytimes.com/2026/10/23/podcasts/hardfork-billy-evans-holmes.html
