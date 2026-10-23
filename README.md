@@ -1,3 +1,7 @@
+**Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
+`The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
+https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
+
 **Are Fewer Teens Identifying as Gay or Bisexual? It’s Complicated.**\
 `New data have prompted questions about changes in teens’ sexual orientations. But researchers disagree on how much the numbers can really tell us.`\
 https://www.nytimes.com/2026/10/23/science/lgbt-teens-identification.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/podcasts/inside-life-surge-mother-jones-kiera
 **The Meaning of the Republican War Over Ramaswamy’s Vile Ad**\
 `The G.O.P. nominee in Ohio has given conservatives space to reckon with the ethical degradation of Trumpism.`\
 https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
-
-**How to Write a Great Letter**\
-`An expert in correspondence shares how to craft letters with impact for both the sender and the recipient.`\
-https://www.nytimes.com/2026/10/23/well/letter-writing-tips.html
 
