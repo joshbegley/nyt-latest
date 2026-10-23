@@ -1,3 +1,15 @@
+**Justice Dept. Moves to Block Certification of Alaska Senate Race Results if Republican Loses**\
+`The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
+https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
+
+**Israel to Hold First Election Since Oct. 7 Attack**\
+`Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
+https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
+
+**Global Oil Price Hits $117 a Barrel, Highest Since April**\
+`Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
+https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
+
 **Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
 `The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
 https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
