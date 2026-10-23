@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Your Exercise I.Q.**\
+`What is your relationship with fitness? How much do you think you know about the best ways to work out?`\
+https://www.nytimes.com/2026/10/23/learning/15-minute-lesson-plan-your-exercise-iq.html
+
 **Trump Says Musk Has Restored Ukraine’s Access to Starshield**\
 `President Trump said on Thursday that Elon Musk had put the Starshield satellite communications network back online in Ukraine.`\
 https://www.nytimes.com/video/us/politics/100000011232054/starshield-ukraine-musk-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboar
 **Iran Mocks Trump With Billboard Featuring Impersonator**\
 `Iran has a long history of using billboards for messaging, but this piece of performance propaganda is perhaps the most eccentric yet. A live impersonator of President Trump locked in a jail cell is attached to the billboard.`\
 https://www.nytimes.com/video/world/middleeast/100000011230015/donald-trump-billboard-iran-tehran.html
-
-**17-Year-Old Charged With Murder in Midtown Subway Station Shooting**\
-`The teenage boy was arrested on Thursday in connection with the killing of Darrel Rodriguez, a security guard, in a fight on an E train platform.`\
-https://www.nytimes.com/2026/10/22/nyregion/nyc-subway-shooting-arrest.html
 

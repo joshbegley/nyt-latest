@@ -1,3 +1,7 @@
+**Trump Says Musk Has Restored Ukraine’s Access to Starshield**\
+`President Trump said on Thursday that Elon Musk had put the Starshield satellite communications network back online in Ukraine.`\
+https://www.nytimes.com/video/us/politics/100000011232054/starshield-ukraine-musk-trump.html
+
 **Deadly 7.0-Magnitude Quake Hits Tibet**\
 `Video footage released by Chinese state media showed people fleeing and items falling from shelves as a deadly 7.0-magnitude earthquake hit Tibet.`\
 https://www.nytimes.com/video/world/asia/100000011231917/tibet-earthquake-damage.html
