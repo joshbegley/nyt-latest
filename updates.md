@@ -1,3 +1,7 @@
+**Ahead of Tight Race, Trump Exempts Some Canadian Goods From Tariffs**\
+`The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
+https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html
+
 **The Financial Woes of a MAGA Bank Entangle 2 G.O.P. Candidates**\
 `Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
 https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html

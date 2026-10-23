@@ -1,3 +1,7 @@
+**Ahead of Tight Race, Trump Exempts Some Canadian Goods From Tariffs**\
+`The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
+https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html
+
 **The Financial Woes of a MAGA Bank Entangle 2 G.O.P. Candidates**\
 `Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
 https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
 **Americans Are Struggling to Pay Rising Medical Costs**\
 `Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
 https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
-
-**Big Names Flock to Ruby-Red Florida to Sway Voters in Unexpectedly Close Contests**\
-`President Trump will rally on Friday in a Republican state where Democrats have their eye on several House races.`\
-https://www.nytimes.com/2026/10/23/us/politics/florida-republicans-midterms-.html
 
