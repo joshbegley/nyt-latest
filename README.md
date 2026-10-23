@@ -1,3 +1,7 @@
+**France Plans to Bolster Police Presence, Expecting New Protests**\
+`Government officials are trying to avoid a repeat of last weekend’s unrest across the country, which injured police officers and damaged stores.`\
+https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
+
 **Review of iPhone Duo: A New Chapter That Redefines a Smartphone’s Purpose**\
 `The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
 https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/opinion/ilhan-omar-trump-citizenship.html
 **A Simple Way to Benefit From Rising Rates: Buy Money Market Funds**\
 `While higher interest rates are a complication for stocks and bonds, they are an unequivocal boon if you just want to park some cash and make a little money, our columnist says.`\
 https://www.nytimes.com/2026/10/23/business/interest-rates-money-market-funds-stocks-bonds.html
-
-**Does Congress Need to Approve the Arch? Trump Says It Did 100 Years Ago.**\
-`The administration says the arch fulfills the “historic design intent” of a proposal from the 1920s. But does it honor history or flout it?`\
-https://www.nytimes.com/2026/10/23/upshot/arch-trump-washington-history.html
 

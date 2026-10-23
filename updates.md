@@ -1,3 +1,7 @@
+**Trump’s Tariffs Slow America’s Access to Canada’s Cheese**\
+`Just as they were finding a toehold stateside, artisanal producers got caught in a trade war.`\
+https://www.nytimes.com/2026/10/23/dining/canada-cheese-trump-tariffs.html
+
 **Review of iPhone Duo: A New Chapter That Redefines a Smartphone’s Purpose**\
 `The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
 https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
