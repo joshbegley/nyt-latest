@@ -1,3 +1,11 @@
+**Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
+`Five people were wounded in the attack, days before national elections, health workers said. The Israeli military said its soldiers had killed two of the assailants.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
+
+**How Long Will Russians Put Up With War? Here’s What They Told Us.**\
+`“Everything is fine” is a common refrain in a country used to adapting to a new normal.`\
+https://www.nytimes.com/2026/10/23/world/europe/russia-ukraine-public-opinion.html
+
 **Following the Money Inside Life Surge, With Mother Jones**\
 `Its Hall-of-Fame speakers may be vanishing, but this apparent “scam” continues to pitch financial salvation.`\
 https://www.nytimes.com/2026/10/23/podcasts/inside-life-surge-mother-jones-kiera-butler.html
