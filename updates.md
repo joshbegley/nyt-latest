@@ -1,3 +1,7 @@
+**You Are Being Watched**\
+`Especially on the southern border.`\
+https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
+
 **Most Voters Believe the Midterm Elections Will Be Accurate, Poll Finds**\
 `But about half expressed concerns that Republicans could try to overturn the results, a New York Times/Siena poll found.`\
 https://www.nytimes.com/2026/10/23/us/politics/election-integrity-trust-poll.html
