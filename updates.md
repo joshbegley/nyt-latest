@@ -1,3 +1,15 @@
+**Should Horse-Drawn Carriages Be Banned in New York City?**\
+`Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
+https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
+
+**Collins Ad Blasts Maine Opponent for ‘Shut Up’ Comment**\
+`The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
+https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
+
+**Nearly 2 Years After the Fires, L.A. Mayor Fights for Her Political Life**\
+`Karen Bass, who has never lost an election, has struggled to recapture the city’s faith since the devastating wildfires that erupted in 2025.`\
+https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
+
 **Israeli Settlers Turn a Palestinian Rite Into a Gantlet of Violence and Fear**\
 `This year’s olive harvest in the Israeli-occupied West Bank is the most violent in years, as settlers have attacked farmers and besieged homes, drawing condemnation from U.S. officials and others.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestinians-harvest.html
