@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Your Exercise I.Q.**\
+`What is your relationship with fitness? How much do you think you know about the best ways to work out?`\
+https://www.nytimes.com/2026/10/23/learning/15-minute-lesson-plan-your-exercise-iq.html
+
 **Trump Says Musk Has Restored Ukraine’s Access to Starshield**\
 `President Trump said on Thursday that Elon Musk had put the Starshield satellite communications network back online in Ukraine.`\
 https://www.nytimes.com/video/us/politics/100000011232054/starshield-ukraine-musk-trump.html
