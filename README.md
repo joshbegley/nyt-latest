@@ -1,3 +1,7 @@
+**New York City Passes Horse Carriage Ban**\
+`The New York City Council on Thursday passed a bill that bans horse-drawn carriages from operating in the city after June 2028.`\
+https://www.nytimes.com/video/us/100000011231690/new-york-city-passes-horse-carriage-ban.html
+
 **The Ad Dividing the Republican Party**\
 `Trump got behind a much-criticized spot in the Ohio governor’s race.`\
 https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/business/mortgage-rates-housing-costs.html
 **Is Citizens United to Blame for Everything?**\
 `Plus: The justices’ book deals mean the court can’t rule on cases involving a media conglomerate.`\
 https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusals.html
-
-**What Is PHP? Why Are Government and Business Websites Going Offline?**\
-`A critical security flaw in the programming language underpinning much of the web has prompted a global rush to patch vulnerable systems.`\
-https://www.nytimes.com/2026/10/22/technology/what-is-php-vulnerability-risks.html
 
