@@ -1,3 +1,31 @@
+**Share Your Experiences With Medicaid Claims for Repayment**\
+`The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
+https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
+
+**How a U.K. Official’s Wife Set Off a Debate Over Free Speech and Palestinians**\
+`Sarah Helm, who is married to Britain’s national security adviser, posted of her support for the author Sally Rooney and a banned pro-Palestinian activist group. A furor ensued.`\
+https://www.nytimes.com/2026/10/23/world/europe/uk-powell-sarah-helm-palestine.html
+
+**Is Everything Expensive?**\
+`We look at how much prices have risen.`\
+https://www.nytimes.com/2026/10/23/briefing/is-everything-expensive.html
+
+**Nathan Fielder and Lance Oppenheim’s ‘You Can See Everything’ and the Role of the Watcher**\
+`There is artifice present in any work of nonfiction, and in every aspect of our lives.`\
+https://www.nytimes.com/2026/10/23/opinion/you-can-see-everything-janet-malcolm.html
+
+**How Patricia Highsmith Came to Star in a Ripley-esque Movie**\
+`“A Talent for Murder” turns the novelist into a suspicious character in a psychological thriller. The author’s caustic personality makes the leap plausible.`\
+https://www.nytimes.com/2026/10/23/movies/patricia-highsmith-a-talent-for-murder-helen-mirren.html
+
+**Put Cottage Cheese in Your Meatballs**\
+`And the most popular recipes from the week.`\
+https://www.nytimes.com/2026/10/23/dining/put-cottage-cheese-in-your-meatballs.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, alien encounters, sinister deepfakes, fantastical time loops and postapocalyptic woe.`\
+https://www.nytimes.com/2026/10/23/movies/five-science-fiction-movies-to-stream-now.html
+
 **How Worried Should We Be About the Economy? Let’s Look at 2008.**\
 `It’s not impossible to spot the characteristics of a brewing financial crisis. We can look to 2008 for clues.`\
 https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
