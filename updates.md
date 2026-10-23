@@ -1,3 +1,11 @@
+**You Are Being Watched**\
+`Especially on the Southern border.`\
+https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
+
+**Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
+`Five people were wounded in the attack, days before national elections, health workers said. The Israeli military said its soldiers had killed two assailants.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
+
 **The Meaning of the Republican War Over Ramaswamy’s Vile Ad**\
 `The G.O.P. nominee in Ohio has given conservatives space to reckon with the ethical degradation of Trumpism.`\
 https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
