@@ -1,3 +1,11 @@
+**The Financial Woes of a MAGA Bank Entangle 2 G.O.P. Candidates**\
+`Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
+https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html
+
+**Trump Advisers Give Fees Earned for Aiding Srpska to His Library**\
+`The donations from James Blair and Chris LaCivita were revealed after the president expressed pique over their consulting work for Republika Srpska.`\
+https://www.nytimes.com/2026/10/23/us/politics/trump-srpska-donations-library.html
+
 **Dale Brown Has Died. As L.S.U. Coach, He Discovered Shaquille O’Neal.**\
 `A fierce critic of the N.C.A.A., he twice took Louisiana State to the Final Four. He was 90.`\
 https://www.nytimes.com/2026/10/23/sports/dale-brown-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
 **Big Names Flock to Ruby-Red Florida to Sway Voters in Unexpectedly Close Contests**\
 `President Trump will rally on Friday in a Republican state where Democrats have their eye on several House races.`\
 https://www.nytimes.com/2026/10/23/us/politics/florida-republicans-midterms-.html
-
-**Roy Cooper Has Never Lost an Election. Can He Flip North Carolina’s Senate Seat?**\
-`North Carolina has not elected a Democrat to the Senate since 2008. Can Roy Cooper break that spell?`\
-https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-election.html
-
-**Jonathan Groff Heads to Broadway in ‘Amish Project,’ a Play About a School Shooting**\
-`“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
-https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
 
