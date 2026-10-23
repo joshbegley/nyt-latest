@@ -1,3 +1,7 @@
+**Is There a Post-Partisan Way to Win in Texas? Gina Hinojosa Is Betting on It.**\
+`The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in “the culture wars.”`\
+https://www.nytimes.com/video/podcasts/100000011212001/is-there-a-post-partisan-way-to-win-in-texas-gina-hinojosa-is-betting-on-it.html
+
 **Who Is Ahead in Idaho's 2nd Congressional District?**\
 `Track the latest polls in Idaho's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-2-polls-2026.html

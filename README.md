@@ -1,3 +1,11 @@
+**The Core Appeal of ‘America First’**\
+`What is the core appeal of “America first” for swing voters? The political consultant Sarah Longwell tells the Opinion columnist Ezra Klein that voters aren’t driven by ideology; they just want a government that prioritizes their everyday economic needs at home.`\
+https://www.nytimes.com/video/opinion/100000011225553/the-core-appeal-of-america-first.html
+
+**How Jon Ossoff Broke Through Trump’s ‘White Noise’**\
+`How do you break through the noise to make the corruption case against Trump? The political consultant Sarah Longwell says that Democrats can learn a lesson from Jon Ossoff’s step-by-step storytelling on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011225549/how-jon-ossoff-broke-through-trumps-white-noise.html
+
 **Is There a Post-Partisan Way to Win in Texas? Gina Hinojosa Is Betting on It.**\
 `The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in “the culture wars.”`\
 https://www.nytimes.com/video/podcasts/100000011212001/is-there-a-post-partisan-way-to-win-in-texas-gina-hinojosa-is-betting-on-it.html
@@ -94,7 +102,7 @@ https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-s
 `Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
 https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
 
-**Global Oil Price Hits $117 a Barrel, Highest Since April**\
+**Global Oil Price Hits $116 a Barrel, Highest Since April**\
 `Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
 https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tab
 **Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
 `Wisconsin’s Republican candidate for governor, Tom Tiffany, is talking about nearly anything but President Trump. And as Republicans watch Mr. Trump’s approval ratings plummet, he is hardly alone.`\
 https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
-
-**Judge Orders Trump to Sit for Deposition in BBC Defamation Case**\
-`Lawyers for the BBC had accused the president of delaying his testimony in the case he brought.`\
-https://www.nytimes.com/2026/10/23/us/trump-bbc-lawsuit-deposition.html
-
-**Chimps Steal Less Often From Their Friends, Even When Offered Pineapple**\
-`The discovery may hint at the roots of human norms around fairness and friendship.`\
-https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
 
