@@ -1,3 +1,7 @@
+**NASA Is Still Aiming for the Next Moon Landing in 2028**\
+`Administrator Jared Isaacman said that the space agency was exploring ways to keep Artemis III on target without compromising safety.`\
+https://www.nytimes.com/2026/10/23/science/space/nasa-artemis-program-update.html
+
 **What to Know About Alaska’s Senate Race**\
 `President Trump told the Justice Department to intervene in the race, where polling shows Republicans at risk of losing a seat.`\
 https://www.nytimes.com/2026/10/23/us/politics/alaska-senate-race-explainer.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/23/business/economy/us-japan-chip-deal.html
 **Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
 `Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
 https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
-
-**Share Your Experiences With Medicaid Claims for Repayment**\
-`The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
-https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
 
 **Eyeing Return to Power, Democrats Are Crafting a Plan to Dismantle Trump’s Agenda**\
 `(No description)`\

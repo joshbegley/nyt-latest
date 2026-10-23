@@ -1,3 +1,11 @@
+**What to Know About Alaska’s Senate Race**\
+`President Trump told the Justice Department to intervene in the race, where polling shows Republicans at risk of losing a seat.`\
+https://www.nytimes.com/2026/10/23/us/politics/alaska-senate-race-explainer.html
+
+**iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
+`Fans lined up for hours outside Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
+https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
+
 **France’s Avoids a Debt Downgrade From Moody’s, but Is Given a Warning**\
 `Moody’s held the country’s credit rating steady amid political uncertainty and a rise in borrowing costs that have worsened France’s debt situation.`\
 https://www.nytimes.com/2026/10/23/business/france-debt-moodys-protests.html
