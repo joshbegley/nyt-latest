@@ -1,3 +1,15 @@
+**Why the White House Won’t Say ‘A.I.’**\
+`Scary, inspiring or just plain weird? The “Interesting Times” guest host Tyler Cowen asks Trump’s top science adviser, Michael Kratsios, why the White House is rebranding A.I. as “superintelligence.”`\
+https://www.nytimes.com/video/opinion/100000011225446/why-the-white-house-wont-say-ai.html
+
+**America Has a STEM Problem**\
+`Are we ignoring America’s STEM pipeline? Trump’s top science adviser, Michael Kratsios, makes the case on “Interesting Times” for investment in home-grown scientists over highly skilled immigrants.`\
+https://www.nytimes.com/video/opinion/100000011225443/america-has-a-stem-problem.html
+
+**Late Night Dunks on Trump for Planning to Rename an Ocean**\
+`“Once again, 12 days before this election, it’s good to see him locked in on the really big issues,” Jimmy Fallon said on “The Tonight Show.”`\
+https://www.nytimes.com/2026/10/23/arts/television/late-night-trump-ocean.html
+
 **The Most Important Factory in America**\
 `America is figuring out the trick to reindustrialization, if it can learn the right lessons.`\
 https://www.nytimes.com/2026/10/23/opinion/ai-computer-chips-semiconductor-arizona-industry.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
 **Cancer Vaccine Cuts the Risk of Melanoma Recurrence, Merck and Moderna Report**\
 `Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
 https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
-
-**Justice Dept. Opens Inquiry Into Corey Lewandowski**\
-`The details of the inquiry remain unclear, but it is one of the rare instances in which a Trump ally or appointee has been investigated for potential wrongdoing during the president’s second term.`\
-https://www.nytimes.com/2026/10/22/us/politics/corey-lewandowski-justice-dept-inquiry.html
-
-**Tom Skerritt, Who Had Key Roles in ‘Picket Fences’ and ‘Top Gun,’ Dies at 93**\
-`His rugged good looks, commanding presence and versatility led to key roles in “M*A*S*H” and “Steel Magnolias,” and he won an Emmy on “Picket Fences.”`\
-https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
-
-**Where to Buy Candy in New York City**\
-`Three candy shops to stock up on sweets for Halloween (and the rest of the year).`\
-https://www.nytimes.com/2026/10/22/dining/candy-shops.html
 
