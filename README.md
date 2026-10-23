@@ -1,3 +1,7 @@
+**Chimps Steal Less Often From Their Friends, Even When Offered Pineapple**\
+`The discovery may hint at the roots of human norms around fairness and friendship.`\
+https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
+
 **One Killed Near Paris After Gunman Fires at Random, Officials Say**\
 `The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
 https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/realestate/choose-your-favorite-2-million-hom
 **The Michigan Senate Race Keeps Getting Nastier**\
 `Supporters of Mike Rogers, the Republican candidate, have described his Democratic opponent, Dr. Abdul El-Sayed, as un-American and worse.`\
 https://www.nytimes.com/2026/10/23/us/rogers-michigan-republican-senate.html
-
-**Trump’s Plan to Import More Ground Beef Is Falling Short**\
-`About a fifth of the 300,000 metric tons of lean beef trimmings have come through customs, six weeks through a program designed to lower prices.`\
-https://www.nytimes.com/2026/10/23/business/trump-ground-beef-imports.html
 
