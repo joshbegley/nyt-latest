@@ -1,3 +1,7 @@
+**Yes, Mamdani Installed Bidets in Gracie Mansion**\
+`The mayor paid for the $24 toilet attachments at Gracie Mansion out of his own pocket, his office said. Bidets have been proliferating in American homes.`\
+https://www.nytimes.com/2026/10/23/nyregion/bidets-zohran-mamdani-gracie-mansion.html
+
 **Judge Denies Medical Release for N.Y.C. Man Shot by ICE**\
 `Oscar Belgal, a Dominican immigrant, was shot in the neck on Oct. 8 and detained at a federal prison. His lawyers had said he needed outside medical care.`\
 https://www.nytimes.com/2026/10/23/nyregion/ice-shooting-oscar-belgal-judge-ruling.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/23/briefing/is-everything-expensive.html
 **Nathan Fielder and Lance Oppenheim’s ‘You Can See Everything’ and the Role of the Watcher**\
 `There is artifice present in any work of nonfiction, and in every aspect of our lives.`\
 https://www.nytimes.com/2026/10/23/opinion/you-can-see-everything-janet-malcolm.html
-
-**How Patricia Highsmith Came to Star in a Ripley-esque Movie**\
-`“A Talent for Murder” turns the novelist into a suspicious character in a psychological thriller. The author’s caustic personality makes the leap plausible.`\
-https://www.nytimes.com/2026/10/23/movies/patricia-highsmith-a-talent-for-murder-helen-mirren.html
 
 **Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
 `(No description)`\

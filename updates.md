@@ -1,3 +1,7 @@
+**Yes, Mamdani Installed Bidets in Gracie Mansion**\
+`The mayor paid for the $24 toilet attachments at Gracie Mansion out of his own pocket, his office said. Bidets have been proliferating in American homes.`\
+https://www.nytimes.com/2026/10/23/nyregion/bidets-zohran-mamdani-gracie-mansion.html
+
 **Judge Denies Medical Release for N.Y.C. Man Shot by ICE**\
 `Oscar Belgal, a Dominican immigrant, was shot in the neck on Oct. 8 and detained at a federal prison. His lawyers had said he needed outside medical care.`\
 https://www.nytimes.com/2026/10/23/nyregion/ice-shooting-oscar-belgal-judge-ruling.html
