@@ -1,3 +1,7 @@
+**Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/23/us/midterm-elections-trump
+
 **‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\
 `Kaylub Giamanco told Oregon Public Broadcasting that he happened to be driving by the Silver Rail Elementary School in Bend when he saw a gunman preparing to enter the school.`\
 https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.html
