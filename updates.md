@@ -1,3 +1,7 @@
+**Campaigns Spend Over $1 Billion Over Two Weeks in Final Search for Votes**\
+`Fueled by tens of millions from Elon Musk, President Trump’s super PAC, Michael Bloomberg and other big donors, both parties are pumping enormous amounts into the final days of the midterms.`\
+https://www.nytimes.com/2026/10/23/us/midterm-campaign-finance.html
+
 **Republicans Cut Taxes to Win the Midterms. It May Not Work Out.**\
 `Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
 https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html

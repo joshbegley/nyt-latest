@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/10/23/pageoneplus/corrections-oct-23-2026.html
 `Leigh Bardugo and Paul Tremblay share the books that scared them as kids, the stories that still unnerve them and their recommendations for readers new to horror.`\
 https://www.nytimes.com/2026/10/23/podcasts/what-to-read-this-halloween.html
 
-**In Final Surge of Vast Midterm Spending, Parties Make Last-Ditch Appeals**\
-`A remarkable $1.4 billion worth of political ads are scheduled to air over the final two weeks as the parties fight for control of Congress.`\
+**Campaigns Spend Over $1 Billion Over Two Weeks in Final Search for Votes**\
+`Fueled by tens of millions from Elon Musk, President Trump’s super PAC, Michael Bloomberg and other big donors, both parties are pumping enormous amounts into the final days of the midterms.`\
 https://www.nytimes.com/2026/10/23/us/midterm-campaign-finance.html
 
 **Most Voters Believe the Midterm Elections Will Be Accurate, Poll Finds**\
