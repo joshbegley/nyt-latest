@@ -1,3 +1,7 @@
+**You Are Being Watched**\
+`Especially on the Southern border.`\
+https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
+
 **Today’s Wordle Answers for October 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
 https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/books/review/daniel-nayeri-this-is-a-door-kid
 **Word of the Day: matinee**\
 `This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/23/learning/word-of-the-day-matinee.html
-
-**When the Family Beach House Becomes a Point of Tension**\
-`A record percentage of U.S. property transfers last year were through inheritance, but taking over a home with sentimental value can be fraught.`\
-https://www.nytimes.com/2026/10/23/realestate/when-the-family-beach-house-becomes-a-point-of-tension.html
 
