@@ -1,3 +1,19 @@
+**Americans Are Struggling to Pay Rising Medical Costs**\
+`Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
+https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
+
+**Big Names Flock to Ruby-Red Florida to Sway Voters in Unexpectedly Close Contests**\
+`President Trump will rally on Friday in a Republican state where Democrats have their eye on several House races.`\
+https://www.nytimes.com/2026/10/23/us/politics/florida-republicans-midterms-.html
+
+**Roy Cooper Has Never Lost an Election. Can He Flip North Carolina’s Senate Seat?**\
+`North Carolina has not elected a Democrat to the Senate since 2008. Can Roy Cooper break that spell?`\
+https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-election.html
+
+**Jonathan Groff Heads to Broadway in ‘Amish Project,’ a Play About a School Shooting**\
+`“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
+https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
+
 **Gunmen Open Fire at Church in Jordan, Killing Several People**\
 `The attack took place during a funeral in the southern province of Karak, according to Jordan’s state broadcaster.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
