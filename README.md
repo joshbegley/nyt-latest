@@ -1,3 +1,7 @@
+**Is This Economy Trump’s Fault?**\
+`Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
+https://www.nytimes.com/video/opinion/100000011225115/is-this-economy-trumps-fault.html
+
 **15-Minute Lesson Plan: Your Exercise I.Q.**\
 `What is your relationship with fitness? How much do you think you know about the best ways to work out?`\
 https://www.nytimes.com/2026/10/23/learning/15-minute-lesson-plan-your-exercise-iq.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/us/bard-college-forensic-cybersecurity-epstei
 **Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
 `The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
 https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html
-
-**Iran Mocks Trump With Billboard Featuring Impersonator**\
-`Iran has a long history of using billboards for messaging, but this piece of performance propaganda is perhaps the most eccentric yet. A live impersonator of President Trump locked in a jail cell is attached to the billboard.`\
-https://www.nytimes.com/video/world/middleeast/100000011230015/donald-trump-billboard-iran-tehran.html
 
