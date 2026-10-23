@@ -1,3 +1,7 @@
+**New York at Work**\
+`A regular feature devoted to the not-so-small coterie of workers, largely unheralded, who make New York New York.`\
+https://www.nytimes.com/interactive/2026/nyregion/new-york-at-work.html
+
 **Pete Ricketts’s Wealth Puts Class at the Center of Nebraska’s Senate Race**\
 `In a year when the wealth of the rich soared while workers lost ground to inflation, class has become political, especially in the Nebraska Senate race.`\
 https://www.nytimes.com/2026/10/22/us/politics/pete-ricketts-billionaire-nebraska-senate-race.html
