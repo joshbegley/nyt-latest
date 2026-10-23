@@ -1,3 +1,11 @@
+**Ahead of Tight Race, Trump Swaps Tariffs on Some Canadian Goods**\
+`The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
+https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html
+
+**A MAGA Bank’s Financial Woes Entangle Vivek Ramaswamy and Rick Jackson**\
+`Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
+https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html
+
 **The Core Appeal of ‘America First’**\
 `What is the core appeal of “America first” for swing voters? The political consultant Sarah Longwell tells the Opinion columnist Ezra Klein that voters aren’t driven by ideology; they just want a government that prioritizes their everyday economic needs at home.`\
 https://www.nytimes.com/video/opinion/100000011225553/the-core-appeal-of-america-first.html

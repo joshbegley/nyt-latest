@@ -14,11 +14,11 @@ https://www.nytimes.com/video/podcasts/100000011212001/is-there-a-post-partisan-
 `Track the latest polls in Idaho's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/idaho-us-house-2-polls-2026.html
 
-**Ahead of Tight Race, Trump Exempts Some Canadian Goods From Tariffs**\
+**Ahead of Tight Race, Trump Swaps Tariffs on Some Canadian Goods**\
 `The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
 https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html
 
-**The Financial Woes of a MAGA Bank Entangle 2 G.O.P. Candidates**\
+**A MAGA Bank’s Financial Woes Entangle Vivek Ramaswamy and Rick Jackson**\
 `Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
 https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html
 
