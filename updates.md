@@ -1,3 +1,7 @@
+**The Meaning of the Republican War Over Ramaswamy’s Vile Ad**\
+`The G.O.P. nominee in Ohio has given conservatives space to reckon with the ethical degradation of Trumpism.`\
+https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
+
 **Today’s Wordle Answers for October 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
 https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
