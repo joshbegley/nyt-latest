@@ -1,3 +1,7 @@
+**New York at Work**\
+`A regular feature devoted to the not-so-small coterie of workers, largely unheralded, who make New York New York.`\
+https://www.nytimes.com/interactive/2026/nyregion/new-york-at-work.html
+
 **Pete Ricketts’s Wealth Puts Class at the Center of Nebraska’s Senate Race**\
 `In a year when the wealth of the rich soared while workers lost ground to inflation, class has become political, especially in the Nebraska Senate race.`\
 https://www.nytimes.com/2026/10/22/us/politics/pete-ricketts-billionaire-nebraska-senate-race.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/obituaries/jim-knipfel-dead.html
 **Ebola Outbreak in Africa Reaches Widest Expansion Ever**\
 `Health officials are urgently seeking answers about the origins of a case newly identified in Nigeria, the first in that West African nation.`\
 https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
-
-**‘Fatherland’ Review: Returning to a Divided Germany**\
-`Four years after World War II, the writer Thomas Mann returned to his birthplace with his daughter, played by Sandra Hüller in this luminous fictional account.`\
-https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
 
