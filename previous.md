@@ -1,3 +1,15 @@
+**Gunmen Open Fire at Church in Jordan, Killing Several People**\
+`The attack took place during a funeral in the southern province of Karak, according to Jordan’s state broadcaster.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
+
+**Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
+`The Swedish automaker plans to cut another 2,500 jobs, joining competitors in offering a gloomy view of the world’s biggest car market.`\
+https://www.nytimes.com/2026/10/23/business/volvo-china-2500-job-cuts.html
+
+**Ambush of Salvadoran Soldiers Escalates Haiti’s Anti-Gang Mission**\
+`With four soldiers missing, Haiti’s new Gang Suppression Force, already off to a rocky start, is facing its first crisis.`\
+https://www.nytimes.com/2026/10/23/world/americas/el-salvador-military-haiti-gangs.html
+
 **Would Your Life Make a Good Documentary?**\
 `TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
 https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/23/arts/call-of-duty-modern-modern-warfare-korea
 **In ‘One in a Million,’ the Extraordinary Story of a Family in Flux**\
 `The film follows a girl and her parents after they flee Syria and settle in Germany, where the new culture is the catalyst for unexpected change.`\
 https://www.nytimes.com/2026/10/23/movies/in-one-in-a-million-the-extraordinary-story-of-a-family-in-flux.html
-
-**Where Amy Winehouse Made Her Mark, Fans Celebrate 20 Years of ‘Back to Black’**\
-`For many, the album gave voice to their own struggles. On Wednesday night, a tribute gig in the singer’s London neighborhood proved the music still holds sway.`\
-https://www.nytimes.com/2026/10/23/arts/music/amy-winehouse-back-to-black-anniversary-concert-london.html
-
-**Book Review: ‘Sleuth-Hound,’ by Lindsey Fitzharris**\
-`A probing, excellent account of one crusading medical professor explores the humanity behind literature’s master of deduction.`\
-https://www.nytimes.com/2026/10/23/books/review/lindsey-fitzharris-sleuth-hound-the-case-of-the-real-sherlock-holmes.html
-
-**At Rikers, Inmates See Themselves in a Film About America’s Jails**\
-`Residents of one of the country’s most troubled facilities were given a preview of “Crime and Punishment in America,” a docuseries premiering on PBS next month.`\
-https://www.nytimes.com/2026/10/23/movies/rikers-island-film-crime-punishment.html
 

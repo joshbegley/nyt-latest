@@ -1,3 +1,19 @@
+**Americans Are Struggling to Pay Rising Medical Costs**\
+`Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
+https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
+
+**Big Names Flock to Ruby-Red Florida to Sway Voters in Unexpectedly Close Contests**\
+`President Trump will rally on Friday in a Republican state where Democrats have their eye on several House races.`\
+https://www.nytimes.com/2026/10/23/us/politics/florida-republicans-midterms-.html
+
+**Roy Cooper Has Never Lost an Election. Can He Flip North Carolina’s Senate Seat?**\
+`North Carolina has not elected a Democrat to the Senate since 2008. Can Roy Cooper break that spell?`\
+https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-election.html
+
+**Jonathan Groff Heads to Broadway in ‘Amish Project,’ a Play About a School Shooting**\
+`“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
+https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
+
 **Gunmen Open Fire at Church in Jordan, Killing Several People**\
 `The attack took place during a funeral in the southern province of Karak, according to Jordan’s state broadcaster.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/23/business/trump-ground-beef-imports.html
 **Billy Corgan Unloads After a Lifetime of ‘Mocking, Bullying, Laughing’**\
 `The Smashing Pumpkins frontman discusses his embrace of pop stars like Sombr and Olivia Rodrigo, his passion for guitar rock and has a few choice words for those who dismissed it.`\
 https://www.nytimes.com/2026/10/23/arts/music/billy-corgan-smashing-pumpkins-popcast-interview.html
-
-**The High Line Unveils Its Newest Garden**\
-`After the landscape designer Piet Oudolf puts his finishing touches on a garden at 34th Street, the entire High Line will be open to visitors.`\
-https://www.nytimes.com/2026/10/23/realestate/the-high-line-unveils-its-newest-garden.html
-
-**What to Know Before Reading ‘A Court of Splintered Harmony,’ the Latest ACOTAR Book**\
-`After a five-year hiatus, Sarah J. Maas returns with the latest installment in her best-selling romantasy series.`\
-https://www.nytimes.com/2026/10/23/books/a-court-of-splintered-harmony-sarah-j-maas-acotar.html
-
-**Modern Warfare 4: Why Its Green Roofs Matter**\
-`North Korean defectors and South Korean developers helped ground this Call of Duty sequel about the Korean War.`\
-https://www.nytimes.com/2026/10/23/arts/call-of-duty-modern-modern-warfare-korea.html
-
-**In ‘One in a Million,’ the Extraordinary Story of a Family in Flux**\
-`The film follows a girl and her parents after they flee Syria and settle in Germany, where the new culture is the catalyst for unexpected change.`\
-https://www.nytimes.com/2026/10/23/movies/in-one-in-a-million-the-extraordinary-story-of-a-family-in-flux.html
 

@@ -1,3 +1,15 @@
+**Gunmen Open Fire at Church in Jordan, Killing Several People**\
+`The attack took place during a funeral in the southern province of Karak, according to Jordan’s state broadcaster.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
+
+**Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
+`The Swedish automaker plans to cut another 2,500 jobs, joining competitors in offering a gloomy view of the world’s biggest car market.`\
+https://www.nytimes.com/2026/10/23/business/volvo-china-2500-job-cuts.html
+
+**Ambush of Salvadoran Soldiers Escalates Haiti’s Anti-Gang Mission**\
+`With four soldiers missing, Haiti’s new Gang Suppression Force, already off to a rocky start, is facing its first crisis.`\
+https://www.nytimes.com/2026/10/23/world/americas/el-salvador-military-haiti-gangs.html
+
 **Would Your Life Make a Good Documentary?**\
 `TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
 https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
