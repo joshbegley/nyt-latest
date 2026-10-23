@@ -1,3 +1,7 @@
+**Should Horse-Drawn Carriages Be Banned in New York City?**\
+`Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
+https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
+
 **Collins Ad Blasts Maine Opponent for ‘Shut Up’ Comment**\
 `The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
 https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/podcasts/the-headlines/ai-cameras-border-town
 **NYT Connections Answers for October 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
 https://www.nytimes.com/2026/10/23/crosswords/connections-companion-1231.html
-
-**What Actually Happens on NFL Headsets?**\
-`Plus, chaos for the Los Angeles Rams.`\
-https://www.nytimes.com/2026/10/23/podcasts/what-actually-happens-on-nfl-headsets.html
 
