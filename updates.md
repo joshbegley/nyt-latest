@@ -1,3 +1,7 @@
+**New York City Passes Horse Carriage Ban**\
+`The New York City Council on Thursday passed a bill that bans horse-drawn carriages from operating in the city after June 2028.`\
+https://www.nytimes.com/video/us/100000011231690/new-york-city-passes-horse-carriage-ban.html
+
 **The Ad Dividing the Republican Party**\
 `Trump got behind a much-criticized spot in the Ohio governor’s race.`\
 https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
