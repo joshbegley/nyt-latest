@@ -1,3 +1,15 @@
+**Review of iPhone Duo: A New Chapter That Redefines a Smartphone’s Purpose**\
+`The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
+https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
+
+**Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
+`The Republican candidate for governor, Tom Tiffany, is best known as a staunch ally of the president. He’s trying to change that.`\
+https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
+
+**Judge Orders Trump to Sit for Deposition in BBC Defamation Case**\
+`Lawyers for the BBC had accused the president of delaying his testimony in the case he brought.`\
+https://www.nytimes.com/2026/10/23/us/trump-bbc-lawsuit-deposition.html
+
 **Chimps Steal Less Often From Their Friends, Even When Offered Pineapple**\
 `The discovery may hint at the roots of human norms around fairness and friendship.`\
 https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/23/business/interest-rates-money-market-funds-st
 **Does Congress Need to Approve the Arch? Trump Says It Did 100 Years Ago.**\
 `The administration says the arch fulfills the “historic design intent” of a proposal from the 1920s. But does it honor history or flout it?`\
 https://www.nytimes.com/2026/10/23/upshot/arch-trump-washington-history.html
-
-**Democrats Need a Tough New Approach to Israel, Even if Netanyahu Loses**\
-`The upcoming elections won’t deliver an end to the attacks on Palestinians without tough new penalties from the U.S.`\
-https://www.nytimes.com/2026/10/23/opinion/israel-netanyahu-democrats-us.html
-
-**Choose Your Favorite $2 Million Home in Umbria, Italy**\
-`Buyers can find country villas, authentic farmhouses and historic buildings for sale in the region known as the “green heart of Italy.”`\
-https://www.nytimes.com/2026/10/23/realestate/choose-your-favorite-2-million-home-in-umbria-italy.html
-
-**The Michigan Senate Race Keeps Getting Nastier**\
-`Supporters of Mike Rogers, the Republican candidate, have described his Democratic opponent, Dr. Abdul El-Sayed, as un-American and worse.`\
-https://www.nytimes.com/2026/10/23/us/rogers-michigan-republican-senate.html
 
