@@ -1,3 +1,7 @@
+**Trump’s ‘Smart Wall’ of A.I. Cameras Is Watching the Border, and More Than a Million People**\
+`The administration is planning a massive expansion of the surveillance program. Here’s how much it can see.`\
+https://www.nytimes.com/interactive/2026/10/22/us/politics/ai-surveillance-cameras-border-mexico.html
+
 **Who is the Understudy for the Understudies?**\
 `A day in the life of a Broadway “swing” requires knowing the choreography and the harmonies for the whole show. And sometimes, a swing even gets onstage.`\
 https://www.nytimes.com/interactive/2026/10/22/nyregion/new-york-at-work-broadway-swing.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/opinion/business-schools.html
 **No Sleep Till the End of ‘The Bell Jar’**\
 `Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel in Manhattan.`\
 https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-plath.html
-
-**What Trump’s Golf Course Plan Takes Away From D.C. Residents**\
-`President Trump’s proposed overhaul of a Washington golf course and park could sacrifice features long popular with locals.`\
-https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-potomac.html
 

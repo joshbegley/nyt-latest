@@ -1,3 +1,7 @@
+**Trump’s ‘Smart Wall’ of A.I. Cameras Is Watching the Border, and More Than a Million People**\
+`The administration is planning a massive expansion of the surveillance program. Here’s how much it can see.`\
+https://www.nytimes.com/interactive/2026/10/22/us/politics/ai-surveillance-cameras-border-mexico.html
+
 **Who is the Understudy for the Understudies?**\
 `A day in the life of a Broadway “swing” requires knowing the choreography and the harmonies for the whole show. And sometimes, a swing even gets onstage.`\
 https://www.nytimes.com/interactive/2026/10/22/nyregion/new-york-at-work-broadway-swing.html
