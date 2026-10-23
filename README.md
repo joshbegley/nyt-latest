@@ -1,3 +1,11 @@
+**Israel to Hold First Election Since Oct. 7 Attack**\
+`Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
+https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
+
+**Global Oil Price Hits $117 a Barrel, Highest Since April**\
+`Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
+https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
+
 **Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
 `The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
 https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.ht
 **How Long Will Russians Put Up With War? Here’s What They Told Us.**\
 `“Everything is fine” is a common refrain in a country used to adapting to a new normal.`\
 https://www.nytimes.com/2026/10/23/world/europe/russia-ukraine-public-opinion.html
-
-**Following the Money Inside Life Surge, With Mother Jones**\
-`Its Hall-of-Fame speakers may be vanishing, but this apparent “scam” continues to pitch financial salvation.`\
-https://www.nytimes.com/2026/10/23/podcasts/inside-life-surge-mother-jones-kiera-butler.html
-
-**The Meaning of the Republican War Over Ramaswamy’s Vile Ad**\
-`The G.O.P. nominee in Ohio has given conservatives space to reckon with the ethical degradation of Trumpism.`\
-https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
 

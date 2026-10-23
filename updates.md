@@ -1,3 +1,11 @@
+**Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
+`The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
+https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
+
+**Are Fewer Teens Identifying as Gay or Bisexual? It’s Complicated.**\
+`New data have prompted questions about changes in teens’ sexual orientations. But researchers disagree on how much the numbers can really tell us.`\
+https://www.nytimes.com/2026/10/23/science/lgbt-teens-identification.html
+
 **Why Anger About Data Centers and Energy Prices May Not Swing Votes**\
 `In Ohio, many voters say their frustration about the increase in electricity and fuel prices and the growth of data centers won’t influence whom they vote for.`\
 https://www.nytimes.com/2026/10/23/business/energy-environment/ohio-election-gas-prices.html
