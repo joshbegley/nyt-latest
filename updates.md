@@ -1,3 +1,7 @@
+**iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
+`Fans lined up for hours outside stores of Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
+https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
+
 **Billy Corgan vs. Pitchfork (and Every Other Critic!)**\
 `Billy Corgan of the Smashing Pumpkins explains why he disagrees with his critics.`\
 https://www.nytimes.com/video/podcasts/100000011226015/billy-corgan-vs-pitchfork-and-every-other-critic.html

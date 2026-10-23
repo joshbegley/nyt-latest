@@ -1,3 +1,7 @@
+**iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
+`Fans lined up for hours outside stores of Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
+https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
+
 **Billy Corgan vs. Pitchfork (and Every Other Critic!)**\
 `Billy Corgan of the Smashing Pumpkins explains why he disagrees with his critics.`\
 https://www.nytimes.com/video/podcasts/100000011226015/billy-corgan-vs-pitchfork-and-every-other-critic.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011229847/finland-puppies-lives
 **Meghan Says She Is ‘Distressed’ by Claim Her Father Kept Child Abuse Images**\
 `The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
 https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html
-
-**A Fight Over Felon Voting Prompts a Free Speech Debate**\
-`A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
-https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
 
