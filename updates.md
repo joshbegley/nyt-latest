@@ -1,3 +1,11 @@
+**Pete Ricketts’s Wealth Puts Class at the Center of Nebraska’s Senate Race**\
+`In a year when the wealth of the rich soared while workers lost ground to inflation, class has become political, especially in the Nebraska Senate race.`\
+https://www.nytimes.com/2026/10/22/us/politics/pete-ricketts-billionaire-nebraska-senate-race.html
+
+**What to Know About the Investigation Into Ilhan Omar’s Citizenship**\
+`The Justice Department is reviewing whether Representative Ilhan Omar, a Minnesota Democrat, broke the law when she became a U.S. citizen decades ago. Here’s what we know.`\
+https://www.nytimes.com/2026/10/22/us/ilhan-omar-federal-investigation-immigration.html
+
 **Trump Asked Musk to Reverse Limits on Ukraine’s Military Internet Use**\
 `The call from the president about the Starshield network came after officials in Ukraine reported that they found new limits on the use of military drones in their war against Russia.`\
 https://www.nytimes.com/2026/10/22/us/politics/starshield-outage-ukraine-musk-trump.html
