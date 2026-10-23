@@ -1,3 +1,7 @@
+**Justice Dept. Moves to Block Certification of Alaska Senate Race Results if Republican Loses**\
+`The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
+https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
+
 **Israel to Hold First Election Since Oct. 7 Attack**\
 `Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
 https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/crosswords/strands-sidekick-965.html
 **Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
 `The Israeli military said two soldiers had been killed, and Prime Minister Benjamin Netanyahu threatened to launch a major offensive in the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
-
-**How Long Will Russians Put Up With War? Here’s What They Told Us.**\
-`“Everything is fine” is a common refrain in a country used to adapting to a new normal.`\
-https://www.nytimes.com/2026/10/23/world/europe/russia-ukraine-public-opinion.html
 
