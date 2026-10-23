@@ -1,3 +1,15 @@
+**Why the White House Won’t Say ‘A.I.’**\
+`Scary, inspiring or just plain weird? The “Interesting Times” guest host Tyler Cowen asks Trump’s top science adviser, Michael Kratsios, why the White House is rebranding A.I. as “superintelligence.”`\
+https://www.nytimes.com/video/opinion/100000011225446/why-the-white-house-wont-say-ai.html
+
+**America Has a STEM Problem**\
+`Are we ignoring America’s STEM pipeline? Trump’s top science adviser, Michael Kratsios, makes the case on “Interesting Times” for investment in home-grown scientists over highly skilled immigrants.`\
+https://www.nytimes.com/video/opinion/100000011225443/america-has-a-stem-problem.html
+
+**Late Night Dunks on Trump for Planning to Rename an Ocean**\
+`“Once again, 12 days before this election, it’s good to see him locked in on the really big issues,” Jimmy Fallon said on “The Tonight Show.”`\
+https://www.nytimes.com/2026/10/23/arts/television/late-night-trump-ocean.html
+
 **The Most Important Factory in America**\
 `America is figuring out the trick to reindustrialization, if it can learn the right lessons.`\
 https://www.nytimes.com/2026/10/23/opinion/ai-computer-chips-semiconductor-arizona-industry.html
