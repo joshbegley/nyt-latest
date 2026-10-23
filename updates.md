@@ -1,3 +1,27 @@
+**At 90, Steve Reich Remains in Good Creative Health**\
+`New York, Reich’s hometown, still has a lot of love for him, with a staged show at the Park Avenue Armory and a birthday concert at Carnegie Hall.`\
+https://www.nytimes.com/2026/10/23/arts/music/steve-reich-90-concerts.html
+
+**What’s It Like to Be a Teenager Right Now?**\
+`As part of our annual Coming of Age contest, we’re asking you to look at some Times reporting on young people, and then give us your take on what it’s like to grow up in 2026.`\
+https://www.nytimes.com/2026/10/23/learning/whats-it-like-to-be-a-teenager-right-now.html
+
+**40 Works of Visual Art That Show What It’s Like to Be a Teenager Today**\
+`We hope this winning student work inspires YOU to make something, too.`\
+https://www.nytimes.com/2026/10/23/learning/40-works-of-visual-art-that-show-what-its-like-to-be-a-teenager-today.html
+
+**Coming of Age in 2026: Show Us What It’s Like to Be a Teenager Now**\
+`Submit a photo, cartoon, graph, chart, illustration, video or any other visual piece that explores some aspect of Gen Z life. Contest dates: Oct. 28 to Dec. 9.`\
+https://www.nytimes.com/2026/10/23/learning/coming-of-age-in-2026-show-us-what-its-like-to-be-a-teenager-now.html
+
+**Lawmakers Plan to Block Trump Nominees Over Ukraine Satellite Network Restrictions**\
+`Senators have warned the White House they will withhold confirmation votes until the administration ensures the restoration of communications capabilities used by Ukraine’s military.`\
+https://www.nytimes.com/2026/10/23/us/politics/senators-trump-nominees-ukraine-starlink.html
+
+**Susan Collins Uses Troy Jackson’s ‘Shut Up’ Debate Comment in New Ad**\
+`The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
+https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
+
 **They Made the Skirt of the Week**\
 `The design duo behind Chopova Lowena on Alexander Skarsgard’s red carpet look.`\
 https://www.nytimes.com/2026/10/23/style/chopova-lowena-made-the-skirt-of-the-week.html

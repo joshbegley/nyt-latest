@@ -1,3 +1,23 @@
+**At 90, Steve Reich Remains in Good Creative Health**\
+`New York, Reich’s hometown, still has a lot of love for him, with a staged show at the Park Avenue Armory and a birthday concert at Carnegie Hall.`\
+https://www.nytimes.com/2026/10/23/arts/music/steve-reich-90-concerts.html
+
+**What’s It Like to Be a Teenager Right Now?**\
+`As part of our annual Coming of Age contest, we’re asking you to look at some Times reporting on young people, and then give us your take on what it’s like to grow up in 2026.`\
+https://www.nytimes.com/2026/10/23/learning/whats-it-like-to-be-a-teenager-right-now.html
+
+**40 Works of Visual Art That Show What It’s Like to Be a Teenager Today**\
+`We hope this winning student work inspires YOU to make something, too.`\
+https://www.nytimes.com/2026/10/23/learning/40-works-of-visual-art-that-show-what-its-like-to-be-a-teenager-today.html
+
+**Coming of Age in 2026: Show Us What It’s Like to Be a Teenager Now**\
+`Submit a photo, cartoon, graph, chart, illustration, video or any other visual piece that explores some aspect of Gen Z life. Contest dates: Oct. 28 to Dec. 9.`\
+https://www.nytimes.com/2026/10/23/learning/coming-of-age-in-2026-show-us-what-its-like-to-be-a-teenager-now.html
+
+**Lawmakers Plan to Block Trump Nominees Over Ukraine Satellite Network Restrictions**\
+`Senators have warned the White House they will withhold confirmation votes until the administration ensures the restoration of communications capabilities used by Ukraine’s military.`\
+https://www.nytimes.com/2026/10/23/us/politics/senators-trump-nominees-ukraine-starlink.html
+
 **They Made the Skirt of the Week**\
 `The design duo behind Chopova Lowena on Alexander Skarsgard’s red carpet look.`\
 https://www.nytimes.com/2026/10/23/style/chopova-lowena-made-the-skirt-of-the-week.html
@@ -18,7 +38,7 @@ https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
 `Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
 https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
 
-**Collins Ad Blasts Maine Opponent for ‘Shut Up’ Comment**\
+**Susan Collins Uses Troy Jackson’s ‘Shut Up’ Debate Comment in New Ad**\
 `The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
 https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
 
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/23/world/americas/el-salvador-military-haiti-gan
 **Would Your Life Make a Good Documentary?**\
 `TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
 https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
-
-**A Tech Rotation Roils the Markets, Again**\
-`Investors are bracing for a one-two punch: rising oil prices and concerns about the soaring costs of the artificial intelligence buildout.`\
-https://www.nytimes.com/2026/10/23/business/dealbook/tech-rotation-nasdaq-ai.html
-
-**A.I. and New Rules for Accounting Are an Opportunity for Start-Ups**\
-`Pennylane, a French company, has gained market share in its home country by helping accountants work with clients. It’s aiming to expand internationally.`\
-https://www.nytimes.com/2026/10/23/business/dealbook/pennylane-ai-accounting-france.html
-
-**What’s the Deal With Billy Evans? A Spoiler-Filled Guide to ‘You Can See Everything’**\
-`“You shouldn’t overbeat scrambled eggs.”`\
-https://www.nytimes.com/2026/10/23/podcasts/hardfork-billy-evans-holmes.html
-
-**What’s the Deal With Billy Evans?**\
-`Hard Fork Full Episode #218`\
-https://www.nytimes.com/video/podcasts/100000011231911/whats-the-deal-with-billy-evans.html
-
-**‘The Headlines’ News Quiz: Oct. 23, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/23/podcasts/the-headlines/the-headlines-news-quiz-oct-23-2026.html
 
