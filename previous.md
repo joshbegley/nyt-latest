@@ -1,3 +1,11 @@
+**Billy Corgan vs. Pitchfork (and Every Other Critic!)**\
+`Billy Corgan of the Smashing Pumpkins explains why he disagrees with his critics.`\
+https://www.nytimes.com/video/podcasts/100000011226015/billy-corgan-vs-pitchfork-and-every-other-critic.html
+
+**How Gen Z and the Smashing Pumpkins Found Each Other**\
+`Billy Corgan of the Smashing Pumpkins speaks with Popcast about why he believes younger listeners are resonating with angsty guitar rock over “inorganic” pop.`\
+https://www.nytimes.com/video/podcasts/100000011226003/how-gen-z-and-the-smashing-pumpkins-found-each-other.html
+
 **Appeals Court Backs Trump on Constitutionality of Detentions**\
 `The ruling, from the U.S. Court of Appeals for the Fifth Circuit, sharply curtails the ability of judges to free undocumented immigrants.`\
 https://www.nytimes.com/2026/10/23/us/politics/appeals-court-trump-constitution-detention.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-chil
 **A Fight Over Felon Voting Prompts a Free Speech Debate**\
 `A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
 https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
-
-**Republicans Cut Taxes to Win the Midterms. It May Not Work Out.**\
-`Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
-https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html
-
-**Nearly 2 Years After the Fires, L.A. Mayor Fights for Her Political Life**\
-`Karen Bass, who has never lost an election, has struggled to recapture the city’s faith since the devastating wildfires that erupted in 2025.`\
-https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
 

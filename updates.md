@@ -1,3 +1,11 @@
+**Billy Corgan vs. Pitchfork (and Every Other Critic!)**\
+`Billy Corgan of the Smashing Pumpkins explains why he disagrees with his critics.`\
+https://www.nytimes.com/video/podcasts/100000011226015/billy-corgan-vs-pitchfork-and-every-other-critic.html
+
+**How Gen Z and the Smashing Pumpkins Found Each Other**\
+`Billy Corgan of the Smashing Pumpkins speaks with Popcast about why he believes younger listeners are resonating with angsty guitar rock over “inorganic” pop.`\
+https://www.nytimes.com/video/podcasts/100000011226003/how-gen-z-and-the-smashing-pumpkins-found-each-other.html
+
 **Appeals Court Backs Trump on Constitutionality of Detentions**\
 `The ruling, from the U.S. Court of Appeals for the Fifth Circuit, sharply curtails the ability of judges to free undocumented immigrants.`\
 https://www.nytimes.com/2026/10/23/us/politics/appeals-court-trump-constitution-detention.html
