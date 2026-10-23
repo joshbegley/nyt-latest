@@ -123,7 +123,7 @@ https://www.nytimes.com/2026/10/23/well/letter-writing-tips.html
 https://www.nytimes.com/video/world/americas/100000011230998/brazil-nanuque-election-shift.html
 
 **Trump’s Tariffs Slow America’s Access to Canada’s Cheese**\
-`The Trump administration’s tariffs are slowing Americans’ access to the cheese just as producers were finding a foothold stateside.`\
+`Just as they were finding a toehold stateside, artisanal producers got caught in a trade war.`\
 https://www.nytimes.com/2026/10/23/dining/canada-cheese-trump-tariffs.html
 
 **Is the Foldable iPhone the Future?**\

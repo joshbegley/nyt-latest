@@ -1,3 +1,19 @@
+**Review of iPhone Duo: A New Chapter That Redefines a Smartphone’s Purpose**\
+`The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
+https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
+
+**Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
+`The Republican candidate for governor, Tom Tiffany, is best known as a staunch ally of the president. He’s trying to change that.`\
+https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
+
+**Judge Orders Trump to Sit for Deposition in BBC Defamation Case**\
+`Lawyers for the BBC had accused the president of delaying his testimony in the case he brought.`\
+https://www.nytimes.com/2026/10/23/us/trump-bbc-lawsuit-deposition.html
+
+**Chimps Steal Less Often From Their Friends, Even When Offered Pineapple**\
+`The discovery may hint at the roots of human norms around fairness and friendship.`\
+https://www.nytimes.com/2026/10/23/science/stealing-chimps-friends.html
+
 **Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
 `The Israeli military said two soldiers had been killed, and Prime Minister Benjamin Netanyahu threatened to launch a major offensive in the Israeli-occupied territory.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
