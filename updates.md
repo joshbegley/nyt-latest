@@ -1,3 +1,7 @@
+**Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
+`The department, in a highly unusual lawsuit, argued that confusion over candidates with similar names could taint the election result.`\
+https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
+
 **Dale Brown Has Died. As L.S.U. Coach, He Discovered Shaquille O’Neal.**\
 `A fierce critic of the N.C.A.A., he twice took Louisiana State to the Final Four. He was 90.`\
 https://www.nytimes.com/2026/10/23/sports/dale-brown-dead.html
