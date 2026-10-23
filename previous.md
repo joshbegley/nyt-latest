@@ -1,3 +1,7 @@
+**Trump Asked Musk to Reverse Limits on Ukraine’s Military Internet Use**\
+`The call from the president about the Starshield network came after officials in Ukraine reported that they found new limits on the use of military drones in their war against Russia.`\
+https://www.nytimes.com/2026/10/22/us/politics/starshield-outage-ukraine-musk-trump.html
+
 **New York City Passes Horse Carriage Ban**\
 `The New York City Council on Thursday passed a bill that bans horse-drawn carriages from operating in the city after June 2028.`\
 https://www.nytimes.com/video/us/100000011231690/new-york-city-passes-horse-carriage-ban.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
 **Mortgage Rates Remain Above 7%, Pushing Home Prices Lower in Some Areas**\
 `The 30-year, fixed-rate mortgage dropped slightly to 7.32 percent as prospective home buyers continue to struggle with affordability. But home prices are starting to drop in some areas.`\
 https://www.nytimes.com/2026/10/22/business/mortgage-rates-housing-costs.html
-
-**Is Citizens United to Blame for Everything?**\
-`Plus: The justices’ book deals mean the court can’t rule on cases involving a media conglomerate.`\
-https://www.nytimes.com/2026/10/22/us/politics/the-docket-citizens-united-recusals.html
 
