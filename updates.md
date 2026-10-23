@@ -1,3 +1,7 @@
+**Taiwan Shuts Down as Typhoon Champi Approaches**\
+`The storm has caused at least one death and dozens of injuries, officials said. Schools have closed on the island and hundreds of flights have been canceled.`\
+https://www.nytimes.com/2026/10/23/weather/super-typhoon-champi-taiwan-japan.html
+
 **Drivers Are Livid and Activists Exult After Vote to Ban Horse Carriages**\
 `The City Council voted 40 to 7 to ban the carriages from Central Park starting in 2028. But the carriage drivers vowed to fight their loss of livelihood in court.`\
 https://www.nytimes.com/2026/10/23/nyregion/horse-carriage-vote-drivers-city-council.html
