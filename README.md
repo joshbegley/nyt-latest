@@ -1,3 +1,7 @@
+**Trump Rallies to Shore Up Iowa Senate Race for Ashley Hinson**\
+`The president visited Sioux City, part of deep-red Western Iowa, in an effort to boost GOP turnout in a state that was once solidly Republican.`\
+https://www.nytimes.com/2026/10/22/us/elections/trump-rally-iowa-senate-race.html
+
 **Trump’s ‘Smart Wall’ of A.I. Cameras Is Watching the Border, and More Than a Million People**\
 `The administration is planning a massive expansion of the surveillance program. Here’s how much it can see.`\
 https://www.nytimes.com/interactive/2026/10/22/us/politics/ai-surveillance-cameras-border-mexico.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/learning/what-teenagers-are-saying-about-the-
 **Should We Shut Down Business Schools?**\
 `Readers discuss a professor’s Opinion essay that suggested doing so. Also: Children without lawyers at deportation hearings; legal rights for robots?`\
 https://www.nytimes.com/2026/10/22/opinion/business-schools.html
-
-**No Sleep Till the End of ‘The Bell Jar’**\
-`Spending seven hours and 51 minutes at the second annual marathon reading of Sylvia Plath’s novel in Manhattan.`\
-https://www.nytimes.com/2026/10/22/style/the-bell-jar-marathon-reading-sylvia-plath.html
 
