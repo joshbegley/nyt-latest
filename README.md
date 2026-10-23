@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/10/23/world/americas/brazil-election-voters-lula-bo
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/10/23/movies/new-movies-this-week-critics.html
 
-**Is This Economy Trump’s Fault?**\
+**There Are Solutions to This Crazy Economy. Voters Will Hate Them.**\
 `Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
 https://www.nytimes.com/2026/10/23/opinion/trump-economy-artificial-intelligence-midterms.html
 
