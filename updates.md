@@ -1,3 +1,11 @@
+**The Most Important Factory in America**\
+`America is figuring out the trick to reindustrialization, if it can learn the right lessons.`\
+https://www.nytimes.com/2026/10/23/opinion/ai-computer-chips-semiconductor-arizona-industry.html
+
+**The Map of Africa Is Being Redrawn. It’s a Trap.**\
+`It’s been many years since the continent seemed more spectral, and its people more vulnerable, than it does now.`\
+https://www.nytimes.com/2026/10/23/opinion/africa-map-un-mercator.html
+
 **Arms Race Intensifies in Korea as the North Is Emboldened by Russia Alliance**\
 `A rare escalation this month exposed the increasingly lethal arsenals the two Koreas are building up across the world’s most heavily fortified border.`\
 https://www.nytimes.com/2026/10/23/world/asia/korea-missiles-drones-russia.html

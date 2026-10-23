@@ -1,3 +1,11 @@
+**The Most Important Factory in America**\
+`America is figuring out the trick to reindustrialization, if it can learn the right lessons.`\
+https://www.nytimes.com/2026/10/23/opinion/ai-computer-chips-semiconductor-arizona-industry.html
+
+**The Map of Africa Is Being Redrawn. It’s a Trap.**\
+`It’s been many years since the continent seemed more spectral, and its people more vulnerable, than it does now.`\
+https://www.nytimes.com/2026/10/23/opinion/africa-map-un-mercator.html
+
 **Arms Race Intensifies in Korea as the North Is Emboldened by Russia Alliance**\
 `A rare escalation this month exposed the increasingly lethal arsenals the two Koreas are building up across the world’s most heavily fortified border.`\
 https://www.nytimes.com/2026/10/23/world/asia/korea-missiles-drones-russia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/22/arts/television/tom-skerritt-dead.html
 **Where to Buy Candy in New York City**\
 `Three candy shops to stock up on sweets for Halloween (and the rest of the year).`\
 https://www.nytimes.com/2026/10/22/dining/candy-shops.html
-
-**Should Living Be Enough ‘Lived Experience’ for a Writer?**\
-`Imagination, empathy and intelligence should matter as well as identity`\
-https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.html
-
-**President Trump Appears to Celebrate After a Rallygoer Punched a Protester**\
-`President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
-https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html
 
