@@ -1,3 +1,11 @@
+**The Evening: D.O.J. Moves to Block Alaska Result if G.O.P. Loses**\
+`Plus, a promising cancer vaccine. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
+
+**Corey Lewandowski Always Found His Way Back to Trump. Until Now.**\
+`The Justice Department has opened an inquiry into Mr. Lewandowski. President Trump has not jumped to his defense.`\
+https://www.nytimes.com/2026/10/23/us/politics/corey-lewandowski-trump.html
+
 **Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/23/us/midterm-elections-trump

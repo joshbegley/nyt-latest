@@ -1,3 +1,11 @@
+**The Evening: D.O.J. Moves to Block Alaska Result if G.O.P. Loses**\
+`Plus, a promising cancer vaccine. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
+
+**Corey Lewandowski Always Found His Way Back to Trump. Until Now.**\
+`The Justice Department has opened an inquiry into Mr. Lewandowski. President Trump has not jumped to his defense.`\
+https://www.nytimes.com/2026/10/23/us/politics/corey-lewandowski-trump.html
+
 **‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\
 `Kaylub Giamanco told Oregon Public Broadcasting that he happened to be driving by the Silver Rail Elementary School in Bend when he saw a gunman preparing to enter the school.`\
 https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/23/movies/patricia-highsmith-a-talent-for-murder
 **Put Cottage Cheese in Your Meatballs**\
 `And the most popular recipes from the week.`\
 https://www.nytimes.com/2026/10/23/dining/put-cottage-cheese-in-your-meatballs.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, alien encounters, sinister deepfakes, fantastical time loops and postapocalyptic woe.`\
-https://www.nytimes.com/2026/10/23/movies/five-science-fiction-movies-to-stream-now.html
-
-**How Worried Should We Be About the Economy? Let’s Look at 2008.**\
-`It’s not impossible to spot the characteristics of a brewing financial crisis. We can look to 2008 for clues.`\
-https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
 
 **Trump Says He Ordered Justice Dept. to Intervene in Alaska Senate Race**\
 `(No description)`\
