@@ -30,6 +30,10 @@ https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
 `The Justice Department has opened an inquiry into Mr. Lewandowski. President Trump has not jumped to his defense.`\
 https://www.nytimes.com/2026/10/23/us/politics/corey-lewandowski-trump.html
 
+**Alaska courts ruled months ago on the two Dan Sullivans in the Senate race.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/23/us/alaska-courts-ruled-months-ago-on-the-two-dan-sullivans-in-the-senate-race.html
+
 **‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\
 `Kaylub Giamanco told Oregon Public Broadcasting that he happened to be driving by the Silver Rail Elementary School in Bend when he saw a gunman preparing to enter the school.`\
 https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/business/economy/us-japan-chip-deal.html
 **Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
 `Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
 https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
-
-**Eyeing Return to Power, Democrats Are Crafting a Plan to Dismantle Trump’s Agenda**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/23/us/midterm-elections-trump
 
