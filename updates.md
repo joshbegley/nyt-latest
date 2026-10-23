@@ -1,3 +1,15 @@
+**France’s Avoids a Debt Downgrade From Moody’s, but Is Given a Warning**\
+`Moody’s held the country’s credit rating steady amid political uncertainty and a rise in borrowing costs that have worsened France’s debt situation.`\
+https://www.nytimes.com/2026/10/23/business/france-debt-moodys-protests.html
+
+**Why Legal Experts See the Justice Dept.’s Alaska Election Challenge as Dubious**\
+`No obvious legal authority supports a pre-emptive effort to block the certification of Alaska’s Senate election if the Republican incumbent narrowly loses.`\
+https://www.nytimes.com/2026/10/23/us/alaska-senate-doj-lawsuit-trump.html
+
+**Eyeing Return to Power, Democrats Are Crafting a Plan to Dismantle Trump’s Agenda**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/23/us/midterm-elections-trump
+
 **Yes, Mamdani Installed Bidets in Gracie Mansion**\
 `The mayor paid for the $24 toilet attachments at Gracie Mansion out of his own pocket, his office said. Bidets have been proliferating in American homes.`\
 https://www.nytimes.com/2026/10/23/nyregion/bidets-zohran-mamdani-gracie-mansion.html
