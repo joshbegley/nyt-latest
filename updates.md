@@ -1,3 +1,7 @@
+**Why Has This Teenager Tracked Down 11,377 Moths Since April?**\
+`Violet Clinton is doing field research that one Cornell entomologist said would “outlive her.” Her dad still has to buy the beer for her moth bait.`\
+https://www.nytimes.com/2026/10/23/style/violet-clinton-teen-moth-research.html
+
 **Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
 `Five people were wounded in the attack, days before national elections, health workers said. The Israeli military said its soldiers had killed two of the assailants.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
