@@ -1,3 +1,11 @@
+**Republicans Cut Taxes to Win the Midterms. It May Not Work Out.**\
+`Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
+https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html
+
+**Karen Bass Climbed L.A.’s Political Ladder. Then a Fire Changed Everything.**\
+`The mayor of Los Angeles, who has never lost an election, is now in the fight of her political life.`\
+https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
+
 **France Plans to Bolster Police Presence, Expecting New Protests**\
 `Government officials are trying to avoid a repeat of last weekend’s unrest across the country, which injured police officers and damaged stores.`\
 https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/10/23/books/bookstores-nyc-chinatown-ea
 **In New York, Early Voting Starts Saturday**\
 `It’s 11 days until Election Day. In New York City, there are a governor’s race and five ballot proposals.`\
 https://www.nytimes.com/2026/10/23/nyregion/early-voting-election-2026-nyc.html
-
-**Trump Is Turning to an Old Tool of Authoritarian Repression**\
-`It evokes dark periods in American history.`\
-https://www.nytimes.com/2026/10/23/opinion/ilhan-omar-trump-citizenship.html
-
-**A Simple Way to Benefit From Rising Rates: Buy Money Market Funds**\
-`While higher interest rates are a complication for stocks and bonds, they are an unequivocal boon if you just want to park some cash and make a little money, our columnist says.`\
-https://www.nytimes.com/2026/10/23/business/interest-rates-money-market-funds-stocks-bonds.html
 
