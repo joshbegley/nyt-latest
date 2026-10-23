@@ -1,3 +1,11 @@
+**One Killed Near Paris After Gunman Fires at Random, Officials Say**\
+`The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
+https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
+
+**There Are Solutions to This Crazy Economy. Voters Will Hate Them.**\
+`Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
+https://www.nytimes.com/2026/10/23/opinion/trump-economy-artificial-intelligence-midterms.html
+
 **Americans Are Struggling to Pay Rising Medical Costs**\
 `Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
 https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html

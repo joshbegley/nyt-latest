@@ -1,3 +1,7 @@
+**One Killed Near Paris After Gunman Fires at Random, Officials Say**\
+`The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
+https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
+
 **Americans Are Struggling to Pay Rising Medical Costs**\
 `Much of the debt stems from hospital bills, researchers say. Even people with insurance are falling behind. But there are ways to get help.`\
 https://www.nytimes.com/2026/10/23/your-money/medical-debt-health-insurance.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/2026/10/23/world/americas/brazil-election-voters-lula-bo
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/10/23/movies/new-movies-this-week-critics.html
 
-**Is This Economy Trump’s Fault?**\
+**There Are Solutions to This Crazy Economy. Voters Will Hate Them.**\
 `Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
 https://www.nytimes.com/2026/10/23/opinion/trump-economy-artificial-intelligence-midterms.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/us/rogers-michigan-republican-senate.html
 **Trump’s Plan to Import More Ground Beef Is Falling Short**\
 `About a fifth of the 300,000 metric tons of lean beef trimmings have come through customs, six weeks through a program designed to lower prices.`\
 https://www.nytimes.com/2026/10/23/business/trump-ground-beef-imports.html
-
-**Billy Corgan Unloads After a Lifetime of ‘Mocking, Bullying, Laughing’**\
-`The Smashing Pumpkins frontman discusses his embrace of pop stars like Sombr and Olivia Rodrigo, his passion for guitar rock and has a few choice words for those who dismissed it.`\
-https://www.nytimes.com/2026/10/23/arts/music/billy-corgan-smashing-pumpkins-popcast-interview.html
 
