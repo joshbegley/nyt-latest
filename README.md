@@ -114,7 +114,7 @@ https://www.nytimes.com/interactive/2026/10/23/books/bookstores-nyc-chinatown-ea
 `It’s 11 days until Election Day. In New York City, there are a governor’s race and five ballot proposals.`\
 https://www.nytimes.com/2026/10/23/nyregion/early-voting-election-2026-nyc.html
 
-**Trump Is Weaponizing Citizenship**\
+**Trump Is Turning to an Old Tool of Authoritarian Repression**\
 `It evokes dark periods in American history.`\
 https://www.nytimes.com/2026/10/23/opinion/ilhan-omar-trump-citizenship.html
 
