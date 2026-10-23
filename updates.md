@@ -1,3 +1,7 @@
+**What Could Democrats Do if They Win Congress?**\
+`Democrats are preparing a “first 100 hours” plan to try to roll back some of President Trump’s most unpopular policies if they regain control of the House and perhaps the Senate in the midterms. Our congressional correspondent Annie Karni explains what they could accomplish and how they hope to put Republicans on the spot.`\
+https://www.nytimes.com/video/us/politics/100000011228136/what-could-democrats-do-if-they-win-congress.html
+
 **Ahead of Tight Race, Trump Swaps Tariffs on Some Canadian Goods**\
 `The move was announced by Senator Susan Collins, a Maine Republican who faces a tough re-election fight amid rising prices.`\
 https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html

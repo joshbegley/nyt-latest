@@ -1,3 +1,7 @@
+**What Could Democrats Do if They Win Congress?**\
+`Democrats are preparing a “first 100 hours” plan to try to roll back some of President Trump’s most unpopular policies if they regain control of the House and perhaps the Senate in the midterms. Our congressional correspondent Annie Karni explains what they could accomplish and how they hope to put Republicans on the spot.`\
+https://www.nytimes.com/video/us/politics/100000011228136/what-could-democrats-do-if-they-win-congress.html
+
 **The Core Appeal of ‘America First’**\
 `What is the core appeal of “America first” for swing voters? The political consultant Sarah Longwell tells the Opinion columnist Ezra Klein that voters aren’t driven by ideology; they just want a government that prioritizes their everyday economic needs at home.`\
 https://www.nytimes.com/video/opinion/100000011225553/the-core-appeal-of-america-first.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
 **Apple’s Foldable iPhone Duo Arrives in Stores: Smartphone Review**\
 `The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
 https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
-
-**Tom Tiffany Tries to Distance Himself From Trump in Wisconsin Governor’s Race**\
-`Wisconsin’s Republican candidate for governor, Tom Tiffany, is talking about nearly anything but President Trump. And as Republicans watch Mr. Trump’s approval ratings plummet, he is hardly alone.`\
-https://www.nytimes.com/2026/10/23/us/politics/midterms-wisconsin-governor-trump.html
 
