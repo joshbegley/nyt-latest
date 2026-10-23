@@ -1,3 +1,7 @@
+**How, and Why, We’re Adding A.I. Tools to NYT Cooking**\
+`New features can help home cooks customize thousands of New York Times recipes. But our human editors remain in charge.`\
+https://www.nytimes.com/2026/10/23/insider/cooking-recipes-ai.html
+
 **iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
 `Fans lined up for hours outside stores of Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
 https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/world/europe/finland-puppies-livestream-slow-
 **Finland’s Puppy Livestream Is an Internet Hit**\
 `More than a million people have watched a 24/7 livestream of six newborn puppies in Finland. The cameras will roll until the pups go to their permanent homes in December.`\
 https://www.nytimes.com/video/world/europe/100000011229847/finland-puppies-livestream.html
-
-**Meghan Says She Is ‘Distressed’ by Claim Her Father Kept Child Abuse Images**\
-`The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
-https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html
 
