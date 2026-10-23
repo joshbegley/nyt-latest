@@ -1,3 +1,7 @@
+**Collins Ad Blasts Maine Opponent for ‘Shut Up’ Comment**\
+`The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
+https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
+
 **Israeli Settlers Turn a Palestinian Rite Into a Gantlet of Violence and Fear**\
 `This year’s olive harvest in the Israeli-occupied West Bank is the most violent in years, as settlers have attacked farmers and besieged homes, drawing condemnation from U.S. officials and others.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestinians-harvest.html
@@ -94,8 +98,8 @@ https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-m
 `Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
 https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html
 
-**Karen Bass Climbed L.A.’s Political Ladder. Then a Fire Changed Everything.**\
-`The mayor of Los Angeles, who has never lost an election, is now in the fight of her political life.`\
+**Nearly 2 Years After the Fires, L.A. Mayor Fights for Her Political Life**\
+`Karen Bass, who has never lost an election, has struggled to recapture the city’s faith since the devastating wildfires that erupted in 2025.`\
 https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
 
 **France Plans to Bolster Police Presence, Expecting New Protests**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/crosswords/connections-companion-1231.html
 **What Actually Happens on NFL Headsets?**\
 `Plus, chaos for the Los Angeles Rams.`\
 https://www.nytimes.com/2026/10/23/podcasts/what-actually-happens-on-nfl-headsets.html
-
-**The Battle Over Black Representation in the South**\
-`This year has resulted in arguably the biggest challenge to political representation for Black Americans in decades — nowhere has this been felt more than in the south.`\
-https://www.nytimes.com/2026/10/23/podcasts/the-daily/black-representation-voters-senate-south-redistricting.html
 

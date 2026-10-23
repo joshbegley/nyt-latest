@@ -1,3 +1,11 @@
+**Israeli Settlers Turn a Palestinian Rite Into a Gantlet of Violence and Fear**\
+`This year’s olive harvest in the Israeli-occupied West Bank is the most violent in years, as settlers have attacked farmers and besieged homes, drawing condemnation from U.S. officials and others.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestinians-harvest.html
+
+**Here’s What Democrats Plan to Do With Their Power if They Win Back Congress**\
+`Democrats have campaigned on lowering living costs and holding the Trump administration accountable. This is a look at their to-do list if they win the majority.`\
+https://www.nytimes.com/2026/10/23/us/politics/democratic-agenda.html
+
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html

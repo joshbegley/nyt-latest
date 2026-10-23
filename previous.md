@@ -1,3 +1,11 @@
+**Israeli Settlers Turn a Palestinian Rite Into a Gantlet of Violence and Fear**\
+`This year’s olive harvest in the Israeli-occupied West Bank is the most violent in years, as settlers have attacked farmers and besieged homes, drawing condemnation from U.S. officials and others.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestinians-harvest.html
+
+**Here’s What Democrats Plan to Do With Their Power if They Win Back Congress**\
+`Democrats have campaigned on lowering living costs and holding the Trump administration accountable. This is a look at their to-do list if they win the majority.`\
+https://www.nytimes.com/2026/10/23/us/politics/democratic-agenda.html
+
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/podcasts/what-actually-happens-on-nfl-headset
 **The Battle Over Black Representation in the South**\
 `This year has resulted in arguably the biggest challenge to political representation for Black Americans in decades — nowhere has this been felt more than in the south.`\
 https://www.nytimes.com/2026/10/23/podcasts/the-daily/black-representation-voters-senate-south-redistricting.html
-
-**NYT Strands Hints for October 24, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
-https://www.nytimes.com/2026/10/23/crosswords/strands-sidekick-965.html
-
-**Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
-`The Israeli military said two soldiers and two attackers had been killed, and Prime Minister Benjamin Netanyahu vowed to launch a major offensive in the Israeli-occupied territory.`\
-https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
 
