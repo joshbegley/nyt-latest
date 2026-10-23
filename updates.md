@@ -1,3 +1,7 @@
+**Two Former F.B.I. Officials Charged With False Statements About Hunter Biden**\
+`The charges intensified the administration’s efforts to go after the law enforcement and intelligence personnel who cast doubt on unsubstantiated claims that Joseph R. Biden Jr. engaged in corrupt dealings in Ukraine.`\
+https://www.nytimes.com/2026/10/23/us/politics/hunter-biden-ex-fbi-officials-charged.html
+
 **Two Former F.B.I. Officials Charged With False Statements About Biden’s Son**\
 `The charges intensified the administration’s efforts to go after the law enforcement and intelligence personnel who cast doubt on unsubstantiated claims that Joseph R. Biden Jr. engaged in corrupt dealings in Ukraine.`\
 https://www.nytimes.com/2026/10/23/us/politics/former-fbi-officials-charged-with-lying-hunter-biden.html
