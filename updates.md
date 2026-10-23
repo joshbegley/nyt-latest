@@ -1,3 +1,11 @@
+**A Sparkling ‘Imaginary Invalid,’ With Bill Irwin, Is the Cure for What Ails You**\
+`Bill Irwin, who may well be our greatest living clown, stars in his own adaptation of Molière’s 1673 play about a domineering hypochondriac paterfamilias.`\
+https://www.nytimes.com/2026/10/22/theater/imaginary-invalid-review-bill-irwin-moliere.html
+
+**NYT Crossword Answers for Oct. 23, 2026**\
+`Katie Hoody opens our solving weekend.`\
+https://www.nytimes.com/2026/10/22/crosswords/daily-puzzle-2026-10-23.html
+
 **New York at Work**\
 `A regular feature devoted to the not-so-small coterie of workers, largely unheralded, who make New York New York.`\
 https://www.nytimes.com/interactive/2026/nyregion/new-york-at-work.html

@@ -1,3 +1,11 @@
+**A Sparkling ‘Imaginary Invalid,’ With Bill Irwin, Is the Cure for What Ails You**\
+`Bill Irwin, who may well be our greatest living clown, stars in his own adaptation of Molière’s 1673 play about a domineering hypochondriac paterfamilias.`\
+https://www.nytimes.com/2026/10/22/theater/imaginary-invalid-review-bill-irwin-moliere.html
+
+**NYT Crossword Answers for Oct. 23, 2026**\
+`Katie Hoody opens our solving weekend.`\
+https://www.nytimes.com/2026/10/22/crosswords/daily-puzzle-2026-10-23.html
+
 **New York at Work**\
 `A regular feature devoted to the not-so-small coterie of workers, largely unheralded, who make New York New York.`\
 https://www.nytimes.com/interactive/2026/nyregion/new-york-at-work.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-trucker
 **Unsealed O.J. Simpson Records Prompt a Request for a New Investigation**\
 `Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
 https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
-
-**Jim Knipfel, Blind, Dyspeptic Memoirist, Dies at 61**\
-`His Slackjaw column drew on his life, which included going blind and being locked up in a psychiatric ward. Two of his books were praised by Thomas Pynchon.`\
-https://www.nytimes.com/2026/10/22/obituaries/jim-knipfel-dead.html
-
-**Ebola Outbreak in Africa Reaches Widest Expansion Ever**\
-`Health officials are urgently seeking answers about the origins of a case newly identified in Nigeria, the first in that West African nation.`\
-https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
 
