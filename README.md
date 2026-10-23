@@ -1,3 +1,7 @@
+**Trees Fall on Cars as Typhoon Champi Hits Taiwan**\
+`Trees smashed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and has injured dozens of others, the National Fire Agency of Taiwan said.`\
+https://www.nytimes.com/video/weather/100000011232104/taiwan-typhoon-champi.html
+
 **Taiwan Shuts Down as Typhoon Champi Approaches**\
 `The storm has caused at least one death and dozens of injuries, officials said. Schools have closed on the island and hundreds of flights have been canceled.`\
 https://www.nytimes.com/2026/10/23/weather/super-typhoon-champi-taiwan-japan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011228792/why-james-talar
 **Why Horror Was an Escape From High School**\
 `For the best-selling fantasy author Leigh Bardugo, the worlds of Stephen King were more appealing than the world of “Sweet Valley High.” Growing up surrounded by popular kids who played volleyball and drove convertibles, she found more of an escape in horror and science fiction than in stories that reminded her of her own life.`\
 https://www.nytimes.com/video/podcasts/100000011231404/why-horror-was-an-escape-from-high-school.html
-
-**Florida Police Officer Is Accused in Scheme to Seize a Dead Man’s House**\
-`The Broward County Sheriff’s Office arrested the officer, Brian Sguros, alleging that he used the man’s identity after finding him dead at home during a welfare check.`\
-https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-scheme.html
 
