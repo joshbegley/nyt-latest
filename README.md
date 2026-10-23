@@ -1,3 +1,15 @@
+**Why Anger About Data Centers and Energy Prices May Not Swing Votes**\
+`In Ohio, many voters say their frustration about the increase in electricity and fuel prices and the growth of data centers won’t influence whom they vote for.`\
+https://www.nytimes.com/2026/10/23/business/energy-environment/ohio-election-gas-prices.html
+
+**Flashback: Your Weekly History Quiz, Oct. 24, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/23/upshot/flashback.html
+
+**U.S. Government Takes a Cut of Chip Business in Japan-Funded Deal**\
+`President Trump’s novel deal-making is on display in upstate New York, where the administration is funneling Japanese funds into a government-owned chip factory.`\
+https://www.nytimes.com/2026/10/23/business/economy/us-japan-chip-deal.html
+
 **Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
 `Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
 https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
@@ -62,7 +74,7 @@ https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
 `Government officials are trying to avoid a repeat of last weekend’s unrest across the country, which injured police officers and damaged stores.`\
 https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
 
-**Review of iPhone Duo: A New Chapter That Redefines a Smartphone’s Purpose**\
+**Apple’s Foldable iPhone Duo Arrives in Stores: Smartphone Review**\
 `The first-generation Apple foldable may feel awkward, but it’s an intriguing step toward merging phones and tablets into one.`\
 https://www.nytimes.com/2026/10/23/technology/personaltech/iphone-duo-review-tablet-smartphone.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/23/well/letter-writing-tips.html
 **Where Brazil’s Left Is Losing Voters**\
 `Far from Rio and São Paulo, small towns like Nanuque, with big agricultural businesses and a surging evangelical Christian movement, are swinging to the right.`\
 https://www.nytimes.com/video/world/americas/100000011230998/brazil-nanuque-election-shift.html
-
-**Trump’s Tariffs Slow America’s Access to Canada’s Cheese**\
-`Just as they were finding a toehold stateside, artisanal producers got caught in a trade war.`\
-https://www.nytimes.com/2026/10/23/dining/canada-cheese-trump-tariffs.html
-
-**Is the Foldable iPhone the Future?**\
-`A breakdown of what Apple has improved with the Duo, what falls short and who the phone is for.`\
-https://www.nytimes.com/2026/10/23/podcasts/is-the-foldable-iphone-the-future.html
-
-**Corrections: Oct. 23, 2026**\
-`Corrections that appeared in print on Friday, Oct. 23, 2026.`\
-https://www.nytimes.com/2026/10/23/pageoneplus/corrections-oct-23-2026.html
 
