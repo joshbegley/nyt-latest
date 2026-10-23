@@ -1,3 +1,15 @@
+**How Worried Should We Be About the Economy? Let’s Look at 2008.**\
+`It’s not impossible to spot the characteristics of a brewing financial crisis. We can look to 2008 for clues.`\
+https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
+
+**Finland’s Puppy Livestream Provides Comfort in Troubled Times**\
+`“Puppy Live,” a round-the-clock livestream of a litter, has become a national phenomenon. “Nothing bad happens in the puppy box,” one fan explained.`\
+https://www.nytimes.com/2026/10/23/world/europe/finland-puppies-livestream-slow-tv.html
+
+**Finland’s Puppy Livestream Is an Internet Hit**\
+`More than a million people have watched a 24/7 livestream of six newborn puppies in Finland. The cameras will roll until the pups go to their permanent homes in December.`\
+https://www.nytimes.com/video/world/europe/100000011229847/finland-puppies-livestream.html
+
 **Meghan Says She Is ‘Distressed’ by Claim Her Father Kept Child Abuse Images**\
 `The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
 https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html

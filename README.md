@@ -1,3 +1,23 @@
+**Is Everything Expensive?**\
+`We look at how much prices have risen.`\
+https://www.nytimes.com/2026/10/23/briefing/is-everything-expensive.html
+
+**Nathan Fielder and Lance Oppenheim’s ‘You Can See Everything’ and the Role of the Watcher**\
+`There is artifice present in any work of nonfiction, and in every aspect of our lives.`\
+https://www.nytimes.com/2026/10/23/opinion/you-can-see-everything-janet-malcolm.html
+
+**How Patricia Highsmith Came to Star in a Ripley-esque Movie**\
+`“A Talent for Murder” turns the novelist into a suspicious character in a psychological thriller. The author’s caustic personality makes the leap plausible.`\
+https://www.nytimes.com/2026/10/23/movies/patricia-highsmith-a-talent-for-murder-helen-mirren.html
+
+**Put Cottage Cheese in Your Meatballs**\
+`And the most popular recipes from the week.`\
+https://www.nytimes.com/2026/10/23/dining/put-cottage-cheese-in-your-meatballs.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, alien encounters, sinister deepfakes, fantastical time loops and postapocalyptic woe.`\
+https://www.nytimes.com/2026/10/23/movies/five-science-fiction-movies-to-stream-now.html
+
 **How Worried Should We Be About the Economy? Let’s Look at 2008.**\
 `It’s not impossible to spot the characteristics of a brewing financial crisis. We can look to 2008 for clues.`\
 https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/23/us/midterm-campaign-finance.html
 **Most Voters Believe the Midterm Elections Will Be Accurate, Poll Finds**\
 `But about half expressed concerns that Republicans could try to overturn the results, a New York Times/Siena poll found.`\
 https://www.nytimes.com/2026/10/23/us/politics/election-integrity-trust-poll.html
-
-**‘Daniel Isn’t Real,’ ‘Blink Twice’ and More Hidden Gems**\
-`With Halloween on the horizon, an especially unnerving indie chiller leads off our rundown of hidden gems on your subscription streaming services.`\
-https://www.nytimes.com/2026/10/23/movies/daniel-isnt-real-streaming.html
-
-**Sleep Habits May Indicate a Type of Depression, Researchers Say**\
-`Researchers say people with ‘circadian depression’ might benefit from therapies that help adjust the body’s clock.`\
-https://www.nytimes.com/2026/10/23/well/mind/circadian-depression-subtype.html
-
-**‘You Can See Everything’ and the Scrambled Egg Moment**\
-`In “You Can See Everything,” a moment at home between Elizabeth Holmes and her fiancé Billy Evans set off a broader debate.`\
-https://www.nytimes.com/2026/10/23/style/elizabeth-holmes-billy-evans-eggs.html
-
-**Fearing Mass A.I. Layoffs, Some in Congress Eye Ways to Aid Workers**\
-`A bill to bolster the nation’s unemployment insurance program reflects the concern — and the risks — in Washington.`\
-https://www.nytimes.com/2026/10/23/business/ai-jobs-layoffs-congress.html
-
-**Why Trump’s 2024 Voters Are Turning on Him**\
-`Sarah Longwell has conducted hundreds of focus groups with Trump voters, and many of them are feeling betrayed.`\
-https://www.nytimes.com/2026/10/23/opinion/ezra-klein-podcast-sarah-longwell.html
 
