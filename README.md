@@ -1,3 +1,35 @@
+**When My Husband Blacked Out, I Crash-Landed Our Plane**\
+`Would I ever fly again?`\
+https://www.nytimes.com/2026/10/23/style/modern-love-when-my-husband-blacked-out-i-crash-landed-our-plane.html
+
+**Walking Into the Wrong Movie Was Just the Start of Their Own Rom-Com**\
+`Josh Guttman and Julia Mazza both love movies — and each other.`\
+https://www.nytimes.com/2026/10/23/style/joshua-guttman-julia-mazza-wedding.html
+
+**Building, Then Rebuilding, a Life Together After the Palisades Fire**\
+`David Goldblum and Andrea Martinez lost everything in 2025. “I had no possessions,” she said. “But I had the one person that mattered.”`\
+https://www.nytimes.com/2026/10/23/style/david-goldblum-andrea-martinez-wedding.html
+
+**What Happened in Vegas Took Years to Develop**\
+`After several “electric” meet-ups in Las Vegas during college, it took Benjamin Glasser and Jacquelyn Silverman six years to meet again.`\
+https://www.nytimes.com/2026/10/23/style/jacquelyn-silverman-benjamin-glasser-wedding.html
+
+**Caleb Freundlich, Julianne Moore’s Son, and Kibriyaá Morgan Marry**\
+`Kibriyaá Morgan and Caleb Freundlich had been in each other’s orbit since early childhood. It took a mutual friend and glowing reviews from his mother, the actress Julianne Moore, to bring them together in college.`\
+https://www.nytimes.com/2026/10/23/style/kibriyaa-morgan-caleb-freundlich-wedding.html
+
+**Finding Many Things in Common, Big and Small**\
+`“I’d never connected with anyone just like me,” said Casey Echols of Kyle Sutton. Their interests included snowboarding and the Grateful Dead.`\
+https://www.nytimes.com/2026/10/23/style/casey-echols-kyle-sutton-wedding.html
+
+**From the Front Page: Beirut Bombings on Oct. 23, 1983**\
+`A suicide truck bombing at Beirut International Airport in Lebanon killed 241 U.S. service members, the highest number of American military personnel killed in a single attack since the Vietnam War. An almost simultaneous attack on French forces killed 58 paratroopers.`\
+https://www.nytimes.com/2026/10/23/learning/on-this-day-oct-23.html
+
+**Powerful Earthquake in Tibet Kills at Least 16**\
+`Dozens were injured and more than 300 homes were toppled by the 7.0-magnitude quake, which sent residents fleeing into the cold night air, state media said.`\
+https://www.nytimes.com/2026/10/22/world/asia/earthquake-tibet-china.html
+
 **Trump Rallies to Shore Up Iowa Senate Race for Ashley Hinson**\
 `The president visited Sioux City, part of deep-red Western Iowa, in an effort to boost GOP turnout in a state that was once solidly Republican.`\
 https://www.nytimes.com/2026/10/22/us/elections/trump-rally-iowa-senate-race.html
@@ -165,32 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011230075/france-protests-ban-r
 **He Was Reporting on Floods in Australia. Then He Jumped to the Rescue.**\
 `Will Murray of Australia’s public broadcaster spotted a man in a sinking truck, then jumped in the water with a bystander. (Just don’t call him Clark Kent.)`\
 https://www.nytimes.com/2026/10/22/world/australia/brisbane-flooding-car-rescue-abc-reporter.html
-
-**Hakeem Jeffries Launches Final Midterm Sprint for House Majority**\
-`The minority leader plans to kick off campaigning in a Hudson Valley, New York, district that is one of the most competitive in the country.`\
-https://www.nytimes.com/2026/10/22/us/politics/hakeem-jeffries-hudson-valley-campaign-midterms.html
-
-**Key Trump Health Adviser Resigns Ahead of Midterm Elections**\
-`Calley Means, who helped unite Robert F. Kennedy Jr. and President Trump, pushed food reforms but grew frustrated with stalled progress on the MAHA agenda.`\
-https://www.nytimes.com/2026/10/22/us/politics/calley-means-resigns-rfk-trump.html
-
-**The First Story That Scared Leigh Bardugo**\
-`Leigh Bardugo is the best-selling author behind the Ninth House trilogy, which just concluded with the release of “Dead Beat.” But her introduction to the joys of being scared out of her wits was way back in fifth grade.`\
-https://www.nytimes.com/video/podcasts/100000011230463/the-first-story-that-scared-leigh-bardugo.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/10/22/books/review/new-recommended-books.html
-
-**Billy Corgan Is Tired of Your ‘Mocking, Bullying, Laughing’**\
-`Watch the full conversation with Billy Corgan. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011225986/billy-corgan-is-tired-of-your-mocking-bullying-laughing.html
-
-**What Teenagers Are Saying About the Pressure of Grades**\
-`Students react to the University of Michigan’s new pass/fail policy for first-semester freshmen and debate whether grades motivate learning or fuel a mental health crisis.`\
-https://www.nytimes.com/2026/10/22/learning/what-teenagers-are-saying-about-the-pressure-of-grades.html
-
-**Should We Shut Down Business Schools?**\
-`Readers discuss a professor’s Opinion essay that suggested doing so. Also: Children without lawyers at deportation hearings; legal rights for robots?`\
-https://www.nytimes.com/2026/10/22/opinion/business-schools.html
 
