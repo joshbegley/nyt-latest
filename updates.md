@@ -1,3 +1,15 @@
+**Republicans Cut Taxes to Win the Midterms. It May Not Work Out.**\
+`Among the stakes in next month’s election is the long-running question of whether tax cuts can shape how people vote.`\
+https://www.nytimes.com/2026/10/23/business/salt-cap-midterm-elections.html
+
+**Karen Bass Climbed L.A.’s Political Ladder. Then a Fire Changed Everything.**\
+`The mayor of Los Angeles, who has never lost an election, is now in the fight of her political life.`\
+https://www.nytimes.com/2026/10/23/us/karen-bass-la-mayor-race.html
+
+**France Plans to Bolster Police Presence, Expecting New Protests**\
+`Government officials are trying to avoid a repeat of last weekend’s unrest across the country, which injured police officers and damaged stores.`\
+https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html
+
 **Trump’s Tariffs Slow America’s Access to Canada’s Cheese**\
 `Just as they were finding a toehold stateside, artisanal producers got caught in a trade war.`\
 https://www.nytimes.com/2026/10/23/dining/canada-cheese-trump-tariffs.html
