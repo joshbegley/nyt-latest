@@ -1,3 +1,7 @@
+**‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\
+`Kaylub Giamanco told Oregon Public Broadcasting that he happened to be driving by the Silver Rail Elementary School in Bend when he saw a gunman preparing to enter the school.`\
+https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.html
+
 **How, and Why, We’re Adding A.I. Tools to NYT Cooking**\
 `New features can help home cooks customize thousands of New York Times recipes. But our human editors remain in charge.`\
 https://www.nytimes.com/2026/10/23/insider/cooking-recipes-ai.html

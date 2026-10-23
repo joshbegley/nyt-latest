@@ -1,3 +1,7 @@
+**‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\
+`Kaylub Giamanco told Oregon Public Broadcasting that he happened to be driving by the Silver Rail Elementary School in Bend when he saw a gunman preparing to enter the school.`\
+https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.html
+
 **How, and Why, We’re Adding A.I. Tools to NYT Cooking**\
 `New features can help home cooks customize thousands of New York Times recipes. But our human editors remain in charge.`\
 https://www.nytimes.com/2026/10/23/insider/cooking-recipes-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/business/economy-2008-financial-crisis.html
 **Finland’s Puppy Livestream Provides Comfort in Troubled Times**\
 `“Puppy Live,” a round-the-clock livestream of a litter, has become a national phenomenon. “Nothing bad happens in the puppy box,” one fan explained.`\
 https://www.nytimes.com/2026/10/23/world/europe/finland-puppies-livestream-slow-tv.html
-
-**Finland’s Puppy Livestream Is an Internet Hit**\
-`More than a million people have watched a 24/7 livestream of six newborn puppies in Finland. The cameras will roll until the pups go to their permanent homes in December.`\
-https://www.nytimes.com/video/world/europe/100000011229847/finland-puppies-livestream.html
 
