@@ -1,3 +1,87 @@
+**Book Review: ‘Sleuth-Hound,’ by Lindsey Fitzharris**\
+`A probing, excellent account of one crusading medical professor explores the humanity behind literature’s master of deduction.`\
+https://www.nytimes.com/2026/10/23/books/review/lindsey-fitzharris-sleuth-hound-the-case-of-the-real-sherlock-holmes.html
+
+**At Rikers, Inmates See Themselves in a Film About America’s Jails**\
+`Residents of one of the country’s most troubled facilities were given a preview of “Crime and Punishment in America,” a docuseries premiering on PBS next month.`\
+https://www.nytimes.com/2026/10/23/movies/rikers-island-film-crime-punishment.html
+
+**Military Boards Are Defying Orders and Letting Trans Troops Serve**\
+`The service members at Navy and Marine Corps hearings are finding ways to keep trans troops in uniform.`\
+https://www.nytimes.com/2026/10/23/us/trans-troops-military-boards-retain.html
+
+**Paul Stankard, Revered Paperweight Artist, Has Died**\
+`Yes, paperweights. Working over a nearly 5,000-degree gas flame, he created glass marvels that sold for tens of thousands of dollars. He was 83.`\
+https://www.nytimes.com/2026/10/23/obituaries/paul-stankard-dead.html
+
+**What Personal Questions Do You Ask A.I.?**\
+`If you’ve turned to A.I. for emotional support or help with sticky situations, Times Opinion wants to hear from you.`\
+https://www.nytimes.com/2026/10/23/opinion/ai-chat-personal-questions.html
+
+**The Bukeleization of Latin America Has Arrived**\
+`Nayib Bukele’s notoriously harsh and wildly popular security crackdown in El Salvador is spawning imitators and remaking the region.`\
+https://www.nytimes.com/2026/10/23/world/americas/the-bukeleization-of-latin-america-has-arrived.html
+
+**Book Review: ‘This Is a Door,’ by Daniel Nayeri**\
+`Whether you’re following a path through the woods or gasping at a voice from the ghost world, Daniel Nayeri’s new novel surprises and delights.`\
+https://www.nytimes.com/2026/10/23/books/review/daniel-nayeri-this-is-a-door-kids.html
+
+**Word of the Day: matinee**\
+`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/23/learning/word-of-the-day-matinee.html
+
+**When the Family Beach House Becomes a Point of Tension**\
+`A record percentage of U.S. property transfers last year were through inheritance, but taking over a home with sentimental value can be fraught.`\
+https://www.nytimes.com/2026/10/23/realestate/when-the-family-beach-house-becomes-a-point-of-tension.html
+
+**The Epstein Files Produce an Unlikely Weapon for the Houthi Messaging Wars**\
+`The Yemeni militia is using the culture of its sworn enemies in the renewed fighting with Saudi Arabia.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/houthis-saudi-arabia-propaganda-epstein.html
+
+**How Coco Chanel’s Love of the Lion Inspired a New Necklace**\
+`The brand’s gleaming new design was sparked by its founder’s fascination with the animal.`\
+https://www.nytimes.com/2026/10/23/t-magazine/a-chanel-necklace-as-regal-as-a-lion.html
+
+**Dave Regan Pushed the Billionaire Tax Hard. Now He Faces a Union Inquiry.**\
+`The tax initiative is the most ambitious proposal that Dave Regan has ever qualified for the California ballot. Some Democrats hope it will be his final one.`\
+https://www.nytimes.com/2026/10/23/us/seiu-union-leader-dave-regan-billionaire-tax.html
+
+**Why Tofu Is the Perfect Dessert Ingredient**\
+`Plus: a new stay in Indonesia, dramatic pearls and more from T’s cultural compendium.`\
+https://www.nytimes.com/2026/10/23/t-magazine/tofu-dessert-chefs-restaurants.html
+
+**Melanoma Vaccine Ushers in New Hope for Cancer Patients**\
+`Beyond melanoma, scientists are studying cancer vaccines for glioblastoma, pancreatic cancer and more.`\
+https://www.nytimes.com/2026/10/23/well/first-of-its-kind-vaccine-ushers-in-new-hope-for-cancer-patients.html
+
+**Alpha School Claims to Teach Kids Twice as Fast. Many Don’t Make It.**\
+`Alpha School, a private network, is spreading into public education. While its students’ test scores are high, some parents and educators say it doesn’t live up to the hype.`\
+https://www.nytimes.com/2026/10/23/us/alpha-school-ai-education-parents.html
+
+**Why Has This Teenager Tracked Down 11,377 Moths Since April?**\
+`Violet Clinton is doing field research that one Cornell entomologist said would “outlive her.” Her dad still has to buy the beer for her moth bait.`\
+https://www.nytimes.com/2026/10/23/style/violet-clinton-teen-moth-research.html
+
+**’70s Horror Movies Worth Resurrecting This Halloween**\
+`Industry experts chose their unsung favorites, which feature vampires, stalkers, killer ants and all manner of gore.`\
+https://www.nytimes.com/2026/10/23/t-magazine/horror-movies-underrated-list-1970s.html
+
+**6 Horse Therapy Retreats That Offer Meditation, Yoga and More**\
+`In new programs, interactions with horses go beyond riding to meditation, yoga and therapy that practitioners say can help restore life balance.`\
+https://www.nytimes.com/2026/10/23/travel/horse-therapy-retreats.html
+
+**What Is the Proper Punishment for Kicking Off the Covers at Night?**\
+`A ruling on a bedspread-related dispute.`\
+https://www.nytimes.com/quiz/2026/10/23/magazine/blanket-sleeping-hodgman-quiz.html
+
+**The News Quiz**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/23/briefing/weekly-news-quiz.html
+
+**Why Trump’s 2024 Voters Are Turning on Him**\
+`Sarah Longwell has conducted hundreds of focus groups with Trump voters, and many of them are feeling betrayed.`\
+https://www.nytimes.com/video/opinion/100000011225543/why-trumps-2024-voters-are-turning-on-him.html
+
 **Is This Economy Trump’s Fault?**\
 `Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
 https://www.nytimes.com/video/opinion/100000011225115/is-this-economy-trumps-fault.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/10/22/us/elections/trump-rally-iowa-senate-race.htm
 **Trump’s ‘Smart Wall’ of A.I. Cameras Is Watching the Border, and More Than a Million People**\
 `The administration is planning a massive expansion of the surveillance program. Here’s how much it can see.`\
 https://www.nytimes.com/interactive/2026/10/22/us/politics/ai-surveillance-cameras-border-mexico.html
-
-**Who is the Understudy for the Understudies?**\
-`A day in the life of a Broadway “swing” requires knowing the choreography and the harmonies for the whole show. And sometimes, a swing even gets onstage.`\
-https://www.nytimes.com/interactive/2026/10/22/nyregion/new-york-at-work-broadway-swing.html
-
-**Ocasio-Cortez Says Democrats Should Stand Up for Trans Americans**\
-`At an event in Maine, an audience member told the New York progressive that “a lot of trans people in America feel that we have been abandoned by the Democratic Party.”`\
-https://www.nytimes.com/2026/10/22/us/aoc-trans-rights-democrats.html
-
-**Trump Administration Asks Appeals Court to Intervene in California Mail Ballot Suit**\
-`The Justice Department sought to jump-start a lawsuit aimed at compelling the state to not count as many as 20,000 mail ballots it claims were sent to noncitizens.`\
-https://www.nytimes.com/2026/10/22/us/politics/trump-california-mail-ballot-lawsuit.html
-
-**Video by Left-Wing Group Claims Lindsey Graham Paid Men for Sex**\
-`Progressive activists released a video of three men making the allegations about the South Carolina Republican, who died in July. The New York Times has not confirmed their claims.`\
-https://www.nytimes.com/2026/10/22/us/politics/video-lindsey-graham.html
-
-**A Sparkling ‘Imaginary Invalid,’ With Bill Irwin, Is the Cure for What Ails You**\
-`Bill Irwin, who may well be our greatest living clown, stars in his own adaptation of Molière’s 1673 play about a domineering hypochondriac paterfamilias.`\
-https://www.nytimes.com/2026/10/22/theater/imaginary-invalid-review-bill-irwin-moliere.html
-
-**NYT Crossword Answers for Oct. 23, 2026**\
-`Katie Hoody opens our solving weekend.`\
-https://www.nytimes.com/2026/10/22/crosswords/daily-puzzle-2026-10-23.html
-
-**New York at Work**\
-`A regular feature devoted to the not-so-small coterie of workers, largely unheralded, who make New York New York.`\
-https://www.nytimes.com/interactive/2026/nyregion/new-york-at-work.html
-
-**Pete Ricketts’s Wealth Puts Class at the Center of Nebraska’s Senate Race**\
-`In a year when the wealth of the rich soared while workers lost ground to inflation, class has become political, especially in the Nebraska Senate race.`\
-https://www.nytimes.com/2026/10/22/us/politics/pete-ricketts-billionaire-nebraska-senate-race.html
-
-**Trump Asked Musk to Reverse Limits on Ukraine’s Military Internet Use**\
-`The call from the president about the Starshield network came after officials in Ukraine reported that they found new limits on the use of military drones in their war against Russia.`\
-https://www.nytimes.com/2026/10/22/us/politics/starshield-outage-ukraine-musk-trump.html
-
-**New York City Passes Horse Carriage Ban**\
-`The New York City Council on Thursday passed a bill that bans horse-drawn carriages from operating in the city after June 2028.`\
-https://www.nytimes.com/video/us/100000011231690/new-york-city-passes-horse-carriage-ban.html
-
-**The Ad Dividing the Republican Party**\
-`Trump got behind a much-criticized spot in the Ohio governor’s race.`\
-https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
-
-**What to Know About the Investigation Into Ilhan Omar’s Citizenship**\
-`The Justice Department is reviewing whether Representative Ilhan Omar, a Minnesota Democrat, broke the law when she became a U.S. citizen decades ago. Here’s what we know.`\
-https://www.nytimes.com/2026/10/22/us/ilhan-omar-federal-investigation-immigration.html
-
-**Bernie Sanders Gives $1 Million to Bolster El-Sayed and Counter AIPAC in Michigan**\
-`The transfer came day after the news that the pro-Israel lobby was planning to contribute as much as $9 million to defeat the Democratic nominee for Senate.`\
-https://www.nytimes.com/2026/10/22/us/politics/sanders-el-sayed-aipac-michigan.html
-
-**Heat Waves Killed an Estimated 50,000 in European Cities, a Likely Record**\
-`This summer’s heat was the continent’s deadliest by far this century, according to new peer-reviewed estimates.`\
-https://www.nytimes.com/2026/10/22/climate/europe-summer-heat-deaths.html
-
-**Bus Commuters Fume as Port Authority Bus Terminal Revamp Causes Delays**\
-`Detours and demolition tied to the $11 billion replacement of the bus terminal are causing rush-hour headaches for commuters.`\
-https://www.nytimes.com/2026/10/22/nyregion/commuter-buses-delays-port-authority.html
-
-**Supreme Court Allows Blanket Ban on Student IDs at Polls in New Hampshire**\
-`The justices had been asked to weigh in on a New Hampshire directive that prevented election officials from considering student IDs to prove a voter’s identity.`\
-https://www.nytimes.com/2026/10/22/us/politics/supreme-court-new-hampshire-election-student-id.html
-
-**What Dueling Visits by Ocasio-Cortez and Manchin Say About Maine’s Senate Race**\
-`Senator Susan Collins, a Republican in a tight race, is keying her closing pitch to the middle, while her progressive challenger, Troy Jackson, is seeking to excite the left.`\
-https://www.nytimes.com/2026/10/22/us/politics/maine-aoc-jackson-collins-manchin-senate.html
-
-**Road Rage Over Lane Change Led to Fatal Bridge Shooting, Prosecutors Say**\
-`Koran Irvine, 46, died from a single gunshot wound on the George Washington Bridge during his evening commute on Tuesday.`\
-https://www.nytimes.com/2026/10/22/nyregion/nyc-shooting-george-washington-bridge.html
-
-**Trump Goes to Iowa, Hoping to Stop Farmers From Voting Blue**\
-`Also, a top Trump health adviser resigns. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/10/22/briefing/trump-iowa-roller-coaster-safety.html
-
-**Bard College Hires Forensic Firm to Investigate a Damning Epstein Email**\
-`The firm suggested the former Bard president’s email to Jeffrey Epstein about a young woman may have been fake. Congressional Democrats who publicized the message disagree.`\
-https://www.nytimes.com/2026/10/22/us/bard-college-forensic-cybersecurity-epstein-email.html
-
-**Above Iran’s Capital, a Trump Impersonator Dances in a Jail Cell**\
-`The Islamic republic has long used billboards in Tehran to mock its opponents and hammer home its messaging, but this piece of performance propaganda is perhaps the most eccentric yet.`\
-https://www.nytimes.com/2026/10/22/world/europe/iran-trump-impersonator-billboard.html
 
