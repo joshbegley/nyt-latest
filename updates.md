@@ -1,3 +1,15 @@
+**They Made the Skirt of the Week**\
+`The design duo behind Chopova Lowena on Alexander Skarsgard’s red carpet look.`\
+https://www.nytimes.com/2026/10/23/style/chopova-lowena-made-the-skirt-of-the-week.html
+
+**Under U.S. Watch, Venezuela Grapples With Tensions Over Democracy**\
+`President Trump says Venezuela is not ready for elections, and he focuses instead on its oil. But Secretary of State Marco Rubio is nudging talks between opposing politicians.`\
+https://www.nytimes.com/2026/10/23/us/politics/venezuela-trump-rubio-elections.html
+
+**Here’s What Democrats Plan to Do With Their Power if They Win Back Congress**\
+`Democrats have campaigned on lowering living costs and holding the Trump administration accountable. This is a look at their to-do list if they win the majority.`\
+https://www.nytimes.com/2026/10/23/us/politics/democrats-congress-majority-agenda.html
+
 **Bard Names Marvin Krislov as President, as Former Leader Fends Off Epstein Allegations**\
 `The new president, Marvin Krislov, has led Pace University and Oberlin College. He replaces Leon Botstein, who retired and has faced scrutiny over ties to Jeffrey Epstein.`\
 https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
