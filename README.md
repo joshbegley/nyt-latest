@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/10/23/t-magazine/tofu-dessert-chefs-restaurants.htm
 `Beyond melanoma, scientists are studying cancer vaccines for glioblastoma, pancreatic cancer and more.`\
 https://www.nytimes.com/2026/10/23/well/first-of-its-kind-vaccine-ushers-in-new-hope-for-cancer-patients.html
 
-**Why Has This Teenager Tracked Down 11,377 Moths Since April?**\
-`Violet Clinton is doing field research that one Cornell entomologist said would “outlive her.” Her dad still has to buy the beer for her moth bait.`\
-https://www.nytimes.com/2026/10/23/style/violet-clinton-teen-moth-research.html
+**Alpha School Claims to Teach Kids Twice as Fast. Many Don’t Make It.**\
+`Alpha School, a private network, is spreading into public education. While its students’ test scores are high, some parents and educators say it doesn’t live up to the hype.`\
+https://www.nytimes.com/2026/10/23/us/alpha-school-ai-education-parents.html
 
