@@ -1,3 +1,11 @@
+**Two Former F.B.I. Officials Charged With False Statements About Biden’s Son**\
+`The charges intensified the administration’s efforts to go after the law enforcement and intelligence personnel who cast doubt on unsubstantiated claims that Joseph R. Biden Jr. engaged in corrupt dealings in Ukraine.`\
+https://www.nytimes.com/2026/10/23/us/politics/former-fbi-officials-charged-with-lying-hunter-biden.html
+
+**Trump’s Pursuit of Ilhan Omar Is an Abuse of Power**\
+`Trump’s latest attempt to denaturalize Representative Ilhan Omar is yet another signal of his abuse of power, argues the columnist Jamelle Bouie. In fact, the entire immoral act, according to Bouie, “encapsulates the president’s outright contempt, hostility to, arguably, opposition to the Constitution itself.”`\
+https://www.nytimes.com/video/opinion/100000011227982/trumps-pursuit-of-ilhan-omar-is-an-abuse-of-power.html
+
 **Shooting at a Church in Jordan Kills at Least Seven**\
 `A shooting at a church in the Karak Province in Jordan left seven people dead and nearly three dozen injured, the local authorities said.`\
 https://www.nytimes.com/video/world/middleeast/100000011232707/jordan-church-shooting.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project
 **Gunmen Open Fire at Church in Jordan, Killing at Least Seven**\
 `The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s police chief.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
-
-**Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
-`The Swedish automaker plans to cut another 2,500 jobs, joining competitors in offering a gloomy view of the world’s biggest car market.`\
-https://www.nytimes.com/2026/10/23/business/volvo-china-2500-job-cuts.html
-
-**Ambush of Salvadoran Soldiers Escalates Haiti’s Anti-Gang Mission**\
-`With four soldiers missing, Haiti’s new Gang Suppression Force, already off to a rocky start, is facing its first crisis.`\
-https://www.nytimes.com/2026/10/23/world/americas/el-salvador-military-haiti-gangs.html
 
