@@ -1,3 +1,11 @@
+**NASA Is Still Aiming for the Next Moon Landing in 2028**\
+`Administrator Jared Isaacman said that the space agency was exploring ways to keep Artemis III on target without compromising safety.`\
+https://www.nytimes.com/2026/10/23/science/space/nasa-artemis-program-update.html
+
+**Alaska courts ruled months ago on the two Dan Sullivans in the Senate race.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/23/us/alaska-courts-ruled-months-ago-on-the-two-dan-sullivans-in-the-senate-race.html
+
 **What to Know About Alaska’s Senate Race**\
 `President Trump told the Justice Department to intervene in the race, where polling shows Republicans at risk of losing a seat.`\
 https://www.nytimes.com/2026/10/23/us/politics/alaska-senate-race-explainer.html
