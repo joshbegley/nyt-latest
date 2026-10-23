@@ -1,3 +1,7 @@
+**Trump Rallies to Shore Up Iowa Senate Race for Ashley Hinson**\
+`The president visited Sioux City, part of deep-red Western Iowa, in an effort to boost GOP turnout in a state that was once solidly Republican.`\
+https://www.nytimes.com/2026/10/22/us/elections/trump-rally-iowa-senate-race.html
+
 **Trump’s ‘Smart Wall’ of A.I. Cameras Is Watching the Border, and More Than a Million People**\
 `The administration is planning a massive expansion of the surveillance program. Here’s how much it can see.`\
 https://www.nytimes.com/interactive/2026/10/22/us/politics/ai-surveillance-cameras-border-mexico.html
