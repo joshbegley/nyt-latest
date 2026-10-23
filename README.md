@@ -1,3 +1,7 @@
+**What to Know About Alaska’s Senate Race**\
+`President Trump told the Justice Department to intervene in the race, where polling shows Republicans at risk of losing a seat.`\
+https://www.nytimes.com/2026/10/23/us/politics/alaska-senate-race-explainer.html
+
 **France’s Avoids a Debt Downgrade From Moody’s, but Is Given a Warning**\
 `Moody’s held the country’s credit rating steady amid political uncertainty and a rise in borrowing costs that have worsened France’s debt situation.`\
 https://www.nytimes.com/2026/10/23/business/france-debt-moodys-protests.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/10/23/us/oregon-shooting-gunman-kaylub-giamanco.htm
 https://www.nytimes.com/2026/10/23/insider/cooking-recipes-ai.html
 
 **iPhone Duo, Apple’s First Foldable Phone, Goes On Sale**\
-`Fans lined up for hours outside stores of Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
+`Fans lined up for hours outside Apple stores on Friday to buy the iPhone Duo, the company’s first foldable phone.`\
 https://www.nytimes.com/video/technology/100000011232864/apple-iphone-duo-foldable-sale.html
 
 **Billy Corgan vs. Pitchfork (and Every Other Critic!)**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-
 **Share Your Experiences With Medicaid Claims for Repayment**\
 `The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
 https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
-
-**How a U.K. Official’s Wife Set Off a Debate Over Free Speech and Palestinians**\
-`Sarah Helm, who is married to Britain’s national security adviser, posted of her support for the author Sally Rooney and a banned pro-Palestinian activist group. A furor ensued.`\
-https://www.nytimes.com/2026/10/23/world/europe/uk-powell-sarah-helm-palestine.html
 
 **Eyeing Return to Power, Democrats Are Crafting a Plan to Dismantle Trump’s Agenda**\
 `(No description)`\
