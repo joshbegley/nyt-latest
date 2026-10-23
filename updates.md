@@ -1,3 +1,11 @@
+**The Financial Woes of a MAGA Bank Entangle 2 G.O.P. Candidates**\
+`Georgia’s Rick Jackson has spearheaded a court battle over a failed ‘anti-woke’ bank that also counted Ohio’s Vivek Ramaswamy as a major investor.`\
+https://www.nytimes.com/2026/10/23/us/rick-jackson-bankruptcy-court-glorifi.html
+
+**Trump Advisers Give Fees Earned for Aiding Srpska to His Library**\
+`The donations from James Blair and Chris LaCivita were revealed after the president expressed pique over their consulting work for Republika Srpska.`\
+https://www.nytimes.com/2026/10/23/us/politics/trump-srpska-donations-library.html
+
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The department, in a highly unusual lawsuit, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
