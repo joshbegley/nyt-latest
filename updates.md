@@ -1,3 +1,11 @@
+**Appeals Court Backs Trump on Constitutionality of Detentions**\
+`The ruling, from the U.S. Court of Appeals for the Fifth Circuit, sharply curtails the ability of judges to free undocumented immigrants.`\
+https://www.nytimes.com/2026/10/23/us/politics/appeals-court-trump-constitution-detention.html
+
+**Politicians, Stop Promising ‘Rainbows and Ponies’**\
+`Why do politicians keep promising quick fixes for deep economic problems? On “The Opinions,” Catherine Rampell calls out the political offerings of “rainbows and ponies” — and why chasing immediate gratification only deepens systemic issues, such as housing affordability.`\
+https://www.nytimes.com/video/opinion/100000011225117/politicians-stop-promising-rainbows-and-ponies.html
+
 **What Could Democrats Do if They Win Congress?**\
 `Democrats are preparing a “first 100 hours” plan to try to roll back some of President Trump’s most unpopular policies if they regain control of the House and perhaps the Senate in the midterms. Our congressional correspondent Annie Karni explains what they could accomplish and how they hope to put Republicans on the spot.`\
 https://www.nytimes.com/video/us/politics/100000011228136/what-could-democrats-do-if-they-win-congress.html
