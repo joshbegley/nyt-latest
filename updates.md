@@ -1,3 +1,15 @@
+**Meghan Says She Is ‘Distressed’ by Claim Her Father Kept Child Abuse Images**\
+`The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
+https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html
+
+**A Fight Over Felon Voting Fuels a Free Speech Debate**\
+`A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
+https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
+
+**Gunmen Open Fire at Church in Jordan, Killing at Least Six**\
+`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. It was one of the kingdom’s deadliest attacks in years.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
+
 **Campaigns Spend Over $1 Billion Over Two Weeks in Final Search for Votes**\
 `Fueled by tens of millions from Elon Musk, President Trump’s super PAC, Michael Bloomberg and other big donors, both parties are pumping enormous amounts into the final days of the midterms.`\
 https://www.nytimes.com/2026/10/23/us/midterm-campaign-finance.html
