@@ -1,3 +1,7 @@
+**Arms Race Intensifies in Korea as the North Is Emboldened by Russia Alliance**\
+`A rare escalation this month exposed the increasingly lethal arsenals the two Koreas are building up across the world’s most heavily fortified border.`\
+https://www.nytimes.com/2026/10/23/world/asia/korea-missiles-drones-russia.html
+
 **How Pastors Mobilize Communities in Congo’s Fight Against Ebola**\
 `As health care workers fought to control the latest outbreak this year, they got crucial aid from churches in beating back fear and misinformation.`\
 https://www.nytimes.com/2026/10/23/world/africa/congo-ebola-catholic-church-rumors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/opinion/lived-experience-race-gender-writers.
 **President Trump Appears to Celebrate After a Rallygoer Punched a Protester**\
 `President Trump appeared to celebrate after a rallygoer physically confronted a protester at a rally in South Carolina on Wednesday. He was campaigning for Senator Darline Graham as he barnstorms ahead of the midterm election.`\
 https://www.nytimes.com/video/us/politics/100000011230314/trump-south-carolina-rally-protesters-punch.html
-
-**What’s Going On in This Picture? | Oct. 26, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/10/22/learning/whats-going-on-in-this-picture-oct-19-2026.html
 

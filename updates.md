@@ -1,3 +1,7 @@
+**Arms Race Intensifies in Korea as the North Is Emboldened by Russia Alliance**\
+`A rare escalation this month exposed the increasingly lethal arsenals the two Koreas are building up across the world’s most heavily fortified border.`\
+https://www.nytimes.com/2026/10/23/world/asia/korea-missiles-drones-russia.html
+
 **How Pastors Mobilize Communities in Congo’s Fight Against Ebola**\
 `As health care workers fought to control the latest outbreak this year, they got crucial aid from churches in beating back fear and misinformation.`\
 https://www.nytimes.com/2026/10/23/world/africa/congo-ebola-catholic-church-rumors.html
