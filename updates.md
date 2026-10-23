@@ -1,3 +1,91 @@
+**Book Review: ‘Sleuth-Hound,’ by Lindsey Fitzharris**\
+`A probing, excellent account of one crusading medical professor explores the humanity behind literature’s master of deduction.`\
+https://www.nytimes.com/2026/10/23/books/review/lindsey-fitzharris-sleuth-hound-the-case-of-the-real-sherlock-holmes.html
+
+**At Rikers, Inmates See Themselves in a Film About America’s Jails**\
+`Residents of one of the country’s most troubled facilities were given a preview of “Crime and Punishment in America,” a docuseries premiering on PBS next month.`\
+https://www.nytimes.com/2026/10/23/movies/rikers-island-film-crime-punishment.html
+
+**Military Boards Are Defying Orders and Letting Trans Troops Serve**\
+`The service members at Navy and Marine Corps hearings are finding ways to keep trans troops in uniform.`\
+https://www.nytimes.com/2026/10/23/us/trans-troops-military-boards-retain.html
+
+**Paul Stankard, Revered Paperweight Artist, Has Died**\
+`Yes, paperweights. Working over a nearly 5,000-degree gas flame, he created glass marvels that sold for tens of thousands of dollars. He was 83.`\
+https://www.nytimes.com/2026/10/23/obituaries/paul-stankard-dead.html
+
+**What Personal Questions Do You Ask A.I.?**\
+`If you’ve turned to A.I. for emotional support or help with sticky situations, Times Opinion wants to hear from you.`\
+https://www.nytimes.com/2026/10/23/opinion/ai-chat-personal-questions.html
+
+**The Bukeleization of Latin America Has Arrived**\
+`Nayib Bukele’s notoriously harsh and wildly popular security crackdown in El Salvador is spawning imitators and remaking the region.`\
+https://www.nytimes.com/2026/10/23/world/americas/the-bukeleization-of-latin-america-has-arrived.html
+
+**Book Review: ‘This Is a Door,’ by Daniel Nayeri**\
+`Whether you’re following a path through the woods or gasping at a voice from the ghost world, Daniel Nayeri’s new novel surprises and delights.`\
+https://www.nytimes.com/2026/10/23/books/review/daniel-nayeri-this-is-a-door-kids.html
+
+**Word of the Day: matinee**\
+`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/23/learning/word-of-the-day-matinee.html
+
+**When the Family Beach House Becomes a Point of Tension**\
+`A record percentage of U.S. property transfers last year were through inheritance, but taking over a home with sentimental value can be fraught.`\
+https://www.nytimes.com/2026/10/23/realestate/when-the-family-beach-house-becomes-a-point-of-tension.html
+
+**The Epstein Files Produce an Unlikely Weapon for the Houthi Messaging Wars**\
+`The Yemeni militia is using the culture of its sworn enemies in the renewed fighting with Saudi Arabia.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/houthis-saudi-arabia-propaganda-epstein.html
+
+**How Coco Chanel’s Love of the Lion Inspired a New Necklace**\
+`The brand’s gleaming new design was sparked by its founder’s fascination with the animal.`\
+https://www.nytimes.com/2026/10/23/t-magazine/a-chanel-necklace-as-regal-as-a-lion.html
+
+**Dave Regan Pushed the Billionaire Tax Hard. Now He Faces a Union Inquiry.**\
+`The tax initiative is the most ambitious proposal that Dave Regan has ever qualified for the California ballot. Some Democrats hope it will be his final one.`\
+https://www.nytimes.com/2026/10/23/us/seiu-union-leader-dave-regan-billionaire-tax.html
+
+**Why Tofu Is the Perfect Dessert Ingredient**\
+`Plus: a new stay in Indonesia, dramatic pearls and more from T’s cultural compendium.`\
+https://www.nytimes.com/2026/10/23/t-magazine/tofu-dessert-chefs-restaurants.html
+
+**Melanoma Vaccine Ushers in New Hope for Cancer Patients**\
+`Beyond melanoma, scientists are studying cancer vaccines for glioblastoma, pancreatic cancer and more.`\
+https://www.nytimes.com/2026/10/23/well/first-of-its-kind-vaccine-ushers-in-new-hope-for-cancer-patients.html
+
+**Alpha School Claims to Teach Kids Twice as Fast. Many Don’t Make It.**\
+`Alpha School, a private network, is spreading into public education. While its students’ test scores are high, some parents and educators say it doesn’t live up to the hype.`\
+https://www.nytimes.com/2026/10/23/us/alpha-school-ai-education-parents.html
+
+**Why Has This Teenager Tracked Down 11,377 Moths Since April?**\
+`Violet Clinton is doing field research that one Cornell entomologist said would “outlive her.” Her dad still has to buy the beer for her moth bait.`\
+https://www.nytimes.com/2026/10/23/style/violet-clinton-teen-moth-research.html
+
+**’70s Horror Movies Worth Resurrecting This Halloween**\
+`Industry experts chose their unsung favorites, which feature vampires, stalkers, killer ants and all manner of gore.`\
+https://www.nytimes.com/2026/10/23/t-magazine/horror-movies-underrated-list-1970s.html
+
+**6 Horse Therapy Retreats That Offer Meditation, Yoga and More**\
+`In new programs, interactions with horses go beyond riding to meditation, yoga and therapy that practitioners say can help restore life balance.`\
+https://www.nytimes.com/2026/10/23/travel/horse-therapy-retreats.html
+
+**What Is the Proper Punishment for Kicking Off the Covers at Night?**\
+`A ruling on a bedspread-related dispute.`\
+https://www.nytimes.com/quiz/2026/10/23/magazine/blanket-sleeping-hodgman-quiz.html
+
+**The News Quiz**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/23/briefing/weekly-news-quiz.html
+
+**Why Trump’s 2024 Voters Are Turning on Him**\
+`Sarah Longwell has conducted hundreds of focus groups with Trump voters, and many of them are feeling betrayed.`\
+https://www.nytimes.com/video/opinion/100000011225543/why-trumps-2024-voters-are-turning-on-him.html
+
+**Is This Economy Trump’s Fault?**\
+`Ahead of the midterms, Natasha Sarin and Catherine Rampell unpack the state of the economy — and how much responsibility the president bears for it.`\
+https://www.nytimes.com/video/opinion/100000011225115/is-this-economy-trumps-fault.html
+
 **15-Minute Lesson Plan: Your Exercise I.Q.**\
 `What is your relationship with fitness? How much do you think you know about the best ways to work out?`\
 https://www.nytimes.com/2026/10/23/learning/15-minute-lesson-plan-your-exercise-iq.html
