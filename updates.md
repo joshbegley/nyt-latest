@@ -1,3 +1,15 @@
+**How Pastors Mobilize Communities in Congo’s Fight Against Ebola**\
+`As health care workers fought to control the latest outbreak this year, they got crucial aid from churches in beating back fear and misinformation.`\
+https://www.nytimes.com/2026/10/23/world/africa/congo-ebola-catholic-church-rumors.html
+
+**Quote of the Day: Europeans Have a Love-Hate Relationship With Chinese Cars**\
+`Quotation of the Day for Friday, October 23, 2026.`\
+https://www.nytimes.com/2026/10/23/pageoneplus/quote-of-the-day-europeans-have-a-love-hate-relationship-with-chinese-cars.html
+
+**Gadi Eisenkot Couldn’t Be More Unlike Netanyahu. Can He Beat Him?**\
+`Mr. Eisenkot, an ex-military chief leading in the polls, calls the Israeli prime minister an “anti-leader.” But his low-key campaigning style is worrying supporters.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/gadi-eisenkot-israel-election.html
+
 **When My Husband Blacked Out, I Crash-Landed Our Plane**\
 `Would I ever fly again?`\
 https://www.nytimes.com/2026/10/23/style/modern-love-when-my-husband-blacked-out-i-crash-landed-our-plane.html
