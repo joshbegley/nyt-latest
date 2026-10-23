@@ -1,3 +1,27 @@
+**Today’s Wordle Answers for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
+
+**The A.I.-Powered Cameras Watching Border Towns, and a Midterms Attack Ad Causes Outrage**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-headlines/ai-cameras-border-towns-midterms-ad.html
+
+**NYT Connections Answers for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/connections-companion-1231.html
+
+**What Actually Happens on NFL Headsets?**\
+`Plus, chaos for the Los Angeles Rams.`\
+https://www.nytimes.com/2026/10/23/podcasts/what-actually-happens-on-nfl-headsets.html
+
+**The Battle Over Black Representation in the South**\
+`This year has resulted in arguably the biggest challenge to political representation for Black Americans in decades — nowhere has this been felt more than in the south.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-daily/black-representation-voters-senate-south-redistricting.html
+
+**NYT Strands Hints for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/strands-sidekick-965.html
+
 **Alpha School Claims to Teach Kids Twice as Fast. Many Don’t Make It.**\
 `Alpha School, a private network, is spreading into public education. While its students’ test scores are high, some parents and educators say it doesn’t live up to the hype.`\
 https://www.nytimes.com/2026/10/23/us/alpha-school-ai-education-parents.html

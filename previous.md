@@ -1,3 +1,27 @@
+**Today’s Wordle Answers for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/wordle-review-1953.html
+
+**The A.I.-Powered Cameras Watching Border Towns, and a Midterms Attack Ad Causes Outrage**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-headlines/ai-cameras-border-towns-midterms-ad.html
+
+**NYT Connections Answers for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/connections-companion-1231.html
+
+**What Actually Happens on NFL Headsets?**\
+`Plus, chaos for the Los Angeles Rams.`\
+https://www.nytimes.com/2026/10/23/podcasts/what-actually-happens-on-nfl-headsets.html
+
+**The Battle Over Black Representation in the South**\
+`This year has resulted in arguably the biggest challenge to political representation for Black Americans in decades — nowhere has this been felt more than in the south.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-daily/black-representation-voters-senate-south-redistricting.html
+
+**NYT Strands Hints for October 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 24, 2026.`\
+https://www.nytimes.com/2026/10/23/crosswords/strands-sidekick-965.html
+
 **Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
 `Five people were wounded in the attack, days before national elections, health workers said. The Israeli military said its soldiers had killed two of the assailants.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/23/learning/word-of-the-day-matinee.html
 **When the Family Beach House Becomes a Point of Tension**\
 `A record percentage of U.S. property transfers last year were through inheritance, but taking over a home with sentimental value can be fraught.`\
 https://www.nytimes.com/2026/10/23/realestate/when-the-family-beach-house-becomes-a-point-of-tension.html
-
-**The Epstein Files Produce an Unlikely Weapon for the Houthi Messaging Wars**\
-`The Yemeni militia is using the culture of its sworn enemies in the renewed fighting with Saudi Arabia.`\
-https://www.nytimes.com/2026/10/23/world/middleeast/houthis-saudi-arabia-propaganda-epstein.html
-
-**How Coco Chanel’s Love of the Lion Inspired a New Necklace**\
-`The brand’s gleaming new design was sparked by its founder’s fascination with the animal.`\
-https://www.nytimes.com/2026/10/23/t-magazine/a-chanel-necklace-as-regal-as-a-lion.html
-
-**Dave Regan Pushed the Billionaire Tax Hard. Now He Faces a Union Inquiry.**\
-`The tax initiative is the most ambitious proposal that Dave Regan has ever qualified for the California ballot. Some Democrats hope it will be his final one.`\
-https://www.nytimes.com/2026/10/23/us/seiu-union-leader-dave-regan-billionaire-tax.html
-
-**Why Tofu Is the Perfect Dessert Ingredient**\
-`Plus: a new stay in Indonesia, dramatic pearls and more from T’s cultural compendium.`\
-https://www.nytimes.com/2026/10/23/t-magazine/tofu-dessert-chefs-restaurants.html
-
-**Melanoma Vaccine Ushers in New Hope for Cancer Patients**\
-`Beyond melanoma, scientists are studying cancer vaccines for glioblastoma, pancreatic cancer and more.`\
-https://www.nytimes.com/2026/10/23/well/first-of-its-kind-vaccine-ushers-in-new-hope-for-cancer-patients.html
-
-**Alpha School Claims to Teach Kids Twice as Fast. Many Don’t Make It.**\
-`Alpha School, a private network, is spreading into public education. While its students’ test scores are high, some parents and educators say it doesn’t live up to the hype.`\
-https://www.nytimes.com/2026/10/23/us/alpha-school-ai-education-parents.html
 

@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/23/world/europe/russia-ukraine-public-opinion.ht
 `Its Hall-of-Fame speakers may be vanishing, but this apparent “scam” continues to pitch financial salvation.`\
 https://www.nytimes.com/2026/10/23/podcasts/inside-life-surge-mother-jones-kiera-butler.html
 
-**What Ramaswamy’s Vile Ad Reveals About the Future of Conservatism**\
+**The Meaning of the Republican War Over Ramaswamy’s Vile Ad**\
 `The G.O.P. nominee in Ohio has given conservatives space to reckon with the ethical degradation of Trumpism.`\
 https://www.nytimes.com/2026/10/23/opinion/acton-ramaswamy-ad-trump-ohio.html
 
