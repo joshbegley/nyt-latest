@@ -1,3 +1,7 @@
+**Gunmen Open Fire at Church in Jordan, Killing Several People**\
+`The attack took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. Security forces are pursuing the gunmen, the state broadcaster reported.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
+
 **One Killed Near Paris After Gunman Fires at Random, Officials Say**\
 `The shooter was arrested after firing from a car in several locations southwest of the capital. Antiterrorism prosecutors said they were exploring a racial or religious motive.`\
 https://www.nytimes.com/2026/10/23/world/europe/france-shooting.html
