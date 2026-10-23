@@ -1,6 +1,6 @@
-**Two Former F.B.I. Officials Charged With False Statements About Biden’s Son**\
+**Two Former F.B.I. Officials Charged With False Statements About Hunter Biden**\
 `The charges intensified the administration’s efforts to go after the law enforcement and intelligence personnel who cast doubt on unsubstantiated claims that Joseph R. Biden Jr. engaged in corrupt dealings in Ukraine.`\
-https://www.nytimes.com/2026/10/23/us/politics/former-fbi-officials-charged-with-lying-hunter-biden.html
+https://www.nytimes.com/2026/10/23/us/politics/hunter-biden-ex-fbi-officials-charged.html
 
 **Trump’s Pursuit of Ilhan Omar Is an Abuse of Power**\
 `Trump’s latest attempt to denaturalize Representative Ilhan Omar is yet another signal of his abuse of power, argues the columnist Jamelle Bouie. In fact, the entire immoral act, according to Bouie, “encapsulates the president’s outright contempt, hostility to, arguably, opposition to the Constitution itself.”`\
