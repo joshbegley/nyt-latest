@@ -1,3 +1,19 @@
+**Drivers Are Livid and Activists Exult After Vote to Ban Horse Carriages**\
+`The City Council voted 40 to 7 to ban the carriages from Central Park starting in 2028. But the carriage drivers vowed to fight their loss of livelihood in court.`\
+https://www.nytimes.com/2026/10/23/nyregion/horse-carriage-vote-drivers-city-council.html
+
+**How the Decline of Western NY Defined Kathy Hochul’s Politics**\
+`Gov. Kathy Hochul’s vision for New York has been largely shaped by her upbringing in a failing western New York town and her family’s move up from a trailer park to affluence.`\
+https://www.nytimes.com/2026/10/23/nyregion/kathy-hochul-western-new-york-upbringing-governor.html
+
+**NYT Spelling Bee Answers for October 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/23/crosswords/spelling-bee-forum.html
+
+**‘Cats Love Gravy’: How a Reporter Ended Up at a Pet Food Research Center**\
+`A Times journalist and animal lover spent a day at a Royal Canin facility to understand how pet food giants are studying the taste buds of dogs and cats.`\
+https://www.nytimes.com/2026/10/23/insider/royal-canin-purina.html
+
 **Why the White House Won’t Say ‘A.I.’**\
 `Scary, inspiring or just plain weird? The “Interesting Times” guest host Tyler Cowen asks Trump’s top science adviser, Michael Kratsios, why the White House is rebranding A.I. as “superintelligence.”`\
 https://www.nytimes.com/video/opinion/100000011225446/why-the-white-house-wont-say-ai.html

@@ -1,3 +1,19 @@
+**Drivers Are Livid and Activists Exult After Vote to Ban Horse Carriages**\
+`The City Council voted 40 to 7 to ban the carriages from Central Park starting in 2028. But the carriage drivers vowed to fight their loss of livelihood in court.`\
+https://www.nytimes.com/2026/10/23/nyregion/horse-carriage-vote-drivers-city-council.html
+
+**How the Decline of Western NY Defined Kathy Hochul’s Politics**\
+`Gov. Kathy Hochul’s vision for New York has been largely shaped by her upbringing in a failing western New York town and her family’s move up from a trailer park to affluence.`\
+https://www.nytimes.com/2026/10/23/nyregion/kathy-hochul-western-new-york-upbringing-governor.html
+
+**NYT Spelling Bee Answers for October 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/23/crosswords/spelling-bee-forum.html
+
+**‘Cats Love Gravy’: How a Reporter Ended Up at a Pet Food Research Center**\
+`A Times journalist and animal lover spent a day at a Royal Canin facility to understand how pet food giants are studying the taste buds of dogs and cats.`\
+https://www.nytimes.com/2026/10/23/insider/royal-canin-purina.html
+
 **Why the White House Won’t Say ‘A.I.’**\
 `Scary, inspiring or just plain weird? The “Interesting Times” guest host Tyler Cowen asks Trump’s top science adviser, Michael Kratsios, why the White House is rebranding A.I. as “superintelligence.”`\
 https://www.nytimes.com/video/opinion/100000011225446/why-the-white-house-wont-say-ai.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/22/us/florida-police-officer-arrested-housing-sc
 **A Cancer Revolution**\
 `We look at how screening and groundbreaking treatments have radically reduced death rates.`\
 https://www.nytimes.com/2026/10/22/world/cancer-new-treatment-pope-france.html
-
-**MTA Suspends Fare Enforcement on Buses After Altercations With Passengers**\
-`Transit officials said they would pause an enforcement program while they investigated two disputes between passengers and inspectors.`\
-https://www.nytimes.com/2026/10/22/nyregion/mta-suspends-bus-fare-nyc-kyle-taylor.html
-
-**Monet Painting Sells for $56 Million in France**\
-`The artwork, titled “Iris,” is among the painter’s later works, which wealthy collectors have coveted in recent years.`\
-https://www.nytimes.com/2026/10/22/arts/design/claude-monet-painting-auction-paris.html
-
-**Losing Ground in the Climate Fight**\
-`From Brazil to the North Sea, economic interests have been edging out climate priorities this week.`\
-https://www.nytimes.com/2026/10/22/climate/climate-policies-rollback.html
-
-**Cancer Vaccine Cuts the Risk of Melanoma Recurrence, Merck and Moderna Report**\
-`Merck and Moderna released detailed results on an experimental vaccine to treat the skin cancer.`\
-https://www.nytimes.com/2026/10/22/well/cancer-vaccine-melanoma-merck-moderna.html
 
