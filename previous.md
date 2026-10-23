@@ -1,3 +1,7 @@
+**Video by Left-Wing Group Claims Lindsey Graham Paid Men for Sex**\
+`Progressive activists released a video of three men making the allegations about the South Carolina Republican, who died in July. The New York Times has not confirmed their claims.`\
+https://www.nytimes.com/2026/10/22/us/politics/video-lindsey-graham.html
+
 **A Sparkling ‘Imaginary Invalid,’ With Bill Irwin, Is the Cure for What Ails You**\
 `Bill Irwin, who may well be our greatest living clown, stars in his own adaptation of Molière’s 1673 play about a domineering hypochondriac paterfamilias.`\
 https://www.nytimes.com/2026/10/22/theater/imaginary-invalid-review-bill-irwin-moliere.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/theater/tom-hanks-broadway-this-world-of-tomo
 **Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
 `Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
 https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
-
-**Unsealed O.J. Simpson Records Prompt a Request for a New Investigation**\
-`Tanya Brown said she believed someone helped O.J. Simpson get rid of the murder weapon. One of Mr. Simpson’s former lawyers called for a special prosecutor.`\
-https://www.nytimes.com/2026/10/22/us/oj-simpson-accomplice-investigation.html
 

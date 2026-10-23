@@ -1,3 +1,11 @@
+**Ocasio-Cortez Says Democrats Should Stand Up for Trans Americans**\
+`At an event in Maine, an audience member told the New York progressive that “a lot of trans people in America feel that we have been abandoned by the Democratic Party.”`\
+https://www.nytimes.com/2026/10/22/us/aoc-trans-rights-democrats.html
+
+**Trump Administration Asks Appeals Court to Intervene in California Mail Ballot Suit**\
+`The Justice Department sought to jump-start a lawsuit aimed at compelling the state to not count as many as 20,000 mail ballots it claims were sent to noncitizens.`\
+https://www.nytimes.com/2026/10/22/us/politics/administration-california-ballot-suit.html
+
 **Video by Left-Wing Group Claims Lindsey Graham Paid Men for Sex**\
 `Progressive activists released a video of three men making the allegations about the South Carolina Republican, who died in July. The New York Times has not confirmed their claims.`\
 https://www.nytimes.com/2026/10/22/us/politics/video-lindsey-graham.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/10/22/us/trump-golf-course-dc-east-poto
 **I Made You a Soup Bucket List**\
 `Cabbage lentil, tomato-orzo, coconut black bean and more.`\
 https://www.nytimes.com/2026/10/22/dining/i-made-you-a-soup-bucket-list.html
-
-**Tom Hanks Will Return to Broadway in ‘This World of Tomorrow,’ a Time-Travel Romance**\
-`“This World of Tomorrow,” co-starring Kelli O’Hara, will come to Broadway next fall.`\
-https://www.nytimes.com/2026/10/22/theater/tom-hanks-broadway-this-world-of-tomorrow.html
-
-**Italy Experiences Food and Fuel Shortages After Truckers on Strike Block Roads**\
-`Truckers protesting high gas prices have prevented deliveries to parts of southern Italy, leading to empty shelves and dry pumps.`\
-https://www.nytimes.com/2026/10/22/world/europe/italy-protests-shortages-truckers.html
 
