@@ -42,7 +42,7 @@ https://www.nytimes.com/video/world/europe/100000011229847/finland-puppies-lives
 `The Duchess of Sussex said a 2018 letter to royal protection officers informed her decision to keep her children away from Thomas Markle.`\
 https://www.nytimes.com/2026/10/23/world/europe/meghan-markle-father-thomas-child-sexual-abuse.html
 
-**A Fight Over Felon Voting Fuels a Free Speech Debate**\
+**A Fight Over Felon Voting Prompts a Free Speech Debate**\
 `A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
 https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
 
