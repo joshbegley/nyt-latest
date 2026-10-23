@@ -11,7 +11,7 @@ https://www.nytimes.com/video/podcasts/100000011231911/whats-the-deal-with-billy
 https://www.nytimes.com/2026/10/23/podcasts/the-headlines/the-headlines-news-quiz-oct-23-2026.html
 
 **You Are Being Watched**\
-`Especially on the Southern border.`\
+`Especially on the southern border.`\
 https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
 
 **Today’s Wordle Answers for October 24, 2026**\
