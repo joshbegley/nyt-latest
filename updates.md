@@ -1,3 +1,7 @@
+**Shooting at a Church in Jordan Kills at Least Seven**\
+`A shooting at a church in the Karak Province in Jordan left seven people dead and nearly three dozen injured, the local authorities said.`\
+https://www.nytimes.com/video/world/middleeast/100000011232707/jordan-church-shooting.html
+
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html

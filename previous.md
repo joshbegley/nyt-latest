@@ -1,3 +1,7 @@
+**Shooting at a Church in Jordan Kills at Least Seven**\
+`A shooting at a church in the Karak Province in Jordan left seven people dead and nearly three dozen injured, the local authorities said.`\
+https://www.nytimes.com/video/world/middleeast/100000011232707/jordan-church-shooting.html
+
 **At 90, Steve Reich Remains in Good Creative Health**\
 `New York, Reich’s hometown, still has a lot of love for him, with a staged show at the Park Avenue Armory and a birthday concert at Carnegie Hall.`\
 https://www.nytimes.com/2026/10/23/arts/music/steve-reich-90-concerts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/business/volvo-china-2500-job-cuts.html
 **Ambush of Salvadoran Soldiers Escalates Haiti’s Anti-Gang Mission**\
 `With four soldiers missing, Haiti’s new Gang Suppression Force, already off to a rocky start, is facing its first crisis.`\
 https://www.nytimes.com/2026/10/23/world/americas/el-salvador-military-haiti-gangs.html
-
-**Would Your Life Make a Good Documentary?**\
-`TikTok and Instagram users are imagining moments in their lives that might lead to dramatic sit-down interviews. What aspects of your life would you include in your own documentaries?`\
-https://www.nytimes.com/2026/10/23/learning/would-your-life-make-a-good-documentary.html
 
