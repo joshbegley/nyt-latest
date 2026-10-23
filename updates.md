@@ -1,3 +1,15 @@
+**The Core Appeal of ‘America First’**\
+`What is the core appeal of “America first” for swing voters? The political consultant Sarah Longwell tells the Opinion columnist Ezra Klein that voters aren’t driven by ideology; they just want a government that prioritizes their everyday economic needs at home.`\
+https://www.nytimes.com/video/opinion/100000011225553/the-core-appeal-of-america-first.html
+
+**How Jon Ossoff Broke Through Trump’s ‘White Noise’**\
+`How do you break through the noise to make the corruption case against Trump? The political consultant Sarah Longwell says that Democrats can learn a lesson from Jon Ossoff’s step-by-step storytelling on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011225549/how-jon-ossoff-broke-through-trumps-white-noise.html
+
+**Global Oil Price Hits $116 a Barrel, Highest Since April**\
+`Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
+https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
+
 **Is There a Post-Partisan Way to Win in Texas? Gina Hinojosa Is Betting on It.**\
 `The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in “the culture wars.”`\
 https://www.nytimes.com/video/podcasts/100000011212001/is-there-a-post-partisan-way-to-win-in-texas-gina-hinojosa-is-betting-on-it.html
