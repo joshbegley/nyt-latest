@@ -1,3 +1,11 @@
+**Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
+`The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
+https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
+
+**Palestinian Gunmen Open Fire on Israelis in the West Bank, Officials Say**\
+`The Israeli military said two soldiers and two attackers had been killed, and Prime Minister Benjamin Netanyahu vowed to launch a major offensive in the Israeli-occupied territory.`\
+https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-shooting-israel.html
+
 **Trump Officials Seek Block on Alaska Senate Race Results if Republican, Dan Sullivan, Loses**\
 `The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
