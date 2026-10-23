@@ -1,3 +1,7 @@
+**Pete Ricketts’s Wealth Puts Class at the Center of Nebraska’s Senate Race**\
+`In a year when the wealth of the rich soared while workers lost ground to inflation, class has become political, especially in the Nebraska Senate race.`\
+https://www.nytimes.com/2026/10/22/us/politics/pete-ricketts-billionaire-nebraska-senate-race.html
+
 **Trump Asked Musk to Reverse Limits on Ukraine’s Military Internet Use**\
 `The call from the president about the Starshield network came after officials in Ukraine reported that they found new limits on the use of military drones in their war against Russia.`\
 https://www.nytimes.com/2026/10/22/us/politics/starshield-outage-ukraine-musk-trump.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/video/us/100000011231690/new-york-city-passes-horse-carr
 `Trump got behind a much-criticized spot in the Ohio governor’s race.`\
 https://www.nytimes.com/2026/10/22/us/politics/ohio-governor-ad-ramaswamy-acton.html
 
-**Omar Case Could Hinge on Her Birth Date, but She Says No Records Exist**\
+**What to Know About the Investigation Into Ilhan Omar’s Citizenship**\
 `The Justice Department is reviewing whether Representative Ilhan Omar, a Minnesota Democrat, broke the law when she became a U.S. citizen decades ago. Here’s what we know.`\
 https://www.nytimes.com/2026/10/22/us/ilhan-omar-federal-investigation-immigration.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/22/health/ebola-nigeria-congo-kenya.html
 **‘Fatherland’ Review: Returning to a Divided Germany**\
 `Four years after World War II, the writer Thomas Mann returned to his birthplace with his daughter, played by Sandra Hüller in this luminous fictional account.`\
 https://www.nytimes.com/2026/10/22/movies/fatherland-review-thomas-mann.html
-
-**Mortgage Rates Remain Above 7%, Pushing Home Prices Lower in Some Areas**\
-`The 30-year, fixed-rate mortgage dropped slightly to 7.32 percent as prospective home buyers continue to struggle with affordability. But home prices are starting to drop in some areas.`\
-https://www.nytimes.com/2026/10/22/business/mortgage-rates-housing-costs.html
 
