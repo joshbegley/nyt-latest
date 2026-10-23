@@ -1,3 +1,7 @@
+**Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
+`The department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
+https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
+
 **At 90, Steve Reich Remains in Good Creative Health**\
 `New York, Reich’s hometown, still has a lot of love for him, with a staged show at the Park Avenue Armory and a birthday concert at Carnegie Hall.`\
 https://www.nytimes.com/2026/10/23/arts/music/steve-reich-90-concerts.html

@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestini
 https://www.nytimes.com/2026/10/23/us/politics/democrats-congress-majority-agenda.html
 
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
-`The Justice Department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
+`The department, in a highly unusual court filing, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
 
 **Israel to Hold First Election Since Oct. 7 Attack**\
