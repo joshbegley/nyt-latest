@@ -1,3 +1,11 @@
+**Deadly 7.0-Magnitude Quake Hits Tibet**\
+`Video footage released by Chinese state media showed people fleeing and items falling from shelves as a deadly 7.0-magnitude earthquake hit Tibet.`\
+https://www.nytimes.com/video/world/asia/100000011231917/tibet-earthquake-damage.html
+
+**Trees Fall on Cars as Typhoon Champi Hits Taiwan**\
+`Trees crushed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and injured more than 170 others, officials said.`\
+https://www.nytimes.com/video/weather/100000011232104/taiwan-typhoon-champi.html
+
 **Trees Fall on Cars as Typhoon Champi Hits Taiwan**\
 `Trees smashed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and has injured dozens of others, the National Fire Agency of Taiwan said.`\
 https://www.nytimes.com/video/weather/100000011232104/taiwan-typhoon-champi.html

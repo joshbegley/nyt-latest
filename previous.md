@@ -1,5 +1,9 @@
+**Deadly 7.0-Magnitude Quake Hits Tibet**\
+`Video footage released by Chinese state media showed people fleeing and items falling from shelves as a deadly 7.0-magnitude earthquake hit Tibet.`\
+https://www.nytimes.com/video/world/asia/100000011231917/tibet-earthquake-damage.html
+
 **Trees Fall on Cars as Typhoon Champi Hits Taiwan**\
-`Trees smashed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and has injured dozens of others, the National Fire Agency of Taiwan said.`\
+`Trees crushed vehicles as strong winds from Typhoon Champi battered Taiwan. The storm has killed at least one person and injured more than 170 others, officials said.`\
 https://www.nytimes.com/video/weather/100000011232104/taiwan-typhoon-champi.html
 
 **Taiwan Shuts Down as Typhoon Champi Approaches**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/22/nyregion/nyc-subway-shooting-arrest.html
 **Why James Talarico Thinks He Can Win Over Republicans in Texas**\
 `In bright red Texas, James Talarico is asking Texas to do something it hasn’t done in nearly 40 years: elect a Democrat to the U.S. Senate. Talarico is running against Ken Paxton, the Texas attorney general and a Trump ally, in what’s become the most expensive and ferocious campaign of this year’s midterm elections. Ahead of Election Day, Talarico recently joined Michael Barbaro on “The Daily” to discuss his campaign, the highly personal attacks against him, his viewpoint on partisan politics and what he wants Democrats to do if they take back control of Congress.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011228792/why-james-talarico-thinks-he-can-win-over-republicans-in-texas.html
-
-**Why Horror Was an Escape From High School**\
-`For the best-selling fantasy author Leigh Bardugo, the worlds of Stephen King were more appealing than the world of “Sweet Valley High.” Growing up surrounded by popular kids who played volleyball and drove convertibles, she found more of an escape in horror and science fiction than in stories that reminded her of her own life.`\
-https://www.nytimes.com/video/podcasts/100000011231404/why-horror-was-an-escape-from-high-school.html
 
