@@ -1,3 +1,7 @@
+**Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
+`Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
+https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
+
 **Share Your Experiences With Medicaid Claims for Repayment**\
 `The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
 https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
@@ -94,8 +98,8 @@ https://www.nytimes.com/2026/10/23/us/politics/roy-cooper-north-carolina-senate-
 `“The Amish Project,” a solo show, is inspired by a massacre that took place minutes from Groff’s childhood home. He will bring it to Broadway in February.`\
 https://www.nytimes.com/2026/10/23/theater/jonathan-groff-broadway-amish-project-school-shooting.html
 
-**Gunmen Open Fire at Church in Jordan, Killing at Least Six**\
-`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s national police force. It was one of the kingdom’s deadliest attacks in years.`\
+**Gunmen Open Fire at Church in Jordan, Killing at Least Seven**\
+`The shooting took place during a funeral in the southern province of Karak, home to a longstanding Christian community, according to Jordan’s police chief.`\
 https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html
 
 **Volvo Shares Plunge as China Ambitions Fade for Western Carmakers**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/23/podcasts/is-the-foldable-iphone-the-future.ht
 **Corrections: Oct. 23, 2026**\
 `Corrections that appeared in print on Friday, Oct. 23, 2026.`\
 https://www.nytimes.com/2026/10/23/pageoneplus/corrections-oct-23-2026.html
-
-**What to Read This Halloween, According to Two Best-Selling Writers**\
-`Leigh Bardugo and Paul Tremblay share the books that scared them as kids, the stories that still unnerve them and their recommendations for readers new to horror.`\
-https://www.nytimes.com/2026/10/23/podcasts/what-to-read-this-halloween.html
 

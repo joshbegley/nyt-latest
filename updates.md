@@ -1,3 +1,7 @@
+**A Fight Over Felon Voting Prompts a Free Speech Debate**\
+`A Minnesota group worried that its opposition could expose it to prosecution under the state’s deceptive-practices law. Its lawsuit could have wide implications for limiting speech around elections.`\
+https://www.nytimes.com/2026/10/23/business/media/election-disinformation-laws-minnesota.html
+
 **Share Your Experiences With Medicaid Claims for Repayment**\
 `The New York Times would like to hear from people about Medicaid trying to recoup money after the death of a loved one.`\
 https://www.nytimes.com/2026/10/23/us/medicaid-repayment-claims-questions.html
