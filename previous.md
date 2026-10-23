@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/10/23/briefing/alaska-west-bank-melanoma.html
 `The Justice Department has opened an inquiry into Mr. Lewandowski. President Trump has not jumped to his defense.`\
 https://www.nytimes.com/2026/10/23/us/politics/corey-lewandowski-trump.html
 
-**Alaska courts ruled months ago on the two Dan Sullivans in the Senate race.**\
-`(No description)`\
+**Justice Dept. Suit Reignites a Legal Fight in Alaska**\
+`The Alaska Supreme Court ruled months ago that two candidates, both named Dan Sullivan, could appear on the ballot on Election Day.`\
 https://www.nytimes.com/2026/10/23/us/alaska-courts-ruled-months-ago-on-the-two-dan-sullivans-in-the-senate-race.html
 
 **‘I Have to Go In’: Kaylub Giamanco Describes Killing Gunman in Oregon School Shooting**\

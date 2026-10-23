@@ -1,3 +1,7 @@
+**Justice Dept. Suit Reignites a Legal Fight in Alaska**\
+`The Alaska Supreme Court ruled months ago that two candidates, both named Dan Sullivan, could appear on the ballot on Election Day.`\
+https://www.nytimes.com/2026/10/23/us/alaska-courts-ruled-months-ago-on-the-two-dan-sullivans-in-the-senate-race.html
+
 **NASA Is Still Aiming for the Next Moon Landing in 2028**\
 `Administrator Jared Isaacman said that the space agency was exploring ways to keep Artemis III on target without compromising safety.`\
 https://www.nytimes.com/2026/10/23/science/space/nasa-artemis-program-update.html
