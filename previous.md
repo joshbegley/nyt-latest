@@ -1,3 +1,15 @@
+**What’s the Deal With Billy Evans? A Spoiler-Filled Guide to ‘You Can See Everything’**\
+`“You shouldn’t overbeat scrambled eggs.”`\
+https://www.nytimes.com/2026/10/23/podcasts/hardfork-billy-evans-holmes.html
+
+**What’s the Deal With Billy Evans?**\
+`Hard Fork Full Episode #218`\
+https://www.nytimes.com/video/podcasts/100000011231911/whats-the-deal-with-billy-evans.html
+
+**‘The Headlines’ News Quiz: Oct. 23, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-headlines/the-headlines-news-quiz-oct-23-2026.html
+
 **You Are Being Watched**\
 `Especially on the Southern border.`\
 https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
@@ -114,7 +126,7 @@ https://www.nytimes.com/interactive/2026/10/23/books/bookstores-nyc-chinatown-ea
 `It’s 11 days until Election Day. In New York City, there are a governor’s race and five ballot proposals.`\
 https://www.nytimes.com/2026/10/23/nyregion/early-voting-election-2026-nyc.html
 
-**Trump Is Weaponizing Citizenship**\
+**Trump Is Turning to an Old Tool of Authoritarian Repression**\
 `It evokes dark periods in American history.`\
 https://www.nytimes.com/2026/10/23/opinion/ilhan-omar-trump-citizenship.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/23/obituaries/paul-stankard-dead.html
 **What Personal Questions Do You Ask A.I.?**\
 `If you’ve turned to A.I. for emotional support or help with sticky situations, Times Opinion wants to hear from you.`\
 https://www.nytimes.com/2026/10/23/opinion/ai-chat-personal-questions.html
-
-**The Bukeleization of Latin America Has Arrived**\
-`Nayib Bukele’s notoriously harsh and wildly popular security crackdown in El Salvador is spawning imitators and remaking the region.`\
-https://www.nytimes.com/2026/10/23/world/americas/the-bukeleization-of-latin-america-has-arrived.html
-
-**Book Review: ‘This Is a Door,’ by Daniel Nayeri**\
-`Whether you’re following a path through the woods or gasping at a voice from the ghost world, Daniel Nayeri’s new novel surprises and delights.`\
-https://www.nytimes.com/2026/10/23/books/review/daniel-nayeri-this-is-a-door-kids.html
-
-**Word of the Day: matinee**\
-`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/23/learning/word-of-the-day-matinee.html
 

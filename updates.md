@@ -1,3 +1,19 @@
+**What’s the Deal With Billy Evans? A Spoiler-Filled Guide to ‘You Can See Everything’**\
+`“You shouldn’t overbeat scrambled eggs.”`\
+https://www.nytimes.com/2026/10/23/podcasts/hardfork-billy-evans-holmes.html
+
+**What’s the Deal With Billy Evans?**\
+`Hard Fork Full Episode #218`\
+https://www.nytimes.com/video/podcasts/100000011231911/whats-the-deal-with-billy-evans.html
+
+**‘The Headlines’ News Quiz: Oct. 23, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/23/podcasts/the-headlines/the-headlines-news-quiz-oct-23-2026.html
+
+**Trump Is Turning to an Old Tool of Authoritarian Repression**\
+`It evokes dark periods in American history.`\
+https://www.nytimes.com/2026/10/23/opinion/ilhan-omar-trump-citizenship.html
+
 **You Are Being Watched**\
 `Especially on the Southern border.`\
 https://www.nytimes.com/2026/10/23/briefing/you-are-being-watched.html
