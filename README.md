@@ -1,3 +1,7 @@
+**Hundreds of Thousands Protest Across France Amid Heavy Security**\
+`Protesters gathered in large numbers across France on Saturday. The demonstrations were largely peaceful with some violent clashes across several cities.`\
+https://www.nytimes.com/video/world/europe/100000011234503/france-protests-security.html
+
 **Alaska Election Gambit Shows Justice Dept. Has Bowed to Trump’s Demands**\
 `With moves in Alaska and California, the department has stepped up interventions in the midterm elections as the president’s instrument of unmediated executive power.`\
 https://www.nytimes.com/2026/10/24/us/politics/alaska-senate-election-trump-justice-department.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.htm
 **She Planned to Protest Trump. She Didn’t Plan on Getting Punched.**\
 `Blake Miley yelled “fascist” as President Trump spoke at a midterm campaign rally. The violence that followed “was not right,” she said.`\
 https://www.nytimes.com/2026/10/24/us/trump-protester-punched-youngstown-ohio.html
-
-**Could Lula Be on the Brink of Defeat in Brazil’s Election?**\
-`Brazil’s President Luiz Inácio Lula da Silva faces an uphill battle for another term, in a high-stakes election that may reshape Latin America.`\
-https://www.nytimes.com/2026/10/24/world/americas/lula-brazil-election-president.html
 
