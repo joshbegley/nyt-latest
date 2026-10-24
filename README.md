@@ -1,3 +1,7 @@
+**Speed of Starshield Satellite Network Is Improving, Ukraine Says**\
+`The announcement followed more than a week of disruption to Starshield, the Pentagon-funded satellite network that Ukraine relies on to thwart Russian attacks.`\
+https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
+
 **My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
 `She is largely estranged from the whole family, and our contact has been sporadic.`\
 https://www.nytimes.com/2026/10/24/magazine/aunt-assisted-death-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/movies/travis-knight-director-of-wildwood-ai-
 **How Trump Gave the Worst Polluters a Free Pass**\
 `The president temporarily waived clean-air rules for industrial facilities that spew cancer-causing gases. Then his appointees worked to gut the regulations altogether.`\
 https://www.nytimes.com/2026/10/24/climate/trump-epa-chemical-air-pollution.html
-
-**Writers Are Making Millions Selling Short Stories to Hollywood**\
-`Publishers generally don’t race to acquire story collections these days, but studios appear eager to shell out for unpublished short works.`\
-https://www.nytimes.com/2026/10/24/books/short-stories-hollywood.html
 
