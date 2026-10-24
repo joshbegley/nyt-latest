@@ -1,3 +1,7 @@
+**The Sorry State of the G.O.P. Candidate**\
+`Republicans are crude, craven, cruel. It’s not working anymore.`\
+https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
+
 **Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
 `A postman’s son from Kentucky, he worked hard to lose his accent but never forgot his Appalachian roots. “The best stories come from west of the Potomac,” he said.`\
 https://www.nytimes.com/2026/10/24/business/media/noah-adams-dead.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
 `Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
 https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
 
-**Lena Dunham: The Day I Met My Parents**\
-`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
-https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
-
 **What the Israeli Election Won’t Change**\
 `Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
 https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+
+**Lena Dunham: The Day I Met My Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 
 **Dare We Dream of a Blue Wave?**\
 `Hope, dread and the final stretch to Election Day.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000011224975/how-you-can-see-everything-
 **Film Fans Love These Vintage Hand-Painted Movie Posters From Ghana**\
 `In the 1980s, video clubs in Ghana used hand-painted posters to draw African audiences to Hollywood movies. Now they’re attracting American film buffs.`\
 https://www.nytimes.com/2026/10/24/style/kermit-the-gangster-frog-only-in-these-vintage-ghanaian-movie-posters.html
-
-**My Landlord Replaced Our Doormen With A.I. Can I Get a Rent Reduction?**\
-`The answer depends on whether the change constitutes a reduction in services offered in the building.`\
-https://www.nytimes.com/2026/10/24/realestate/ai-doorman-new-york-city.html
 
