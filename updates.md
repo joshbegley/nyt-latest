@@ -1,3 +1,7 @@
+**Live Updates: Protesters March in France Amid Heavy Security**\
+`In Marseille, clashes broke out between protesters and the police, who fired tear gas. As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
 **Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
 `A postman’s son from Kentucky, he worked hard to lose his accent but never forgot his Appalachian roots. “The best stories come from west of the Potomac,” he said.`\
 https://www.nytimes.com/2026/10/24/business/media/noah-adams-dead.html
