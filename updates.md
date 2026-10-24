@@ -1,3 +1,7 @@
+**Obama Issues Searing Attacks on Trump, Ramaswamy in Return to Campaign Trail**\
+`The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
+https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
+
 **Enormous Fire Guts Infamous Nazi-Era ‘Eagle’s Nest’**\
 `A fire has all but destroyed the Nazi-era “Eagle’s Nest,” formally called the Kehlsteinhaus, the police said. The authorities said a man had been arrested in connection with the blaze that started on Friday night.`\
 https://www.nytimes.com/video/world/europe/100000011234532/eagles-nest-fire-nazi.html
