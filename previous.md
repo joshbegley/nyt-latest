@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interferenc
 `Americans on hand for the N.F.L.’s first-ever game in France found famous museums closed and shops boarded up.`\
 https://www.nytimes.com/2026/10/24/world/europe/paris-riots-tourism.html
 
-**The Sorry State of the G.O.P. Candidate**\
-`Republicans are crude, craven, cruel. It’s not working anymore.`\
+**Republicans Are Crude, Craven, Cruel. It’s Not Working Anymore.**\
+`Republican candidates are in a sorry state.`\
 https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
 
 **Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.ht
 `Hundreds of Palestinian families fled their homes as the Israeli military raided Hebron. The operation came a day after Palestinian gunmen killed two soldiers.`\
 https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html
 
-**Horses and Humans Built New York City. The Horses Just Got Fired.**\
+**What New York City Will Lose When It Ends Carriage Rides**\
 `Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
 https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
 
@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predi
 `Look into that unblinking gaze and see the abyss.`\
 https://www.nytimes.com/2026/10/24/opinion/elizabeth-holmes-you-can-see-everything.html
 
-**What’s at Stake in the Midterms**\
+**None of This Is Normal**\
 `The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
 https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
 

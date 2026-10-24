@@ -1,3 +1,15 @@
+**Republicans Are Crude, Craven, Cruel. It’s Not Working Anymore.**\
+`Republican candidates are in a sorry state.`\
+https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
+
+**What New York City Will Lose When It Ends Carriage Rides**\
+`Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
+https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
+
+**None of This Is Normal**\
+`The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
+https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
+
 **Six Flags to Add Seatbelts on Roller Coasters After Rider’s Death**\
 `The company said that all Six Flags rides and attractions would undergo safety reviews, as the park operator faces lawsuits over safety concerns.`\
 https://www.nytimes.com/2026/10/24/business/six-flags-death-roller-coaster-seat-belt.html
