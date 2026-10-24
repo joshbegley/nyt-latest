@@ -1,3 +1,35 @@
+**Horses and Humans Built New York City. The Horses Just Got Fired.**\
+`Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
+https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
+
+**Dare We Dream of a Blue Wave?**\
+`Hope, dread and the final stretch to Election Day.`\
+https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predictions.html
+
+**The Eyes of Elizabeth Holmes**\
+`Look into that unblinking gaze and see the abyss.`\
+https://www.nytimes.com/2026/10/24/opinion/elizabeth-holmes-you-can-see-everything.html
+
+**What’s at Stake in the Midterms**\
+`The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
+https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
+
+**Attempted Coups. Aging Left-Wing Incumbents. Which Country Are We Talking About?**\
+`The Brazilian echoes of American politics have become too eerie to deny.`\
+https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
+
+**What Are the Best Ways to Fix Schools?**\
+`Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
+https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
+
+**What the Israeli Election Won’t Change**\
+`Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
+https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+
+**Lena Dunham: Meet the Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
+
 **Dare We Dream of a Blue Wave?**\
 `Hope, dread and the final stretch to Election Day.`\
 https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/24/us/politics/jamie-ager-western-north-carolina
 **J. Todd Anderson Has Died. The Coen Brothers May Be Lost Without Him.**\
 `The storyboard artist produced scene-by-scene sketches that shaped films like “Fargo,” “The Big Lebowski” and “No Country for Old Men.”`\
 https://www.nytimes.com/2026/10/24/movies/j-todd-anderson-dead.html
-
-**What Amy Poehler’s New Series, ‘Dig,’ Gets Right About Archaeology**\
-`To get the science right, classical archaeologists, who excavate the world of the ancient Mediterranean, consulted on the show, which also stars Hugh Laurie.`\
-https://www.nytimes.com/2026/10/24/science/dig-peacock-archaeology-amy-poehler.html
-
-**4 Objects That Measure the Life of ‘Rent’**\
-`As the original cast reunites for a 30th anniversary concert, the Jonathan Larson archive continues to shed light on the enduring Broadway musical.`\
-https://www.nytimes.com/2026/10/24/theater/rent-30th-anniversary-jonathan-larson.html
-
-**Carole Radziwill of ‘Real Housewives’ Learned Boundaries From Her Cats**\
-`“If you don’t have a cat, I can explain it,” she said, “but I can’t make you understand.”`\
-https://www.nytimes.com/2026/10/24/arts/television/carole-radziwill-real-housewives-new-york.html
-
-**How Trump Rolled Back Limits on Toxic Air Pollution**\
-`Our investigative reporter Eric Lipton explains how corporate interests took power inside the Environmental Protection Agency, and then helped President Trump undo regulations meant to protect millions of Americans from toxic air pollution.`\
-https://www.nytimes.com/video/climate/100000011186318/how-trump-rolled-back-limits-on-toxic-air-pollution.html
-
-**Republicans Aim to Push Trans Issues to Front Burner in Final Days**\
-`In an election that has often focused on the economy, Republican groups are featuring transgender issues in ads, portraying Democrats as extreme and out of touch.`\
-https://www.nytimes.com/2026/10/24/us/transgender-midterm-election.html
-
-**5 Takeaways From Our Investigation of Trump’s Waivers for Polluters**\
-`Chemical plants and other industrial facilities had been required to curb their toxic emissions. A New York Times investigation shows how they got out of it.`\
-https://www.nytimes.com/2026/10/24/climate/takeaways-trump-waivers-chemical-pollution.html
-
-**North Korea’s Kim Jong-un Arrives in China, South Korea Says**\
-`Mr. Kim was said to have crossed the border via a newly opened bridge for his first visit to China in over a year, as the countries move to deepen ties.`\
-https://www.nytimes.com/2026/10/24/world/asia/north-korea-kim-jong-un-china.html
-
-**The Director of ‘Wildwood’ Knows A.I. Cannot Do What He Does**\
-`In a wide-ranging conversation, Travis Knight discussed bringing Oregon to life frame by frame, and maintaining a human touch in animation.`\
-https://www.nytimes.com/2026/10/24/movies/travis-knight-director-of-wildwood-ai-interview.html
 
