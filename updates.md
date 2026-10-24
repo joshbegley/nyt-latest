@@ -1,3 +1,11 @@
+**Why Is the U.S. Accusing Canada of Election Interference?**\
+`The Trump administration says Canadian officials are trying to sway the midterm elections for Democrats. Prime Minister Mark Carney says those claims have “no merit.”`\
+https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interference-carney-trump.html
+
+**Paris, Battened Down Against Riots, Offers Lonely Welcome to Visitors**\
+`Americans on hand for the N.F.L.’s first-ever game in France found famous museums closed and shops boarded up.`\
+https://www.nytimes.com/2026/10/24/world/europe/paris-riots-tourism.html
+
 **The Sorry State of the G.O.P. Candidate**\
 `Republicans are crude, craven, cruel. It’s not working anymore.`\
 https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html

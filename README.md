@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 `Hope, dread and the final stretch to Election Day.`\
 https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
 
-**Speed of Starshield Satellite Network Is Improving, Ukraine Says**\
-`The announcement followed more than a week of disruption to Starshield, the Pentagon-funded satellite network that Ukraine relies on to thwart Russian attacks.`\
+**Drones on Starshield Network Are Back to Normal Speeds, Ukraine Says**\
+`The announcement followed more than a week of unexplained problems with Starshield, the Pentagon-funded satellite network Ukraine relies on to thwart Russian attacks.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
 
 **My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
