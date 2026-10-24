@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 24, 2026**\
+`Robert Logan’s latest Saturday puzzle is a bull's-eye.`\
+https://www.nytimes.com/2026/10/23/crosswords/daily-puzzle-2026-10-24.html
+
 **Jane Doe Can Remain Anonymous in Cornell Case, Judge Says**\
 `The decision comes as both Jane Doe and the men she has accused of sexually assaulting her have faced online harassment and attempts to reveal identifying information.`\
 https://www.nytimes.com/2026/10/23/nyregion/jane-doe-can-remain-anonymous-in-cornell-case-judge-says.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-n
 **Global Oil Price Hits $116 a Barrel, Highest Since April**\
 `Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
 https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
-
-**Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
-`The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
-https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
 

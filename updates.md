@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 24, 2026**\
+`Robert Logan’s latest Saturday puzzle is a bull's-eye.`\
+https://www.nytimes.com/2026/10/23/crosswords/daily-puzzle-2026-10-24.html
+
 **Jane Doe Can Remain Anonymous in Cornell Case, Judge Says**\
 `The decision comes as both Jane Doe and the men she has accused of sexually assaulting her have faced online harassment and attempts to reveal identifying information.`\
 https://www.nytimes.com/2026/10/23/nyregion/jane-doe-can-remain-anonymous-in-cornell-case-judge-says.html
