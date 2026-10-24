@@ -1,3 +1,7 @@
+**Justice Dept. Demands That California Counties Help Identify Noncitizen Voters**\
+`Election officials across the state received letters from the agency saying if they fail to comply, they “risk significant federal scrutiny.”`\
+https://www.nytimes.com/2026/10/23/us/justice-dept-california-noncitizen-voters.html
+
 **NYT Crossword Answers for Oct. 24, 2026**\
 `Robert Logan’s latest Saturday puzzle is a bull's-eye.`\
 https://www.nytimes.com/2026/10/23/crosswords/daily-puzzle-2026-10-24.html
