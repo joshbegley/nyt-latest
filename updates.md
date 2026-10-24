@@ -1,3 +1,19 @@
+**Quote of the Day: Time ‘to Make a Bernie Taupin Record’**\
+`Quotation of the Day for Saturday, October 24, 2026.`\
+https://www.nytimes.com/2026/10/24/pageoneplus/quote-of-the-day-time-to-make-a-bernie-taupin-record.html
+
+**Netanyahu Has Reinvented Himself. Will Voters Think It’s Enough?**\
+`The Oct. 7 attacks marred Prime Minister Benjamin Netanyahu’s image as Mr. Security. Ahead of elections, he’s trying to sell Israelis on the new, hawkish version of himself.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/netanyahu-has-reinvented-himself-will-voters-think-its-enough.html
+
+**How Defiant Youth Are Testing India’s Idea of Democracy**\
+`Four takeaways from India’s protest movement, at a moment when democracies around the world are under pressure.`\
+https://www.nytimes.com/2026/10/24/world/asia/india-youth-democracy-protest.html
+
+**From the Front Page: The United Nations Is Established on Oct. 24, 1945**\
+`The international organization, created in part to prevent world wars, officially came into existence when its charter took effect.`\
+https://www.nytimes.com/2026/10/24/learning/on-this-day-oct-24.html
+
 **Iran in ‘Advanced Stages’ of Planning Attacks Against Americans, Officials Say**\
 `The U.S. government has ordered diplomats and other federal employees to leave Saudi Arabia. It is also drawing down staff at other missions in the region.`\
 https://www.nytimes.com/2026/10/23/us/politics/security-warnings-iran-threats.html
