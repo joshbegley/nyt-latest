@@ -1,3 +1,7 @@
+**What This Democrat’s Surge in Texas Says About the Midterms**\
+`Gina Hinojosa, the Democratic nominee for governor, on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
+https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
+
 **Live Updates: France Deploys Vast Security Force in Bid to Prevent More Riots**\
 `As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend. The interior minister estimated that 35,000 people were out on streets nationwide by midday.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
