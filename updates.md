@@ -1,3 +1,11 @@
+**Relatively Speaking**\
+`Dylan Schiff and John Kugelman compared notes and came up with a sparkling Sunday puzzle.`\
+https://www.nytimes.com/2026/10/24/crosswords/daily-puzzle-2026-10-25.html
+
+**Violent Anti-Government Protests Intensify in Albania**\
+`Thousands of Albanians took to the streets on Saturday to protest rising living and education costs. Demonstrators have called for country’s prime minister to resign.`\
+https://www.nytimes.com/video/world/europe/100000011234672/albania-protests-kushner-education.html
+
 **Trump, Who Once Called Early Voting ‘Ridiculous,’ Casts a Midterm Ballot**\
 `The president voted at a polling station in Palm Beach County, Fla.`\
 https://www.nytimes.com/2026/10/24/us/politics/trump-votes-early-midterm-elections.html

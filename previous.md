@@ -1,3 +1,11 @@
+**Relatively Speaking**\
+`Dylan Schiff and John Kugelman compared notes and came up with a sparkling Sunday puzzle.`\
+https://www.nytimes.com/2026/10/24/crosswords/daily-puzzle-2026-10-25.html
+
+**Violent Anti-Government Protests Intensify in Albania**\
+`Thousands of Albanians took to the streets on Saturday to protest rising living and education costs. Demonstrators have called for country’s prime minister to resign.`\
+https://www.nytimes.com/video/world/europe/100000011234672/albania-protests-kushner-education.html
+
 **Trump, Who Once Called Early Voting ‘Ridiculous,’ Casts a Midterm Ballot**\
 `The president voted at a polling station in Palm Beach County, Fla.`\
 https://www.nytimes.com/2026/10/24/us/politics/trump-votes-early-midterm-elections.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/24/us/toddler-alive-morgue-parents-lawsuit-arizo
 **Corrections: Oct. 24, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 24, 2026.`\
 https://www.nytimes.com/2026/10/24/pageoneplus/corrections-oct-24-2026.html
-
-**A Fact-Check on Trump’s Election Claims**\
-`The president has spread false claims about ranked-choice systems, voting machines, vote counting and past results to question the integrity of elections.`\
-https://www.nytimes.com/2026/10/24/us/politics/trump-elections-voting-fact-check.html
-
-**A 2028 Presidential Poll Finds Vance, Rubio and Several Democrats in the Mix**\
-`The Democratic presidential primary race appears to be wide open, while JD Vance and Marco Rubio led among Republican voters, a New York Times/Siena survey found.`\
-https://www.nytimes.com/2026/10/24/us/democrats-republicans-presidential-primary-poll.html
 
