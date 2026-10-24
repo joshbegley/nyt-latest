@@ -1,3 +1,7 @@
+**Enormous Fire Guts Infamous Nazi-Era ‘Eagle’s Nest’**\
+`A fire has all but destroyed the Nazi-era “Eagle’s Nest,” formally called the Kehlsteinhaus, the police said. The authorities said a man had been arrested in connection with the blaze that started on Friday night.`\
+https://www.nytimes.com/video/world/europe/100000011234532/eagles-nest-fire-nazi.html
+
 **Obama Issues Searing Attacks on Trump, Ramaswamy in Return to Campaign Trail**\
 `In his some of his most critical remarks in recent memory, the 44th president said the current administration was defined by “incompetence the likes of which we have not seen in modern times.”`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
