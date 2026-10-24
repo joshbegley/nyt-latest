@@ -1,3 +1,7 @@
+**Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
+`A postman’s son from Kentucky, he worked hard to lose his accent but never forgot his Appalachian roots. “The best stories come from west of the Potomac,” he said.`\
+https://www.nytimes.com/2026/10/24/business/media/noah-adams-dead.html
+
 **Time to Invest in Some Stocks**\
 `Make golden chicken (or vegetable) stock this weekend for future soups, stews and gravies.`\
 https://www.nytimes.com/2026/10/24/dining/time-to-invest-in-some-stocks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/style/kermit-the-gangster-frog-only-in-these-
 **My Landlord Replaced Our Doormen With A.I. Can I Get a Rent Reduction?**\
 `The answer depends on whether the change constitutes a reduction in services offered in the building.`\
 https://www.nytimes.com/2026/10/24/realestate/ai-doorman-new-york-city.html
-
-**Why Brazil’s Election Could Come Down to Crime**\
-`Ana Ionova examines how the Brazilian presidential candidate Flávio Bolsonaro is making crime and safety the center of his campaign, following a right-wing playbook from other Latin American countries.`\
-https://www.nytimes.com/video/world/americas/100000011222723/why-brazils-election-could-come-down-to-crime.html
 
