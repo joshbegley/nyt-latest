@@ -1,3 +1,7 @@
+**Drones on Starshield Network Are Back to Normal Speeds, Ukraine Says**\
+`The announcement followed more than a week of unexplained problems with Starshield, the Pentagon-funded satellite network Ukraine relies on to thwart Russian attacks.`\
+https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
+
 **Why Is the U.S. Accusing Canada of Election Interference?**\
 `The Trump administration says Canadian officials are trying to sway the midterm elections for Democrats. Prime Minister Mark Carney says those claims have “no merit.”`\
 https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interference-carney-trump.html
