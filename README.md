@@ -1,3 +1,7 @@
+**Justice Dept. Demands That California Counties Help Identify Noncitizen Voters**\
+`Election officials across the state received letters from the agency saying if they fail to comply, they “risk significant federal scrutiny.”`\
+https://www.nytimes.com/2026/10/23/us/justice-dept-california-noncitizen-voters.html
+
 **NYT Crossword Answers for Oct. 24, 2026**\
 `Robert Logan’s latest Saturday puzzle is a bull's-eye.`\
 https://www.nytimes.com/2026/10/23/crosswords/daily-puzzle-2026-10-24.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-s
 **Israel to Hold First Election Since Oct. 7 Attack**\
 `Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
 https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
-
-**Global Oil Price Hits $116 a Barrel, Highest Since April**\
-`Investors have grown increasingly concerned that the war in Iran could escalate again, putting energy supplies at greater risk.`\
-https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-war.html
 
