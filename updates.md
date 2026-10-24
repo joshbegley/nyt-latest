@@ -1,3 +1,7 @@
+**Obama Returns to the Trail, Setting Up Dueling Midterm Appearances With Trump**\
+`The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
+https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
+
 **Alaska Election Gambit Shows Justice Dept. Has Bowed to Trump’s Demands**\
 `With moves in Alaska and California, the department has stepped up interventions in the midterm elections as the president’s instrument of unmediated executive power.`\
 https://www.nytimes.com/2026/10/24/us/politics/alaska-senate-election-trump-justice-department.html

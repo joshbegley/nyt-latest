@@ -187,7 +187,7 @@ https://www.nytimes.com/2026/10/24/us/politics/democrats-expectations-blue-wave.
 https://www.nytimes.com/2026/10/24/business/airlines-ticket-prices.html
 
 **Obama Returns to the Trail, Setting Up Dueling Midterm Appearances With Trump**\
-`The 44th president will appear in Ohio and Michigan on Saturday, while President Trump will be in Georgia. The two men have presented starkly contrasting pitches in the midterms.`\
+`The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
 
 **She Planned to Protest Trump. She Didn’t Plan on Getting Punched.**\
