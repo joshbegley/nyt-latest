@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/10/24/business/dealbook/ceos-say-the-ai-rollout-is-
 `The police said on Saturday that the structure, a tourist attraction for decades, was probably not salvageable. A man was arrested in connection with the blaze.`\
 https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html
 
-**Israel Launches Crackdown in West Bank City After Deadly Attack**\
-`The military demolished buildings and erected roadblocks in Hebron, the biggest city in the territory, a day after Palestinian gunmen killed two soldiers.`\
+**Israel Cracks Down in West Bank City After Deadly Attack**\
+`Hundreds of Palestinian families fled their homes as the Israeli military raided Hebron. The operation came a day after Palestinian gunmen killed two soldiers.`\
 https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html
 
 **Horses and Humans Built New York City. The Horses Just Got Fired.**\
