@@ -1,3 +1,11 @@
+**Why Is the U.S. Accusing Canada of Election Interference?**\
+`The Trump administration says Canadian officials are trying to sway the midterm elections for Democrats. Prime Minister Mark Carney says those claims have “no merit.”`\
+https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interference-carney-trump.html
+
+**Paris, Battened Down Against Riots, Offers Lonely Welcome to Visitors**\
+`Americans on hand for the N.F.L.’s first-ever game in France found famous museums closed and shops boarded up.`\
+https://www.nytimes.com/2026/10/24/world/europe/paris-riots-tourism.html
+
 **The Sorry State of the G.O.P. Candidate**\
 `Republicans are crude, craven, cruel. It’s not working anymore.`\
 https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011226496/gina-hinojosa-on-why-demo
 **Kacey Musgraves’s Tex-Mex Kiss-Off and 9 More Songs We’re Talking About**\
 `Musgraves savors cross-border connections, Michael Kiwanuka explores loneliness, an Amy Winehouse anniversary arrives and more.`\
 https://www.nytimes.com/2026/10/24/arts/music/kacey-musgraves-michael-kiwanuka-amy-winehouse-songs.html
-
-**How ‘You Can See Everything’ Plays With What’s Real**\
-`Nathan Fielder and Lance Oppenheim teamed up to interview Elizabeth Holmes, the convicted executive, for “You Can See Everything.” Our critic, Alissa Wilkinson, shares her thoughts on how the documentary follows a lineage of other documentaries that blend reality and performance.`\
-https://www.nytimes.com/video/movies/100000011224975/how-you-can-see-everything-plays-with-whats-real.html
-
-**Film Fans Love These Vintage Hand-Painted Movie Posters From Ghana**\
-`In the 1980s, video clubs in Ghana used hand-painted posters to draw African audiences to Hollywood movies. Now they’re attracting American film buffs.`\
-https://www.nytimes.com/2026/10/24/style/kermit-the-gangster-frog-only-in-these-vintage-ghanaian-movie-posters.html
 
