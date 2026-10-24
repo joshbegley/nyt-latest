@@ -1,3 +1,7 @@
+**Alaska Election Gambit Shows Justice Dept. Has Bowed to Trump’s Demands**\
+`With moves in Alaska and California, the department has stepped up interventions in the midterm elections as the president’s instrument of unmediated executive power.`\
+https://www.nytimes.com/2026/10/24/us/politics/alaska-senate-election-trump-justice-department.html
+
 **Six Flags to Add Seatbelts on Roller Coasters After Rider’s Death**\
 `The company said that all Six Flags rides and attractions would undergo safety reviews, as the park operator faces lawsuits over safety concerns.`\
 https://www.nytimes.com/2026/10/24/business/six-flags-death-roller-coaster-seat-belt.html
@@ -70,13 +74,13 @@ https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
 `Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
 https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
 
-**Lena Dunham: The Day I Met My Parents**\
-`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
-https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
-
 **What the Israeli Election Won’t Change**\
 `Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
 https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+
+**Lena Dunham: The Day I Met My Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 
 **Dare We Dream of a Blue Wave?**\
 `Hope, dread and the final stretch to Election Day.`\
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-sm
 `A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 
-**Live Updates: Hundreds of Thousands March in France Amid Heavy Security**\
+**France Protest Updates: Hundreds of Thousands March Amid Heavy Security**\
 `The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
 
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/10/24/business/airlines-ticket-prices.html
 `The 44th president will appear in Ohio and Michigan on Saturday, while President Trump will be in Georgia. The two men have presented starkly contrasting pitches in the midterms.`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
 
-**She Was Punched After Heckling Trump. No One Has Been Charged.**\
-`Blake Miley yelled “fascist” as President Trump spoke at a midterm campaign rally. She knew the risk she was taking, but the violence that followed “was not right,” she said.`\
+**She Planned to Protest Trump. She Didn’t Plan on Getting Punched.**\
+`Blake Miley yelled “fascist” as President Trump spoke at a midterm campaign rally. The violence that followed “was not right,” she said.`\
 https://www.nytimes.com/2026/10/24/us/trump-protester-punched-youngstown-ohio.html
 
 **Could Lula Be on the Brink of Defeat in Brazil’s Election?**\
 `Brazil’s President Luiz Inácio Lula da Silva faces an uphill battle for another term, in a high-stakes election that may reshape Latin America.`\
 https://www.nytimes.com/2026/10/24/world/americas/lula-brazil-election-president.html
-
-**Gina Hinojosa on Why Democrats Might Finally Win in Texas**\
-`Rural Texans have “felt betrayed by Greg Abbott,” Gina Hinojosa, the Democratic candidate for governor in Texas, said on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011226496/gina-hinojosa-on-why-democrats-might-finally-win-in-texas.html
 
