@@ -1,3 +1,7 @@
+**Court Says Trump Violated Law in Los Angeles National Guard Deployment**\
+`The ruling, which comes as the midterm election nears, could make it more difficult for President Trump to seize control of the National Guard.`\
+https://www.nytimes.com/2026/10/24/us/ruling-trump-california-national-guard.html
+
 **Obama Issues Searing Attacks on Trump, Ramaswamy in Return to Campaign Trail**\
 `The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
