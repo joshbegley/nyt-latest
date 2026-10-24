@@ -1,3 +1,7 @@
+**New York City Settles Suit Over Death of Rikers Inmate**\
+`The $4 million settlement resolves a 2023 lawsuit that argued that inadequate supervision and medical treatment in the jail complex led to the fatal overdose of Tarzs Youngblood.`\
+https://www.nytimes.com/2026/10/23/nyregion/nyc-settles-rikers-death.html
+
 **In U.S. Gas Talks With Kremlin, Hidden Financing for Alaska Project Emerges**\
 `Interviews and documents show a Russian energy giant secretly funded a U.S. firm. The deal has been discussed in talks to end the war in Ukraine.`\
 https://www.nytimes.com/2026/10/23/us/politics/in-us-gas-talks-with-kremlin-hidden-financing-for-alaska-project-emerges.html
