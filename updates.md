@@ -1,3 +1,11 @@
+**What Happens if Trump Doesn’t Like the Midterm Results?**\
+`Hope, dread and the final stretch to Election Day.`\
+https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predictions.html
+
+**Lena Dunham: The Day I Met My Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
+
 **‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire**\
 `The police said on Saturday that the structure, a tourist attraction for decades, was probably not salvageable. A man was arrested in connection with the blaze.`\
 https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html

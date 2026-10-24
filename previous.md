@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-
 `Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
 https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
 
-**Dare We Dream of a Blue Wave?**\
+**What Happens if Trump Doesn’t Like the Midterm Results?**\
 `Hope, dread and the final stretch to Election Day.`\
 https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predictions.html
 
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
 `Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
 https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
 
-**Lena Dunham: Meet the Parents**\
+**Lena Dunham: The Day I Met My Parents**\
 `It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
 https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 
