@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-sm
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 
 **Live Updates: Protesters March in France Amid Heavy Security**\
-`The interior minister estimated that 35,000 people were out on streets nationwide by midday. As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend.`\
+`In Marseille, clashes broke out between protesters and the police, who fired tear gas. As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
 
 **Outside Chance**\

@@ -1,3 +1,7 @@
+**Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
+`A postman’s son from Kentucky, he worked hard to lose his accent but never forgot his Appalachian roots. “The best stories come from west of the Potomac,” he said.`\
+https://www.nytimes.com/2026/10/24/business/media/noah-adams-dead.html
+
 **Time to Invest in Some Stocks**\
 `Make golden chicken (or vegetable) stock this weekend for future soups, stews and gravies.`\
 https://www.nytimes.com/2026/10/24/dining/time-to-invest-in-some-stocks.html
@@ -102,13 +106,13 @@ https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
 `Gina Hinojosa, the Democratic nominee for governor, on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
 https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
 
-**See the Districts That Will Determine House Control in the Midterms**\
-`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
-https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
-
 **Looting Left Damage and Fear on Paradise Street in Marseille**\
 `Looters ravaged a storied commercial avenue in France’s second-largest city. Its merchants fear that more unrest could follow.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-looting-rue-paradis-marseille.html
+
+**See the Districts That Will Determine House Control in the Midterms**\
+`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
+https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
 
 **How Vivek Ramaswamy’s Ruthless Ad in Ohio Divided Republicans**\
 `The fallout from Vivek Ramaswamy’s brutal spot targeting his Democratic rival in the Ohio governor’s race showed that even in the Trump era, a political attack can be seen as going too far.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/style/kermit-the-gangster-frog-only-in-these-
 **My Landlord Replaced Our Doormen With A.I. Can I Get a Rent Reduction?**\
 `The answer depends on whether the change constitutes a reduction in services offered in the building.`\
 https://www.nytimes.com/2026/10/24/realestate/ai-doorman-new-york-city.html
-
-**Why Brazil’s Election Could Come Down to Crime**\
-`Ana Ionova examines how the Brazilian presidential candidate Flávio Bolsonaro is making crime and safety the center of his campaign, following a right-wing playbook from other Latin American countries.`\
-https://www.nytimes.com/video/world/americas/100000011222723/why-brazils-election-could-come-down-to-crime.html
 
