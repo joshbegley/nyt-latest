@@ -1,3 +1,11 @@
+**The Last High School Football Team in Town**\
+`With a shrinking pool of players, two rival squads merged to become the only team left in Yonkers this season. Can the program survive another year?`\
+https://www.nytimes.com/2026/10/24/nyregion/yonkers-high-school-football.html
+
+**NYT Spelling Bee Answers for October 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/24/crosswords/spelling-bee-forum.html
+
 **New York Archdiocese Close to Settling Sexual Abuse Claims for Over $800 Million**\
 `The Roman Catholic archdiocese might now avoid bankruptcy by reaching a settlement with 1,300 people who said they had been abused by clergy members and lay leaders.`\
 https://www.nytimes.com/2026/10/24/us/archdiocese-new-york-sexual-abuse-settlement.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/23/style/chopova-lowena-made-the-skirt-of-the-we
 **Under U.S. Watch, Venezuela Grapples With Tensions Over Democracy**\
 `President Trump says Venezuela is not ready for elections, and he focuses instead on its oil. But Secretary of State Marco Rubio is nudging talks between opposing politicians.`\
 https://www.nytimes.com/2026/10/23/us/politics/venezuela-trump-rubio-elections.html
-
-**Bard Names Marvin Krislov as President, as Former Leader Fends Off Epstein Allegations**\
-`The new president, Marvin Krislov, has led Pace University and Oberlin College. He replaces Leon Botstein, who retired and has faced scrutiny over ties to Jeffrey Epstein.`\
-https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
-
-**The Local: Seitu K. Jones gets overdue museum show**\
-`Plus, a fight over free speech and election law.`\
-https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
 
