@@ -1,3 +1,23 @@
+**See the Districts That Will Determine House Control in the Midterms**\
+`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
+https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
+
+**Looting Left Damage and Fear on Paradise Street in Marseille**\
+`Looters ravaged a storied commercial avenue in France’s second-largest city. Its merchants fear that more unrest could follow.`\
+https://www.nytimes.com/2026/10/24/world/europe/france-looting-rue-paradis-marseille.html
+
+**How Vivek Ramaswamy’s Ruthless Ad in Ohio Divided Republicans**\
+`The fallout from Vivek Ramaswamy’s brutal spot targeting his Democratic rival in the Ohio governor’s race showed that even in the Trump era, a political attack can be seen as going too far.`\
+https://www.nytimes.com/2026/10/24/us/politics/vivek-ramaswamy-ad-ohio-amy-acton.html
+
+**Ukraine’s Feeling of Moral Whiplash at the Hands of Trump**\
+`The United States once declared that Ukraine’s fight was the front line in a global battle for freedom. Now the Trump administration is sending money to Moscow.`\
+https://www.nytimes.com/2026/10/24/world/europe/ukraine-trump.html
+
+**The Other Bolsonaro Who Could Become Brazil’s Next President**\
+`Flávio Bolsonaro, the son of the former president who was jailed over a coup plot, could be on the cusp of winning Brazil’s presidency.`\
+https://www.nytimes.com/2026/10/24/world/americas/flavio-bolsonaro-brazil-election-president.html
+
 **El-Sayed Needs Black Voters in Michigan. Tensions With Arab Americans Make That Harder.**\
 `Conflict between Michigan’s Black and Arab communities could get in the way of Dr. Abdul El-Sayed’s pitch in the critical Senate race.`\
 https://www.nytimes.com/2026/10/24/us/politics/el-sayed-black-voters-arab-tensions.html
