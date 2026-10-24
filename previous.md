@@ -2,10 +2,6 @@
 `Interviews and documents show a Russian energy giant secretly funded a U.S. firm. The deal has been discussed in talks to end the war in Ukraine.`\
 https://www.nytimes.com/2026/10/23/us/politics/in-us-gas-talks-with-kremlin-hidden-financing-for-alaska-project-emerges.html
 
-**Serbian Voters Fill Streets Ahead of Election**\
-`Thousands of opposition party supporters marched in Belgrade to take part in final campaign rallies ahead of parliamentary elections on Oct. 25.`\
-https://www.nytimes.com/video/world/europe/100000011231219/serbian-voters-fill-streets-ahead-of-election.html
-
 **NASA Is Still Aiming for the Next Moon Landing in 2028**\
 `Administrator Jared Isaacman said that the space agency was exploring ways to keep Artemis III on target without compromising safety.`\
 https://www.nytimes.com/2026/10/23/science/space/nasa-artemis-program-update.html
