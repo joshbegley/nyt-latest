@@ -1,3 +1,7 @@
+**This Is America’s Warped Mirror Image**\
+`The Brazilian echoes of American politics have become too eerie to deny.`\
+https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
+
 **Court Says Trump Violated Law in Los Angeles National Guard Deployment**\
 `The ruling, which comes as the midterm election nears, could make it more difficult for President Trump to seize control of the National Guard.`\
 https://www.nytimes.com/2026/10/24/us/ruling-trump-california-national-guard.html
