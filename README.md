@@ -1,3 +1,7 @@
+**Jane Doe Can Remain Anonymous in Cornell Case, Judge Says**\
+`The decision comes as both Jane Doe and the men she has accused of sexually assaulting her have faced online harassment and attempts to reveal identifying information.`\
+https://www.nytimes.com/2026/10/23/nyregion/jane-doe-can-remain-anonymous-in-cornell-case-judge-says.html
+
 **Who Is Ahead in Kansas's 2nd Congressional District?**\
 `Track the latest polls in Kansas's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/kansas-us-house-2-polls-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/23/business/energy-environment/oil-prices-iran-w
 **Melania Trump Says She Brokered a Cease-Fire in a Starving Ukrainian City**\
 `The first lady, who is positioning herself as an intermediary between two warring nations as her husband sides with Russia, said the agreement would allow residents to evacuate.`\
 https://www.nytimes.com/2026/10/23/us/politics/ceasefire-ukraine-melania-trump.html
-
-**Are Fewer Teens Identifying as Gay or Bisexual? It’s Complicated.**\
-`New data have prompted questions about changes in teens’ sexual orientations. But researchers disagree on how much the numbers can really tell us.`\
-https://www.nytimes.com/2026/10/23/science/lgbt-teens-identification.html
 
