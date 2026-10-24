@@ -1,3 +1,7 @@
+**Trump, Who Once Called Early Voting ‘Ridiculous,’ Casts a Midterm Ballot**\
+`The president voted at a polling station in Palm Beach County, Fla.`\
+https://www.nytimes.com/2026/10/24/us/politics/trump-votes-early-midterm-elections.html
+
 **Unrest Erupts Again in France, but This Time, With Less Property Damage**\
 `After largely peaceful marches on Saturday, clashes broke out in the evening. But a large-scale police presence, 1,000 arrests and the rerouting of protest routes kept a lid on wholesale vandalism.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html

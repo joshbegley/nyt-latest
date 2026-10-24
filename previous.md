@@ -1,3 +1,7 @@
+**Trump, Who Once Called Early Voting ‘Ridiculous,’ Casts a Midterm Ballot**\
+`The president voted at a polling station in Palm Beach County, Fla.`\
+https://www.nytimes.com/2026/10/24/us/politics/trump-votes-early-midterm-elections.html
+
 **Unrest Erupts Again in France, but This Time, With Less Property Damage**\
 `After largely peaceful marches on Saturday, clashes broke out in the evening. But a large-scale police presence, 1,000 arrests and the rerouting of protest routes kept a lid on wholesale vandalism.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/us/politics/trump-elections-voting-fact-check
 **A 2028 Presidential Poll Finds Vance, Rubio and Several Democrats in the Mix**\
 `The Democratic presidential primary race appears to be wide open, while JD Vance and Marco Rubio led among Republican voters, a New York Times/Siena survey found.`\
 https://www.nytimes.com/2026/10/24/us/democrats-republicans-presidential-primary-poll.html
-
-**Why Democrats Could Find It Hard to Win the Senate Despite Their Strong Polls**\
-`Democrats are increasingly optimistic about the midterms. But they are being outspent by Republicans. And they are trying to compete in states that favored President Trump by large margins.`\
-https://www.nytimes.com/2026/10/24/us/politics/democrats-expectations-blue-wave.html
 
