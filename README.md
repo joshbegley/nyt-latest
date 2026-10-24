@@ -1,3 +1,11 @@
+**How a Small Student Protest Spread Across France**\
+`A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
+https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
+
+**Live Updates: France Deploys Vast Security Force in Effort to Prevent More Riots**\
+`About 70,000 police and security officers, mobilized ahead of mass protests, will try to avert the arson and looting that shocked the country last weekend.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
 **Outside Chance**\
 `We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
 https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/24/travel/gr20-hike-corsica.html
 **Some Buy Telescopes. These People Build Them From Scratch.**\
 `For a century, amateur telescope makers have gathered at the Stellafane convention to celebrate their craft. Will the event last another 100 years?`\
 https://www.nytimes.com/2026/10/24/science/space/stellafane-telescopes-makers.html
-
-**The Last High School Football Team in Town**\
-`With a shrinking pool of players, two rival squads merged to become the only team left in Yonkers this season. Can the program survive another year?`\
-https://www.nytimes.com/2026/10/24/nyregion/yonkers-high-school-football.html
-
-**NYT Spelling Bee Answers for October 24, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/24/crosswords/spelling-bee-forum.html
 
