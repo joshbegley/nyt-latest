@@ -1,3 +1,23 @@
+**My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
+`She is largely estranged from the whole family, and our contact has been sporadic.`\
+https://www.nytimes.com/2026/10/24/magazine/aunt-assisted-death-ethics.html
+
+**Today’s Wordle Hints for Oct. 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/wordle-review-1954.html
+
+**NYT Connections Answers for October 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/connections-companion-1232.html
+
+**NYT Strands Hints for October 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/strands-sidekick-966.html
+
+**Alberta’s Referendum Was Clear, Unlike Danielle Smith’s Future**\
+`Ahead of a vote on whether Albertans should remain part of Canada or cast a ballot to leave, the premier managed to alienate people on both sides. What now?`\
+https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-smith.html
+
 **How a Small Student Protest Spread Across France**\
 `A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
