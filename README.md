@@ -1,3 +1,7 @@
+**Dare We Dream of a Blue Wave?**\
+`Hope, dread and the final stretch to Election Day.`\
+https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
+
 **Speed of Starshield Satellite Network Is Improving, Ukraine Says**\
 `The announcement followed more than a week of disruption to Starshield, the Pentagon-funded satellite network that Ukraine relies on to thwart Russian attacks.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/world/asia/north-korea-kim-jong-un-china.html
 **The Director of ‘Wildwood’ Knows A.I. Cannot Do What He Does**\
 `In a wide-ranging conversation, Travis Knight discussed bringing Oregon to life frame by frame, and maintaining a human touch in animation.`\
 https://www.nytimes.com/2026/10/24/movies/travis-knight-director-of-wildwood-ai-interview.html
-
-**How Trump Gave the Worst Polluters a Free Pass**\
-`The president temporarily waived clean-air rules for industrial facilities that spew cancer-causing gases. Then his appointees worked to gut the regulations altogether.`\
-https://www.nytimes.com/2026/10/24/climate/trump-epa-chemical-air-pollution.html
 
