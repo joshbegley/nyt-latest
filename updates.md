@@ -1,3 +1,7 @@
+**Israel Cracks Down in West Bank City After Deadly Attack**\
+`Hundreds of Palestinian families fled their homes as the Israeli military raided Hebron. The operation came a day after Palestinian gunmen killed two soldiers.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html
+
 **Live Updates: Protesters March in France Amid Heavy Security**\
 `The interior minister estimated that 35,000 people were out on streets nationwide by midday. As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
