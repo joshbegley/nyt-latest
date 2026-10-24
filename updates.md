@@ -1,3 +1,11 @@
+**Now Is the Time for Pie Practice**\
+`Make and freeze pie dough to get a head start before the holiday hubbub.`\
+https://www.nytimes.com/2026/10/24/dining/now-is-the-time-for-pie-practice.html
+
+**After the Restaurant Closes, He Makes the Kitchen Sparkle**\
+`Alexander Diaz and his team of cleaners wash away the greasy buildup in restaurant kitchens.`\
+https://www.nytimes.com/2026/10/24/dining/restaurant-cleaning.html
+
 **What This Democrat’s Surge in Texas Says About the Midterms**\
 `Gina Hinojosa, the Democratic nominee for governor, on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
 https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
