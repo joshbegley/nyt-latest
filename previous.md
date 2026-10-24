@@ -1,3 +1,7 @@
+**Six Flags to Add Seatbelts on Roller Coasters After Rider’s Death**\
+`The company said that all Six Flags rides and attractions would undergo safety reviews, as the park operator faces lawsuits over safety concerns.`\
+https://www.nytimes.com/2026/10/24/business/six-flags-death-roller-coaster-seat-belt.html
+
 **Why Is the U.S. Accusing Canada of Election Interference?**\
 `The Trump administration says Canadian officials are trying to sway the midterm elections for Democrats. Prime Minister Mark Carney says those claims have “no merit.”`\
 https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interference-carney-trump.html
@@ -106,8 +110,8 @@ https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-sm
 `A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 
-**Live Updates: Protesters March in France Amid Heavy Security**\
-`In Marseille, clashes broke out between protesters and the police, who fired tear gas. As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend.`\
+**Live Updates: Hundreds of Thousands March in France Amid Heavy Security**\
+`The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
 
 **Outside Chance**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/world/americas/lula-brazil-election-president
 **Gina Hinojosa on Why Democrats Might Finally Win in Texas**\
 `Rural Texans have “felt betrayed by Greg Abbott,” Gina Hinojosa, the Democratic candidate for governor in Texas, said on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011226496/gina-hinojosa-on-why-democrats-might-finally-win-in-texas.html
-
-**Kacey Musgraves’s Tex-Mex Kiss-Off and 9 More Songs We’re Talking About**\
-`Musgraves savors cross-border connections, Michael Kiwanuka explores loneliness, an Amy Winehouse anniversary arrives and more.`\
-https://www.nytimes.com/2026/10/24/arts/music/kacey-musgraves-michael-kiwanuka-amy-winehouse-songs.html
 

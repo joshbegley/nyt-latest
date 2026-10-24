@@ -1,3 +1,11 @@
+**Six Flags to Add Seatbelts on Roller Coasters After Rider’s Death**\
+`The company said that all Six Flags rides and attractions would undergo safety reviews, as the park operator faces lawsuits over safety concerns.`\
+https://www.nytimes.com/2026/10/24/business/six-flags-death-roller-coaster-seat-belt.html
+
+**Live Updates: Hundreds of Thousands March in France Amid Heavy Security**\
+`The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
 **Drones on Starshield Network Are Back to Normal Speeds, Ukraine Says**\
 `The announcement followed more than a week of unexplained problems with Starshield, the Pentagon-funded satellite network Ukraine relies on to thwart Russian attacks.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
