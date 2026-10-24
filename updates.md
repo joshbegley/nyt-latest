@@ -1,3 +1,7 @@
+**Remains Found in Haiti Could Be Those of Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of a U.N.-backed anti-gang task force.`\
+https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+
 **Who Is Ahead in Connecticut's 5th Congressional District?**\
 `Track the latest polls in Connecticut's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html
