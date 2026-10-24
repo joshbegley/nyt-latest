@@ -1,3 +1,7 @@
+**Iran in ‘Advanced Stages’ of Planning Attacks Against Americans, Officials Say**\
+`The U.S. government has ordered diplomats and other federal employees to leave Saudi Arabia. It is also drawing down staff at other missions in the region.`\
+https://www.nytimes.com/2026/10/23/us/politics/security-warnings-iran-threats.html
+
 **Justice Dept. Demands That California Counties Help Identify Noncitizen Voters**\
 `Election officials across the state received letters from the agency saying if they fail to comply, they “risk significant federal scrutiny.”`\
 https://www.nytimes.com/2026/10/23/us/justice-dept-california-noncitizen-voters.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/23/us/politics/democrats-congress-majority-agend
 **Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
 `The department, in a highly unusual lawsuit, argued that confusion over candidates with similar names could taint the election result.`\
 https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
-
-**Israel to Hold First Election Since Oct. 7 Attack**\
-`Israelis are heading to the polls on Tuesday for the first time since the Oct. 7, 2023 Hamas-led attack, and the following wars in Gaza, Lebanon and Iran. Many Israelis view the vote as the most momentous since the country’s establishment.`\
-https://www.nytimes.com/video/world/middleeast/100000011214812/israel-election-netanyahu-eisenkot.html
 
