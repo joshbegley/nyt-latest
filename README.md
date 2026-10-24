@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-sm
 `A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 
-**Live Updates: France Deploys Vast Security Force in Effort to Prevent More Riots**\
-`About 70,000 police and security officers, mobilized ahead of mass protests, will try to avert the arson and looting that shocked the country last weekend.`\
+**Live Updates: France Deploys Vast Security Force in Bid to Prevent More Riots**\
+`As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend. The interior minister estimated that 35,000 people were out on streets nationwide by midday.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
 
 **Outside Chance**\

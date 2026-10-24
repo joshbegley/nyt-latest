@@ -1,3 +1,7 @@
+**Free Passes for Polluters**\
+`A New York Times investigation shows how President Trump allowed companies to skirt rules designed to limit toxic pollution.`\
+https://www.nytimes.com/2026/10/24/climate/free-passes-for-polluters.html
+
 **C.E.O.s Say the A.I. Rollout Is Going Well. Employees Feel Differently.**\
 `Surveys show workers and executives have different views on A.I.`\
 https://www.nytimes.com/2026/10/24/business/dealbook/ceos-say-the-ai-rollout-is-going-well-employees-feel-differently.html
