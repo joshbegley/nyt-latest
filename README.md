@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/10/24/opinion/elizabeth-holmes-you-can-see-everythi
 `The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
 https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
 
-**Attempted Coups. Aging Left-Wing Incumbents. Which Country Are We Talking About?**\
+**This Is America’s Warped Mirror Image**\
 `The Brazilian echoes of American politics have become too eerie to deny.`\
 https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
 
