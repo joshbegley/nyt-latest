@@ -1,3 +1,7 @@
+**Obama Issues Searing Attacks on Trump, Ramaswamy in Return to Campaign Trail**\
+`In his some of his most critical remarks in recent memory, the 44th president said the current administration was defined by “incompetence the likes of which we have not seen in modern times.”`\
+https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
+
 **Hundreds of Thousands Protest Across France Amid Heavy Security**\
 `Protesters gathered in large numbers across France on Saturday. The demonstrations were largely peaceful with some violent clashes across several cities.`\
 https://www.nytimes.com/video/world/europe/100000011234503/france-protests-security.html
