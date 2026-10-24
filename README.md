@@ -1,3 +1,23 @@
+**My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
+`She is largely estranged from the whole family, and our contact has been sporadic.`\
+https://www.nytimes.com/2026/10/24/magazine/aunt-assisted-death-ethics.html
+
+**Today’s Wordle Hints for Oct. 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/wordle-review-1954.html
+
+**NYT Connections Answers for October 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/connections-companion-1232.html
+
+**NYT Strands Hints for October 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
+https://www.nytimes.com/2026/10/24/crosswords/strands-sidekick-966.html
+
+**Alberta’s Referendum Was Clear, Unlike Danielle Smith’s Future**\
+`Ahead of a vote on whether Albertans should remain part of Canada or cast a ballot to leave, the premier managed to alienate people on both sides. What now?`\
+https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-smith.html
+
 **How a Small Student Protest Spread Across France**\
 `A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/24/climate/trump-epa-chemical-air-pollution.html
 **Writers Are Making Millions Selling Short Stories to Hollywood**\
 `Publishers generally don’t race to acquire story collections these days, but studios appear eager to shell out for unpublished short works.`\
 https://www.nytimes.com/2026/10/24/books/short-stories-hollywood.html
-
-**They Were Accused of Illegal Fishing. They Ended Up in ICE Detention.**\
-`In states like Florida, officers who hand out fishing citations and inspect produce have been deputized by Immigration and Customs Enforcement, expanding the reach of President Trump’s deportation campaign.`\
-https://www.nytimes.com/2026/10/24/us/politics/fishing-immigration-trump.html
-
-**Assaf and Ariel Azani Reinvented the Sample Sale**\
-`The brothers Assaf and Ariel Azani are the reason you may be waiting in line right at this moment to buy designer goods at a fraction of the price.`\
-https://www.nytimes.com/2026/10/24/style/they-kind-of-reinvented-the-sample-sale.html
-
-**Why Gen Z Teens Are in No Rush to Get Their Driver’s Licenses**\
-`Gen Z teenagers are no longer racing toward this rite of passage. What’s the hurry, with so much of their lives happening online?`\
-https://www.nytimes.com/2026/10/24/style/drivers-license-gen-z-teens-learners-permit.html
-
-**Corsica’s GR20: A Visual Diary of the Hike**\
-`The GR20, a 112-mile hiking trail that bisects the craggy Mediterranean island, is often billed as the continent’s most demanding trek. Here’s an insider’s look.`\
-https://www.nytimes.com/2026/10/24/travel/gr20-hike-corsica.html
-
-**Some Buy Telescopes. These People Build Them From Scratch.**\
-`For a century, amateur telescope makers have gathered at the Stellafane convention to celebrate their craft. Will the event last another 100 years?`\
-https://www.nytimes.com/2026/10/24/science/space/stellafane-telescopes-makers.html
 
