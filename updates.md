@@ -1,3 +1,7 @@
+**4 Bodies Found in Haiti Believed to Be Those of Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
+https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+
 **In Alaska, Some Early Voting Sites in Rural Villages Have Not Yet Opened**\
 `“There is no legal excuse” for the failure of 18 polling sites to open for early voting, a state lawmaker said.`\
 https://www.nytimes.com/2026/10/24/us/alaska-early-voting-sites.html

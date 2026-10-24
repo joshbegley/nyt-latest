@@ -1,4 +1,4 @@
-**4 Bodies Found in Haiti Believed to Be Those of Missing Salvadoran Soldiers**\
+**4 Bodies Found in Haiti Are Thought to Be Those of Missing Salvadoran Soldiers**\
 `El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
 https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
 
@@ -122,8 +122,8 @@ https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 `Hope, dread and the final stretch to Election Day.`\
 https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
 
-**Drones on Starshield Network Are Back to Normal Speeds, Ukraine Says**\
-`The announcement followed more than a week of unexplained problems with Starshield, the Pentagon-funded satellite network Ukraine relies on to thwart Russian attacks.`\
+**Elon Musk Says Ukraine Violated Starlink’s Rules**\
+`The comments were his first since the disruption in the country’s satellite service. Earlier, Ukraine said drones using Starshield, the Pentagon-funded service, were back to normal speeds.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
 
 **My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\

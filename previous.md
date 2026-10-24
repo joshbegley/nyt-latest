@@ -1,3 +1,7 @@
+**4 Bodies Found in Haiti Believed to Be Those of Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
+https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+
 **In Alaska, Some Early Voting Sites in Rural Villages Have Not Yet Opened**\
 `“There is no legal excuse” for the failure of 18 polling sites to open for early voting, a state lawmaker said.`\
 https://www.nytimes.com/2026/10/24/us/alaska-early-voting-sites.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/movies/sacha-baron-cohen-ali-g-who-iz-i.html
 **Trump Asked Muslim Voters to Trust Him. Now Some Feel Used.**\
 `Some Muslim voters who backed Mr. Trump in 2024 say they believe he pledged his support when it was politically convenient, only to alienate and scapegoat them once he won the election.`\
 https://www.nytimes.com/2026/10/24/us/politics/trump-muslim-voters-feel-used.html
-
-**‘He’s Not the Same Baby’: Family of Child Found Alive in Morgue Recalls Ordeal**\
-`Vincent Fiordilino was 18 months old when he was found to be alive after having been declared dead at an Arizona hospital in February.`\
-https://www.nytimes.com/2026/10/24/us/toddler-alive-morgue-parents-lawsuit-arizona.html
 
