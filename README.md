@@ -1,3 +1,19 @@
+**Quote of the Day: Time ‘to Make a Bernie Taupin Record’**\
+`Quotation of the Day for Saturday, October 24, 2026.`\
+https://www.nytimes.com/2026/10/24/pageoneplus/quote-of-the-day-time-to-make-a-bernie-taupin-record.html
+
+**Netanyahu Has Reinvented Himself. Will Voters Think It’s Enough?**\
+`The Oct. 7 attacks marred Prime Minister Benjamin Netanyahu’s image as Mr. Security. Ahead of elections, he’s trying to sell Israelis on the new, hawkish version of himself.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/netanyahu-has-reinvented-himself-will-voters-think-its-enough.html
+
+**How Defiant Youth Are Testing India’s Idea of Democracy**\
+`Four takeaways from India’s protest movement, at a moment when democracies around the world are under pressure.`\
+https://www.nytimes.com/2026/10/24/world/asia/india-youth-democracy-protest.html
+
+**From the Front Page: The United Nations Is Established on Oct. 24, 1945**\
+`The international organization, created in part to prevent world wars, officially came into existence when its charter took effect.`\
+https://www.nytimes.com/2026/10/24/learning/on-this-day-oct-24.html
+
 **Iran in ‘Advanced Stages’ of Planning Attacks Against Americans, Officials Say**\
 `The U.S. government has ordered diplomats and other federal employees to leave Saudi Arabia. It is also drawing down staff at other missions in the region.`\
 https://www.nytimes.com/2026/10/23/us/politics/security-warnings-iran-threats.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
 **Should Horse-Drawn Carriages Be Banned in New York City?**\
 `Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
 https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
-
-**Susan Collins Uses Troy Jackson’s ‘Shut Up’ Debate Comment in New Ad**\
-`The spot casts the remark made at a debate by Senator Susan Collins’s Democratic opponent, Troy Jackson, as evidence of how he treats women.`\
-https://www.nytimes.com/2026/10/23/us/collins-jackson-maine-shut-up-ad.html
-
-**Israeli Settlers Turn a Palestinian Rite Into a Gantlet of Violence and Fear**\
-`This year’s olive harvest in the Israeli-occupied West Bank is the most violent in years, as settlers have attacked farmers and besieged homes, drawing condemnation from U.S. officials and others.`\
-https://www.nytimes.com/2026/10/23/world/middleeast/west-bank-settlers-palestinians-harvest.html
-
-**Here’s What Democrats Plan to Do With Their Power if They Win Back Congress**\
-`Democrats have campaigned on lowering living costs and holding the Trump administration accountable. This is a look at their to-do list if they win the majority.`\
-https://www.nytimes.com/2026/10/23/us/politics/democrats-congress-majority-agenda.html
-
-**Trump Officials Seek Block on Alaska Senate Race Results if the Republican Dan Sullivan Loses**\
-`The department, in a highly unusual lawsuit, argued that confusion over candidates with similar names could taint the election result.`\
-https://www.nytimes.com/2026/10/23/us/politics/justice-dept-alaska-senate-race-sullivan.html
 
