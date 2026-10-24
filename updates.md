@@ -1,3 +1,7 @@
+**Hundreds of Thousands Protest Across France Amid Heavy Security**\
+`Protesters gathered in large numbers across France on Saturday. The demonstrations were largely peaceful with some violent clashes across several cities.`\
+https://www.nytimes.com/video/world/europe/100000011234503/france-protests-security.html
+
 **Obama Returns to the Trail, Setting Up Dueling Midterm Appearances With Trump**\
 `The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
