@@ -1,3 +1,7 @@
+**Who Is Ahead in Kansas's 2nd Congressional District?**\
+`Track the latest polls in Kansas's 2nd Congressional District.`\
+https://www.nytimes.com/interactive/polls/kansas-us-house-2-polls-2026.html
+
 **New York City Settles Suit Over Death of Rikers Inmate**\
 `The $4 million settlement resolves a 2023 lawsuit that argued that inadequate supervision and medical treatment in the jail complex led to the fatal overdose of Tarzs Youngblood.`\
 https://www.nytimes.com/2026/10/23/nyregion/nyc-settles-rikers-death.html
