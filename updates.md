@@ -1,3 +1,15 @@
+**Alaska Election Gambit Shows Justice Dept. Has Bowed to Trump’s Demands**\
+`With moves in Alaska and California, the department has stepped up interventions in the midterm elections as the president’s instrument of unmediated executive power.`\
+https://www.nytimes.com/2026/10/24/us/politics/alaska-senate-election-trump-justice-department.html
+
+**France Protest Updates: Hundreds of Thousands March Amid Heavy Security**\
+`The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
+**She Planned to Protest Trump. She Didn’t Plan on Getting Punched.**\
+`Blake Miley yelled “fascist” as President Trump spoke at a midterm campaign rally. The violence that followed “was not right,” she said.`\
+https://www.nytimes.com/2026/10/24/us/trump-protester-punched-youngstown-ohio.html
+
 **Republicans Are Crude, Craven, Cruel. It’s Not Working Anymore.**\
 `Republican candidates are in a sorry state.`\
 https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
