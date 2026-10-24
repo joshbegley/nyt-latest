@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/10/24/us/politics/democrats-expectations-blue-wave.
 https://www.nytimes.com/2026/10/24/business/airlines-ticket-prices.html
 
 **Obama Issues Searing Attacks on Trump, Ramaswamy in Return to Campaign Trail**\
-`In his some of his most critical remarks in recent memory, the 44th president said the current administration was defined by “incompetence the likes of which we have not seen in modern times.”`\
+`The 44th president appeared in Ohio on Saturday, kicking off a two-state swing with a rebuke of President Trump and Vivek Ramaswamy, the Republican nominee for governor.`\
 https://www.nytimes.com/2026/10/24/us/politics/obama-trump-midterms-campaign.html
 
