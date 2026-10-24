@@ -1,3 +1,7 @@
+**Speed of Starshield Satellite Network Is Improving, Ukraine Says**\
+`The announcement followed more than a week of disruption to Starshield, the Pentagon-funded satellite network that Ukraine relies on to thwart Russian attacks.`\
+https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
+
 **My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
 `She is largely estranged from the whole family, and our contact has been sporadic.`\
 https://www.nytimes.com/2026/10/24/magazine/aunt-assisted-death-ethics.html
