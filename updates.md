@@ -1,3 +1,7 @@
+**In Alaska, Some Early Voting Sites in Rural Villages Have Not Yet Opened**\
+`“There is no legal excuse” for the failure of 18 polling sites to open for early voting, a state lawmaker said.`\
+https://www.nytimes.com/2026/10/24/us/alaska-early-voting-sites.html
+
 **Relatively Speaking**\
 `Dylan Schiff and John Kugelman compared notes and came up with a sparkling Sunday puzzle.`\
 https://www.nytimes.com/2026/10/24/crosswords/daily-puzzle-2026-10-25.html
