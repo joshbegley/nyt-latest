@@ -1,3 +1,7 @@
+**Israel Launches Crackdown in West Bank After Deadly Attack**\
+`The military demolished buildings and erected roadblocks in Hebron, the biggest city in the territory, a day after Palestinian gunmen killed two soldiers.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html
+
 **Horses and Humans Built New York City. The Horses Just Got Fired.**\
 `Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
 https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011212031/why-shouldnt-elon-musk-pa
 **Beef and Barn Dances: A Farmer Tries to Turn a Red Patch of N.C. Blue**\
 `Democrats are largely used to losing in the mountains of western North Carolina. Jamie Ager is trying to change that.`\
 https://www.nytimes.com/2026/10/24/us/politics/jamie-ager-western-north-carolina.html
-
-**J. Todd Anderson Has Died. The Coen Brothers May Be Lost Without Him.**\
-`The storyboard artist produced scene-by-scene sketches that shaped films like “Fargo,” “The Big Lebowski” and “No Country for Old Men.”`\
-https://www.nytimes.com/2026/10/24/movies/j-todd-anderson-dead.html
 

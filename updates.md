@@ -1,3 +1,39 @@
+**Horses and Humans Built New York City. The Horses Just Got Fired.**\
+`Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
+https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
+
+**Dare We Dream of a Blue Wave?**\
+`Hope, dread and the final stretch to Election Day.`\
+https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predictions.html
+
+**The Eyes of Elizabeth Holmes**\
+`Look into that unblinking gaze and see the abyss.`\
+https://www.nytimes.com/2026/10/24/opinion/elizabeth-holmes-you-can-see-everything.html
+
+**What’s at Stake in the Midterms**\
+`The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
+https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
+
+**Attempted Coups. Aging Left-Wing Incumbents. Which Country Are We Talking About?**\
+`The Brazilian echoes of American politics have become too eerie to deny.`\
+https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
+
+**What Are the Best Ways to Fix Schools?**\
+`Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
+https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
+
+**What the Israeli Election Won’t Change**\
+`Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
+https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+
+**Lena Dunham: Meet the Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
+
+**Dare We Dream of a Blue Wave?**\
+`Hope, dread and the final stretch to Election Day.`\
+https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
+
 **Speed of Starshield Satellite Network Is Improving, Ukraine Says**\
 `The announcement followed more than a week of disruption to Starshield, the Pentagon-funded satellite network that Ukraine relies on to thwart Russian attacks.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
