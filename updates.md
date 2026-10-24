@@ -1,3 +1,7 @@
+**Live Updates: France Deploys Vast Security Force in Bid to Prevent More Riots**\
+`As many as 70,000 police and security officers will try to avert the arson and looting that shocked the country last weekend. The interior minister estimated that 35,000 people were out on streets nationwide by midday.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
 **Free Passes for Polluters**\
 `A New York Times investigation shows how President Trump allowed companies to skirt rules designed to limit toxic pollution.`\
 https://www.nytimes.com/2026/10/24/climate/free-passes-for-polluters.html
