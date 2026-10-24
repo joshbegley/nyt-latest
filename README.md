@@ -1,3 +1,7 @@
+**Serbian Voters Fill Streets Ahead of Election**\
+`Thousands of opposition party supporters marched in Belgrade to take part in final campaign rallies ahead of parliamentary elections on Oct. 25.`\
+https://www.nytimes.com/video/world/europe/100000011231219/serbian-voters-fill-streets-ahead-of-election.html
+
 **NASA Is Still Aiming for the Next Moon Landing in 2028**\
 `Administrator Jared Isaacman said that the space agency was exploring ways to keep Artemis III on target without compromising safety.`\
 https://www.nytimes.com/2026/10/23/science/space/nasa-artemis-program-update.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/23/upshot/flashback.html
 **U.S. Government Takes a Cut of Chip Business in Japan-Funded Deal**\
 `President Trump’s novel deal-making is on display in upstate New York, where the administration is funneling Japanese funds into a government-owned chip factory.`\
 https://www.nytimes.com/2026/10/23/business/economy/us-japan-chip-deal.html
-
-**Palestinian Gunmen Kill Two Israeli Soldiers in the West Bank**\
-`Two Israeli soldiers were killed after Palestinian gunmen opened fire in the West Bank on Friday. The Israeli military said they killed two assailants and Prime Minister Benjamin Netanyahu warned of a major offensive in the occupied West Bank as a response.`\
-https://www.nytimes.com/video/world/middleeast/100000011232239/israeli-soldiers-killed-west-bank-shooting-hebron.html
 
