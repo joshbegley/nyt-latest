@@ -1,3 +1,7 @@
+**Gina Hinojosa Believes She’s the One Who Can Finally Flip Texas**\
+`The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
+https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
+
 **See the Districts That Will Determine House Control in the Midterms**\
 `The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
 https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/crosswords/spelling-bee-forum.html
 **New York Archdiocese Close to Settling Sexual Abuse Claims for Over $800 Million**\
 `The Roman Catholic archdiocese might now avoid bankruptcy by reaching a settlement with 1,300 people who said they had been abused by clergy members and lay leaders.`\
 https://www.nytimes.com/2026/10/24/us/archdiocese-new-york-sexual-abuse-settlement.html
-
-**Quote of the Day: Time ‘to Make a Bernie Taupin Record’**\
-`Quotation of the Day for Saturday, October 24, 2026.`\
-https://www.nytimes.com/2026/10/24/pageoneplus/quote-of-the-day-time-to-make-a-bernie-taupin-record.html
 

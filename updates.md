@@ -1,3 +1,7 @@
+**Gina Hinojosa Believes She’s the One Who Can Finally Flip Texas**\
+`The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
+https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
+
 **See the Districts That Will Determine House Control in the Midterms**\
 `The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
 https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html

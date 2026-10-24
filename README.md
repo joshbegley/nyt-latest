@@ -1,3 +1,7 @@
+**Outside Chance**\
+`We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
+https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
+
 **Gina Hinojosa Believes She’s the One Who Can Finally Flip Texas**\
 `The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
 https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/nyregion/yonkers-high-school-football.html
 **NYT Spelling Bee Answers for October 24, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/24/crosswords/spelling-bee-forum.html
-
-**New York Archdiocese Close to Settling Sexual Abuse Claims for Over $800 Million**\
-`The Roman Catholic archdiocese might now avoid bankruptcy by reaching a settlement with 1,300 people who said they had been abused by clergy members and lay leaders.`\
-https://www.nytimes.com/2026/10/24/us/archdiocese-new-york-sexual-abuse-settlement.html
 
