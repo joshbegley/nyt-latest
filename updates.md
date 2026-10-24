@@ -1,3 +1,11 @@
+**4 Bodies Found in Haiti Are Thought to Be Those of Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
+https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+
+**Elon Musk Says Ukraine Violated Starlink’s Rules**\
+`The comments were his first since the disruption in the country’s satellite service. Earlier, Ukraine said drones using Starshield, the Pentagon-funded service, were back to normal speeds.`\
+https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
+
 **4 Bodies Found in Haiti Believed to Be Those of Missing Salvadoran Soldiers**\
 `El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
 https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html

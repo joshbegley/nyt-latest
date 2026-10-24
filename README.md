@@ -1,3 +1,7 @@
+**Who Is Ahead in Connecticut's 5th Congressional District?**\
+`Track the latest polls in Connecticut's 5th Congressional District.`\
+https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html
+
 **4 Bodies Found in Haiti Are Thought to Be Those of Missing Salvadoran Soldiers**\
 `El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of the Gang Suppression Force.`\
 https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/world/americas/us-mexico-security-cartels.htm
 **‘Ali G: Who Iz I?’: What to Know**\
 `Sacha Baron Cohen has revived his fictional wannabe rapper in a new movie that will be in theaters for just this weekend. Here’s what to know.`\
 https://www.nytimes.com/2026/10/24/movies/sacha-baron-cohen-ali-g-who-iz-i.html
-
-**Trump Asked Muslim Voters to Trust Him. Now Some Feel Used.**\
-`Some Muslim voters who backed Mr. Trump in 2024 say they believe he pledged his support when it was politically convenient, only to alienate and scapegoat them once he won the election.`\
-https://www.nytimes.com/2026/10/24/us/politics/trump-muslim-voters-feel-used.html
 
