@@ -1,3 +1,7 @@
+**Unrest Erupts Again in France, but This Time, With Less Property Damage**\
+`After largely peaceful marches on Saturday, clashes broke out in the evening. But a large-scale police presence, 1,000 arrests and the rerouting of protest routes kept a lid on wholesale vandalism.`\
+https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html
+
 **Court Says Trump Violated Law in Los Angeles National Guard Deployment**\
 `The ruling, which comes as the midterm election nears, could make it more difficult for President Trump to seize control of the National Guard.`\
 https://www.nytimes.com/2026/10/24/us/ruling-trump-california-national-guard.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/us/democrats-republicans-presidential-primary
 **Why Democrats Could Find It Hard to Win the Senate Despite Their Strong Polls**\
 `Democrats are increasingly optimistic about the midterms. But they are being outspent by Republicans. And they are trying to compete in states that favored President Trump by large margins.`\
 https://www.nytimes.com/2026/10/24/us/politics/democrats-expectations-blue-wave.html
-
-**Attention, Passengers: High Airfares May Be Here to Stay**\
-`Ticket prices jumped after fuel costs spiked because of the war with Iran, but airlines say even an end to the conflict will not bring fares back down quickly.`\
-https://www.nytimes.com/2026/10/24/business/airlines-ticket-prices.html
 

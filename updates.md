@@ -1,3 +1,7 @@
+**Unrest Erupts Again in France, but This Time, With Less Property Damage**\
+`After largely peaceful marches on Saturday, clashes broke out in the evening. But a large-scale police presence, 1,000 arrests and the rerouting of protest routes kept a lid on wholesale vandalism.`\
+https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html
+
 **This Is America’s Warped Mirror Image**\
 `The Brazilian echoes of American politics have become too eerie to deny.`\
 https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
