@@ -1,3 +1,7 @@
+**Jane Doe Can Remain Anonymous in Cornell Case, Judge Says**\
+`The decision comes as both Jane Doe and the men she has accused of sexually assaulting her have faced online harassment and attempts to reveal identifying information.`\
+https://www.nytimes.com/2026/10/23/nyregion/jane-doe-can-remain-anonymous-in-cornell-case-judge-says.html
+
 **Who Is Ahead in Kansas's 2nd Congressional District?**\
 `Track the latest polls in Kansas's 2nd Congressional District.`\
 https://www.nytimes.com/interactive/polls/kansas-us-house-2-polls-2026.html
