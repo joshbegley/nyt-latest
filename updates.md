@@ -1,3 +1,11 @@
+**How a Small Student Protest Spread Across France**\
+`A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
+https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
+
+**Live Updates: France Deploys Vast Security Force in Effort to Prevent More Riots**\
+`About 70,000 police and security officers, mobilized ahead of mass protests, will try to avert the arson and looting that shocked the country last weekend.`\
+https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+
 **Outside Chance**\
 `We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
 https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
