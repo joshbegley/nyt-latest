@@ -1,3 +1,11 @@
+**Now Is the Time for Pie Practice**\
+`Make and freeze pie dough to get a head start before the holiday hubbub.`\
+https://www.nytimes.com/2026/10/24/dining/now-is-the-time-for-pie-practice.html
+
+**After the Restaurant Closes, He Makes the Kitchen Sparkle**\
+`Alexander Diaz and his team of cleaners wash away the greasy buildup in restaurant kitchens.`\
+https://www.nytimes.com/2026/10/24/dining/restaurant-cleaning.html
+
 **Free Passes for Polluters**\
 `A New York Times investigation shows how President Trump allowed companies to skirt rules designed to limit toxic pollution.`\
 https://www.nytimes.com/2026/10/24/climate/free-passes-for-polluters.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011222723/why-brazils-electio
 **Some People Turn to Bartering as Inflation Persists**\
 `With inflation showing few signs of abating, some people are considering trading goods and services with one another through online platforms.`\
 https://www.nytimes.com/2026/10/24/style/bartering-economy-inflation.html
-
-**Gina Hinojosa on Why She Calls Herself a Populist (and Not a Progressive)**\
-`“Populism is about economic power,” Gina Hinojosa, the Democratic candidate for governor in Texas, said on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011212069/gina-hinojosa-on-why-she-calls-herself-a-populist-and-not-a-progressive.html
-
-**Book Review: ‘Peck & Peck,’ by Bonnie Garmus**\
-`In the fizzy if didactic “Peck & Peck,” Bonnie Garmus observes a young man climbing the ranks of a very eccentric literary magazine.`\
-https://www.nytimes.com/2026/10/24/books/review/bonnie-garmus-peck-and-peck.html
 
