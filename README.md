@@ -1,3 +1,7 @@
+**C.E.O.s Say the A.I. Rollout Is Going Well. Employees Feel Differently.**\
+`Surveys show workers and executives have different views on A.I.`\
+https://www.nytimes.com/2026/10/24/business/dealbook/ceos-say-the-ai-rollout-is-going-well-employees-feel-differently.html
+
 **‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire**\
 `The police said on Saturday that the structure, a tourist attraction for decades, was probably not salvageable. A man was arrested in connection with the blaze.`\
 https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/books/review/bonnie-garmus-peck-and-peck.html
 **Gina Hinojosa on Abortion in Texas and Her Own Pregnancy**\
 `On “The Interview,” Gina Hinojosa, the Democratic candidate for governor in Texas, talked about the death of first child and the politicization of pregnancy in the U.S.`\
 https://www.nytimes.com/video/podcasts/100000011212065/gina-hinojosa-on-abortion-in-texas-and-her-own-pregnancy.html
-
-**‘Why Shouldn’t Elon Musk Pay His Taxes in Texas?’**\
-`Gina Hinojosa, the Democratic candidate for governor in Texas, talked about Elon Musk’s businesses in the state on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011212031/why-shouldnt-elon-musk-pay-his-taxes-in-texas.html
 
