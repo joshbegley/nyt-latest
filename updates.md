@@ -1,3 +1,7 @@
+**Outside Chance**\
+`We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
+https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
+
 **Gina Hinojosa Believes She’s the One Who Can Finally Flip Texas**\
 `The Democratic nominee for governor on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
 https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
