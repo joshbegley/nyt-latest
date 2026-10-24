@@ -1,3 +1,7 @@
+**Time to Invest in Some Stocks**\
+`Make golden chicken (or vegetable) stock this weekend for future soups, stews and gravies.`\
+https://www.nytimes.com/2026/10/24/dining/time-to-invest-in-some-stocks.html
+
 **Israel Cracks Down in West Bank City After Deadly Attack**\
 `Hundreds of Palestinian families fled their homes as the Israeli military raided Hebron. The operation came a day after Palestinian gunmen killed two soldiers.`\
 https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html

@@ -1,3 +1,7 @@
+**Time to Invest in Some Stocks**\
+`Make golden chicken (or vegetable) stock this weekend for future soups, stews and gravies.`\
+https://www.nytimes.com/2026/10/24/dining/time-to-invest-in-some-stocks.html
+
 **Now Is the Time for Pie Practice**\
 `Make and freeze pie dough to get a head start before the holiday hubbub.`\
 https://www.nytimes.com/2026/10/24/dining/now-is-the-time-for-pie-practice.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/realestate/ai-doorman-new-york-city.html
 **Why Brazil’s Election Could Come Down to Crime**\
 `Ana Ionova examines how the Brazilian presidential candidate Flávio Bolsonaro is making crime and safety the center of his campaign, following a right-wing playbook from other Latin American countries.`\
 https://www.nytimes.com/video/world/americas/100000011222723/why-brazils-election-could-come-down-to-crime.html
-
-**Some People Turn to Bartering as Inflation Persists**\
-`With inflation showing few signs of abating, some people are considering trading goods and services with one another through online platforms.`\
-https://www.nytimes.com/2026/10/24/style/bartering-economy-inflation.html
 

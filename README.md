@@ -102,13 +102,13 @@ https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
 `Gina Hinojosa, the Democratic nominee for governor, on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
 https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
 
-**See the Districts That Will Determine House Control in the Midterms**\
-`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
-https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
-
 **Looting Left Damage and Fear on Paradise Street in Marseille**\
 `Looters ravaged a storied commercial avenue in France’s second-largest city. Its merchants fear that more unrest could follow.`\
 https://www.nytimes.com/2026/10/24/world/europe/france-looting-rue-paradis-marseille.html
+
+**See the Districts That Will Determine House Control in the Midterms**\
+`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
+https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
 
 **How Vivek Ramaswamy’s Ruthless Ad in Ohio Divided Republicans**\
 `The fallout from Vivek Ramaswamy’s brutal spot targeting his Democratic rival in the Ohio governor’s race showed that even in the Trump era, a political attack can be seen as going too far.`\
