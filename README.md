@@ -1,3 +1,7 @@
+**New York Archdiocese Close to Settling Sexual Abuse Claims for Over $800 Million**\
+`The Roman Catholic archdiocese might now avoid bankruptcy by reaching a settlement with 1,300 people who said they had been abused by clergy members and lay leaders.`\
+https://www.nytimes.com/2026/10/24/us/archdiocese-new-york-sexual-abuse-settlement.html
+
 **Quote of the Day: Time ‘to Make a Bernie Taupin Record’**\
 `Quotation of the Day for Saturday, October 24, 2026.`\
 https://www.nytimes.com/2026/10/24/pageoneplus/quote-of-the-day-time-to-make-a-bernie-taupin-record.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/23/us/bard-college-president-marvin-krislov.html
 **The Local: Seitu K. Jones gets overdue museum show**\
 `Plus, a fight over free speech and election law.`\
 https://www.nytimes.com/2026/10/23/briefing/seitu-jones.html
-
-**Should Horse-Drawn Carriages Be Banned in New York City?**\
-`Readers react to the City Council’s vote to impose a ban after a passenger’s death. Also: Integrated schools.`\
-https://www.nytimes.com/2026/10/23/opinion/horse-carriage-ban-new-york.html
 
