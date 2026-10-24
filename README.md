@@ -1,3 +1,7 @@
+**Free Passes for Polluters**\
+`A New York Times investigation shows how President Trump allowed companies to skirt rules designed to limit toxic pollution.`\
+https://www.nytimes.com/2026/10/24/climate/free-passes-for-polluters.html
+
 **C.E.O.s Say the A.I. Rollout Is Going Well. Employees Feel Differently.**\
 `Surveys show workers and executives have different views on A.I.`\
 https://www.nytimes.com/2026/10/24/business/dealbook/ceos-say-the-ai-rollout-is-going-well-employees-feel-differently.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011212069/gina-hinojosa-on-why-she-
 **Book Review: ‘Peck & Peck,’ by Bonnie Garmus**\
 `In the fizzy if didactic “Peck & Peck,” Bonnie Garmus observes a young man climbing the ranks of a very eccentric literary magazine.`\
 https://www.nytimes.com/2026/10/24/books/review/bonnie-garmus-peck-and-peck.html
-
-**Gina Hinojosa on Abortion in Texas and Her Own Pregnancy**\
-`On “The Interview,” Gina Hinojosa, the Democratic candidate for governor in Texas, talked about the death of first child and the politicization of pregnancy in the U.S.`\
-https://www.nytimes.com/video/podcasts/100000011212065/gina-hinojosa-on-abortion-in-texas-and-her-own-pregnancy.html
 
