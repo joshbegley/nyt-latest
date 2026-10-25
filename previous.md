@@ -1,3 +1,35 @@
+**Trump Should Stay Out of Brazilian Politics**\
+`The president seems not to understand that the global standing of the United States suffers when he plays into the stereotype of the ugly American.`\
+https://www.nytimes.com/2026/10/25/opinion/trump-should-stay-out-of-brazilian-politics.html
+
+**There Is Nothing MAGA Won’t Sink To**\
+`Trump’s culture of cruelty spreads.`\
+https://www.nytimes.com/2026/10/25/opinion/midterm-ads-ramaswamy-acton-ohio.html
+
+**Netanyahu Won the Middle East and Lost the World**\
+`Both Israelis and Palestinians are trapped in the Netanyahu paradigm.`\
+https://www.nytimes.com/2026/10/25/opinion/israel-gaza-election-netanyahu-hamas.html
+
+**Tricks, Treats and Trends: Our Reporters On the Most Popular Candy, Costumes and Decor of This Spooky Season.**\
+`Our reporters on the most popular candy, costumes and décor of this spooky season.`\
+https://www.nytimes.com/2026/10/25/podcasts/the-daily/tricks-treats-and-trends.html
+
+**This Year, Yet Again, I’m Dressing as Grapes**\
+`Every Halloween for nearly two decades, I’ve adorned myself with purple (or black) balloons. It’s a lifelong commitment to the bit.`\
+https://www.nytimes.com/2026/10/25/opinion/this-year-yet-again-im-dressing-as-grapes.html
+
+**NYT Connections Answers for October 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
+https://www.nytimes.com/2026/10/25/crosswords/connections-companion-1233.html
+
+**Today’s Wordle Hints for October 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
+https://www.nytimes.com/2026/10/25/crosswords/wordle-review-1955.html
+
+**NYT Strands Hints for October 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
+https://www.nytimes.com/2026/10/25/crosswords/strands-sidekick-967.html
+
 **Former ‘60 Minutes’ Boss to Join Video Journalism Start-Up**\
 `Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
 https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/25/us/elections/times-voter-trends-methodology.h
 **Introducing a New Way to Understand the Election: Times Voter Trends**\
 `A timely demographic story we’ve never been able to tell before.`\
 https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
-
-**How Wyoming Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-wyoming.html
-
-**How Wyoming Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
-
-**How Wisconsin Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-wisconsin.html
-
-**How Wisconsin Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-wisconsin.html
-
-**How West Virginia Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-west-virginia.html
-
-**How West Virginia Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-west-virginia.html
-
-**How Washington, D.C., Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-washington-dc.html
-
-**How Washington, D.C., Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.html
 
