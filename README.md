@@ -1,3 +1,7 @@
+**Genevieve Ko’s Five-Star, Veggie-Packed Quick Turkey Chili**\
+`The pound of frozen kale might not be traditional, but it is tasty (and very healthful).`\
+https://www.nytimes.com/2026/10/25/dining/genevieve-kos-five-star-veggie-packed-quick-turkey-chili.html
+
 **Maps: Tracking Typhoon In-fa**\
 `See the likely path and wind arrival times for In-fa`\
 https://www.nytimes.com/interactive/2026/10/25/weather/in-fa-map-path-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/us/politics/zach-lahn-iowa-governor-kansas-ko
 **How ‘The Curious Case of Benjamin Button’ Grew Up**\
 `A musical adaptation of the F. Scott Fitzgerald short story has been in the works for nearly 10 years. Now it is making its U.S. debut at the Public Theater.`\
 https://www.nytimes.com/2026/10/25/theater/curious-case-benjamin-button-musical.html
-
-**Can Marissa Mayer, Yahoo’s Former CEO, Help Fix A.I.’s Gender Problem?**\
-`Marissa Mayer made her name as a pioneer at Google, then as chief executive at Yahoo. Now Mayer is entering the crowded marketplace for A.I. assistants — and hoping to draw in more women.`\
-https://www.nytimes.com/2026/10/25/style/marissa-mayer-ai-assistants-women.html
 
