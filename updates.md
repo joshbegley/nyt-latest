@@ -1,3 +1,7 @@
+**The Grace We Seek but Have Forgotten**\
+`We hurt one another, we fail one another, but we still have to figure out how to live with one another.`\
+https://www.nytimes.com/2026/10/25/opinion/the-grace-we-seek-but-have-forgotten.html
+
 **Far, Far Away**\
 `Making a home on the world’s most remote inhabited island.`\
 https://www.nytimes.com/2026/10/25/world/africa/tristan-da-cunha-island.html

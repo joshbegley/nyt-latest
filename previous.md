@@ -1,3 +1,7 @@
+**The Grace We Seek but Have Forgotten**\
+`We hurt one another, we fail one another, but we still have to figure out how to live with one another.`\
+https://www.nytimes.com/2026/10/25/opinion/the-grace-we-seek-but-have-forgotten.html
+
 **Far, Far Away**\
 `Making a home on the world’s most remote inhabited island.`\
 https://www.nytimes.com/2026/10/25/world/africa/tristan-da-cunha-island.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
 `Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
 https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
 
-**Lena Dunham: The Day I Met My Parents**\
-`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
-https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
-
 **What the Israeli Election Won’t Change**\
 `Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
 https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+
+**Lena Dunham: The Day I Met My Parents**\
+`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
+https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
 
 **Dare We Dream of a Blue Wave?**\
 `Hope, dread and the final stretch to Election Day.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 **France Protest Updates: Hundreds of Thousands March Amid Heavy Security**\
 `The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
-
-**Outside Chance**\
-`We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
-https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
 
