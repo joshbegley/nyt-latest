@@ -1,3 +1,7 @@
+**Despicable Doesn’t Begin to Cover It**\
+`Trump’s culture of cruelty spreads.`\
+https://www.nytimes.com/2026/10/25/opinion/midterm-ads-ramaswamy-acton-ohio.html
+
 **A Speedier, Spoonable Lasagna**\
 `That, plus a feta frittata from Yotam Ottolenghi, are in this week’s selection of five weeknight dishes.`\
 https://www.nytimes.com/2026/10/25/dining/a-speedier-spoonable-lasagna.html
