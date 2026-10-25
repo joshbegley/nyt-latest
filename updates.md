@@ -1,3 +1,7 @@
+**Owners of Elvis Presley’s Music Sue Anthropic for Copyright Infringement**\
+`The $41 million lawsuit contends that the A.I. company used Presley’s music to train its models without permission. Anthropic disagrees with the claims.`\
+https://www.nytimes.com/2026/10/25/arts/music/anthropic-lawsuit-elvis-presley-songs.html
+
 **New Fight at Gritty Manhattan Park Is Over ‘Punk Rock’ Pull-Up Bars**\
 `The Parks Department has a $10 million plan to renovate the northeast corner of Tompkins Square Park, but fans of its workout bars want things to stay just as they are.`\
 https://www.nytimes.com/2026/10/25/nyregion/tompkins-square-park-pull-up-bars-renovation.html

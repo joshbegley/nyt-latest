@@ -1,3 +1,7 @@
+**Owners of Elvis Presley’s Music Sue Anthropic for Copyright Infringement**\
+`The $41 million lawsuit contends that the A.I. company used Presley’s music to train its models without permission. Anthropic disagrees with the claims.`\
+https://www.nytimes.com/2026/10/25/arts/music/anthropic-lawsuit-elvis-presley-songs.html
+
 **New Fight at Gritty Manhattan Park Is Over ‘Punk Rock’ Pull-Up Bars**\
 `The Parks Department has a $10 million plan to renovate the northeast corner of Tompkins Square Park, but fans of its workout bars want things to stay just as they are.`\
 https://www.nytimes.com/2026/10/25/nyregion/tompkins-square-park-pull-up-bars-renovation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/pageoneplus/editors-note-oct-25-2026.html
 **Berkeley Considers Starting a Public Bank With Taxpayer Dollars**\
 `The bank would offer low-interest loans to community projects in the East Bay region of Northern California.`\
 https://www.nytimes.com/2026/10/25/us/berkeley-california-public-bank.html
-
-**What to Know About Brazil’s Election as Bolsonaro Faces Off With Lula**\
-`Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a narrow race that could redefine the future of Latin America.`\
-https://www.nytimes.com/2026/10/25/world/americas/brazil-election-lula-bolsonaro-what-to-know.html
 
