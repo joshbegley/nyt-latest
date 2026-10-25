@@ -1,3 +1,7 @@
+**Maps: Tracking Typhoon In-fa**\
+`See the likely path and wind arrival times for In-fa`\
+https://www.nytimes.com/interactive/2026/10/25/weather/in-fa-map-path-tracker.html
+
 **She Secretly Returned to Drinking — and to Church**\
 `Meghan O’Gieblyn’s new memoir, “Will and Attention,” is about the limits of willpower. But it’s also about grace.`\
 https://www.nytimes.com/2026/10/25/briefing/meghan-ogieblyn-will-and-attention.html
