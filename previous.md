@@ -1,6 +1,6 @@
 **Far, Far Away**\
 `Making a home on the world’s most remote inhabited island.`\
-https://www.nytimes.com/2026/10/25/world/africa/far-far-away.html
+https://www.nytimes.com/2026/10/25/world/africa/tristan-da-cunha-island.html
 
 **Quote of the Day: Where Families Earning $325,000 Qualify for Child Care Aid**\
 `Quotation of the Day for Sunday, October 25, 2026.`\
