@@ -1,3 +1,7 @@
+**Appeals Court Appears to Doubt Justice Dept. Claims in California Ballot Case**\
+`A federal appeals court panel seemed disinclined to order the state to set aside as many as 20,000 mail-in ballots the Trump administration claimed were sent to noncitizens.`\
+https://www.nytimes.com/2026/10/25/us/elections/midterms-california-mail-ballots-trump.html
+
 **Aleksandar Vucic Concedes Defeat in Serbian Election**\
 `“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
 https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-c
 **My Co-Worker Is Losing It Over My Religion**\
 `Plus: Reader responses to a woman returning to the office after two decades of self-employment.`\
 https://www.nytimes.com/2026/10/25/business/my-co-worker-is-losing-it-over-my-religion.html
-
-**Democrats Have Edge Across Four Key House Races in Pennsylvania, Polls Find**\
-`Democratic candidates are ahead in two, hold a narrow edge in a third and are tied in a fourth, new polling shows. The seats embody the fights playing out nationwide in the midterms.`\
-https://www.nytimes.com/2026/10/25/us/politics/polls-pennsylvania-house-midterms-battlegrounds.html
 
