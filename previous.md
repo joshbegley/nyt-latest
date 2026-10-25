@@ -1,3 +1,11 @@
+**Who Is María Corina Machado?**\
+`The Venezuelan opposition leader returned home from exile to a country firmly under American control. How are her relations with Washington?`\
+https://www.nytimes.com/2026/10/25/world/americas/who-is-maria-corina-machado.html
+
+**Catholic Leaders Say Trump Meeting Wasn’t Intended to Be Political After White House Shares Video**\
+`A video of Catholic leaders praying with the president was shared by the White House. One archbishop said it was done without permission.`\
+https://www.nytimes.com/2026/10/25/us/trump-catholic-bishops-meeting-apology.html
+
 **Modi’s Plan to Stop India’s Protests**\
 `The Indian leader, facing a volatile youth uprising, appears to be deliberately drawing into the fray a political rival he’s beaten before.`\
 https://www.nytimes.com/2026/10/25/world/modi-india-protests-brazil-election.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa7-poll-crosst
 **Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Seventh Congressional District**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 401 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa7-poll-toplines.html
-
-**Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s First U.S. House District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 400 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa1-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s First Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 400 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa1-poll-crosstabs.html
 
