@@ -1,3 +1,11 @@
+**María Corina Machado, Venezuela’s Opposition Leader, Returns**\
+`María Corina Machado fled Venezuela last year to receive the Nobel Peace Prize. On Sunday, she returned home, according to a spokesman.`\
+https://www.nytimes.com/video/world/americas/100000011235696/mara-corina-machado-return-venezuela.html
+
+**Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
+`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, the son of his predecessor. The outcome will resonate beyond Latin America to Washington.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
 `Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, a senator and son of his jailed predecessor. The outcome will resonate beyond Latin America to Washington.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election

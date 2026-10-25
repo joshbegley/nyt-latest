@@ -1,3 +1,7 @@
+**María Corina Machado, Venezuela’s Opposition Leader, Returns**\
+`María Corina Machado fled Venezuela last year to receive the Nobel Peace Prize. On Sunday, she returned home, according to a spokesman.`\
+https://www.nytimes.com/video/world/americas/100000011235696/mara-corina-machado-return-venezuela.html
+
 **Owners of Elvis Presley’s Music Sue Anthropic for Copyright Infringement**\
 `The $41 million lawsuit contends that the A.I. company used Presley’s music to train its models without permission. Anthropic disagrees with the claims.`\
 https://www.nytimes.com/2026/10/25/arts/music/anthropic-lawsuit-elvis-presley-songs.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-camp
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
 
 **Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
-`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, a senator and son of his jailed predecessor. The outcome will resonate beyond Latin America to Washington.`\
+`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, the son of his predecessor. The outcome will resonate beyond Latin America to Washington.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
 **‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-topline
 **Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Competitive U.S. House Races**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 1,607 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-crosstabs.html
-
-**Corrections: Oct. 25, 2026**\
-`The following Editors’ Note and corrections appeared in print  on Sunday, Oct. 25, 2026.`\
-https://www.nytimes.com/2026/10/25/pageoneplus/editors-note-oct-25-2026.html
 
