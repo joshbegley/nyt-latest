@@ -1,3 +1,7 @@
+**How Washington Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-washington.html
+
 **My Co-Worker Is Losing It Over My Religion**\
 `Plus: Reader responses to a woman returning to the office after two decades of self-employment.`\
 https://www.nytimes.com/2026/10/25/business/my-co-worker-is-losing-it-over-my-religion.html

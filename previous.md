@@ -186,15 +186,15 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-west-virginia.ht
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-washington-dc.html
 
+**How Washington Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2020/elections/voter-trends-washington.html
+
 **How Washington, D.C., Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.html
 
-**How Utah Voted in 2024**\
+**How Washington Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
-
-**How Washington Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-washington.html
+https://www.nytimes.com/interactive/2024/elections/voter-trends-washington.html
 
