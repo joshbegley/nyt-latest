@@ -1,3 +1,15 @@
+**Thomas L. Friedman: We Just Set Off the Second Big Bang**\
+`Humanity is entering its most dangerous era yet.`\
+https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html
+
+**The Second Big Bang Is Here**\
+`According to the columnist Thomas L. Friedman, humanity has just set off a second Big Bang — and we are not ready for it. He explains why the rise of A.I. and other “godlike” powers will require us to build healthy interdependencies to survive what comes next.`\
+https://www.nytimes.com/video/opinion/100000011223790/the-second-big-bang-is-here.html
+
+**Thomas L. Friedman: We Just Set Off the Second Big Bang**\
+`The columnist on why humanity is entering its most dangerous era yet.`\
+https://www.nytimes.com/video/opinion/100000011223755/thomas-l-friedman-we-just-set-off-the-second-big-bang.html
+
 **Trump Should Stay Out of Brazilian Politics**\
 `The president seems not to understand that the global standing of the United States suffers when he plays into the stereotype of the ugly American.`\
 https://www.nytimes.com/2026/10/25/opinion/trump-should-stay-out-of-brazilian-politics.html
