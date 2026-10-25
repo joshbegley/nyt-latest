@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/10/25/opinion/ai-bubble-financial-crisis-lehman.htm
 `Readers offer their suggestions for improving our schools. Also: College’s real payoff; A.I. is not human.`\
 https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
 
-**Saudi Arabia Reopens Riyadh Airport After Weeks of Houthi Attacks**\
-`The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month and have threatened to strike it again.`\
+**Saudi Arabia Reopens Riyadh Airport Even as Houthis Threaten Further Strikes**\
+`The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month.`\
 https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html
 
 **A Day After Renewed Street Clashes in France, Relief and Anxiety Mix**\
