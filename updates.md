@@ -1,3 +1,11 @@
+**Former ‘60 Minutes’ Boss to Join Video Journalism Start-Up**\
+`Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
+https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
+
+**How Virginia Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-virginia.html
+
 **Obama Sharply Criticizes Trump on Campaign Trail**\
 `Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
 https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html

@@ -1,3 +1,7 @@
+**Former ‘60 Minutes’ Boss to Join Video Journalism Start-Up**\
+`Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
+https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
+
 **Obama Sharply Criticizes Trump on Campaign Trail**\
 `Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
 https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html
@@ -166,13 +170,13 @@ https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.h
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-wyoming.html
 
-**How Wyoming Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
-
 **How Wisconsin Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-wisconsin.html
+
+**How Wyoming Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
 
 **How Wisconsin Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -186,15 +190,11 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-west-virginia.ht
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-west-virginia.html
 
-**How Washington, D.C., Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.html
-
-**How Utah Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
-
 **How Washington Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-washington.html
+
+**How Virginia Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-virginia.html
 
