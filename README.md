@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/10/25/crosswords/strands-sidekick-967.html
 `Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
 https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
 
-**Obama Sharply Criticizes Trump on Campaign Trail**\
-`Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
-https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html
-

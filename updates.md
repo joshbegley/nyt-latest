@@ -1,3 +1,7 @@
+**How Obama and Trump Made their Cases in Dueling Midterm Speeches**\
+`At rallies this weekend, Mr. Obama and Mr. Trump delivered two starkly contrasting pitches, differing in style and substance.`\
+https://www.nytimes.com/2026/10/25/us/politics/obama-trump-competing-rallies-midterms.html
+
 **Appeals Court Appears to Doubt Justice Dept. Claims in California Ballot Case**\
 `A federal appeals court panel seemed disinclined to order the state to set aside as many as 20,000 mail-in ballots the Trump administration claimed were sent to noncitizens.`\
 https://www.nytimes.com/2026/10/25/us/elections/midterms-california-mail-ballots-trump.html
