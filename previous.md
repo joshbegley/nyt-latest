@@ -1,3 +1,7 @@
+**She Secretly Returned to Drinking — and to Church**\
+`Meghan O’Gieblyn’s new memoir, “Will and Attention,” is about the limits of willpower. But it’s also about grace.`\
+https://www.nytimes.com/2026/10/25/briefing/meghan-ogieblyn-will-and-attention.html
+
 **A Speedier, Spoonable Lasagna**\
 `That, plus a feta frittata from Yotam Ottolenghi, are in this week’s selection of five weeknight dishes.`\
 https://www.nytimes.com/2026/10/25/dining/a-speedier-spoonable-lasagna.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/style/marissa-mayer-ai-assistants-women.html
 **Book Review: ‘D: Heavy Water,’ by Neal Stephenson**\
 `In Neal Stephenson’s new novel, a foppish reporter stumbles into a plot to secure materials crucial to building nuclear weapons.`\
 https://www.nytimes.com/2026/10/25/books/review/neal-stephenson-d-heavy-water.html
-
-**He Took Big Risks to Make Billions. He Wants Georgia Voters to Bet on Him.**\
-`Rick Jackson’s run for governor as a political nobody was his latest gamble. The campaign has brought scrutiny to the businesses that made him a fortune.`\
-https://www.nytimes.com/2026/10/25/us/politics/he-took-big-risks-to-make-billions-he-wants-georgia-voters-to-bet-on-him.html
 

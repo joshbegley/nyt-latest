@@ -1,3 +1,7 @@
+**She Secretly Returned to Drinking — and to Church**\
+`Meghan O’Gieblyn’s new memoir, “Will and Attention,” is about the limits of willpower. But it’s also about grace.`\
+https://www.nytimes.com/2026/10/25/briefing/meghan-ogieblyn-will-and-attention.html
+
 **Despicable Doesn’t Begin to Cover It**\
 `Trump’s culture of cruelty spreads.`\
 https://www.nytimes.com/2026/10/25/opinion/midterm-ads-ramaswamy-acton-ohio.html
