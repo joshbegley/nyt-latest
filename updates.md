@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 26, 2026**\
+`Kevin Christian and Andrea Carla Michaels embrace chaos.`\
+https://www.nytimes.com/2026/10/25/crosswords/daily-puzzle-2026-10-26.html
+
 **Live Updates: Voting Extended as Brazil’s Presidential Race Comes to Chaotic Close**\
 `Polls were ordered to stay open two more hours because of transportation and weather problems. The leftist president Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor and a Trump ally.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
