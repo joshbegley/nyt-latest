@@ -1,3 +1,11 @@
+**Claude Cohen-Tannoudji, Nobel Physicist, Dies; Devised a Way to Catch Atoms**\
+`His work has been used to build better atomic clocks and improve atomic tools for making extremely precise measurements.`\
+https://www.nytimes.com/2026/10/25/obituaries/claude-cohen-tannoudji-dead.html
+
+**María Corina Machado Returns to Venezuela**\
+`After nearly 10 months in exile, the Nobel laureate and leader of Venezuela’s opposition returned to challenge leaders that have sidelined her and press for new elections.`\
+https://www.nytimes.com/2026/10/25/world/americas/maria-corina-machado-returns-to-venezuela.html
+
 **In Texas Senate Race, Talarico Leans Into Growing Rivalry With Elon Musk**\
 `On the trail, James Talarico, the Democratic Senate nominee, has increasingly gone after Mr. Musk, a critic of his who has given big to a group aligned with the Republican candidate, Ken Paxton.`\
 https://www.nytimes.com/2026/10/25/us/politics/talarico-musk-texas-senate-paxton-midterms.html
