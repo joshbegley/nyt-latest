@@ -1,3 +1,15 @@
+**Can’t Afford a Home. Can’t Afford a Baby. Can’t Afford Life. This is 30.**\
+`They’re trying to build middle-class lives in New York. But many 30-year-olds in the city feel worse off than their parents. Is it average adult angst? Or something more enduring?`\
+https://www.nytimes.com/2026/10/25/nyregion/30-year-old-angst.html
+
+**‘On a Snowy Evening in February, I Went to a Wine Bar in Crown Heights’**\
+`Working from home in Greenpoint, red wine in Crown Heights and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/10/25/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for October 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/25/crosswords/spelling-bee-forum.html
+
 **At Least 12 Injured, Including 6 Minors, in Shooting Near Florida A&M’s Stadium**\
 `The shooting occurred hours after the university’s homecoming game. The youngest victim was 11, the police said.`\
 https://www.nytimes.com/2026/10/25/us/tallahassee-shooting-florida-am-homecoming.html

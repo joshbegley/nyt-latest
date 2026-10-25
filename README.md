@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/10/25/us/elections/times-voter-trends-methodology.h
 `A timely demographic story we’ve never been able to tell before.`\
 https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
 
-**How Wyoming Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
-
 **How Wyoming Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-wyoming.html
+
+**How Wyoming Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
 
 **How Wisconsin Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -130,13 +130,13 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-rhode-island.htm
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-pennsylvania.html
 
-**How South Carolina Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-south-carolina.html
-
 **How Pennsylvania Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-pennsylvania.html
+
+**How South Carolina Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2020/elections/voter-trends-south-carolina.html
 
 **How Rhode Island Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -154,6 +154,10 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-oklahoma.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-oregon.html
 
+**How North Dakota Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-north-dakota.html
+
 **How North Carolina Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-north-carolina.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-north-carolina.h
 **How Ohio Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-ohio.html
-
-**How North Dakota Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-north-dakota.html
 
 **How Oklahoma Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
