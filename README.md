@@ -1,3 +1,7 @@
+**How Obama and Trump Made their Cases in Dueling Midterm Speeches**\
+`At rallies this weekend, Mr. Obama and Mr. Trump delivered two starkly contrasting pitches, differing in style and substance.`\
+https://www.nytimes.com/2026/10/25/us/politics/obama-trump-competing-rallies-midterms.html
+
 **Appeals Court Appears to Doubt Justice Dept. Claims in California Ballot Case**\
 `A federal appeals court panel seemed disinclined to order the state to set aside as many as 20,000 mail-in ballots the Trump administration claimed were sent to noncitizens.`\
 https://www.nytimes.com/2026/10/25/us/elections/midterms-california-mail-ballots-trump.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-
 **Obama Sharply Criticizes Trump on Campaign Trail**\
 `Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
 https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html
-
-**My Co-Worker Is Losing It Over My Religion**\
-`Plus: Reader responses to a woman returning to the office after two decades of self-employment.`\
-https://www.nytimes.com/2026/10/25/business/my-co-worker-is-losing-it-over-my-religion.html
 
