@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 26, 2026**\
+`Kevin Christian and Andrea Carla Michaels embrace chaos.`\
+https://www.nytimes.com/2026/10/25/crosswords/daily-puzzle-2026-10-26.html
+
 **Hochul and Blakeman Barnstorm New York as Early Voting Begins**\
 `Nearly twice as many New Yorkers cast their ballots on the first day of early voting as compared with four years ago. Early voting runs until Nov. 1.`\
 https://www.nytimes.com/2026/10/25/nyregion/hochul-blakeman-new-york-governor-early-voting.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-topli
 **Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Eighth Congressional District**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 402 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa8-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Eighth Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 402 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa8-poll-toplines.html
 
