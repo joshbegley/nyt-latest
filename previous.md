@@ -1,3 +1,7 @@
+**How to Track Runners During the NYC Marathon**\
+`The New York Road Runners app allows spectators to follow along the 26.2-mile race scheduled for Nov. 1.`\
+https://www.nytimes.com/2026/10/25/nyregion/track-runners-nyc-marathon.html
+
 **Genevieve Ko’s Five-Star, Veggie-Packed Quick Turkey Chili**\
 `The pound of frozen kale might not be traditional, but it is tasty (and very healthful).`\
 https://www.nytimes.com/2026/10/25/dining/genevieve-kos-five-star-veggie-packed-quick-turkey-chili.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/25/world/middleeast/israel-election-
 **An Iowa Republican’s Unusual Connection to the Kochs (and Kansas)**\
 `In his campaign for governor, Zach Lahn has pitched himself as a self-made businessman. His backstory is more complicated.`\
 https://www.nytimes.com/2026/10/25/us/politics/zach-lahn-iowa-governor-kansas-kochs.html
-
-**How ‘The Curious Case of Benjamin Button’ Grew Up**\
-`A musical adaptation of the F. Scott Fitzgerald short story has been in the works for nearly 10 years. Now it is making its U.S. debut at the Public Theater.`\
-https://www.nytimes.com/2026/10/25/theater/curious-case-benjamin-button-musical.html
 

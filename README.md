@@ -1,3 +1,7 @@
+**Young Protesters Return to the Streets Across Italy**\
+`Demonstrators across Italy on Saturday protested economic inequality and the political establishment. A heavy police presence throughout the country aimed to prevent the looting and violence that occurred during protests last weekend.`\
+https://www.nytimes.com/video/world/europe/100000011235462/protests-italy-rome-milan-france.html
+
 **How to Track Runners During the NYC Marathon**\
 `The New York Road Runners app allows spectators to follow along the 26.2-mile race scheduled for Nov. 1.`\
 https://www.nytimes.com/2026/10/25/nyregion/track-runners-nyc-marathon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/us/politics/roger-marshall-kansas-senate.html
 **How Israel's Election Could Unfold**\
 `No party is expected to achieve a clear victory, which means the election will likely only be the first step in determining who will form the next government. Here’s how that might unfold.`\
 https://www.nytimes.com/interactive/2026/10/25/world/middleeast/israel-election-results-netanyahu-eisenkot-government.html
-
-**An Iowa Republican’s Unusual Connection to the Kochs (and Kansas)**\
-`In his campaign for governor, Zach Lahn has pitched himself as a self-made businessman. His backstory is more complicated.`\
-https://www.nytimes.com/2026/10/25/us/politics/zach-lahn-iowa-governor-kansas-kochs.html
 

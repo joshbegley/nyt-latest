@@ -1,3 +1,7 @@
+**How to Track Runners During the NYC Marathon**\
+`The New York Road Runners app allows spectators to follow along the 26.2-mile race scheduled for Nov. 1.`\
+https://www.nytimes.com/2026/10/25/nyregion/track-runners-nyc-marathon.html
+
 **Genevieve Ko’s Five-Star, Veggie-Packed Quick Turkey Chili**\
 `The pound of frozen kale might not be traditional, but it is tasty (and very healthful).`\
 https://www.nytimes.com/2026/10/25/dining/genevieve-kos-five-star-veggie-packed-quick-turkey-chili.html
