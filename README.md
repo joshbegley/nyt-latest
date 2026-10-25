@@ -1,3 +1,7 @@
+**Aleksandar Vucic Concedes Defeat in Serbian Election**\
+`“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
+https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
+
 **NYT Crossword Answers for Oct. 26, 2026**\
 `Kevin Christian and Andrea Carla Michaels embrace chaos.`\
 https://www.nytimes.com/2026/10/25/crosswords/daily-puzzle-2026-10-26.html
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/25/us/politics/polls-pennsylvania-house-midterms
 **Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s 10th Congressional District**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 404 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s 10th Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 404 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Eighth Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 402 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa8-poll-crosstabs.html
 
