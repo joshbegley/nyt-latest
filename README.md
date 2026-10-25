@@ -1,3 +1,7 @@
+**Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
+`President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, a son of his predecessor who was convicted of attempting a coup. The outcome will resonate beyond Latin America to Washington.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\
 `“Clayface” was No. 1 at the box office, but “You Can See Everything,” a documentary about the disgraced Theranos founder, surged in its second weekend.`\
 https://www.nytimes.com/2026/10/25/business/media/elizabeth-holmes-clayface-box-office.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/business/california-colleges-costs.html
 **The Long Life of the ‘Snacking Occasion’**\
 `As eating habits shift, the food industry is promoting any opportunity to nibble.`\
 https://www.nytimes.com/2026/10/25/business/the-long-life-of-the-snacking-occasiong-glp1.html
-
-**What These Senate Seats Mean for Progressives**\
-`Our politics reporter Kellen Browning walks through the four Senate races that progressive Democrats are closely watching in the upcoming midterm elections.`\
-https://www.nytimes.com/video/us/elections/100000011219565/senate-seats-progressives-michigan-florida-maine.html
 
