@@ -1,3 +1,7 @@
+**Appeals Court Appears to Doubt Justice Dept. Claims in California Ballot Case**\
+`A federal appeals court panel seemed disinclined to order the state to set aside as many as 20,000 mail-in ballots the Trump administration claimed were sent to noncitizens.`\
+https://www.nytimes.com/2026/10/25/us/elections/midterms-california-mail-ballots-trump.html
+
 **Aleksandar Vucic Concedes Defeat in Serbian Election**\
 `“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
 https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
