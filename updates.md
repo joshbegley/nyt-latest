@@ -1,3 +1,7 @@
+**At Least 12 Injured, Including 6 Minors, in Shooting Near Florida A&M’s Stadium**\
+`The shooting occurred hours after the university’s homecoming game. The youngest victim was 11, the police said.`\
+https://www.nytimes.com/2026/10/25/us/tallahassee-shooting-florida-am-homecoming.html
+
 **The Methodology Behind Times Voter Trends**\
 `Read the detailed methodology behind the Times Voter Trends reports for 2024 and 2020.`\
 https://www.nytimes.com/2026/10/25/us/elections/times-voter-trends-methodology.html
