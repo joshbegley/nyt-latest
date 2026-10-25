@@ -1,3 +1,15 @@
+**A Speedier, Spoonable Lasagna**\
+`That, plus a feta frittata from Yotam Ottolenghi, are in this week’s selection of five weeknight dishes.`\
+https://www.nytimes.com/2026/10/25/dining/a-speedier-spoonable-lasagna.html
+
+**The A.I. Boom Looks a Lot Like the Housing Bubble**\
+`There are signs the A.I. boom is going bust. If it does, the consequences could rival the 2008 financial crisis.`\
+https://www.nytimes.com/2026/10/25/opinion/ai-bubble-financial-crisis-lehman.html
+
+**Turning an Academic Slump Around**\
+`Readers offer their suggestions for improving our schools. Also: College’s real payoff; A.I. is not human.`\
+https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
+
 **Saudi Arabia Reopens Riyadh Airport After Weeks of Houthi Attacks**\
 `The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month and have threatened to strike it again.`\
 https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/25/books/review/neal-stephenson-d-heavy-water.ht
 **He Took Big Risks to Make Billions. He Wants Georgia Voters to Bet on Him.**\
 `Rick Jackson’s run for governor as a political nobody was his latest gamble. The campaign has brought scrutiny to the businesses that made him a fortune.`\
 https://www.nytimes.com/2026/10/25/us/politics/he-took-big-risks-to-make-billions-he-wants-georgia-voters-to-bet-on-him.html
-
-**Marci Webber Killed Her Child. When Should the Mental Hospital Free Her?**\
-`Marci Webber was institutionalized after being convicted by reason of insanity for killing her 4-year-old daughter. For years she has said she is cured and should be freed.`\
-https://www.nytimes.com/2026/10/25/us/marci-webber-mental-hospital-lindsay-clancy.html
-
-**They Lost Weight on GLP-1s. Shopping For New Clothes Was Another Journey**\
-`These GLP-1 users knew they would eventually have to buy new clothing. Many did not expect that the retail experience would elicit an identity crisis.`\
-https://www.nytimes.com/2026/10/25/style/glp-1-weight-loss-wardrobe-shopping.html
-
-**Crusading to Restore the Reputation of His Favorite Filmmaker**\
-`Sam Wasson venerates Frank Capra, who directed a clutch of Hollywood classics. His new biography aims to challenge an earlier, unflattering portrait.`\
-https://www.nytimes.com/2026/10/25/books/review/sam-wasson-frank-capra.html
 
