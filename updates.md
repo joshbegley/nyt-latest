@@ -1,3 +1,7 @@
+**Genevieve Ko’s Five-Star, Veggie-Packed Quick Turkey Chili**\
+`The pound of frozen kale might not be traditional, but it is tasty (and very healthful).`\
+https://www.nytimes.com/2026/10/25/dining/genevieve-kos-five-star-veggie-packed-quick-turkey-chili.html
+
 **Maps: Tracking Typhoon In-fa**\
 `See the likely path and wind arrival times for In-fa`\
 https://www.nytimes.com/interactive/2026/10/25/weather/in-fa-map-path-tracker.html
