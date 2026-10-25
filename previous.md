@@ -1,3 +1,7 @@
+**Adrienne Westwood and Angélica Negrón’s ‘[ ]’ Review: A Promising Idea**\
+`At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
+https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
+
 **Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
 `President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, a son of his predecessor who was convicted of attempting a coup. The outcome will resonate beyond Latin America to Washington.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/arts/dance/julia-stiles-dancing-with-the-star
 **Public Colleges Are Passing the $50,000-a-Year Mark. For Locals.**\
 `At the University of California campuses in Berkeley, Irvine and Santa Barbara, students get an unwitting education in navigating the housing market.`\
 https://www.nytimes.com/2026/10/25/business/california-colleges-costs.html
-
-**The Long Life of the ‘Snacking Occasion’**\
-`As eating habits shift, the food industry is promoting any opportunity to nibble.`\
-https://www.nytimes.com/2026/10/25/business/the-long-life-of-the-snacking-occasiong-glp1.html
 

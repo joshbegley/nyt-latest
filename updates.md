@@ -1,3 +1,7 @@
+**Adrienne Westwood and Angélica Negrón’s ‘[ ]’ Review: A Promising Idea**\
+`At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
+https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
+
 **Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
 `President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, a son of his predecessor who was convicted of attempting a coup. The outcome will resonate beyond Latin America to Washington.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
