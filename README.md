@@ -106,6 +106,10 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-national.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-texas.html
 
+**How South Carolina Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-south-carolina.html
+
 **How South Dakota Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-south-dakota.html
@@ -113,10 +117,6 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-south-dakota.htm
 **How South Dakota Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-south-dakota.html
-
-**How South Carolina Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-south-carolina.html
 
 **How Tennessee Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -142,13 +142,13 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-south-carolina.h
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-rhode-island.html
 
-**How Oregon Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-oregon.html
-
 **How Oregon Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-oregon.html
+
+**How Oregon Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-oregon.html
 
 **How Oklahoma Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
