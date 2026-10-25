@@ -1,3 +1,11 @@
+**Trump’s Election Attacks Enter New Pre-emptive Phase**\
+`A lawsuit by the Justice Department challenging a potential narrow loss by the GOP Senate incumbent in Alaska reflects a new tactic by the president to try to shape the election results.`\
+https://www.nytimes.com/2026/10/25/us/politics/trumps-election-alaska.html
+
+**Peltola Postpones Events After ‘Minor Injuries’ in Automobile Collision, Campaign Says**\
+`Mary Peltola, Alaska’s Democratic Senate nominee, is rescheduling stops that were planned for Sunday and Monday after the vehicle she was in was struck by another driver Saturday night, according to her campaign.`\
+https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-campaign-events-postponed.html
+
 **Adrienne Westwood and Angélica Negrón’s ‘[ ]’ Review: A Promising Idea**\
 `At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011225659/expat-voters-isra
 **Latinos Are Now America’s Most Important Swing Voters**\
 `Latinos helped fuel President Trump’s return to the White House. But Democrats have won back the trust of many Hispanic voters over the past two years.`\
 https://www.nytimes.com/2026/10/25/us/politics/latino-voters-poll-midterm-elections.html
-
-**Julia Stiles on ‘Dancing With the Stars’ Is Healing Millennials**\
-`As a fan favorite on “Dancing With the Stars,” Stiles is “down for anything,” says her partner Ezra Sosa, including engaging with her early-career movies.`\
-https://www.nytimes.com/2026/10/25/arts/dance/julia-stiles-dancing-with-the-stars.html
-
-**Public Colleges Are Passing the $50,000-a-Year Mark. For Locals.**\
-`At the University of California campuses in Berkeley, Irvine and Santa Barbara, students get an unwitting education in navigating the housing market.`\
-https://www.nytimes.com/2026/10/25/business/california-colleges-costs.html
 
