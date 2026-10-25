@@ -1,3 +1,7 @@
+**Elizabeth Holmes Gives a Batman Villain a Run for His Money**\
+`“Clayface” was No. 1 at the box office, but “You Can See Everything,” a documentary about the disgraced Theranos founder, surged in its second weekend.`\
+https://www.nytimes.com/2026/10/25/business/media/elizabeth-holmes-clayface-box-office.html
+
 **Caryle Murphy Has Died. She Earned a Pulitzer for Reporting in Kuwait.**\
 `A Washington Post journalist, she was one of the few Western reporters in Kuwait in 1990 when Saddam Hussein’s forces invaded.`\
 https://www.nytimes.com/2026/10/25/business/media/caryle-murphy-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/business/the-long-life-of-the-snacking-occasi
 **What These Senate Seats Mean for Progressives**\
 `Our politics reporter Kellen Browning walks through the four Senate races that progressive Democrats are closely watching in the upcoming midterm elections.`\
 https://www.nytimes.com/video/us/elections/100000011219565/senate-seats-progressives-michigan-florida-maine.html
-
-**Israel’s High-Stakes Election: What to Know**\
-`Israelis head to the polls on Tuesday for an election that will determine the country’s next prime minister. But it can take weeks, months or longer to form a new government.`\
-https://www.nytimes.com/2026/10/25/world/middleeast/israels-high-stakes-election-what-to-know.html
 
