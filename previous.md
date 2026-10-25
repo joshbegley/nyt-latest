@@ -1,4 +1,4 @@
-**Elizabeth Holmes Gives a Batman Villain a Run for His Money**\
+**‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\
 `“Clayface” was No. 1 at the box office, but “You Can See Everything,” a documentary about the disgraced Theranos founder, surged in its second weekend.`\
 https://www.nytimes.com/2026/10/25/business/media/elizabeth-holmes-clayface-box-office.html
 
