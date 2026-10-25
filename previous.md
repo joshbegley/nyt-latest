@@ -1,3 +1,7 @@
+**Iranians Face Anxious Wait as Threat of Attack Looms**\
+`The United States and Israel have drawn plans to renew strikes against Iran, but the uncertainty about if or when those attacks might happen has created a sense of dread.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html
+
 **Audi to Build Factory in Georgia, Trump Says**\
 `The Volkswagen division, which imports all its cars from Europe or Mexico, has been hit hard by U.S. tariffs.`\
 https://www.nytimes.com/2026/10/24/business/audi-factory-georgia-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/world/americas/flavio-bolsonaro-brazil-electi
 **El-Sayed Needs Black Voters in Michigan. Tensions With Arab Americans Make That Harder.**\
 `Conflict between Michigan’s Black and Arab communities could get in the way of Dr. Abdul El-Sayed’s pitch in the critical Senate race.`\
 https://www.nytimes.com/2026/10/24/us/politics/el-sayed-black-voters-arab-tensions.html
-
-**U.S. Pressures Mexico to Deliver a Security Win Ahead of Midterm Elections**\
-`The Trump administration wants a public victory soon, as well as a potential path to U.S. military forces in Mexico.`\
-https://www.nytimes.com/2026/10/24/world/americas/us-mexico-security-cartels.html
 
