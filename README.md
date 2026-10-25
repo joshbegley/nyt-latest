@@ -42,10 +42,6 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-washington-dc.ht
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-washington.html
 
-**How Utah Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
-
 **How Washington, D.C., Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.html
@@ -53,6 +49,10 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.ht
 **How Virginia Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-virginia.html
+
+**How Utah Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
 
 **How Washington Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -122,25 +122,25 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-pennsylvania.htm
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-rhode-island.html
 
-**How South Carolina Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-south-carolina.html
-
 **How Pennsylvania Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-pennsylvania.html
+
+**How South Carolina Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2020/elections/voter-trends-south-carolina.html
 
 **How Oregon Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-oregon.html
 
-**How Oregon Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-oregon.html
-
 **How Oklahoma Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-oklahoma.html
+
+**How Oregon Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-oregon.html
 
 **How North Dakota Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -154,6 +154,10 @@ https://www.nytimes.com/interactive/2024/elections/voter-trends-north-carolina.h
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-ohio.html
 
+**How Oklahoma Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2020/elections/voter-trends-oklahoma.html
+
 **How North Dakota Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-north-dakota.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-north-dakota.htm
 **How Ohio Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2020/elections/voter-trends-ohio.html
-
-**How Oklahoma Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-oklahoma.html
 
 **How New Mexico Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
