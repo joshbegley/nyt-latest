@@ -1,3 +1,7 @@
+**María Corina Machado Returns to Venezuela**\
+`After nearly 10 months in exile, Ms. Machado, the Nobel laureate and leader of Venezuela’s opposition, returned to challenge leaders that have sidelined her and press for new elections.`\
+https://www.nytimes.com/2026/10/25/world/americas/maria-corina-machado-returns-to-venezuela.html
+
 **Claude Cohen-Tannoudji, Nobel Physicist, Dies; Devised a Way to Catch Atoms**\
 `His work has been used to build better atomic clocks and improve atomic tools for making extremely precise measurements.`\
 https://www.nytimes.com/2026/10/25/obituaries/claude-cohen-tannoudji-dead.html
