@@ -1,3 +1,7 @@
+**Thomas L. Friedman: We Just Set Off the Second Big Bang**\
+`The columnist on why humanity is entering its most dangerous era yet.`\
+https://www.nytimes.com/video/opinion/100000011223755/thomas-l-friedman-we-just-set-off-the-second-big-bang.html
+
 **Trump Should Stay Out of Brazilian Politics**\
 `The president seems not to understand that the global standing of the United States suffers when he plays into the stereotype of the ugly American.`\
 https://www.nytimes.com/2026/10/25/opinion/trump-should-stay-out-of-brazilian-politics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/us/tallahassee-shooting-florida-am-homecoming
 **The Methodology Behind Times Voter Trends**\
 `Read the detailed methodology behind the Times Voter Trends reports for 2024 and 2020.`\
 https://www.nytimes.com/2026/10/25/us/elections/times-voter-trends-methodology.html
-
-**Introducing a New Way to Understand the Election: Times Voter Trends**\
-`A timely demographic story we’ve never been able to tell before.`\
-https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
 
