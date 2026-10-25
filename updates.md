@@ -1,3 +1,7 @@
+**Hochul and Blakeman Barnstorm New York as Early Voting Begins**\
+`Nearly twice as many New Yorkers cast their ballots on the first day of early voting as compared with four years ago. Early voting runs until Nov. 1.`\
+https://www.nytimes.com/2026/10/25/nyregion/hochul-blakeman-new-york-governor-early-voting.html
+
 **Who Is María Corina Machado?**\
 `The Venezuelan opposition leader returned home from exile to a country firmly under American control. How are her relations with Washington?`\
 https://www.nytimes.com/2026/10/25/world/americas/who-is-maria-corina-machado.html
