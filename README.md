@@ -1,3 +1,7 @@
+**Introducing a New Way to Understand the Election: Times Voter Trends**\
+`A timely demographic story we’ve never been able to tell before.`\
+https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
+
 **How Wisconsin Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/10/25/us/elections/wisconsin-estimates-2024.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/25/us/elections/nevada-estimates-202
 **How New Hampshire Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/10/25/us/elections/new-hampshire-estimates-2020.html
-
-**How Nevada Voted in 2020**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/10/25/us/elections/nevada-estimates-2020.html
 
