@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/24/us/politics/vivek-ramaswamy-ad-ohio-amy-acton
 `The United States once declared that Ukraine’s fight was the front line in a global battle for freedom. Now the Trump administration is sending money to Moscow.`\
 https://www.nytimes.com/2026/10/24/world/europe/ukraine-trump.html
 
-**The Other Bolsonaro Who Could Become Brazil’s Next President**\
-`Flávio Bolsonaro, the son of the former president who was jailed over a coup plot, could be on the cusp of winning Brazil’s presidency.`\
-https://www.nytimes.com/2026/10/24/world/americas/flavio-bolsonaro-brazil-election-president.html
-
