@@ -1,3 +1,7 @@
+**Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
+`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, a senator and son of his jailed predecessor. The outcome will resonate beyond Latin America to Washington.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **Owners of Elvis Presley’s Music Sue Anthropic for Copyright Infringement**\
 `The $41 million lawsuit contends that the A.I. company used Presley’s music to train its models without permission. Anthropic disagrees with the claims.`\
 https://www.nytimes.com/2026/10/25/arts/music/anthropic-lawsuit-elvis-presley-songs.html

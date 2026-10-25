@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-camp
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
 
 **Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
-`President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, a son of his predecessor who was convicted of attempting a coup. The outcome will resonate beyond Latin America to Washington.`\
+`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, a senator and son of his jailed predecessor. The outcome will resonate beyond Latin America to Washington.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
 **‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\
@@ -193,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-crossta
 **Corrections: Oct. 25, 2026**\
 `The following Editors’ Note and corrections appeared in print  on Sunday, Oct. 25, 2026.`\
 https://www.nytimes.com/2026/10/25/pageoneplus/editors-note-oct-25-2026.html
-
-**Berkeley Considers Starting a Public Bank With Taxpayer Dollars**\
-`The bank would offer low-interest loans to community projects in the East Bay region of Northern California.`\
-https://www.nytimes.com/2026/10/25/us/berkeley-california-public-bank.html
 
