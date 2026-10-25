@@ -1,3 +1,7 @@
+**Remains Found in Haiti During Hunt for Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the four men, who disappeared six days ago. The president of El Salvador denied the bodies were those of his soldiers.`\
+https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+
 **A New Level of Threat and Fear Risks Pushing the U.S. and Iran Back to Full War**\
 `With new intelligence and the possibility of all sides seeking pretexts for action, the war in Iran is entering a dangerous phase ahead of elections in the United States and Israel.`\
 https://www.nytimes.com/2026/10/24/us/politics/trump-netanyahu-iran-new-phase-of-war.html
