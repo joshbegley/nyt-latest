@@ -190,7 +190,3 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa8-poll-toplin
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 401 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa7-poll-crosstabs.html
 
-**Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Seventh Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 401 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa7-poll-toplines.html
-
