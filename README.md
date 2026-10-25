@@ -1,3 +1,7 @@
+**A Day After Renewed Street Clashes in France, Relief and Anxiety Mix**\
+`While the police kept a lid on vandalism, the huge number of protesters, and France’s fraught politics, suggest unrest could grow.`\
+https://www.nytimes.com/2026/10/25/world/europe/france-protests-macron-lepen.html
+
 **One Agent’s Doubts**\
 `ICE pays local police to help with deportations. What’s it like for them?`\
 https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/books/review/sam-wasson-frank-capra.html
 **Can’t Afford a Home. Can’t Afford a Baby. Can’t Afford Life. This is 30.**\
 `They’re trying to build middle-class lives in New York. But many 30-year-olds in the city feel worse off than their parents. Is it average adult angst? Or something more enduring?`\
 https://www.nytimes.com/2026/10/25/nyregion/30-year-old-angst.html
-
-**‘On a Snowy Evening in February, I Went to a Wine Bar in Crown Heights’**\
-`Working from home in Greenpoint, red wine in Crown Heights and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/10/25/nyregion/metropolitan-diary.html
 
