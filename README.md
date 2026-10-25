@@ -194,7 +194,3 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-crossta
 `The following Editors’ Note and corrections appeared in print  on Sunday, Oct. 25, 2026.`\
 https://www.nytimes.com/2026/10/25/pageoneplus/editors-note-oct-25-2026.html
 
-**Berkeley Considers Starting a Public Bank With Taxpayer Dollars**\
-`The bank would offer low-interest loans to community projects in the East Bay region of Northern California.`\
-https://www.nytimes.com/2026/10/25/us/berkeley-california-public-bank.html
-
