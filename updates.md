@@ -1,3 +1,7 @@
+**Uriel Simon, Biblical Scholar and ‘Noted Religious Dove,’ Dies at 97**\
+`Dr. Simon studied Bible stories as literary texts and found guidance for Israel on questions that plague the nation today.`\
+https://www.nytimes.com/2026/10/25/obituaries/uriel-simon-dead.html
+
 **Live Updates: Voting Extended in Brazil, Where Presidential Race Will Have Sweeping Consequences**\
 `The polls will remain open for two more hours across the country because of weather and transportation problems. President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
