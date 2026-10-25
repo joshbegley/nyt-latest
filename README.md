@@ -1,3 +1,7 @@
+**Maps: Tracking Typhoon In-fa**\
+`See the likely path and wind arrival times for In-fa`\
+https://www.nytimes.com/interactive/2026/10/25/weather/in-fa-map-path-tracker.html
+
 **She Secretly Returned to Drinking — and to Church**\
 `Meghan O’Gieblyn’s new memoir, “Will and Attention,” is about the limits of willpower. But it’s also about grace.`\
 https://www.nytimes.com/2026/10/25/briefing/meghan-ogieblyn-will-and-attention.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/theater/curious-case-benjamin-button-musical.
 **Can Marissa Mayer, Yahoo’s Former CEO, Help Fix A.I.’s Gender Problem?**\
 `Marissa Mayer made her name as a pioneer at Google, then as chief executive at Yahoo. Now Mayer is entering the crowded marketplace for A.I. assistants — and hoping to draw in more women.`\
 https://www.nytimes.com/2026/10/25/style/marissa-mayer-ai-assistants-women.html
-
-**Book Review: ‘D: Heavy Water,’ by Neal Stephenson**\
-`In Neal Stephenson’s new novel, a foppish reporter stumbles into a plot to secure materials crucial to building nuclear weapons.`\
-https://www.nytimes.com/2026/10/25/books/review/neal-stephenson-d-heavy-water.html
 
