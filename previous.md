@@ -1,3 +1,7 @@
+**Modi’s Plan to Stop India’s Protests**\
+`The Indian leader, facing a volatile youth uprising, appears to be deliberately drawing into the fray a political rival he’s beaten before.`\
+https://www.nytimes.com/2026/10/25/world/modi-india-protests-brazil-election.html
+
 **Uriel Simon, Biblical Scholar and ‘Noted Religious Dove,’ Dies at 97**\
 `Dr. Simon studied Bible stories as literary texts and found guidance for Israel on questions that plague the nation today.`\
 https://www.nytimes.com/2026/10/25/obituaries/uriel-simon-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa1-poll-toplin
 **Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s First Congressional District**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 400 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa1-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Inquirer/Siena Polls of the Likely Electorate in Four Pennsylvania Congressional Races**\
-`Results of New York Times/Philadelphia Inquirer/Siena polls conducted among 1,607 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-toplines.html
 

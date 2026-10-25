@@ -1,3 +1,7 @@
+**Modi’s Plan to Stop India’s Protests**\
+`The Indian leader, facing a volatile youth uprising, appears to be deliberately drawing into the fray a political rival he’s beaten before.`\
+https://www.nytimes.com/2026/10/25/world/modi-india-protests-brazil-election.html
+
 **Uriel Simon, Biblical Scholar and ‘Noted Religious Dove,’ Dies at 97**\
 `Dr. Simon studied Bible stories as literary texts and found guidance for Israel on questions that plague the nation today.`\
 https://www.nytimes.com/2026/10/25/obituaries/uriel-simon-dead.html
