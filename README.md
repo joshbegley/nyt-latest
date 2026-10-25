@@ -1,3 +1,7 @@
+**Uriel Simon, Biblical Scholar and ‘Noted Religious Dove,’ Dies at 97**\
+`Dr. Simon studied Bible stories as literary texts and found guidance for Israel on questions that plague the nation today.`\
+https://www.nytimes.com/2026/10/25/obituaries/uriel-simon-dead.html
+
 **María Corina Machado, Venezuela’s Opposition Leader, Returns**\
 `María Corina Machado fled Venezuela last year to receive the Nobel Peace Prize. On Sunday, she returned home, according to a spokesman.`\
 https://www.nytimes.com/video/world/americas/100000011235696/mara-corina-machado-return-venezuela.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa1-poll-crosst
 **Toplines: October 2026 Times/Inquirer/Siena Polls of the Likely Electorate in Four Pennsylvania Congressional Races**\
 `Results of New York Times/Philadelphia Inquirer/Siena polls conducted among 1,607 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Competitive U.S. House Races**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 1,607 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa-poll-crosstabs.html
 
