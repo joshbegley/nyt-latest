@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/10/24/business/audi-factory-georgia-trump.html
 `Track the latest polls in Connecticut's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html
 
-**Remains Found in Haiti Could Be Those of Missing Salvadoran Soldiers**\
-`El Salvador had sent hundreds of troops to find the men, who were ambushed six days ago while working as part of a U.N.-backed anti-gang task force.`\
+**Remains Found in Haiti During Hunt for Missing Salvadoran Soldiers**\
+`El Salvador had sent hundreds of troops to find the four men, who disappeared six days ago. The president of El Salvador denied the bodies were those of his soldiers.`\
 https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
 
 **In Alaska, Some Early Voting Sites in Rural Villages Have Not Yet Opened**\
@@ -126,13 +126,13 @@ https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
 `Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
 https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
 
-**What the Israeli Election Won’t Change**\
-`Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
-https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
-
 **Lena Dunham: The Day I Met My Parents**\
 `It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
 https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
+
+**What the Israeli Election Won’t Change**\
+`Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
+https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
 
 **Dare We Dream of a Blue Wave?**\
 `Hope, dread and the final stretch to Election Day.`\
