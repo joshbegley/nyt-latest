@@ -166,17 +166,17 @@ https://www.nytimes.com/2026/10/25/us/elections/times-voter-trends-methodology.h
 `A timely demographic story we’ve never been able to tell before.`\
 https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
 
-**How Wyoming Voted in 2020**\
+**How Wyoming Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-wyoming.html
+https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
 
 **How Wisconsin Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-wisconsin.html
 
-**How Wyoming Voted in 2024**\
+**How Wyoming Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-wyoming.html
+https://www.nytimes.com/interactive/2020/elections/voter-trends-wyoming.html
 
 **How Wisconsin Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
