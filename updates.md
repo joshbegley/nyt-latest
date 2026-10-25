@@ -1,3 +1,11 @@
+**How Washington, D.C., Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-washington-dc.html
+
+**How Washington, D.C., Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.html
+
 **Former ‘60 Minutes’ Boss to Join Video Journalism Start-Up**\
 `Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
 https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
