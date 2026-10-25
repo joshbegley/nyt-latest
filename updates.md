@@ -1,3 +1,7 @@
+**Audi to Build Factory in Georgia, Trump Says**\
+`The Volkswagen division, which imports all its cars from Europe or Mexico, has been hit hard by U.S. tariffs.`\
+https://www.nytimes.com/2026/10/24/business/audi-factory-georgia-trump.html
+
 **Who Is Ahead in Connecticut's 5th Congressional District?**\
 `Track the latest polls in Connecticut's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html

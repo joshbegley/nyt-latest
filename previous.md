@@ -1,3 +1,7 @@
+**Audi to Build Factory in Georgia, Trump Says**\
+`The Volkswagen division, which imports all its cars from Europe or Mexico, has been hit hard by U.S. tariffs.`\
+https://www.nytimes.com/2026/10/24/business/audi-factory-georgia-trump.html
+
 **Who Is Ahead in Connecticut's 5th Congressional District?**\
 `Track the latest polls in Connecticut's 5th Congressional District.`\
 https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/us/politics/el-sayed-black-voters-arab-tensio
 **U.S. Pressures Mexico to Deliver a Security Win Ahead of Midterm Elections**\
 `The Trump administration wants a public victory soon, as well as a potential path to U.S. military forces in Mexico.`\
 https://www.nytimes.com/2026/10/24/world/americas/us-mexico-security-cartels.html
-
-**‘Ali G: Who Iz I?’: What to Know**\
-`Sacha Baron Cohen has revived his fictional wannabe rapper in a new movie that will be in theaters for just this weekend. Here’s what to know.`\
-https://www.nytimes.com/2026/10/24/movies/sacha-baron-cohen-ali-g-who-iz-i.html
 
