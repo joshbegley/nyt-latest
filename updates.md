@@ -1,3 +1,7 @@
+**One Agent’s Doubts**\
+`ICE pays local police to help with deportations. What’s it like for them?`\
+https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
+
 **Thomas L. Friedman: We Just Set Off the Second Big Bang**\
 `Humanity is entering its most dangerous era yet.`\
 https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html

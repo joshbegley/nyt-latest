@@ -1,3 +1,7 @@
+**One Agent’s Doubts**\
+`ICE pays local police to help with deportations. What’s it like for them?`\
+https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
+
 **Thomas L. Friedman: We Just Set Off the Second Big Bang**\
 `Humanity is entering its most dangerous era yet.`\
 https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/nyregion/30-year-old-angst.html
 **‘On a Snowy Evening in February, I Went to a Wine Bar in Crown Heights’**\
 `Working from home in Greenpoint, red wine in Crown Heights and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/10/25/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for October 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/25/crosswords/spelling-bee-forum.html
 
