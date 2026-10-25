@@ -1,3 +1,7 @@
+**The Grace We Seek but Have Forgotten**\
+`We hurt one another, we fail one another, but we still have to figure out how to live with one another.`\
+https://www.nytimes.com/2026/10/25/opinion/the-grace-we-seek-but-have-forgotten.html
+
 **Far, Far Away**\
 `Making a home on the world’s most remote inhabited island.`\
 https://www.nytimes.com/2026/10/25/world/africa/tristan-da-cunha-island.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
 **France Protest Updates: Hundreds of Thousands March Amid Heavy Security**\
 `The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
 https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
-
-**Outside Chance**\
-`We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
-https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
 
