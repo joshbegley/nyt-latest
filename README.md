@@ -1,3 +1,7 @@
+**A New Level of Threat and Fear Risks Pushing the U.S. and Iran Back to Full War**\
+`With new intelligence and the possibility of all sides seeking pretexts for action, the war in Iran is entering a dangerous phase ahead of elections in the United States and Israel.`\
+https://www.nytimes.com/2026/10/24/us/politics/trump-netanyahu-iran-new-phase-of-war.html
+
 **Iranians Face Anxious Wait as Threat of Attack Looms**\
 `The United States and Israel have drawn up plans to renew strikes against Iran, creating a sense of dread among war-weary residents.`\
 https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/24/world/europe/ukraine-trump.html
 **The Other Bolsonaro Who Could Become Brazil’s Next President**\
 `Flávio Bolsonaro, the son of the former president who was jailed over a coup plot, could be on the cusp of winning Brazil’s presidency.`\
 https://www.nytimes.com/2026/10/24/world/americas/flavio-bolsonaro-brazil-election-president.html
-
-**El-Sayed Needs Black Voters in Michigan. Tensions With Arab Americans Make That Harder.**\
-`Conflict between Michigan’s Black and Arab communities could get in the way of Dr. Abdul El-Sayed’s pitch in the critical Senate race.`\
-https://www.nytimes.com/2026/10/24/us/politics/el-sayed-black-voters-arab-tensions.html
 

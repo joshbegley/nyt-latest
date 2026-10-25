@@ -1,4 +1,8 @@
 **Iranians Face Anxious Wait as Threat of Attack Looms**\
+`The United States and Israel have drawn up plans to renew strikes against Iran, creating a sense of dread among war-weary residents.`\
+https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html
+
+**Iranians Face Anxious Wait as Threat of Attack Looms**\
 `The United States and Israel have drawn plans to renew strikes against Iran, but the uncertainty about if or when those attacks might happen has created a sense of dread.`\
 https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html
 
