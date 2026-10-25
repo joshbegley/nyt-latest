@@ -38,7 +38,7 @@ https://www.nytimes.com/video/opinion/100000011223755/thomas-l-friedman-we-just-
 `The president seems not to understand that the global standing of the United States suffers when he plays into the stereotype of the ugly American.`\
 https://www.nytimes.com/2026/10/25/opinion/trump-should-stay-out-of-brazilian-politics.html
 
-**There Is Nothing MAGA Won’t Sink To**\
+**Despicable Doesn’t Begin to Cover It**\
 `Trump’s culture of cruelty spreads.`\
 https://www.nytimes.com/2026/10/25/opinion/midterm-ads-ramaswamy-acton-ohio.html
 
