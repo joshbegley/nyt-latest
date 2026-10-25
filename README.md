@@ -1,3 +1,7 @@
+**Obama Sharply Criticizes Trump on Campaign Trail**\
+`Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html
+
 **My Co-Worker Is Losing It Over My Religion**\
 `Plus: Reader responses to a woman returning to the office after two decades of self-employment.`\
 https://www.nytimes.com/2026/10/25/business/my-co-worker-is-losing-it-over-my-religion.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-west-virginia.ht
 **How West Virginia Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-west-virginia.html
-
-**How Washington, D.C., Voted in 2024**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2024/elections/voter-trends-washington-dc.html
 
 **How Washington, D.C., Voted in 2020**\
 `Explore the results of the election by race, gender, age and education.`\
