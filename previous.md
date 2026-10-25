@@ -26,8 +26,8 @@ https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-camp
 `At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
 
-**Live Updates: Brazilians Picking President in a Vote With Sweeping Consequences**\
-`Polls are closing soon, with President Luiz Inácio Lula da Silva locked in a tight race with Flávio Bolsonaro, the son of his predecessor. The outcome will resonate beyond Latin America to Washington.`\
+**Live Updates: Voting Extended in Brazil, Where Presidential Race Will Have Sweeping Consequences**\
+`The polls will remain open for two more hours across the country because of weather and transportation problems. President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
 **‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\

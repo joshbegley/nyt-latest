@@ -1,3 +1,7 @@
+**Live Updates: Voting Extended in Brazil, Where Presidential Race Will Have Sweeping Consequences**\
+`The polls will remain open for two more hours across the country because of weather and transportation problems. President Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **María Corina Machado, Venezuela’s Opposition Leader, Returns**\
 `María Corina Machado fled Venezuela last year to receive the Nobel Peace Prize. On Sunday, she returned home, according to a spokesman.`\
 https://www.nytimes.com/video/world/americas/100000011235696/mara-corina-machado-return-venezuela.html
