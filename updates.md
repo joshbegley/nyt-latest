@@ -1,3 +1,11 @@
+**Obama Sharply Criticizes Trump on Campaign Trail**\
+`Former President Barack Obama attacked the Trump administration on Saturday as he hit the campaign trail before the midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000011235355/obama-trump-midterms-campaign.html
+
+**How Utah Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
+
 **How Washington Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-washington.html
