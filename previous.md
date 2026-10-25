@@ -1,3 +1,11 @@
+**New Fight at Gritty Manhattan Park Is Over ‘Punk Rock’ Pull-Up Bars**\
+`The Parks Department has a $10 million plan to renovate the northeast corner of Tompkins Square Park, but fans of its workout bars want things to stay just as they are.`\
+https://www.nytimes.com/2026/10/25/nyregion/tompkins-square-park-pull-up-bars-renovation.html
+
+**What’s at Stake in Brazil’s Elections?**\
+`On Sunday, Brazilians will choose between a beleaguered left-wing incumbent and a right-wing challenger. Trade, security and democracy are on the table.`\
+https://www.nytimes.com/2026/10/25/world/americas/whats-at-stake-in-brazils-elections.html
+
 **Trump’s Election Attacks Enter New Pre-emptive Phase**\
 `A lawsuit by the Justice Department challenging a potential narrow loss by the GOP Senate incumbent in Alaska reflects a new tactic by the president to try to shape the election results.`\
 https://www.nytimes.com/2026/10/25/us/politics/trumps-election-alaska.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/10/25/business/media/caryle-murphy-dead.html
 https://www.nytimes.com/2026/10/25/obituaries/claude-cohen-tannoudji-dead.html
 
 **María Corina Machado Returns to Venezuela**\
-`After nearly 10 months in exile, Ms. Machado, the Nobel laureate and leader of Venezuela’s opposition, returned to challenge leaders who have sidelined her and press for new elections.`\
+`After nearly 10 months in exile, Ms. Machado, a Nobel laureate, came back to challenge leaders who have sidelined her and press for new elections.`\
 https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html
 
 **In Texas Senate Race, Talarico Leans Into Growing Rivalry With Elon Musk**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/25/us/berkeley-california-public-bank.html
 **What to Know About Brazil’s Election as Bolsonaro Faces Off With Lula**\
 `Luiz Inácio Lula da Silva, the leftist incumbent, and Flávio Bolsonaro, the right-wing challenger, face off in a narrow race that could redefine the future of Latin America.`\
 https://www.nytimes.com/2026/10/25/world/americas/brazil-election-lula-bolsonaro-what-to-know.html
-
-**The Expat Voters Hoping to Swing Israel’s Election**\
-`The return of thousands of Israeli expats to vote in their country’s tight election has set off debate over their political influence. We traveled to Tel Aviv to find out why.`\
-https://www.nytimes.com/video/world/middleeast/100000011225659/expat-voters-israel-election.html
-
-**Latinos Are Now America’s Most Important Swing Voters**\
-`Latinos helped fuel President Trump’s return to the White House. But Democrats have won back the trust of many Hispanic voters over the past two years.`\
-https://www.nytimes.com/2026/10/25/us/politics/latino-voters-poll-midterm-elections.html
 

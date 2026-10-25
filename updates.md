@@ -1,3 +1,15 @@
+**New Fight at Gritty Manhattan Park Is Over ‘Punk Rock’ Pull-Up Bars**\
+`The Parks Department has a $10 million plan to renovate the northeast corner of Tompkins Square Park, but fans of its workout bars want things to stay just as they are.`\
+https://www.nytimes.com/2026/10/25/nyregion/tompkins-square-park-pull-up-bars-renovation.html
+
+**What’s at Stake in Brazil’s Elections?**\
+`On Sunday, Brazilians will choose between a beleaguered left-wing incumbent and a right-wing challenger. Trade, security and democracy are on the table.`\
+https://www.nytimes.com/2026/10/25/world/americas/whats-at-stake-in-brazils-elections.html
+
+**María Corina Machado Returns to Venezuela**\
+`After nearly 10 months in exile, Ms. Machado, a Nobel laureate, came back to challenge leaders who have sidelined her and press for new elections.`\
+https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html
+
 **Trump’s Election Attacks Enter New Pre-emptive Phase**\
 `A lawsuit by the Justice Department challenging a potential narrow loss by the GOP Senate incumbent in Alaska reflects a new tactic by the president to try to shape the election results.`\
 https://www.nytimes.com/2026/10/25/us/politics/trumps-election-alaska.html
