@@ -1,3 +1,11 @@
+**Aleksandar Vucic Concedes Defeat in Serbian Election**\
+`“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
+https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
+
+**Live Updates: Polls Close in Brazil as Presidential Race Comes to Chaotic Close**\
+`The leftist president, Luiz Inácio Lula da Silva, accused officials in some areas of slowing transit. His opponent, Flávio Bolsonaro, a Trump ally, said flooding was hampering his voters. Polling places were kept open an extra two hours.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **NYT Crossword Answers for Oct. 26, 2026**\
 `Kevin Christian and Andrea Carla Michaels embrace chaos.`\
 https://www.nytimes.com/2026/10/25/crosswords/daily-puzzle-2026-10-26.html

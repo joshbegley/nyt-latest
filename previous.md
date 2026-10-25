@@ -1,3 +1,7 @@
+**Aleksandar Vucic Concedes Defeat in Serbian Election**\
+`“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
+https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
+
 **NYT Crossword Answers for Oct. 26, 2026**\
 `Kevin Christian and Andrea Carla Michaels embrace chaos.`\
 https://www.nytimes.com/2026/10/25/crosswords/daily-puzzle-2026-10-26.html
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-camp
 `At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
 
-**Live Updates: Voting Extended as Brazil’s Presidential Race Comes to Chaotic Close**\
-`Polls were ordered to stay open two more hours because of transportation and weather problems. The leftist president Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor and a Trump ally.`\
+**Live Updates: Polls Close in Brazil as Presidential Race Comes to Chaotic Close**\
+`The leftist president, Luiz Inácio Lula da Silva, accused officials in some areas of slowing transit. His opponent, Flávio Bolsonaro, a Trump ally, said flooding was hampering his voters. Polling places were kept open an extra two hours.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
 **‘You Can See Everything’ Gives ‘Clayface’ a Run for Its Money at the Box Office**\
@@ -181,12 +185,4 @@ https://www.nytimes.com/2026/10/25/us/politics/polls-pennsylvania-house-midterms
 **Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s 10th Congressional District**\
 `Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 404 voters from Oct. 16 to 22, 2026.`\
 https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s 10th Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 404 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s Eighth Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 402 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa8-poll-crosstabs.html
 
