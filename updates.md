@@ -1,4 +1,16 @@
 **María Corina Machado Returns to Venezuela**\
+`After nearly 10 months in exile, Ms. Machado, the Nobel laureate and leader of Venezuela’s opposition, returned to challenge leaders who have sidelined her and press for new elections.`\
+https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html
+
+**A Day After Renewed Street Clashes in France, Relief and Anxiety Mix**\
+`While the police kept a lid on vandalism, the huge number of protesters and France’s fraught politics suggest unrest could grow.`\
+https://www.nytimes.com/2026/10/25/world/europe/france-protests-macron-lepen.html
+
+**Put Your A.I. Agents to Work with These 5 Killer Tasks**\
+`When you start using Meta’s Muse and OpenAI’s dots for these tasks — like applying for jobs and booking hard-to-get restaurant tables — you may never go back.`\
+https://www.nytimes.com/2026/10/25/technology/personaltech/openai-dots-meta-muse-killer-tasks.html
+
+**María Corina Machado Returns to Venezuela**\
 `After nearly 10 months in exile, Ms. Machado, the Nobel laureate and leader of Venezuela’s opposition, returned to challenge leaders that have sidelined her and press for new elections.`\
 https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html
 
