@@ -1,3 +1,11 @@
+**Claude Cohen-Tannoudji, Nobel Physicist, Dies; Devised a Way to Catch Atoms**\
+`His work has been used to build better atomic clocks and improve atomic tools for making extremely precise measurements.`\
+https://www.nytimes.com/2026/10/25/obituaries/claude-cohen-tannoudji-dead.html
+
+**María Corina Machado Returns to Venezuela**\
+`After nearly 10 months in exile, the Nobel laureate and leader of Venezuela’s opposition returned to challenge leaders that have sidelined her and press for new elections.`\
+https://www.nytimes.com/2026/10/25/world/americas/maria-corina-machado-returns-to-venezuela.html
+
 **In Texas Senate Race, Talarico Leans Into Growing Rivalry With Elon Musk**\
 `On the trail, James Talarico, the Democratic Senate nominee, has increasingly gone after Mr. Musk, a critic of his who has given big to a group aligned with the Republican candidate, Ken Paxton.`\
 https://www.nytimes.com/2026/10/25/us/politics/talarico-musk-texas-senate-paxton-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/25/world/middleeast/israels-high-stakes-election
 **Put Your A.I. Agents to Work with These 4 Killer Tasks**\
 `When you start using Meta’s Muse and OpenAI’s dots for these tasks — like applying for jobs and booking hard-to-get restaurant tables — you may never go back.`\
 https://www.nytimes.com/2026/10/25/technology/personaltech/openai-dots-meta-muse-4-killer-tasks.html
-
-**How to Straddle the MAGA Divide**\
-`Beth Wilkinson is a Washington lawyer who has thrived representing the Trump administration’s enemies and allies alike. Does she represent a vanishing type?`\
-https://www.nytimes.com/2026/10/25/business/how-to-straddle-the-maga-divide.html
-
-**In Deep Red Kansas, a Trump Loyalist Fights to Defend a Senate Seat**\
-`Senator Roger Marshall was slow to recognize the steep challenge he faced in his solidly conservative state. Now he is confronting dissent among voters with deep economic worries.`\
-https://www.nytimes.com/2026/10/25/us/politics/roger-marshall-kansas-senate.html
 
