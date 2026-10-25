@@ -1,3 +1,23 @@
+**Far, Far Away**\
+`Making a home on the world’s most remote inhabited island.`\
+https://www.nytimes.com/2026/10/25/world/africa/far-far-away.html
+
+**Quote of the Day: Where Families Earning $325,000 Qualify for Child Care Aid**\
+`Quotation of the Day for Sunday, October 25, 2026.`\
+https://www.nytimes.com/2026/10/25/pageoneplus/quote-of-the-day-where-families-earning-325000-qualify-for-child-care-aid.html
+
+**What to Know as Serbia Votes for a New Parliament**\
+`A student-led movement is challenging the governing party of Aleksandar Vucic, who has dominated Serbian politics for over a decade.`\
+https://www.nytimes.com/2026/10/25/world/europe/serbia-election.html
+
+**He Helped Deport 200 People. Now He Has Misgivings.**\
+`A deputy in small-town Texas became the local face of ICE’s national crackdown.`\
+https://www.nytimes.com/2026/10/25/magazine/ice-deputy-texas-police.html
+
+**From the Front Page: The U.N. Votes to Seat the People’s Republic of China on Oct. 25, 1971**\
+`The United Nations General Assembly voted to give China’s U.N. seat to the People’s Republic of China and expel the representatives of the Republic of China government, based in Taiwan. The move ended a long struggle over China’s representation in the U.N.`\
+https://www.nytimes.com/2026/10/25/learning/from-the-front-page-the-un-votes-to-seat-the-peoples-republic-of-china-on-oct-25-1971.html
+
 **A New Level of Threat and Fear Risks Pushing the U.S. and Iran Back to Full War**\
 `With new intelligence and the possibility of all sides seeking pretexts for action, the war in Iran is entering a dangerous phase ahead of elections in the United States and Israel.`\
 https://www.nytimes.com/2026/10/24/us/politics/trump-netanyahu-iran-new-phase-of-war.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
 **Outside Chance**\
 `We’ve plunged fully into fall, complete with cozy scarves and puffy vests. Why not venture into the woods?`\
 https://www.nytimes.com/2026/10/24/briefing/outside-chance.html
-
-**What This Democrat’s Surge in Texas Says About the Midterms**\
-`Gina Hinojosa, the Democratic nominee for governor, on her appeal to MAGA voters and her refusal to engage in the “culture wars.”`\
-https://www.nytimes.com/2026/10/24/magazine/gina-hinojosa-interview.html
-
-**See the Districts That Will Determine House Control in the Midterms**\
-`The House map looks far different from how it appeared just months ago, with deep-red seats coming into play. Here are the main types of districts that will decide which party comes out on top.`\
-https://www.nytimes.com/interactive/2026/10/24/us/politics/midterms-congress-house-district-map.html
-
-**Looting Left Damage and Fear on Paradise Street in Marseille**\
-`Looters ravaged a storied commercial avenue in France’s second-largest city. Its merchants fear that more unrest could follow.`\
-https://www.nytimes.com/2026/10/24/world/europe/france-looting-rue-paradis-marseille.html
-
-**How Vivek Ramaswamy’s Ruthless Ad in Ohio Divided Republicans**\
-`The fallout from Vivek Ramaswamy’s brutal spot targeting his Democratic rival in the Ohio governor’s race showed that even in the Trump era, a political attack can be seen as going too far.`\
-https://www.nytimes.com/2026/10/24/us/politics/vivek-ramaswamy-ad-ohio-amy-acton.html
-
-**Ukraine’s Feeling of Moral Whiplash at the Hands of Trump**\
-`The United States once declared that Ukraine’s fight was the front line in a global battle for freedom. Now the Trump administration is sending money to Moscow.`\
-https://www.nytimes.com/2026/10/24/world/europe/ukraine-trump.html
 

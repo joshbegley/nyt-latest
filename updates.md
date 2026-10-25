@@ -1,3 +1,23 @@
+**Far, Far Away**\
+`Making a home on the world’s most remote inhabited island.`\
+https://www.nytimes.com/2026/10/25/world/africa/far-far-away.html
+
+**Quote of the Day: Where Families Earning $325,000 Qualify for Child Care Aid**\
+`Quotation of the Day for Sunday, October 25, 2026.`\
+https://www.nytimes.com/2026/10/25/pageoneplus/quote-of-the-day-where-families-earning-325000-qualify-for-child-care-aid.html
+
+**What to Know as Serbia Votes for a New Parliament**\
+`A student-led movement is challenging the governing party of Aleksandar Vucic, who has dominated Serbian politics for over a decade.`\
+https://www.nytimes.com/2026/10/25/world/europe/serbia-election.html
+
+**He Helped Deport 200 People. Now He Has Misgivings.**\
+`A deputy in small-town Texas became the local face of ICE’s national crackdown.`\
+https://www.nytimes.com/2026/10/25/magazine/ice-deputy-texas-police.html
+
+**From the Front Page: The U.N. Votes to Seat the People’s Republic of China on Oct. 25, 1971**\
+`The United Nations General Assembly voted to give China’s U.N. seat to the People’s Republic of China and expel the representatives of the Republic of China government, based in Taiwan. The move ended a long struggle over China’s representation in the U.N.`\
+https://www.nytimes.com/2026/10/25/learning/from-the-front-page-the-un-votes-to-seat-the-peoples-republic-of-china-on-oct-25-1971.html
+
 **Remains Found in Haiti During Hunt for Missing Salvadoran Soldiers**\
 `El Salvador had sent hundreds of troops to find the four men, who disappeared six days ago. The president of El Salvador denied the bodies were those of his soldiers.`\
 https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
