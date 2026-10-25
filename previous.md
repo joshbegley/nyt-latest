@@ -1,3 +1,7 @@
+**In Texas Senate Race, Talarico Leans Into Growing Rivalry With Elon Musk**\
+`On the trail, James Talarico, the Democratic Senate nominee, has increasingly gone after Mr. Musk, a critic of his who has given big to a group aligned with the Republican candidate, Ken Paxton.`\
+https://www.nytimes.com/2026/10/25/us/politics/talarico-musk-texas-senate-paxton-midterms.html
+
 **Young Protesters Return to the Streets Across Italy**\
 `Demonstrators across Italy on Saturday protested economic inequality and the political establishment. A heavy police presence throughout the country aimed to prevent the looting and violence that occurred during protests last weekend.`\
 https://www.nytimes.com/video/world/europe/100000011235462/protests-italy-rome-milan-france.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/25/business/how-to-straddle-the-maga-divide.html
 **In Deep Red Kansas, a Trump Loyalist Fights to Defend a Senate Seat**\
 `Senator Roger Marshall was slow to recognize the steep challenge he faced in his solidly conservative state. Now he is confronting dissent among voters with deep economic worries.`\
 https://www.nytimes.com/2026/10/25/us/politics/roger-marshall-kansas-senate.html
-
-**How Israel's Election Could Unfold**\
-`No party is expected to achieve a clear victory, which means the election will likely only be the first step in determining who will form the next government. Here’s how that might unfold.`\
-https://www.nytimes.com/interactive/2026/10/25/world/middleeast/israel-election-results-netanyahu-eisenkot-government.html
 
