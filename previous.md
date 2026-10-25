@@ -1,3 +1,7 @@
+**Caryle Murphy Has Died. She Earned a Pulitzer for Reporting in Kuwait.**\
+`A Washington Post journalist, she was one of the few Western reporters in Kuwait in 1990 when Saddam Hussein’s forces invaded.`\
+https://www.nytimes.com/2026/10/25/business/media/caryle-murphy-dead.html
+
 **Claude Cohen-Tannoudji, Nobel Physicist, Dies; Devised a Way to Catch Atoms**\
 `His work has been used to build better atomic clocks and improve atomic tools for making extremely precise measurements.`\
 https://www.nytimes.com/2026/10/25/obituaries/claude-cohen-tannoudji-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011219565/senate-seats-progress
 **Israel’s High-Stakes Election: What to Know**\
 `Israelis head to the polls on Tuesday for an election that will determine the country’s next prime minister. But it can take weeks, months or longer to form a new government.`\
 https://www.nytimes.com/2026/10/25/world/middleeast/israels-high-stakes-election-what-to-know.html
-
-**Put Your A.I. Agents to Work with These 5 Killer Tasks**\
-`When you start using Meta’s Muse and OpenAI’s dots for these tasks — like applying for jobs and booking hard-to-get restaurant tables — you may never go back.`\
-https://www.nytimes.com/2026/10/25/technology/personaltech/openai-dots-meta-muse-killer-tasks.html
 

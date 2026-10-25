@@ -1,3 +1,7 @@
+**Caryle Murphy Has Died. She Earned a Pulitzer for Reporting in Kuwait.**\
+`A Washington Post journalist, she was one of the few Western reporters in Kuwait in 1990 when Saddam Hussein’s forces invaded.`\
+https://www.nytimes.com/2026/10/25/business/media/caryle-murphy-dead.html
+
 **María Corina Machado Returns to Venezuela**\
 `After nearly 10 months in exile, Ms. Machado, the Nobel laureate and leader of Venezuela’s opposition, returned to challenge leaders who have sidelined her and press for new elections.`\
 https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html
