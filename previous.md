@@ -1,196 +1,200 @@
-**The Grace We Seek but Have Forgotten**\
-`We hurt one another, we fail one another, but we still have to figure out how to live with one another.`\
-https://www.nytimes.com/2026/10/25/opinion/the-grace-we-seek-but-have-forgotten.html
+**Introducing a New Way to Understand the Election: Times Voter Trends**\
+`A timely demographic story we’ve never been able to tell before.`\
+https://www.nytimes.com/2026/10/25/upshot/election-midterms-times-voter-trends.html
 
-**Far, Far Away**\
-`Making a home on the world’s most remote inhabited island.`\
-https://www.nytimes.com/2026/10/25/world/africa/tristan-da-cunha-island.html
+**How Wisconsin Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/wisconsin-estimates-2024.html
 
-**Quote of the Day: Where Families Earning $325,000 Qualify for Child Care Aid**\
-`Quotation of the Day for Sunday, October 25, 2026.`\
-https://www.nytimes.com/2026/10/25/pageoneplus/quote-of-the-day-where-families-earning-325000-qualify-for-child-care-aid.html
+**How Wyoming Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/wyoming-estimates-2020.html
 
-**What to Know as Serbia Votes for a New Parliament**\
-`A student-led movement is challenging the governing party of Aleksandar Vucic, who has dominated Serbian politics for over a decade.`\
-https://www.nytimes.com/2026/10/25/world/europe/serbia-election.html
+**How Wyoming Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/wyoming-estimates-2024.html
 
-**He Helped Deport 200 People. Now He Has Misgivings.**\
-`A deputy in small-town Texas became the local face of ICE’s national crackdown.`\
-https://www.nytimes.com/2026/10/25/magazine/ice-deputy-texas-police.html
+**How Wisconsin Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/wisconsin-estimates-2020.html
 
-**From the Front Page: The U.N. Votes to Seat the People’s Republic of China on Oct. 25, 1971**\
-`The United Nations General Assembly voted to give China’s U.N. seat to the People’s Republic of China and expel the representatives of the Republic of China government, based in Taiwan. The move ended a long struggle over China’s representation in the U.N.`\
-https://www.nytimes.com/2026/10/25/learning/from-the-front-page-the-un-votes-to-seat-the-peoples-republic-of-china-on-oct-25-1971.html
+**How West Virginia Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/west-virginia-estimates-2024.html
 
-**A New Level of Threat and Fear Risks Pushing the U.S. and Iran Back to Full War**\
-`With new intelligence and the possibility of all sides seeking pretexts for action, the war in Iran is entering a dangerous phase ahead of elections in the United States and Israel.`\
-https://www.nytimes.com/2026/10/24/us/politics/trump-netanyahu-iran-new-phase-of-war.html
+**How West Virginia Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/west-virginia-estimates-2020.html
 
-**Iranians Face Anxious Wait as Threat of Attack Looms**\
-`The United States and Israel have drawn up plans to renew strikes against Iran, creating a sense of dread among war-weary residents.`\
-https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html
+**How Washington, D.C., Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/washington-dc-estimates-2024.html
 
-**Audi to Build Factory in Georgia, Trump Says**\
-`The Volkswagen division, which imports all its cars from Europe or Mexico, has been hit hard by U.S. tariffs.`\
-https://www.nytimes.com/2026/10/24/business/audi-factory-georgia-trump.html
+**How Washington Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/washington-estimates-2024.html
 
-**Who Is Ahead in Connecticut's 5th Congressional District?**\
-`Track the latest polls in Connecticut's 5th Congressional District.`\
-https://www.nytimes.com/interactive/polls/connecticut-us-house-5-polls-2026.html
+**How Washington Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/washington-estimates-2020.html
 
-**Remains Found in Haiti During Hunt for Missing Salvadoran Soldiers**\
-`El Salvador had sent hundreds of troops to find the four men, who disappeared six days ago. The president of El Salvador denied the bodies were those of his soldiers.`\
-https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html
+**How Washington, D.C., Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/washington-dc-estimates-2020.html
 
-**In Alaska, Some Early Voting Sites in Rural Villages Have Not Yet Opened**\
-`“There is no legal excuse” for the failure of 18 polling sites to open for early voting, a state lawmaker said.`\
-https://www.nytimes.com/2026/10/24/us/alaska-early-voting-sites.html
+**How Virginia Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/virginia-estimates-2024.html
 
-**Relatively Speaking**\
-`Dylan Schiff and John Kugelman compared notes and came up with a sparkling Sunday puzzle.`\
-https://www.nytimes.com/2026/10/24/crosswords/daily-puzzle-2026-10-25.html
+**How Utah Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/utah-estimates-2024.html
 
-**Violent Anti-Government Protests Intensify in Albania**\
-`Thousands of Albanians took to the streets on Saturday to protest rising living and education costs. Demonstrators have called for country’s prime minister to resign.`\
-https://www.nytimes.com/video/world/europe/100000011234672/albania-protests-kushner-education.html
+**How Vermont Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/vermont-estimates-2024.html
 
-**Trump, Who Once Called Early Voting ‘Ridiculous,’ Casts a Midterm Ballot**\
-`The president voted at a polling station in Palm Beach County, Fla.`\
-https://www.nytimes.com/2026/10/24/us/politics/trump-votes-early-midterm-elections.html
+**How Americans Voted in the 2024 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/us-estimates-2024.html
 
-**Unrest Erupts Again in France, but This Time, With Less Property Damage**\
-`After largely peaceful marches on Saturday, clashes broke out in the evening. But a large-scale police presence, 1,000 arrests and the rerouting of protest routes kept a lid on wholesale vandalism.`\
-https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html
+**How Virginia Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/virginia-estimates-2020.html
 
-**Court Says Trump Violated Law in Los Angeles National Guard Deployment**\
-`The ruling, which comes as the midterm election nears, could make it more difficult for President Trump to seize control of the National Guard.`\
-https://www.nytimes.com/2026/10/24/us/ruling-trump-california-national-guard.html
+**How Vermont Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/vermont-estimates-2020.html
 
-**Enormous Fire Guts Infamous Nazi-Era ‘Eagle’s Nest’**\
-`A fire has all but destroyed the Nazi-era “Eagle’s Nest,” formally called the Kehlsteinhaus, the police said. The authorities said a man had been arrested in connection with the blaze that started on Friday night.`\
-https://www.nytimes.com/video/world/europe/100000011234532/eagles-nest-fire-nazi.html
+**How Utah Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/utah-estimates-2020.html
 
-**Hundreds of Thousands Protest Across France Amid Heavy Security**\
-`Protesters gathered in large numbers across France on Saturday. The demonstrations were largely peaceful with some violent clashes across several cities.`\
-https://www.nytimes.com/video/world/europe/100000011234503/france-protests-security.html
+**How Tennessee Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/tennessee-estimates-2024.html
 
-**Alaska Election Gambit Shows Justice Dept. Has Bowed to Trump’s Demands**\
-`With moves in Alaska and California, the department has stepped up interventions in the midterm elections as the president’s instrument of unmediated executive power.`\
-https://www.nytimes.com/2026/10/24/us/politics/alaska-senate-election-trump-justice-department.html
+**How Texas Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/texas-estimates-2024.html
 
-**Six Flags to Add Seatbelts on Roller Coasters After Rider’s Death**\
-`The company said that all Six Flags rides and attractions would undergo safety reviews, as the park operator faces lawsuits over safety concerns.`\
-https://www.nytimes.com/2026/10/24/business/six-flags-death-roller-coaster-seat-belt.html
+**How Americans Voted in the 2020 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/us-estimates-2020.html
 
-**Why Is the U.S. Accusing Canada of Election Interference?**\
-`The Trump administration says Canadian officials are trying to sway the midterm elections for Democrats. Prime Minister Mark Carney says those claims have “no merit.”`\
-https://www.nytimes.com/2026/10/24/world/canada/us-midterms-election-interference-carney-trump.html
+**How Texas Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/texas-estimates-2020.html
 
-**Paris, Battened Down Against Riots, Offers Lonely Welcome to Visitors**\
-`Americans on hand for the N.F.L.’s first-ever game in France found famous museums closed and shops boarded up.`\
-https://www.nytimes.com/2026/10/24/world/europe/paris-riots-tourism.html
+**How Tennessee Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/tennessee-estimates-2020.html
 
-**Republicans Are Crude, Craven, Cruel. It’s Not Working Anymore.**\
-`Republican candidates are in a sorry state.`\
-https://www.nytimes.com/2026/10/24/opinion/midterm-elections-republicans.html
+**How South Dakota Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/south-dakota-estimates-2020.html
 
-**Noah Adams, Longtime Host of ‘All Things Considered,’ Has Died at 84**\
-`A postman’s son from Kentucky, he worked hard to lose his accent but never forgot his Appalachian roots. “The best stories come from west of the Potomac,” he said.`\
-https://www.nytimes.com/2026/10/24/business/media/noah-adams-dead.html
+**How Rhode Island Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/rhode-island-estimates-2024.html
 
-**Time to Invest in Some Stocks**\
-`Make golden chicken (or vegetable) stock this weekend for future soups, stews and gravies.`\
-https://www.nytimes.com/2026/10/24/dining/time-to-invest-in-some-stocks.html
+**How South Dakota Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/south-dakota-estimates-2024.html
 
-**Now Is the Time for Pie Practice**\
-`Make and freeze pie dough to get a head start before the holiday hubbub.`\
-https://www.nytimes.com/2026/10/24/dining/now-is-the-time-for-pie-practice.html
+**How South Carolina Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/south-carolina-estimates-2024.html
 
-**After the Restaurant Closes, He Makes the Kitchen Sparkle**\
-`Alexander Diaz and his team of cleaners wash away the greasy buildup in restaurant kitchens.`\
-https://www.nytimes.com/2026/10/24/dining/restaurant-cleaning.html
+**How South Carolina Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/south-carolina-estimates-2020.html
 
-**Free Passes for Polluters**\
-`A New York Times investigation shows how President Trump allowed companies to skirt rules designed to limit toxic pollution.`\
-https://www.nytimes.com/2026/10/24/climate/free-passes-for-polluters.html
+**How Pennsylvania Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/pennsylvania-estimates-2024.html
 
-**C.E.O.s Say the A.I. Rollout Is Going Well. Employees Feel Differently.**\
-`Surveys show workers and executives have different views on A.I.`\
-https://www.nytimes.com/2026/10/24/business/dealbook/ceos-say-the-ai-rollout-is-going-well-employees-feel-differently.html
+**How Rhode Island Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/rhode-island-estimates-2020.html
 
-**‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire**\
-`The police said on Saturday that the structure, a tourist attraction for decades, was probably not salvageable. A man was arrested in connection with the blaze.`\
-https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html
+**How Pennsylvania Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/pennsylvania-estimates-2020.html
 
-**Israel Cracks Down in West Bank City After Deadly Attack**\
-`Hundreds of Palestinian families fled their homes as the Israeli military raided Hebron. The operation came a day after Palestinian gunmen killed two soldiers.`\
-https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html
+**How Oregon Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/oregon-estimates-2024.html
 
-**What New York City Will Lose When It Ends Carriage Rides**\
-`Horses were essential to New York City’s growth. Now horse-drawn carriages are being banned from the place they helped build.`\
-https://www.nytimes.com/2026/10/24/opinion/central-park-carriage-horses-new-york-city.html
+**How Oklahoma Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/oklahoma-estimates-2024.html
 
-**What Happens if Trump Doesn’t Like the Midterm Results?**\
-`Hope, dread and the final stretch to Election Day.`\
-https://www.nytimes.com/2026/10/24/opinion/trump-midterm-elections-results-predictions.html
+**How Oregon Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/oregon-estimates-2020.html
 
-**The Eyes of Elizabeth Holmes**\
-`Look into that unblinking gaze and see the abyss.`\
-https://www.nytimes.com/2026/10/24/opinion/elizabeth-holmes-you-can-see-everything.html
+**How Ohio Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/ohio-estimates-2020.html
 
-**None of This Is Normal**\
-`The fundamental issue is Trump’s shredding of the model that made America the world’s leading country.`\
-https://www.nytimes.com/2026/10/24/opinion/midterms-trump-america.html
+**How Oklahoma Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/oklahoma-estimates-2020.html
 
-**This Is America’s Warped Mirror Image**\
-`The Brazilian echoes of American politics have become too eerie to deny.`\
-https://www.nytimes.com/2026/10/24/opinion/brazil-election-lula-bolsonaro.html
+**How Ohio Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/ohio-estimates-2024.html
 
-**What Are the Best Ways to Fix Schools?**\
-`Readers analyze the 30 ideas presented in an Upshot article and offer some of their own.`\
-https://www.nytimes.com/2026/10/24/opinion/fixing-schools.html
+**How North Dakota Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/north-dakota-estimates-2024.html
 
-**What the Israeli Election Won’t Change**\
-`Israelis will decide this week if Prime Minister Benjamin Netanyahu will remain in office.`\
-https://www.nytimes.com/2026/10/24/opinion/israel-election-netanyahu.html
+**How North Carolina Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/north-carolina-estimates-2024.html
 
-**Lena Dunham: The Day I Met My Parents**\
-`It was a busy Tuesday with news of acid rain, insider trading, nuclear radiation and (at least) two new babies.`\
-https://www.nytimes.com/2026/10/24/opinion/lena-dunham-nyt-175.html
+**How North Dakota Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/north-dakota-estimates-2020.html
 
-**Dare We Dream of a Blue Wave?**\
-`Hope, dread and the final stretch to Election Day.`\
-https://www.nytimes.com/video/opinion/100000011230465/dare-we-dream-of-a-blue-wave.html
+**How New York Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-york-estimates-2024.html
 
-**Elon Musk Says Ukraine Violated Starlink’s Rules**\
-`The comments were his first since the disruption in the country’s satellite service. Earlier, Ukraine said drones using Starshield, the Pentagon-funded service, were back to normal speeds.`\
-https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html
+**How New Mexico Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-mexico-estimates-2024.html
 
-**My Difficult Aunt Told Me She’s Seeking Assisted Death. Should I Get Involved?**\
-`She is largely estranged from the whole family, and our contact has been sporadic.`\
-https://www.nytimes.com/2026/10/24/magazine/aunt-assisted-death-ethics.html
+**How North Carolina Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/north-carolina-estimates-2020.html
 
-**Today’s Wordle Hints for Oct. 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
-https://www.nytimes.com/2026/10/24/crosswords/wordle-review-1954.html
+**How New Jersey Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-jersey-estimates-2024.html
 
-**NYT Connections Answers for October 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
-https://www.nytimes.com/2026/10/24/crosswords/connections-companion-1232.html
+**How New York Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-york-estimates-2020.html
 
-**NYT Strands Hints for October 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 25, 2026.`\
-https://www.nytimes.com/2026/10/24/crosswords/strands-sidekick-966.html
+**How New Mexico Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-mexico-estimates-2020.html
 
-**Alberta’s Referendum Was Clear, Unlike Danielle Smith’s Future**\
-`Ahead of a vote on whether Albertans should remain part of Canada or cast a ballot to leave, the premier managed to alienate people on both sides. What now?`\
-https://www.nytimes.com/2026/10/24/world/canada/alberta-referendum-separation-smith.html
+**How New Hampshire Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-hampshire-estimates-2024.html
 
-**How a Small Student Protest Spread Across France**\
-`A movement that began with a few high schools has broadened to encompass labor unions and other activists.`\
-https://www.nytimes.com/2026/10/24/world/europe/france-protests-timeline.html
+**How New Jersey Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-jersey-estimates-2020.html
 
-**France Protest Updates: Hundreds of Thousands March Amid Heavy Security**\
-`The marches were largely peaceful until evening, when clashes popped up and the police used tear gas and water cannons to disperse some protesters in Marseille and Paris.`\
-https://www.nytimes.com/live/2026/10/24/world/france-protests-riots
+**How Nevada Voted in 2024**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/nevada-estimates-2024.html
+
+**How New Hampshire Voted in 2020**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/10/25/us/elections/new-hampshire-estimates-2020.html
 
