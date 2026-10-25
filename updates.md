@@ -1,3 +1,7 @@
+**Live Updates: Voting Extended as Brazil’s Presidential Race Comes to Chaotic Close**\
+`Polls were ordered to stay open two more hours because of transportation and weather problems. The leftist president Luiz Inácio Lula da Silva is locked in a tight race with Flávio Bolsonaro, the son of his predecessor and a Trump ally.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **Hochul and Blakeman Barnstorm New York as Early Voting Begins**\
 `Nearly twice as many New Yorkers cast their ballots on the first day of early voting as compared with four years ago. Early voting runs until Nov. 1.`\
 https://www.nytimes.com/2026/10/25/nyregion/hochul-blakeman-new-york-governor-early-voting.html
