@@ -182,7 +182,3 @@ https://www.nytimes.com/2026/10/25/business/my-co-worker-is-losing-it-over-my-re
 `Democratic candidates are ahead in two, hold a narrow edge in a third and are tied in a fourth, new polling shows. The seats embody the fights playing out nationwide in the midterms.`\
 https://www.nytimes.com/2026/10/25/us/politics/polls-pennsylvania-house-midterms-battlegrounds.html
 
-**Cross-Tabs: October 2026 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania’s 10th Congressional District**\
-`Results of a New York Times/Philadelphia Inquirer/Siena poll conducted among 404 voters from Oct. 16 to 22, 2026.`\
-https://www.nytimes.com/interactive/2026/10/25/polls/times-siena-pa10-poll-crosstabs.html
-
