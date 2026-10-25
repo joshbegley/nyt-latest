@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/2020/elections/voter-trends-washington-dc.ht
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2024/elections/voter-trends-utah.html
 
-**How Washington Voted in 2020**\
+**How Virginia Voted in 2024**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2020/elections/voter-trends-washington.html
+https://www.nytimes.com/interactive/2024/elections/voter-trends-virginia.html
 
