@@ -1,3 +1,15 @@
+**A Speedier, Spoonable Lasagna**\
+`That, plus a feta frittata from Yotam Ottolenghi, are in this week’s selection of five weeknight dishes.`\
+https://www.nytimes.com/2026/10/25/dining/a-speedier-spoonable-lasagna.html
+
+**The A.I. Boom Looks a Lot Like the Housing Bubble**\
+`There are signs the A.I. boom is going bust. If it does, the consequences could rival the 2008 financial crisis.`\
+https://www.nytimes.com/2026/10/25/opinion/ai-bubble-financial-crisis-lehman.html
+
+**Turning an Academic Slump Around**\
+`Readers offer their suggestions for improving our schools. Also: College’s real payoff; A.I. is not human.`\
+https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
+
 **Saudi Arabia Reopens Riyadh Airport After Weeks of Houthi Attacks**\
 `The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month and have threatened to strike it again.`\
 https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html
