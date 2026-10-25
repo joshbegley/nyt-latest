@@ -1,3 +1,7 @@
+**A Day After Renewed Street Clashes in France, Relief and Anxiety Mix**\
+`While the police kept a lid on vandalism, the huge number of protesters, and France’s fraught politics, suggest unrest could grow.`\
+https://www.nytimes.com/2026/10/25/world/europe/france-protests-macron-lepen.html
+
 **One Agent’s Doubts**\
 `ICE pays local police to help with deportations. What’s it like for them?`\
 https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
