@@ -1,3 +1,7 @@
+**Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
+`Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
+https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html
+
 **House Democrats Call for Special Counsel to Scrutinize Trump’s Ties to Epstein**\
 `The request comes as Democrats are working to paint Republicans as corrupt and highlight their plans to investigate Trump should they win the midterm elections.`\
 https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-going-public-stakes.html
 **How Silicon Valley Stole the Future**\
 `A.I. will reshape our world. But does that mean the people who make the technology get to control our imagination, too?`\
 https://www.nytimes.com/2026/10/26/magazine/how-silicon-valley-stole-the-future.html
-
-**The Midterms Are Next Week. Here’s Who We Think Will Win.**\
-`It’s crunch time and still looking bullish for Democrats.`\
-https://www.nytimes.com/interactive/2026/10/26/opinion/midterms-pollsters-pundits-scorecard-october.html
 
