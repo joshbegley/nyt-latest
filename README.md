@@ -1,3 +1,11 @@
+**Brazilians React to Lula’s Election Victory Over Bolsonaro**\
+`Supporters of President Luiz Inácio Lula da Silva celebrated his re-election in Brazil. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
+https://www.nytimes.com/video/world/americas/100000011236847/brazil-election-lula-bolsonaro-reaction.html
+
+**Israel Has Committed Genocidal Acts in Gaza Since Cease-Fire, U.N. Human Rights Panel Says**\
+`The panel also accuses Israel of committing crimes against humanity in the West Bank. Israel condemned the report.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/un-human-rights-panel-israel-palestinians.html
+
 **Civilian Suffering Was Goal of Russian Strikes in Ukraine, U.N. Panel Says**\
 `The assaults on infrastructure, which cut off heat and power on bitterly cold winter days, amounted to a crime against humanity, investigators said.`\
 https://www.nytimes.com/2026/10/26/world/europe/russia-ukraine-energy-strikes-un.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/26/business/brazil-stock-markets-election-lula.h
 **Meet Anthropic’s Seven Founders as the A.I. Firm Prepares for an IPO**\
 `Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
-
-**Meta and SpaceX to Raise Billions More to Fund A.I. Ambitions**\
-`The race to build artificial intelligence infrastructure is consuming increasingly enormous amounts of cash at the biggest tech companies.`\
-https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
-
-**Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
-`Ahead of what could be the largest public listing ever, Anthropic said revenue soared to $16.3 billion in the first half of the year, and it planned to spend $807 billion on A.I. infrastructure.`\
-https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
 
