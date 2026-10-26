@@ -1,3 +1,15 @@
+**Seahawks Hand Kansas City First Loss of Season**\
+`The Seattle Seahawks allowed just three points against one of the league’s best quarterbacks, dominating the Kansas City Chiefs 20-3 to get back into the win column.`\
+https://www.nytimes.com/video/the-athletic/100000011236731/seahawks-hand-kansas-city-first-loss-of-season.html
+
+**Giants Win in Overtime Against Houston**\
+`The quarterback J.J. McCarthy made his first start for the New York Giants, leading them to a 27-21 overtime victory against the Houston Texans.`\
+https://www.nytimes.com/video/the-athletic/100000011236734/giants-win-in-overtime-against-houston.html
+
+**Meet Anthropic’s Seven Founders as the A.I. Firm Prepares for an IPO**\
+`Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
+
 **Chris Brown Gets Suspended Prison Sentence Over London Nightclub Assault**\
 `The pop star Chris Brown received an eight-month suspended prison sentence on Monday over a 2023 episode in which he repeatedly hit a man in the head with a tequila bottle in a London nightclub.`\
 https://www.nytimes.com/video/arts/music/100000011236654/chris-brown-prison-sentence-london-nightclub-assault.html
