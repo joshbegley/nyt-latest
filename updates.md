@@ -1,3 +1,11 @@
+**7 Numbers That Explain Anthropic’s Business**\
+`We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
+
+**Microsoft Offers Buyouts to 60,000 Employees as It Spends on A.I.**\
+`About a quarter of the tech giant’s employees were eligible for the packages, although the company cautioned it did not expect many employees to sign on.`\
+https://www.nytimes.com/2026/10/26/technology/microsoft-buyouts-ai-spending.html
+
 **New Yorkers, Where’s the Best Place to Cry in the City?**\
 `To help us report an upcoming article, we want to hear about all the places you’ve cried — subways, sidewalks, stoops, saunas and beyond.`\
 https://www.nytimes.com/2026/10/26/nyregion/new-yorkers-whats-the-best-place-to-cry-in-the-city.html
