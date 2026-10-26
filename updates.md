@@ -1,3 +1,7 @@
+**Flurry of Diplomacy in Iran Amid Reports of U.S. and Israeli Plans to Renew War**\
+`A rare joint visit to Tehran is expected by Saudi Arabia, Turkey and Pakistan amid reports that the U.S. and Israel are drawing up plans to renew their war on Iran.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
+
 **Chris Brown Gets Suspended Sentence Over London Nightclub Assault**\
 `The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in 2023.`\
 https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
