@@ -1,3 +1,7 @@
+**Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023. He is unlikely to serve any prison time.`\
+https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
+
 **Seahawks Hand Kansas City First Loss of Season**\
 `The Seattle Seahawks allowed just three points against one of the league’s best quarterbacks, dominating the Kansas City Chiefs 20-3 to get back into the win column.`\
 https://www.nytimes.com/video/the-athletic/100000011236731/seahawks-hand-kansas-city-first-loss-of-season.html
