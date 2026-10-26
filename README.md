@@ -1,3 +1,7 @@
+**Brazil Election Results in Maps: How Lula Came Back**\
+`Maps show where Brazil’s progressive president surged ahead to win re-election, a dramatic reversal from the first round of voting.`\
+https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-results-maps.html
+
 **I Went to India and Found It Has Lessons for Us All**\
 `Young people have revived the country’s glorious tradition of nonviolent dissent.`\
 https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html
 **The Second Big Bang Is Here**\
 `According to the columnist Thomas L. Friedman, humanity has just set off a second Big Bang — and we are not ready for it. He explains why the rise of A.I. and other “godlike” powers will require us to build healthy interdependencies to survive what comes next.`\
 https://www.nytimes.com/video/opinion/100000011223790/the-second-big-bang-is-here.html
-
-**Thomas L. Friedman: We Just Set Off the Second Big Bang**\
-`The columnist on why humanity is entering its most dangerous era yet.`\
-https://www.nytimes.com/video/opinion/100000011223755/thomas-l-friedman-we-just-set-off-the-second-big-bang.html
 
