@@ -1,3 +1,7 @@
+**Share Your Hidden Gems With The Local: Twin Cities**\
+`What’s an underappreciated spot in the Twin Cities? We want to hear from you.`\
+https://www.nytimes.com/2026/10/26/briefing/hidden-gems-local-twin-cities.html
+
 **Convicted Australian Murderer Loses Bid to Eat Vegemite in Prison**\
 `A judge agreed that denying the staple restricted the prisoner’s cultural rights but ruled that keeping drug dogs focused and cells free of illicit home brew was more important.`\
 https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/books/review/chad-harbach-the-brightness.html
 **Neutrinos Are Everywhere. A Physicist Explains.**\
 `Dr. Francis Halzen, the recipient of the Nobel Prize in Physics, sheds some light on the mysterious, subatomic particles that whiz through us everyday.`\
 https://www.nytimes.com/2026/10/26/style/neutrinos-francis-halzen-interview.html
-
-**What’s Riding on Anthropic Going Public? Nearly Everything.**\
-`Anthropic sits atop a pyramid of business partners and suppliers, making it a barometer of the broader economy. Its initial public offering will have widespread implications.`\
-https://www.nytimes.com/2026/10/26/technology/anthropic-going-public-stakes.html
 
