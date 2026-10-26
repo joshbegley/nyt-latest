@@ -1,3 +1,7 @@
+**Israelis Have Chosen to Be Feared, Not Loved**\
+`Israelis care more about what their country’s enemies think than their friends.`\
+https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
+
 **After Weekend Rape in Central Park, Police Step Up Patrols**\
 `The victim, a 39-year-old woman, was attacked at knife point on Saturday night. Her assailant remains at large.`\
 https://www.nytimes.com/2026/10/26/nyregion/rape-central-park-police.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-social-me
 https://www.nytimes.com/2026/10/26/briefing/anthropic-ipo-trump-mississippi-campaigning.html
 
 **Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
-`Lawyers for James Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+`Lawyers for James B. Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
 https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
 
 **Netanyahu Pushed for Attack on Iran Ahead of Israeli Election, Officials Say**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/world/europe/serbia-election-vucic-nationalis
 **Controversies in the Ohio and Alaska Races**\
 `About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
 https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
-
-**Book Review: ‘Morel’s Invention,’ by Adolfo Bioy Casares**\
-`“Morel’s Invention,” by Adolfo Bioy Casares, explores ideas that are quickly becoming daily realities.`\
-https://www.nytimes.com/2026/10/26/books/review/adolfo-bioy-casares-morels-invention.html
 
