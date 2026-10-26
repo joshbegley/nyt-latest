@@ -1,3 +1,23 @@
+**Chris Brown Gets Suspended Prison Sentence Over London Nightclub Assault**\
+`The pop star Chris Brown received an eight-month suspended prison sentence on Monday over a 2023 episode in which he repeatedly hit a man in the head with a tequila bottle in a London nightclub.`\
+https://www.nytimes.com/video/arts/music/100000011236654/chris-brown-prison-sentence-london-nightclub-assault.html
+
+**We’re on Campus**\
+`I’m in Minneapolis this week.`\
+https://www.nytimes.com/2026/10/26/briefing/were-on-campus.html
+
+**Can You Match These Quotations to the Correct Work?**\
+`Try this short quiz on lines from five novels and poems to see how many have stayed with you after you read them.`\
+https://www.nytimes.com/quiz/2026/10/26/bookreview/gothic-novel-quotes.html
+
+**A Five-Star Recipe With Over 17,000 Reviews Built on Canned Staples**\
+`That’s my coconut curry chickpeas with pumpkin and lime, a rich vegetarian dish to make over and over and over.`\
+https://www.nytimes.com/2026/10/26/dining/a-five-star-recipe-with-over-17000-reviews-built-on-canned-staples.html
+
+**If Democrats Win Power, What Can We Expect? A Political Scientist Thinks It Through.**\
+`Conflict? Cooperation? On the potential of divided government.`\
+https://www.nytimes.com/2026/10/26/opinion/midterms-democrats-trump-power.html
+
 **In Maine, an ‘Oyster Thug’s’ Struggle to Get Over Graham Platner**\
 `A Platner superfan’s reluctance to support the Democrat now running against Senator Susan Collins reflects the party’s challenges navigating left-wing passions.`\
 https://www.nytimes.com/2026/10/26/us/politics/maine-midterms-platner-jackson-collins.html
