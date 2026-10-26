@@ -1,3 +1,7 @@
+**In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
+`The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
+https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
+
 **How Obama and Trump Made their Cases in Dueling Midterm Speeches**\
 `At rallies this weekend, Mr. Obama and Mr. Trump delivered two starkly contrasting pitches, differing in style and substance.`\
 https://www.nytimes.com/2026/10/25/us/politics/obama-trump-competing-rallies-midterms.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/25/crosswords/wordle-review-1955.html
 **NYT Strands Hints for October 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
 https://www.nytimes.com/2026/10/25/crosswords/strands-sidekick-967.html
-
-**Former ‘60 Minutes’ Boss to Join Video Journalism Start-Up**\
-`Bill Owens, who left the show after clashing with CBS executives, is joining Newpress, which publishes work from creators on YouTube.`\
-https://www.nytimes.com/2026/10/25/business/media/bill-owens-60-minutes-emerson-collective.html
 
