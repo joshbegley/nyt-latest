@@ -1,3 +1,7 @@
+**Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
+`Norwegian officials emphasized that their country does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
+https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
+
 **Brazilian Markets Convulse After Unlikely Election Result**\
 `President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
 https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/science/what-happened-to-the-neanderthals.htm
 **Why Some People Are Paying to Make Friends**\
 `Apps that match personalities — for a price — have surged in popularity amid a loneliness epidemic.`\
 https://www.nytimes.com/2026/10/26/business/why-some-people-are-paying-to-make-friends.html
-
-**What Is Canadian Ballet? At 75, the National Company Is Its Own Answer.**\
-`The National Ballet of Canada celebrates a landmark anniversary with solid accomplishments, a new leader and some of its founder’s original chutzpah.`\
-https://www.nytimes.com/2026/10/26/arts/dance/national-ballet-canada-75-anniversary.html
 
