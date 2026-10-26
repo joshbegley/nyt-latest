@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Poetry Pairings**\
+`What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
+https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
+
 **Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
 `Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
 https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
