@@ -1,3 +1,11 @@
+**House Democrats Call for Special Counsel to Scrutinize Trump’s Ties to Epstein**\
+`The request comes as Democrats are working to paint Republicans as corrupt and highlight their plans to investigate Trump should they win the midterm elections.`\
+https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.html
+
+**Maurene Comey’s rights were violated when she was fired, a judge ruled.**\
+`Ms. Comey was a highly regarded trial lawyer for the government, handling the prosecutions of Jeffrey Epstein and Sean Combs. A federal judge said the Justice Department violated various laws when they fired her.`\
+https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-ruling.html
+
 **Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
 `Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
 https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/magazine/how-silicon-valley-stole-the-future.
 **The Midterms Are Next Week. Here’s Who We Think Will Win.**\
 `It’s crunch time and still looking bullish for Democrats.`\
 https://www.nytimes.com/interactive/2026/10/26/opinion/midterms-pollsters-pundits-scorecard-october.html
-
-**Winnie-the-Pooh Is Staying in New York**\
-`The teddy bear lives in the New York Public Library. Though a trip to Britain has been discussed, he doesn’t seem to be moving back home.`\
-https://www.nytimes.com/2026/10/26/nyregion/winnie-the-pooh-new-york-public-library.html
-
-**How Trump Unwittingly Boosted Green Energy**\
-`Deregulation is technology neutral, which means that green energy will win.`\
-https://www.nytimes.com/2026/10/26/opinion/how-trump-unwittingly-boosted-green-energy.html
 
