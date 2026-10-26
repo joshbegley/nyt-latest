@@ -1,3 +1,7 @@
+**DraftKings Faces Growing Pressure Over How It Targets Customers**\
+`In Congress and in several states, officials have been questioning online gambling companies about their use of artificial intelligence.`\
+https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumenthal.html
+
 **The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
 `Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
 https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.ht
 https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
 
 **Flurry of Diplomacy in Iran Amid Reports of U.S. and Israeli Plans to Renew War**\
-`A rare joint visit to Tehran is expected by Saudi Arabia, Turkey and Pakistan amid reports that the U.S. and Israel are drawing up plans to renew their war on Iran.`\
+`Saudi Arabia, Turkey and Pakistan made a rare joint visit to Tehran amid reports that the U.S. and Israel were drawing up plans to renew their attacks on Iran.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
 
 **Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
@@ -160,7 +164,7 @@ https://www.nytimes.com/2026/10/26/arts/television/matthew-perry-netflix-documen
 
 **The 11 Midterm Races That Could Shape the Progressive Movement’s Future**\
 `The left says its populist message can attract moderates and conservatives in addition to liberals. That theory will be put to the test in a series of competitive races on Election Day.`\
-https://www.nytimes.com/2026/10/26/us/politics/the-11-midterm-races-that-could-shape-the-progressive-movements-future.html
+https://www.nytimes.com/2026/10/26/us/politics/midterm-races-progressive-nixon-el-sayed-flanagan.html
 
 **Why Is Maternity Fashion So Frustrating?**\
 `A reader wonders if there is such a thing as clothing that also works after pregnancy.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/style/jonathan-van-meter-kim-kardashian-book.
 **Bridges Still Destroyed Years After Hurricane**\
 `When Hurricane Helene hit western North Carolina in 2024, hundreds of households lost the private bridges they rely on to access their homes. Two years later, only 44 bridges have been rebuilt by the state. Our reporter Eduardo Medina takes us there.`\
 https://www.nytimes.com/video/us/100000011153947/north-carolina-bridges-destroyed-hurricane-helene.html
-
-**Shiny Glass Skyscrapers Are a Hot Thing. Literally.**\
-`They’re transforming cities with million-dollar views and a message of modernity. But climate change makes cooling them tricky and costly.`\
-https://www.nytimes.com/2026/10/26/climate/glass-skyscrapers-heat-climate-change.html
 

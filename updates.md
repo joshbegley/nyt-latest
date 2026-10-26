@@ -1,3 +1,15 @@
+**DraftKings Faces Growing Pressure Over How It Targets Customers**\
+`In Congress and in several states, officials have been questioning online gambling companies about their use of artificial intelligence.`\
+https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumenthal.html
+
+**Flurry of Diplomacy in Iran Amid Reports of U.S. and Israeli Plans to Renew War**\
+`Saudi Arabia, Turkey and Pakistan made a rare joint visit to Tehran amid reports that the U.S. and Israel were drawing up plans to renew their attacks on Iran.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
+
+**The 11 Midterm Races That Could Shape the Progressive Movement’s Future**\
+`The left says its populist message can attract moderates and conservatives in addition to liberals. That theory will be put to the test in a series of competitive races on Election Day.`\
+https://www.nytimes.com/2026/10/26/us/politics/midterm-races-progressive-nixon-el-sayed-flanagan.html
+
 **The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
 `Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
 https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
