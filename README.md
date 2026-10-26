@@ -79,7 +79,7 @@ https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.ht
 https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
 
 **Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
-`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023.`\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023. He is unlikely to serve any prison time.`\
 https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
 
 **Musk Is Predicting ‘Guppy-level Death’ for Scores of A.I. Companies**\
