@@ -1,3 +1,7 @@
+**Convicted Australian Murderer Loses Bid to Eat Vegemite in Prison**\
+`A judge agreed that denying the staple restricted the prisoner’s cultural rights but ruled that keeping drug dogs focused and cells free of illicit home brew was more important.`\
+https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban-lawsuit.html
+
 **Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
 `Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
 https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html

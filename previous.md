@@ -1,3 +1,7 @@
+**Convicted Australian Murderer Loses Bid to Eat Vegemite in Prison**\
+`A judge agreed that denying the staple restricted the prisoner’s cultural rights but ruled that keeping drug dogs focused and cells free of illicit home brew was more important.`\
+https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban-lawsuit.html
+
 **Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
 `Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
 https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/style/neutrinos-francis-halzen-interview.html
 **What’s Riding on Anthropic Going Public? Nearly Everything.**\
 `Anthropic sits atop a pyramid of business partners and suppliers, making it a barometer of the broader economy. Its initial public offering will have widespread implications.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-going-public-stakes.html
-
-**How Silicon Valley Stole the Future**\
-`A.I. will reshape our world. But does that mean the people who make the technology get to control our imagination, too?`\
-https://www.nytimes.com/2026/10/26/magazine/how-silicon-valley-stole-the-future.html
 
