@@ -1,3 +1,19 @@
+**Manhunt Begins After Convicted Murderer Escapes From Tennessee Prison**\
+`Jacob Allen Morley, 28, was discovered to be missing late Sunday at a correctional facility in Tiptonville, Tenn., officials said.`\
+https://www.nytimes.com/2026/10/26/us/tennessee-inmate-missing-manhunt.html
+
+**The Science Behind Your Reaction to Art**\
+`The Honolulu Museum of Art is showing how art can influence thinking, perspective and mood, in an exhibition that is part of a trend by museums to mix science and art.`\
+https://www.nytimes.com/2026/10/26/arts/design/museums-mix-science-art.html
+
+**A World War II Museum Brings the Lessons of War to a Younger Audience**\
+`An idea sparked by the historian Stephen E. Ambrose became the National World War II Museum in New Orleans.`\
+https://www.nytimes.com/2026/10/26/arts/design/world-war-ii-museum-new-orleans.html
+
+**Whom Should We Feature on 3 Questions?**\
+`Nominate someone you’d like to hear from in our newsletter interview feature.`\
+https://www.nytimes.com/2026/10/26/briefing/3-questions.html
+
 **What Early Voting Can Reveal About the 2026 Midterm Elections So Far**\
 `Millions of early votes tell us less than many would think, but there are key takeaways from results in Texas, Kansas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/10/26/us/midterm-elections-early-voting-takeaways.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/video/arts/music/100000011236654/chris-brown-prison-sent
 **We’re on Campus**\
 `I’m in Minneapolis this week.`\
 https://www.nytimes.com/2026/10/26/briefing/were-on-campus.html
-
-**Can You Match These Quotations to the Correct Work?**\
-`Try this short quiz on lines from five novels and poems to see how many have stayed with you after you read them.`\
-https://www.nytimes.com/quiz/2026/10/26/bookreview/gothic-novel-quotes.html
-
-**A Five-Star Recipe With Over 17,000 Reviews Built on Canned Staples**\
-`That’s my coconut curry chickpeas with pumpkin and lime, a rich vegetarian dish to make over and over and over.`\
-https://www.nytimes.com/2026/10/26/dining/a-five-star-recipe-with-over-17000-reviews-built-on-canned-staples.html
-
-**If Democrats Win Power, What Can We Expect? A Political Scientist Thinks It Through.**\
-`Conflict? Cooperation? On the potential of divided government.`\
-https://www.nytimes.com/2026/10/26/opinion/midterms-democrats-trump-power.html
-
-**In Maine, an ‘Oyster Thug’s’ Struggle to Get Over Graham Platner**\
-`A Platner superfan’s reluctance to support the Democrat now running against Senator Susan Collins reflects the party’s challenges navigating left-wing passions.`\
-https://www.nytimes.com/2026/10/26/us/politics/maine-midterms-platner-jackson-collins.html
 

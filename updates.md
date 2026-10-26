@@ -1,3 +1,15 @@
+**What Early Voting Can Reveal About the 2026 Midterm Elections So Far**\
+`Millions of early votes tell us less than many would think, but there are key takeaways from results in Texas, Kansas, Georgia and North Carolina.`\
+https://www.nytimes.com/2026/10/26/us/midterm-elections-early-voting-takeaways.html
+
+**Teen Arrested in Florida Shooting Will Be Tried as Adult, Officials Say**\
+`The 15-year-old suspect will be charged with 11 counts of attempted second-degree murder after the shooting on Saturday that happened after Florida A&M’s homecoming game.`\
+https://www.nytimes.com/2026/10/26/us/famu-shooting-florida-arrest.html
+
+**Share Your Commute with The Local: Twin Cities**\
+`Do you have a particularly notable commute? We’d like to hear from you.`\
+https://www.nytimes.com/2026/10/26/briefing/twin-cities-commute.html
+
 **Gaze at the Cosmic Dawn in Dizzying Detail**\
 `A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
 https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
