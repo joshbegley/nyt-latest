@@ -1,3 +1,7 @@
+**Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
+`Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
+https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html
+
 **House Democrats Call for Special Counsel to Scrutinize Trump’s Ties to Epstein**\
 `The request comes as Democrats are working to paint Republicans as corrupt and highlight their plans to investigate Trump should they win the midterm elections.`\
 https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.html
