@@ -1,3 +1,7 @@
+**Eric Bauza, Voice of ‘Looney Toons’ Characters, Dies at 46**\
+`The voice actor brought Bugs Bunny, Daffy Duck and other stars of the long-running cartoon franchise to life.`\
+https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
+
 **Brazil Election Results in Maps: How Lula Came Back**\
 `Maps show where Brazil’s progressive president surged ahead to win re-election, a dramatic reversal from the first round of voting.`\
 https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-results-maps.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
 **Thomas L. Friedman: We Just Set Off the Second Big Bang**\
 `Humanity is entering its most dangerous era yet.`\
 https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html
-
-**The Second Big Bang Is Here**\
-`According to the columnist Thomas L. Friedman, humanity has just set off a second Big Bang — and we are not ready for it. He explains why the rise of A.I. and other “godlike” powers will require us to build healthy interdependencies to survive what comes next.`\
-https://www.nytimes.com/video/opinion/100000011223790/the-second-big-bang-is-here.html
 
