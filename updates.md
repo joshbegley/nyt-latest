@@ -1,3 +1,7 @@
+**Brazil Live Updates: Lula Wins Re-Election as Bolsonaro Rejects Result**\
+`President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **Live Updates: Brazil Re-Elects Lula, Rejecting Predecessor’s Son**\
 `President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, said he would not accept the results.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
