@@ -1,3 +1,7 @@
+**Mexico’s Top Election Official Resigns Amid Corruption Scandal**\
+`Guadalupe Taddei Zavala, the head of the electoral watchdog, stepped down after facing accusations of corruption and influence peddling.`\
+https://www.nytimes.com/2026/10/26/world/americas/mexico-election-official-resigns.html
+
 **Manhunt Begins After Convicted Murderer Escapes From Tennessee Prison**\
 `Jacob Allen Morley, 28, was discovered to be missing late Sunday at a correctional facility in Tiptonville, Tenn., officials said.`\
 https://www.nytimes.com/2026/10/26/us/tennessee-inmate-missing-manhunt.html
