@@ -1,3 +1,7 @@
+**Crowds Celebrate After Serbia’s Nationalist Leader Concedes Defeat**\
+`Celebrations erupted in Belgrade after Aleksandar Vucic, Serbia’s longtime strongman, conceded defeat in the country’s general election.`\
+https://www.nytimes.com/video/world/europe/100000011236309/serbia-election-results-vucic.html
+
 **15-Minute Lesson Plan: Poetry Pairings**\
 `What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
 https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/25/dining/a-speedier-spoonable-lasagna.html
 **The A.I. Boom Looks a Lot Like the Housing Bubble**\
 `There are signs the A.I. boom is going bust. If it does, the consequences could rival the 2008 financial crisis.`\
 https://www.nytimes.com/2026/10/25/opinion/ai-bubble-financial-crisis-lehman.html
-
-**Turning an Academic Slump Around**\
-`Readers offer their suggestions for improving our schools. Also: College’s real payoff; A.I. is not human.`\
-https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
 
