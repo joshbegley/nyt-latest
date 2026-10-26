@@ -1,3 +1,7 @@
+**Questions for Reporters**\
+`Have questions for reporters at The New York Times? We’ll help get them answered.`\
+https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html
+
 **Election Surprises**\
 `Serbia and Brazil are very different countries. But their unexpected election results tell us a lot.`\
 https://www.nytimes.com/2026/10/26/world/brazil-serbia-election-results-anthropic.html
