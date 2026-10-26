@@ -1,3 +1,15 @@
+**What Early Voting Can Reveal About the 2026 Midterm Elections So Far**\
+`Millions of early votes tell us less than many would think, but there are key takeaways from results in Texas, Kansas, Georgia and North Carolina.`\
+https://www.nytimes.com/2026/10/26/us/midterm-elections-early-voting-takeaways.html
+
+**Teen Arrested in Florida Shooting Will Be Tried as Adult, Officials Say**\
+`The 15-year-old suspect will be charged with 11 counts of attempted second-degree murder after the shooting on Saturday that happened after Florida A&M’s homecoming game.`\
+https://www.nytimes.com/2026/10/26/us/famu-shooting-florida-arrest.html
+
+**Share Your Commute with The Local: Twin Cities**\
+`Do you have a particularly notable commute? We’d like to hear from you.`\
+https://www.nytimes.com/2026/10/26/briefing/twin-cities-commute.html
+
 **Gaze at the Cosmic Dawn in Dizzying Detail**\
 `A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
 https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/26/opinion/midterms-democrats-trump-power.html
 **In Maine, an ‘Oyster Thug’s’ Struggle to Get Over Graham Platner**\
 `A Platner superfan’s reluctance to support the Democrat now running against Senator Susan Collins reflects the party’s challenges navigating left-wing passions.`\
 https://www.nytimes.com/2026/10/26/us/politics/maine-midterms-platner-jackson-collins.html
-
-**California’s Potential Quartz Ban Pushes Contractors and Retailers to Alternatives**\
-`Manufacturers and their customers are using materials made without the clouds of dust that have sickened workers in quartz-cutting shops.`\
-https://www.nytimes.com/2026/10/26/business/economy/california-quartz-countertop-ban-alternatives.html
-
-**DraftKings Faces Growing Pressure Over How It Targets Customers**\
-`In Congress and in several states, officials have been questioning online gambling companies about their use of artificial intelligence.`\
-https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumenthal.html
-
-**The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
-`Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
-https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
 

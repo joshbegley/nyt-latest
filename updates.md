@@ -1,3 +1,11 @@
+**Gaze at the Cosmic Dawn in Dizzying Detail**\
+`A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
+https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
+
+**Astronomers Create Detailed Simulation of the Early Universe**\
+`Astronomers developed a simulation, called Lumina, that shows what most of the universe’s first two billion years might have looked like. To test its results, the team behind the project has started comparing it with actual observations from NASA.`\
+https://www.nytimes.com/video/science/100000011236561/universe-simulation-lumina.html
+
 **Questions for Reporters**\
 `Have questions for reporters at The New York Times? We’ll help get them answered.`\
 https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html

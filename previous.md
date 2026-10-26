@@ -1,3 +1,11 @@
+**Gaze at the Cosmic Dawn in Dizzying Detail**\
+`A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
+https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
+
+**Astronomers Create Detailed Simulation of the Early Universe**\
+`Astronomers developed a simulation, called Lumina, that shows what most of the universe’s first two billion years might have looked like. To test its results, the team behind the project has started comparing it with actual observations from NASA.`\
+https://www.nytimes.com/video/science/100000011236561/universe-simulation-lumina.html
+
 **Questions for Reporters**\
 `Have questions for reporters at The New York Times? We’ll help get them answered.`\
 https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumen
 **The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
 `Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
 https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
-
-**What to Know About Trump’s Rally in Mississippi**\
-`President Trump will stump for a senator in a state he has won three times by double digits, and as Democrats see a path to victory.`\
-https://www.nytimes.com/2026/10/26/us/trump-rally-mississippi.html
-
-**Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
-`Norwegian officials emphasized that their government does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
-https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
 
