@@ -1,3 +1,15 @@
+**Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
+`Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
+https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
+
+**Underdog G.O.P. Challenger to Letitia James Runs as a Crime Fighter**\
+`Saritha Komatireddy, who criticized Ms. James’s comments on the Cornell case, has seen her long-shot candidacy gain momentum and support from Republican donors.`\
+https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-election.html
+
+**NYT Spelling Bee Answers for October 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
+
 **Eric Bauza, Voice of ‘Looney Toons’ Characters, Dies at 46**\
 `The voice actor brought Bugs Bunny, Daffy Duck and other stars of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html

@@ -1,3 +1,15 @@
+**Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
+`Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
+https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
+
+**Underdog G.O.P. Challenger to Letitia James Runs as a Crime Fighter**\
+`Saritha Komatireddy, who criticized Ms. James’s comments on the Cornell case, has seen her long-shot candidacy gain momentum and support from Republican donors.`\
+https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-election.html
+
+**NYT Spelling Bee Answers for October 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
+
 **Eric Bauza, Voice of ‘Looney Toons’ Characters, Dies at 46**\
 `The voice actor brought Bugs Bunny, Daffy Duck and other stars of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
@@ -165,16 +177,4 @@ https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
 **Saudi Arabia Reopens Riyadh Airport Even as Houthis Threaten Further Strikes**\
 `The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month.`\
 https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html
-
-**A Day After Renewed Street Clashes in France, Relief and Anxiety Mix**\
-`While the police kept a lid on vandalism, the huge number of protesters and France’s fraught politics suggest unrest could grow.`\
-https://www.nytimes.com/2026/10/25/world/europe/france-protests-macron-lepen.html
-
-**One Agent’s Doubts**\
-`ICE pays local police to help with deportations. What’s it like for them?`\
-https://www.nytimes.com/2026/10/25/briefing/deportation-doubts.html
-
-**Thomas L. Friedman: We Just Set Off the Second Big Bang**\
-`Humanity is entering its most dangerous era yet.`\
-https://www.nytimes.com/2026/10/25/opinion/ai-second-big-bang.html
 
