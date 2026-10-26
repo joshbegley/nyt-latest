@@ -1,3 +1,11 @@
+**How Lula’s Social Media Campaign Helped Him Win Brazil’s Election**\
+`President Luiz Inácio Lula da Silva won another term on Sunday, with the help of a seismic social media campaign that convinced Brazilians to reject his rival.`\
+https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-social-media.html
+
+**Anthropic Reveals Rapid Revenue Growth, and Even Faster Spending**\
+`Also, both parties are nervous about the Senate. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/10/26/briefing/anthropic-ipo-trump-mississippi-campaigning.html
+
 **Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
 `Lawyers for Mr. Comey said that the case centers on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
 https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epste
 **This Is Bigger Than Brazil**\
 `Mr. Lula’s victory represents a win for the forces of democracy not only in Brazil, but around the world.`\
 https://www.nytimes.com/2026/10/26/opinion/brazil-election-lula-bolsonaro.html
-
-**Ken Paxton’s State-Funded Jet-Setting Draws Campaign Scrutiny**\
-`Mr. Paxton, the Republican candidate for Senate in Texas, has taken about 350 trips outside of the state since he was sworn in as attorney general.`\
-https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html
-
-**Seahawks Hand Kansas City First Loss of Season**\
-`The Seattle Seahawks allowed just three points against one of the league’s best quarterbacks, dominating the Kansas City Chiefs 20-3 to get back into the win column.`\
-https://www.nytimes.com/video/the-athletic/100000011236731/seahawks-hand-kansas-city-first-loss-of-season.html
 
