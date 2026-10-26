@@ -1,3 +1,7 @@
+**Crowds Celebrate After Serbia’s Nationalist Leader Concedes Defeat**\
+`Celebrations erupted in Belgrade after Aleksandar Vucic, Serbia’s longtime strongman, conceded defeat in the country’s general election.`\
+https://www.nytimes.com/video/world/europe/100000011236309/serbia-election-results-vucic.html
+
 **15-Minute Lesson Plan: Poetry Pairings**\
 `What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
 https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
