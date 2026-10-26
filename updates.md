@@ -1,4 +1,8 @@
 **Live Updates: Brazil Re-Elects Lula, Rejecting Predecessor’s Son**\
+`President Luiz Inácio Lula da Silva fended off a right-wing movement led by Flávio Bolsonaro, whose father was convicted of a coup attempt after the 2022 election. His win ended a string of conservative victories in Latin America.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
+**Live Updates: Brazil Re-Elects Lula, Rejecting Predecessor’s Son**\
 `President Luiz Inácio Lula da Silva fended off a right-wing movement led by Flávio Bolsonaro, whose father was convicted of a coup attempt after the 2022 election. Transportation delays and bad weather disrupted Election Day.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
