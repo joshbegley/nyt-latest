@@ -1,3 +1,11 @@
+**Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
+`Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
+https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
+
+**Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
+`Anthropic said revenue soared to $16.3 billion in the first half of the year, ahead of what could be the largest ever public listing. But questions remain about whether the A.I. boom can be sustained.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
+
 **Walter Koenig Has Died at 90. He Played Chekov on ‘Star Trek.’**\
 `As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films.`\
 https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html

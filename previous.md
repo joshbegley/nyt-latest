@@ -1,3 +1,7 @@
+**Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
+`Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
+https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
+
 **Walter Koenig Has Died at 90. He Played Chekov on ‘Star Trek.’**\
 `As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films.`\
 https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
 https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
 
 **Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
-`The maker of Claude is on the verge of what could be the largest ever public listing, in a test of the A.I. industry amid questions about whether the boom can be sustained.`\
+`Anthropic said revenue soared to $16.3 billion in the first half of the year, ahead of what could be the largest ever public listing. But questions remain about whether the A.I. boom can be sustained.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
 
 **Maps: Tracking Tropical Cyclone Arnab**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/opinion/north-carolina-midterms-republicans.h
 **Penn Jillette: Bob Saget Was as Beautiful as His Comedy Was Filthy**\
 `The magician and comedian reflects on what he wrote in The Times about Bob Saget’s death.`\
 https://www.nytimes.com/2026/10/26/opinion/penn-jillette-bob-saget-nyt-175.html
-
-**How New York City’s ‘Furniture Queen’ Lives on $48,630 in the Bronx**\
-`By day, Regina Carter works for the city. By night, she canvasses convention centers and closed businesses to find goods that she can donate to neighbors in need.`\
-https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-budgeting-affordability-carter.html
 
