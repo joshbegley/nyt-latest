@@ -1,3 +1,7 @@
+**Mexico’s Top Election Official Resigns Amid Corruption Scandal**\
+`Guadalupe Taddei Zavala, the head of the electoral watchdog, stepped down after facing accusations of corruption and influence peddling.`\
+https://www.nytimes.com/2026/10/26/world/americas/mexico-election-official-resigns.html
+
 **Manhunt Begins After Convicted Murderer Escapes From Tennessee Prison**\
 `Jacob Allen Morley, 28, was discovered to be missing late Sunday at a correctional facility in Tiptonville, Tenn., officials said.`\
 https://www.nytimes.com/2026/10/26/us/tennessee-inmate-missing-manhunt.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/the-athletic/100000011236734/giants-win-in-overtim
 **Chris Brown Gets Suspended Prison Sentence Over London Nightclub Assault**\
 `The pop star Chris Brown received an eight-month suspended prison sentence on Monday over a 2023 episode in which he repeatedly hit a man in the head with a tequila bottle in a London nightclub.`\
 https://www.nytimes.com/video/arts/music/100000011236654/chris-brown-prison-sentence-london-nightclub-assault.html
-
-**We’re on Campus**\
-`I’m in Minneapolis this week.`\
-https://www.nytimes.com/2026/10/26/briefing/were-on-campus.html
 
