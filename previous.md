@@ -1,3 +1,7 @@
+**Chris Brown Gets Suspended Sentence Over London Nightclub Assault**\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in 2023.`\
+https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
+
 **Musk Is Predicting ‘Guppy-level Death’ for Scores of A.I. Companies**\
 `Elon Musk sees many artificial-intelligence infrastructure companies being shut out of the debt market, a warning that could weigh on markets.`\
 https://www.nytimes.com/2026/10/26/business/dealbook/musk-ai-credit-shakeout.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-res
 **Underdog G.O.P. Challenger to Letitia James Runs as a Crime Fighter**\
 `Saritha Komatireddy, who criticized Ms. James’s comments on the Cornell case, has seen her long-shot candidacy gain momentum and support from Republican donors.`\
 https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-election.html
-
-**NYT Spelling Bee Answers for October 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
 

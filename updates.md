@@ -1,3 +1,7 @@
+**Chris Brown Gets Suspended Sentence Over London Nightclub Assault**\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in 2023.`\
+https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
+
 **Musk Is Predicting ‘Guppy-level Death’ for Scores of A.I. Companies**\
 `Elon Musk sees many artificial-intelligence infrastructure companies being shut out of the debt market, a warning that could weigh on markets.`\
 https://www.nytimes.com/2026/10/26/business/dealbook/musk-ai-credit-shakeout.html
