@@ -1,3 +1,7 @@
+**Jordan Arrests 3 in Connection With Church Attack, State Media Reports**\
+`Nine people were killed and dozens were wounded in the attack last week on a Greek Orthodox Church in southern Jordan.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/jordan-arrests-terror-attack-church.html
+
 **Eric Bauza, Modern Voice of ‘Looney Toons’ Stars, Dies at 46**\
 `The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
