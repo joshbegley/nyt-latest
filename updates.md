@@ -1,3 +1,11 @@
+**The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
+`Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
+https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
+
+**What to Know About Trump’s Rally in Mississippi**\
+`President Trump will stump for a senator in a state he has won three times by double digits, and as Democrats see a path to victory.`\
+https://www.nytimes.com/2026/10/26/us/trump-rally-mississippi.html
+
 **Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
 `Norwegian officials emphasized that their country does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
 https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
