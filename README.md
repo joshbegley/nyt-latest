@@ -1,3 +1,11 @@
+**Student News Quiz: Latin American Election, Blockbuster Documentary, N.B.A. Season**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/10/26/learning/26studentnewsquiz-ln.html
+
+**Trump Dangles $1 Million Reward for Reporting Voter Fraud**\
+`It was unclear how the president would pay for the proposal, which fused his campaign trail promotion of financial incentives to help his party win and his unfounded warnings about voter fraud.`\
+https://www.nytimes.com/2026/10/26/us/trump-1-million-reward-voter-fraud-tips.html
+
 **France Makes Concessions to Students, but Not Enough to Halt Protests**\
 `The government promised to phase out an unpopular university admissions system by 2028. Student groups are pushing for more.`\
 https://www.nytimes.com/2026/10/26/world/europe/france-student-protests.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-social-me
 https://www.nytimes.com/2026/10/26/briefing/anthropic-ipo-trump-mississippi-campaigning.html
 
 **Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
-`Lawyers for Mr. Comey said that the case centers on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+`Lawyers for James Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
 https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
 
 **Netanyahu Pushed for Attack on Iran Ahead of Israeli Election, Officials Say**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban
 **Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
 `Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
 https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html
-
-**House Democrats Call for Special Counsel to Scrutinize Trump’s Ties to Epstein**\
-`The request comes as Democrats are working to paint Republicans as corrupt and highlight their plans to investigate Trump should they win the midterm elections.`\
-https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.html
-
-**Maurene Comey’s rights were violated when she was fired, a judge ruled.**\
-`Ms. Comey was a highly regarded trial lawyer for the government, handling the prosecutions of Jeffrey Epstein and Sean Combs. A federal judge said the Justice Department violated various laws when they fired her.`\
-https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-ruling.html
 

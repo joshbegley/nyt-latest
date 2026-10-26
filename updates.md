@@ -1,3 +1,7 @@
+**France Makes Concessions to Students, but Not Enough to Halt Protests**\
+`The government promised to phase out an unpopular university admissions system by 2028. Student groups are pushing for more.`\
+https://www.nytimes.com/2026/10/26/world/europe/france-student-protests.html
+
 **Brazil’s Vote Is a Victory for the Amazon, Environmentalists Say**\
 `The re-election of President Luiz Inácio Lula da Silva is expected to lead to continued rainforest protections. His opponent wanted to make it easier to clear land.`\
 https://www.nytimes.com/2026/10/26/climate/brazil-lula-bolsonaro-amazon.html
