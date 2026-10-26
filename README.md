@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Cyclone Arnab**\
+`See the likely path and wind arrival times for Arnab`\
+https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
+
 **Maps: Tracking Tropical Storm Olana**\
 `See the likely path and wind arrival times for Olana`\
 https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.ht
 `A rare joint visit to Tehran is expected by Saudi Arabia, Turkey and Pakistan amid reports that the U.S. and Israel are drawing up plans to renew their war on Iran.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
 
-**Chris Brown Gets Suspended Sentence Over London Nightclub Assault**\
-`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in 2023.`\
+**Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023.`\
 https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
 
 **Musk Is Predicting ‘Guppy-level Death’ for Scores of A.I. Companies**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/well/move/exercise-mindset-advice.html
 **Crowds Celebrate After Serbia’s Nationalist Leader Concedes Defeat**\
 `Celebrations erupted in Belgrade after Aleksandar Vucic, Serbia’s longtime strongman, conceded defeat in the country’s general election.`\
 https://www.nytimes.com/video/world/europe/100000011236309/serbia-election-results-vucic.html
-
-**15-Minute Lesson Plan: Poetry Pairings**\
-`What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
-https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
 
