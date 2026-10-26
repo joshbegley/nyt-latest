@@ -1,3 +1,7 @@
+**This Is Bigger Than Brazil**\
+`Mr. Lula’s victory represents a win for the forces of democracy not only in Brazil, but around the world.`\
+https://www.nytimes.com/2026/10/26/opinion/brazil-election-lula-bolsonaro.html
+
 **Ken Paxton’s State-Funded Jet-Setting Draws Campaign Scrutiny**\
 `Mr. Paxton, the Republican candidate for Senate in Texas, has taken about 350 trips outside of the state since he was sworn in as attorney general.`\
 https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/us/elections/democrats-senate-republicans-mid
 **Democratic Attorneys General Have Defied Trump. Some May Fall on Nov. 3.**\
 `Democratic attorneys general have spearheaded state resistance to President Trump’s policies. But some face tight election races despite polls showing broad voter support for Democrats.`\
 https://www.nytimes.com/2026/10/26/us/elections/state-attorney-general-elections.html
-
-**5 Hotels That Celebrate Music**\
-`From San Antonio to London, hotels are taking the music theme seriously, offering concerts, listening rooms, studios and more.`\
-https://www.nytimes.com/2026/10/26/travel/music-hotels.html
 

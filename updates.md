@@ -1,3 +1,7 @@
+**This Is Bigger Than Brazil**\
+`Mr. Lula’s victory represents a win for the forces of democracy not only in Brazil, but around the world.`\
+https://www.nytimes.com/2026/10/26/opinion/brazil-election-lula-bolsonaro.html
+
 **Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
 `Norwegian officials emphasized that their government does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
 https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
