@@ -1,3 +1,11 @@
+**Eric Bauza, Voice of ‘Looney Toons’ Characters, Dies at 46**\
+`The voice actor brought Bugs Bunny, Daffy Duck and other stars of the long-running cartoon franchise to life.`\
+https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
+
+**The Millions of Israelis in Netanyahu’s Corner**\
+`Despite three disastrous years for Israelis, Prime Minister Benjamin Netanyahu’s core support remains strong.`\
+https://www.nytimes.com/2026/10/26/opinion/israel-elections-netanyahu.html
+
 **Lula Wins Re-election as Bolsonaro Rejects Result**\
 `President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
