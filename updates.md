@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Cyclone Arnab**\
+`See the likely path and wind arrival times for Arnab`\
+https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
+
+**Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
+`The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023.`\
+https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
+
 **Maps: Tracking Tropical Storm Olana**\
 `See the likely path and wind arrival times for Olana`\
 https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
