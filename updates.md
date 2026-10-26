@@ -1,3 +1,7 @@
+**Appeals Court Declines to Intervene in California Ballot Lawsuit**\
+`By a 2-1 vote, a federal appeals court panel denied the Trump administration’s request that it immediately order the state to set aside 20,000 mail-in ballots.`\
+https://www.nytimes.com/2026/10/26/us/politics/appeals-court-california-ballot-suit.html
+
 **Machado’s Return to Venezuela Tests Limits of U.S. Sway**\
 `Seeking new elections, María Corina Machado will need to tread carefully to avoid offending the Trump administration, while also asserting her own leadership.`\
 https://www.nytimes.com/2026/10/26/world/americas/venezuela-machado-rodriguez-trump.html
