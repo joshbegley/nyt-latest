@@ -47,7 +47,7 @@ https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-rulin
 https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
 
 **Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
-`Ms. Comey, the daughter of James B. Comey, was a trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+`At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
 https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
 
 **This Is Bigger Than Brazil**\
