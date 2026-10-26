@@ -1,3 +1,19 @@
+**U.S. Army Trains Apache Helicopter Pilots to Shoot Drones**\
+`The U.S. Army is training Apache pilots to shoot down drones as militaries around the world assess the efficacy of 20th-century technologies in a new era.`\
+https://www.nytimes.com/2026/10/26/world/europe/helicopters-drones-apache-shahed-russia-iran.html
+
+**The $10 Billion Midterm Ad War**\
+`The noise of the midterm elections has exploded into public consciousness after a TV commercial highlighted the two very different stories that Democratic and Republican candidates are telling.`\
+https://www.nytimes.com/2026/10/26/podcasts/the-daily/trump-midterm-campaign-ad-democrats-republicans.html
+
+**Brazil’s Election Defies a Right-Wing Trend, and Trump’s Midterm Attacks Enter a New Phase**\
+`Plus, can a three-hour documentary lead the box office?`\
+https://www.nytimes.com/2026/10/26/podcasts/the-headlines/brazil-election-trumps-midterm-attacks.html
+
+**NYT Connections Answers for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/connections-companion-1234.html
+
 **NYT Strands Hints for October 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
 https://www.nytimes.com/2026/10/26/crosswords/strands-sidekick-968.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-re
 **I Went to India and Found It Has Lessons for Us All**\
 `Young people have revived the country’s glorious tradition of nonviolent dissent.`\
 https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
-
-**The Millions of Israelis in Netanyahu’s Corner**\
-`Despite three disastrous years for Israelis, Prime Minister Benjamin Netanyahu’s core support remains strong.`\
-https://www.nytimes.com/2026/10/26/opinion/israel-elections-netanyahu.html
-
-**‘Minimum Wage,’ and 6 More Shows to Watch on TV This Week**\
-`This new comedy comes to Netflix. And documentaries about Matthew Perry and “SCTV” are on tap.`\
-https://www.nytimes.com/2026/10/26/arts/television/minimum-wage-and-6-more-shows-to-watch-on-tv-this-week.html
-
-**Who Is Netanyahu’s Main Opponent in Israel’s Elections?**\
-`Gadi Eisenkot has emerged as Benjamin Netanyahu’s main opponent in the upcoming elections. The New York Times Jerusalem bureau chief, David Halbfinger, describes why Mr. Eisenkot is resonating with Israeli voters.`\
-https://www.nytimes.com/video/world/asia/100000011222464/who-is-netanyahus-main-opponent-in-israels-elections.html
-
-**Israeli Jews Across the Spectrum Face an Election of Fears**\
-`Supporters and opponents of Prime Minister Benjamin Netanyahu have expressed intense anxieties about isolation abroad, security at home and the future of Israel’s identity.`\
-https://www.nytimes.com/2026/10/26/world/middleeast/israel-election-stakes.html
 

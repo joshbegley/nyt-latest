@@ -1,3 +1,15 @@
+**NYT Strands Hints for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/strands-sidekick-968.html
+
+**Today’s Wordle Hints for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/wordle-review-1956.html
+
+**Eric Bauza, Modern Voice of ‘Looney Tunes’ Stars, Dies at 46**\
+`The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
+https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
+
 **To Work With P.O.W.s, Ukrainians Suppress Feelings About the Enemy**\
 `Much has been said about how Ukraine should treat Russian prisoners of war. Less attention has been paid to the emotional struggle for the Ukrainians tasked with that work.`\
 https://www.nytimes.com/2026/10/26/world/europe/ukraine-russia-pows-prisoners.html

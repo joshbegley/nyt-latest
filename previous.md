@@ -1,3 +1,11 @@
+**NYT Strands Hints for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/strands-sidekick-968.html
+
+**Today’s Wordle Hints for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/wordle-review-1956.html
+
 **To Work With P.O.W.s, Ukrainians Suppress Feelings About the Enemy**\
 `Much has been said about how Ukraine should treat Russian prisoners of war. Less attention has been paid to the emotional struggle for the Ukrainians tasked with that work.`\
 https://www.nytimes.com/2026/10/26/world/europe/ukraine-russia-pows-prisoners.html
@@ -162,7 +170,7 @@ https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-e
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
 
-**Eric Bauza, Modern Voice of ‘Looney Toons’ Stars, Dies at 46**\
+**Eric Bauza, Modern Voice of ‘Looney Tunes’ Stars, Dies at 46**\
 `The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
 
@@ -186,15 +194,7 @@ https://www.nytimes.com/2026/10/26/arts/television/minimum-wage-and-6-more-shows
 `Gadi Eisenkot has emerged as Benjamin Netanyahu’s main opponent in the upcoming elections. The New York Times Jerusalem bureau chief, David Halbfinger, describes why Mr. Eisenkot is resonating with Israeli voters.`\
 https://www.nytimes.com/video/world/asia/100000011222464/who-is-netanyahus-main-opponent-in-israels-elections.html
 
-**Is the Venice Soccer Team Ever Going to Be as Good as It Looks?**\
-`Venezia FC, a historically modest club, has become a fashion sensation. But its performance has struggled to match the off-field hype.`\
-https://www.nytimes.com/2026/10/26/world/europe/venice-soceer.html
-
 **Israeli Jews Across the Spectrum Face an Election of Fears**\
 `Supporters and opponents of Prime Minister Benjamin Netanyahu have expressed intense anxieties about isolation abroad, security at home and the future of Israel’s identity.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/israel-election-stakes.html
-
-**‘Pull Out the Sick Trees’: Xi’s Constant Purges Pave Way for Next Term**\
-`The Chinese leader Xi Jinping, who is likely preparing to secure a fourth term in power in 2027, has complained that officials cannot be trusted.`\
-https://www.nytimes.com/2026/10/26/world/asia/china-communist-party-xi-forever-purge.html
 
