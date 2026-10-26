@@ -1,3 +1,7 @@
+**Who Is Netanyahu’s Main Opponent in Israel’s Elections?**\
+`Gadi Eisenkot has emerged as Benjamin Netanyahu’s main opponent in the upcoming elections. The New York Times Jerusalem bureau chief, David Halbfinger, describes why Mr. Eisenkot is resonating with Israeli voters.`\
+https://www.nytimes.com/video/world/asia/100000011222464/who-is-netanyahus-main-opponent-in-israels-elections.html
+
 **Is the Venice Soccer Team Ever Going to Be as Good as It Looks?**\
 `Venezia FC, a historically modest club, has become a fashion sensation. But its performance has struggled to match the off-field hype.`\
 https://www.nytimes.com/2026/10/26/world/europe/venice-soceer.html
