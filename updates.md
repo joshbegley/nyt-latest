@@ -1,3 +1,15 @@
+**Jane Benson Makes Frankenstein’s Monster Sing**\
+`In the show “her her,” Jane Benson anatomizes Mary Shelley’s novel, highlighting its feminism and creating visual works that are also vocal scores.`\
+https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-art-show.html
+
+**Journalism Essentials: Seeking the Truth ‘Without Fear or Favor’**\
+`We explain a core value of many newsrooms: journalistic independence.`\
+https://www.nytimes.com/2026/10/26/learning/journalism-essentials-seeking-the-truth-without-fear-or-favor.html
+
+**The Key Numbers From Anthropic’s IPO Filing**\
+`We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
+
 **Trump Slings Insults at Norway for Not Winning Nobel Prize**\
 `President Trump disparaged Norway to express his irritation over not winning the Nobel Peace Prize. Norwegian officials have repeatedly stated that they don’t have any influence over the award.`\
 https://www.nytimes.com/video/us/100000011237056/trump-norway-nobel-peace-prize.html
