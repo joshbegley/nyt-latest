@@ -1,3 +1,7 @@
+**Jane Benson Makes Frankenstein’s Monster Sing**\
+`In the show “her her,” Jane Benson anatomizes Mary Shelley’s novel, highlighting its feminism and creating visual works that are also vocal scores.`\
+https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-art-show.html
+
 **Journalism Essentials: Seeking the Truth ‘Without Fear or Favor’**\
 `We explain a core value of many newsrooms: journalistic independence.`\
 https://www.nytimes.com/2026/10/26/learning/journalism-essentials-seeking-the-truth-without-fear-or-favor.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-win-what-
 **U.S. Army Trains Apache Helicopter Pilots to Shoot Drones**\
 `The U.S. Army is training Apache pilots to shoot down drones as militaries around the world assess the efficacy of 20th-century technologies in a new era.`\
 https://www.nytimes.com/2026/10/26/world/europe/helicopters-drones-apache-shahed-russia-iran.html
-
-**The $10 Billion Midterm Ad War**\
-`The noise of the midterm elections has exploded into public consciousness after a TV commercial highlighted the two very different stories that Democratic and Republican candidates are telling.`\
-https://www.nytimes.com/2026/10/26/podcasts/the-daily/trump-midterm-campaign-ad-democrats-republicans.html
 
