@@ -1,3 +1,7 @@
+**Trump Slings Insults at Norway for Not Winning Nobel Prize**\
+`President Trump disparaged Norway to express his irritation over not winning the Nobel Peace Prize. Norwegian officials have repeatedly stated that they don’t have any influence over the award.`\
+https://www.nytimes.com/video/us/100000011237056/trump-norway-nobel-peace-prize.html
+
 **7 Numbers That Explain Anthropic’s Business**\
 `We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-rulin
 https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
 
 **Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
-`At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+`Ms. Comey, the daughter of James Comey, the former director of the F.B.I., worked for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
 https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
 
 **This Is Bigger Than Brazil**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/podcasts/the-daily/trump-midterm-campaign-ad-
 **Brazil’s Election Defies a Right-Wing Trend, and Trump’s Midterm Attacks Enter a New Phase**\
 `Plus, can a three-hour documentary lead the box office?`\
 https://www.nytimes.com/2026/10/26/podcasts/the-headlines/brazil-election-trumps-midterm-attacks.html
-
-**NYT Connections Answers for October 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
-https://www.nytimes.com/2026/10/26/crosswords/connections-companion-1234.html
 
