@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Storm Olana**\
+`See the likely path and wind arrival times for Olana`\
+https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
+
 **Flurry of Diplomacy in Iran Amid Reports of U.S. and Israeli Plans to Renew War**\
 `A rare joint visit to Tehran is expected by Saudi Arabia, Turkey and Pakistan amid reports that the U.S. and Israel are drawing up plans to renew their war on Iran.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011236309/serbia-election-resul
 **15-Minute Lesson Plan: Poetry Pairings**\
 `What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
 https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
-
-**Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
-`Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
-https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
 
