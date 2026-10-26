@@ -1,3 +1,7 @@
+**Musk Is Predicting ‘Guppy-level Death’ for Scores of A.I. Companies**\
+`Elon Musk sees many artificial-intelligence infrastructure companies being shut out of the debt market, a warning that could weigh on markets.`\
+https://www.nytimes.com/2026/10/26/business/dealbook/musk-ai-credit-shakeout.html
+
 **Israel’s Future**\
 `We look at what’s at stake in tomorrow’s elections.`\
 https://www.nytimes.com/2026/10/26/briefing/israels-future.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-e
 **NYT Spelling Bee Answers for October 26, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
-
-**Eric Bauza, Modern Voice of ‘Looney Tunes’ Stars, Dies at 46**\
-`The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
-https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
 
