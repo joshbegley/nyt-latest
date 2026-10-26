@@ -1,3 +1,7 @@
+**What to Know About Lula’s Election Victory in Brazil, and What Comes Next**\
+`President Luiz Inácio Lula da Silva won a fourth term, halting a string of conservative victories in Latin America. His opponent disputed the result.`\
+https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-win-what-to-know.html
+
 **U.S. Army Trains Apache Helicopter Pilots to Shoot Drones**\
 `The U.S. Army is training Apache pilots to shoot down drones as militaries around the world assess the efficacy of 20th-century technologies in a new era.`\
 https://www.nytimes.com/2026/10/26/world/europe/helicopters-drones-apache-shahed-russia-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
 **Brazil Election Results in Maps: How Lula Came Back**\
 `Maps show where Brazil’s progressive president surged ahead to win re-election, a dramatic reversal from the first round of voting.`\
 https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-results-maps.html
-
-**I Went to India and Found It Has Lessons for Us All**\
-`Young people have revived the country’s glorious tradition of nonviolent dissent.`\
-https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
 
