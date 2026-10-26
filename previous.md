@@ -1,3 +1,7 @@
+**Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
+`At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
+
 **This Is Bigger Than Brazil**\
 `Mr. Lula’s victory represents a win for the forces of democracy not only in Brazil, but around the world.`\
 https://www.nytimes.com/2026/10/26/opinion/brazil-election-lula-bolsonaro.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/opinion/how-trump-unwittingly-boosted-green-e
 **In Fight for the Senate, Democrats Face a Once-in-a-Generation Test**\
 `Democrats are targeting G.O.P. strongholds that could set them up for new majorities. But if they don’t win those races now, it could be a long time before they have another chance.`\
 https://www.nytimes.com/2026/10/26/us/elections/democrats-senate-republicans-midterms.html
-
-**Democratic Attorneys General Have Defied Trump. Some May Fall on Nov. 3.**\
-`Democratic attorneys general have spearheaded state resistance to President Trump’s policies. But some face tight election races despite polls showing broad voter support for Democrats.`\
-https://www.nytimes.com/2026/10/26/us/elections/state-attorney-general-elections.html
 
