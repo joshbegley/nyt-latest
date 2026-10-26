@@ -1,3 +1,7 @@
+**California’s Potential Quartz Ban Pushes Contractors and Retailers to Alternatives**\
+`Manufacturers and their customers are using materials made without the clouds of dust that have sickened workers in quartz-cutting shops.`\
+https://www.nytimes.com/2026/10/26/business/economy/california-quartz-countertop-ban-alternatives.html
+
 **DraftKings Faces Growing Pressure Over How It Targets Customers**\
 `In Congress and in several states, officials have been questioning online gambling companies about their use of artificial intelligence.`\
 https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumenthal.html
@@ -16,7 +20,7 @@ https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
 
 **Brazilian Markets Convulse After Unexpected Election Result**\
 `President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
-https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
+https://www.nytimes.com/2026/10/26/business/brazil-stock-markets-election-lula.html
 
 **Meet Anthropic’s Seven Founders**\
 `Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
 `See the likely path and wind arrival times for Arnab`\
 https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
 
-**Maps: Tracking Tropical Storm Olana**\
+**Maps: Tracking Tropical Depression Olana**\
 `See the likely path and wind arrival times for Olana`\
 https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/arts/music/lincoln-in-the-bardo-mazzoli-porta
 **The Man Who Gets the World’s Most Famous Women to Dish**\
 `What do Kim Kardashian, Oprah Winfrey, Lady Gaga, Jill Biden and many others have in common? They’ve all opened up to Jonathan Van Meter, who sees his job as “celebrating” his subjects.`\
 https://www.nytimes.com/2026/10/26/style/jonathan-van-meter-kim-kardashian-book.html
-
-**Bridges Still Destroyed Years After Hurricane**\
-`When Hurricane Helene hit western North Carolina in 2024, hundreds of households lost the private bridges they rely on to access their homes. Two years later, only 44 bridges have been rebuilt by the state. Our reporter Eduardo Medina takes us there.`\
-https://www.nytimes.com/video/us/100000011153947/north-carolina-bridges-destroyed-hurricane-helene.html
 

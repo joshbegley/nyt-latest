@@ -1,3 +1,7 @@
+**Brazilian Markets Convulse After Unexpected Election Result**\
+`President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
+https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
+
 **DraftKings Faces Growing Pressure Over How It Targets Customers**\
 `In Congress and in several states, officials have been questioning online gambling companies about their use of artificial intelligence.`\
 https://www.nytimes.com/2026/10/26/business/draftkings-new-york-louisiana-blumenthal.html
