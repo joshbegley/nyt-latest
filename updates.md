@@ -1,3 +1,11 @@
+**Brazilians React to Lula’s Election Victory Over Bolsonaro**\
+`Supporters of President Luiz Inácio Lula da Silva celebrated his re-election in Brazil. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
+https://www.nytimes.com/video/world/americas/100000011236847/brazil-election-lula-bolsonaro-reaction.html
+
+**Israel Has Committed Genocidal Acts in Gaza Since Cease-Fire, U.N. Human Rights Panel Says**\
+`The panel also accuses Israel of committing crimes against humanity in the West Bank. Israel condemned the report.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/un-human-rights-panel-israel-palestinians.html
+
 **Civilian Suffering Was Goal of Russian Strikes in Ukraine, U.N. Panel Says**\
 `The assaults on infrastructure, which cut off heat and power on bitterly cold winter days, amounted to a crime against humanity, investigators said.`\
 https://www.nytimes.com/2026/10/26/world/europe/russia-ukraine-energy-strikes-un.html
