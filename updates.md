@@ -1,3 +1,11 @@
+**Anthropic’s IPO S-1 Spells Out a Future of Promise and Peril**\
+`The A.I. company took great pains to describe the many benefits that can come from using its Claude chatbot and technology, but also offered up a heavy dose of gloom.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
+
+**Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
+`Ahead of what could be the largest public listing ever, Anthropic said revenue soared to $16.3 billion in the first half of the year, and it planned to spend $807 billion on A.I. infrastructure.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
+
 **Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
 `Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
 https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html

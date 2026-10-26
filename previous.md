@@ -1,3 +1,7 @@
+**Anthropic’s IPO S-1 Spells Out a Future of Promise and Peril**\
+`The A.I. company took great pains to describe the many benefits that can come from using its Claude chatbot and technology, but also offered up a heavy dose of gloom.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
+
 **Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
 `Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
 https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
@@ -119,7 +123,7 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
 https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
 
 **Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
-`Anthropic said revenue soared to $16.3 billion in the first half of the year, ahead of what could be the largest ever public listing. But questions remain about whether the A.I. boom can be sustained.`\
+`Ahead of what could be the largest public listing ever, Anthropic said revenue soared to $16.3 billion in the first half of the year, and it planned to spend $807 billion on A.I. infrastructure.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
 
 **Maps: Tracking Tropical Cyclone Arnab**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/us/politics/darline-graham-data-centers-south
 **Alexander Skarsgard and Olivia Colman on the Joy of a Wicker Husband**\
 `Is the male love interest the answer to toxic masculinity? The actors contemplate that prospect and the challenges of creating a very adult fable.`\
 https://www.nytimes.com/2026/10/26/movies/wicker-movie-alexander-skarsgard-olivia-colman.html
-
-**Republican Greed Will Backfire in North Carolina’s Midterm Elections**\
-`Why the Tar Heel State is giving me hope for the future`\
-https://www.nytimes.com/2026/10/26/opinion/north-carolina-midterms-republicans.html
 
