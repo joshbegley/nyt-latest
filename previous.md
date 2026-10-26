@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/26/movies/wicker-movie-alexander-skarsgard-olivi
 `Why the Tar Heel State is giving me hope for the future`\
 https://www.nytimes.com/2026/10/26/opinion/north-carolina-midterms-republicans.html
 
-**Penn Jillette: Bob Saget Was as Beautiful as His Comedy Was Filthy**\
-`The magician and comedian reflects on what he wrote in The Times about Bob Saget’s death.`\
-https://www.nytimes.com/2026/10/26/opinion/penn-jillette-bob-saget-nyt-175.html
-
