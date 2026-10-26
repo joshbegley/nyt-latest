@@ -1,3 +1,15 @@
+**I Went to India and Found It Has Lessons for Us All**\
+`Young people have revived the country’s glorious tradition of nonviolent dissent.`\
+https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
+
+**How Netanyahu Could Cling to Power**\
+`Despite three disastrous years for Israelis, Prime Minister Benjamin Netanyahu’s core support remains strong.`\
+https://www.nytimes.com/2026/10/26/opinion/israel-elections-netanyahu.html
+
+**‘Minimum Wage,’ and 6 More Shows to Watch on TV This Week**\
+`This new comedy comes to Netflix. And documentaries about Matthew Perry and “SCTV” are on tap.`\
+https://www.nytimes.com/2026/10/26/arts/television/minimum-wage-and-6-more-shows-to-watch-on-tv-this-week.html
+
 **Who Is Netanyahu’s Main Opponent in Israel’s Elections?**\
 `Gadi Eisenkot has emerged as Benjamin Netanyahu’s main opponent in the upcoming elections. The New York Times Jerusalem bureau chief, David Halbfinger, describes why Mr. Eisenkot is resonating with Israeli voters.`\
 https://www.nytimes.com/video/world/asia/100000011222464/who-is-netanyahus-main-opponent-in-israels-elections.html
