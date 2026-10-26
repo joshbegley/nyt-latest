@@ -1,3 +1,11 @@
+**Controversies in the Ohio and Alaska Races**\
+`About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
+https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
+
+**Book Review: ‘Morel’s Invention,’ by Adolfo Bioy Casares**\
+`“Morel’s Invention,” by Adolfo Bioy Casares, explores ideas that are quickly becoming daily realities.`\
+https://www.nytimes.com/2026/10/26/books/review/adolfo-bioy-casares-morels-invention.html
+
 **Share Your Hidden Gems With The Local: Twin Cities**\
 `What’s an underappreciated spot in the Twin Cities? We want to hear from you.`\
 https://www.nytimes.com/2026/10/26/briefing/hidden-gems-local-twin-cities.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/realestate/on-spains-costa-brava-a-wall-of-gl
 **Who’s Winning the Race for Congress?**\
 `It’s Oct. 26 — eight days from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/10/26/us/politics/whos-winning-the-race-for-congress.html
-
-**Book Review: ‘The Brightness,’ by Chad Harbach**\
-`Chad Harbach’s “The Brightness” explores the fraught politics of college life and the precarious years that come after it.`\
-https://www.nytimes.com/2026/10/26/books/review/chad-harbach-the-brightness.html
-
-**Neutrinos Are Everywhere. A Physicist Explains.**\
-`Dr. Francis Halzen, the recipient of the Nobel Prize in Physics, sheds some light on the mysterious, subatomic particles that whiz through us everyday.`\
-https://www.nytimes.com/2026/10/26/style/neutrinos-francis-halzen-interview.html
 

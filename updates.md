@@ -1,3 +1,11 @@
+**Controversies in the Ohio and Alaska Races**\
+`About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
+https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
+
+**Book Review: ‘Morel’s Invention,’ by Adolfo Bioy Casares**\
+`“Morel’s Invention,” by Adolfo Bioy Casares, explores ideas that are quickly becoming daily realities.`\
+https://www.nytimes.com/2026/10/26/books/review/adolfo-bioy-casares-morels-invention.html
+
 **Share Your Hidden Gems With The Local: Twin Cities**\
 `What’s an underappreciated spot in the Twin Cities? We want to hear from you.`\
 https://www.nytimes.com/2026/10/26/briefing/hidden-gems-local-twin-cities.html
