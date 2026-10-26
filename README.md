@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/10/25/us/politics/peltola-automobile-collision-camp
 `At Target Margin Theater, a collaboration between Westwood, a choreographer, and Negrón, a composer, had its premiere, but both sides seemed hemmed in.`\
 https://www.nytimes.com/2026/10/25/arts/dance/review-adrienne-westwood-and-angelica-negron-target-margin-theater.html
 
-**Brazil Live Updates: Lula Wins Re-election as Bolsonaro Rejects Result**\
+**Lula Wins Re-election as Bolsonaro Rejects Result**\
 `President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
 

@@ -1,3 +1,7 @@
+**Brazil Election Results in Maps: How Lula Came Back**\
+`Maps show where Brazil’s progressive president surged ahead to win re-election, a dramatic reversal from the first round of voting.`\
+https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-results-maps.html
+
 **Brazil Live Updates: Lula Wins Re-election as Bolsonaro Rejects Result**\
 `President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
