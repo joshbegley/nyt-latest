@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-e
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
 
-**Eric Bauza, Voice of ‘Looney Toons’ Characters, Dies at 46**\
-`The voice actor brought Bugs Bunny, Daffy Duck and other stars of the long-running cartoon franchise to life.`\
+**Eric Bauza, Modern Voice of ‘Looney Toons’ Stars, Dies at 46**\
+`The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
 
 **Brazil Election Results in Maps: How Lula Came Back**\
