@@ -1,3 +1,7 @@
+**Live Updates: Brazil Re-Elects Lula, Rejecting Predecessor’s Son**\
+`President Luiz Inácio Lula da Silva fended off a right-wing movement led by Flávio Bolsonaro, whose father was convicted of a coup attempt after the 2022 election. Transportation delays and bad weather disrupted Election Day.`\
+https://www.nytimes.com/live/2026/10/25/world/brazil-election
+
 **How Obama and Trump Made their Cases in Dueling Midterm Speeches**\
 `At rallies this weekend, Mr. Obama and Mr. Trump delivered two starkly contrasting pitches, differing in style and substance.`\
 https://www.nytimes.com/2026/10/25/us/politics/obama-trump-competing-rallies-midterms.html
