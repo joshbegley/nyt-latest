@@ -1,3 +1,11 @@
+**New Yorkers, Where’s the Best Place to Cry in the City?**\
+`To help us report an upcoming article, we want to hear about all the places you’ve cried — subways, sidewalks, stoops, saunas and beyond.`\
+https://www.nytimes.com/2026/10/26/nyregion/new-yorkers-whats-the-best-place-to-cry-in-the-city.html
+
+**The Local: New Q in town**\
+`Also, what a new Timberwolves arena could mean for Minneapolis.`\
+https://www.nytimes.com/2026/10/26/briefing/q-minnesota.html
+
 **How Scuffles at Trump Rallies Echo His Past Events**\
 `Examining President Trump’s praise of a rallygoer who punched a protester last week, David E. Sanger, a White House and national security correspondent for The New York Times, studied the atmosphere at Mr. Trump’s recent events. What he found was a faint echo of the moments that made Mr. Trump’s 2016 rallies so shocking.`\
 https://www.nytimes.com/video/us/politics/100000011231247/how-scuffles-at-trump-rallies-echo-his-past-events.html
