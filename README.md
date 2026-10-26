@@ -1,3 +1,7 @@
+**Questions for Reporters**\
+`Have questions for reporters at The New York Times? We’ll help get them answered.`\
+https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html
+
 **Election Surprises**\
 `Serbia and Brazil are very different countries. But their unexpected election results tell us a lot.`\
 https://www.nytimes.com/2026/10/26/world/brazil-serbia-election-results-anthropic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/us/trump-rally-mississippi.html
 **Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
 `Norwegian officials emphasized that their government does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
 https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
-
-**Brazilian Markets Convulse After Unexpected Election Result**\
-`President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
-https://www.nytimes.com/2026/10/26/business/brazil-stock-markets-election-lula.html
 
