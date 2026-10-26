@@ -1,3 +1,7 @@
+**Last Ditch, a Lesbian Bar Whose Mask Policy Made It Famous, Will Close**\
+`The Massachusetts bar, which catered to lesbians, lifted its Covid mask requirement once a week to attract more patrons. The decision brought criticism and national attention, but did not save the business.`\
+https://www.nytimes.com/2026/10/26/us/last-ditch-lesbian-bar-closing.html
+
 **Chocolate-Peanut Butter Swirl Cookies**\
 `These are like those three-ingredient peanut butter cookies everyone loves, but with a little cocoa powder and bittersweet chocolate thrown in to make them fancy.`\
 https://www.nytimes.com/video/dining/100000011237362/chocolate-peanut-butter-swirl-cookies.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
 **Maps: Tracking Tropical Cyclone Arnab**\
 `See the likely path and wind arrival times for Arnab`\
 https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
-
-**Maps: Tracking Tropical Depression Olana**\
-`See the likely path and wind arrival times for Olana`\
-https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
 
