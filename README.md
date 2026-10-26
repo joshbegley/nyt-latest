@@ -6,7 +6,7 @@ https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-re
 `Young people have revived the country’s glorious tradition of nonviolent dissent.`\
 https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
 
-**How Netanyahu Could Cling to Power**\
+**The Millions of Israelis in Netanyahu’s Corner**\
 `Despite three disastrous years for Israelis, Prime Minister Benjamin Netanyahu’s core support remains strong.`\
 https://www.nytimes.com/2026/10/26/opinion/israel-elections-netanyahu.html
 
