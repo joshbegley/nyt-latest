@@ -1,3 +1,27 @@
+**Darline Graham Gets Help From the Data Center Industry in South Carolina Senate Race**\
+`As political fights over artificial intelligence accelerate, there is now a super PAC aligned with the data center industry. Its first bet is on Ms. Graham, a Republican in an unexpectedly tight race.`\
+https://www.nytimes.com/2026/10/26/us/politics/darline-graham-data-centers-south-carolina.html
+
+**Alexander Skarsgard and Olivia Colman on the Joy of a Wicker Husband**\
+`Is the male love interest the answer to toxic masculinity? The actors contemplate that prospect and the challenges of creating a very adult fable.`\
+https://www.nytimes.com/2026/10/26/movies/wicker-movie-alexander-skarsgard-olivia-colman.html
+
+**Republican Greed Will Backfire in North Carolina’s Midterm Elections**\
+`Why the Tar Heel State is giving me hope for the future`\
+https://www.nytimes.com/2026/10/26/opinion/north-carolina-midterms-republicans.html
+
+**Penn Jillette: Bob Saget Was as Beautiful as His Comedy Was Filthy**\
+`The magician and comedian reflects on what he wrote in The Times about Bob Saget’s death.`\
+https://www.nytimes.com/2026/10/26/opinion/penn-jillette-bob-saget-nyt-175.html
+
+**How New York City’s ‘Furniture Queen’ Lives on $48,630 in the Bronx**\
+`By day, Regina Carter works for the city. By night, she canvasses convention centers and closed businesses to find goods that she can donate to neighbors in need.`\
+https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-budgeting-affordability-carter.html
+
+**On Spain’s Costa Brava, a Wall of Glass Opens to the Sea**\
+`When a second home became a primary home, a couple looked abroad for a new part-time abode that would be just big enough.`\
+https://www.nytimes.com/2026/10/26/realestate/on-spains-costa-brava-a-wall-of-glass-opens-to-the-sea.html
+
 **Who’s Winning the Race for Congress?**\
 `It’s Oct. 26 — eight days from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/10/26/us/politics/whos-winning-the-race-for-congress.html
@@ -173,20 +197,4 @@ https://www.nytimes.com/2026/10/26/learning/from-the-front-page-on-oct-26-1994-i
 **In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
 `The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
 https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
-
-**How Obama and Trump Made their Cases in Dueling Midterm Speeches**\
-`At rallies this weekend, Mr. Obama and Mr. Trump delivered two starkly contrasting pitches, differing in style and substance.`\
-https://www.nytimes.com/2026/10/25/us/politics/obama-trump-competing-rallies-midterms.html
-
-**Appeals Court Appears to Doubt Justice Dept. Claims in California Ballot Case**\
-`A federal appeals court panel seemed disinclined to order the state to set aside as many as 20,000 mail-in ballots the Trump administration claimed were sent to noncitizens.`\
-https://www.nytimes.com/2026/10/25/us/elections/midterms-california-mail-ballots-trump.html
-
-**Aleksandar Vucic Concedes Defeat in Serbian Election**\
-`“It is clear that we have lost these elections,” Aleksandar Vucic said in a surprisingly early speech congratulating his opponents.`\
-https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html
-
-**Lula Wins Re-election as Bolsonaro Rejects Result**\
-`President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
-https://www.nytimes.com/live/2026/10/25/world/brazil-election
 
