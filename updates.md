@@ -1,3 +1,19 @@
+**Is the Venice Soccer Team Ever Going to Be as Good as It Looks?**\
+`Venezia FC, a historically modest club, has become a fashion sensation. But its performance has struggled to match the off-field hype.`\
+https://www.nytimes.com/2026/10/26/world/europe/venice-soceer.html
+
+**Israeli Jews Across the Spectrum Face an Election of Fears**\
+`Supporters and opponents of Prime Minister Benjamin Netanyahu have expressed intense anxieties about isolation abroad, security at home and the future of Israel’s identity.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/israel-election-stakes.html
+
+**‘Pull Out the Sick Trees’: Xi’s Constant Purges Pave Way for Next Term**\
+`The Chinese leader Xi Jinping, who is likely preparing to secure a fourth term in power in 2027, has complained that officials cannot be trusted.`\
+https://www.nytimes.com/2026/10/26/world/asia/china-communist-party-xi-forever-purge.html
+
+**From the Front Page: On Oct. 26, 1994, Israel and Jordan Sign a Peace Treaty**\
+`In 1994, Prime Minister Yitzhak Rabin of Israel and Prime Minister Abdel Salam Majali of Jordan signed the Israel-Jordan peace accord at a ceremony attended by President Bill Clinton.`\
+https://www.nytimes.com/2026/10/26/learning/from-the-front-page-on-oct-26-1994-israel-and-jordan-sign-a-peace-treaty.html
+
 **In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
 `The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
 https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
