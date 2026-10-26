@@ -1,3 +1,11 @@
+**Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
+`Norwegian officials emphasized that their government does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
+https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
+
+**The Midterms Are Next Week. Here’s Who We Think Will Win.**\
+`It’s crunch time and still looking bullish for Democrats.`\
+https://www.nytimes.com/interactive/2026/10/26/opinion/midterms-pollsters-pundits-scorecard-october.html
+
 **Ken Paxton’s State-Funded Jet-Setting Draws Campaign Scrutiny**\
 `Mr. Paxton, the Republican candidate for Senate in Texas, has taken about 350 trips outside of the state since he was sworn in as attorney general.`\
 https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html

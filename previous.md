@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.ht
 https://www.nytimes.com/2026/10/26/us/trump-rally-mississippi.html
 
 **Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
-`Norwegian officials emphasized that their country does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
+`Norwegian officials emphasized that their government does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
 https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
 
 **Brazilian Markets Convulse After Unexpected Election Result**\
@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-going-public-stakes.html
 `A.I. will reshape our world. But does that mean the people who make the technology get to control our imagination, too?`\
 https://www.nytimes.com/2026/10/26/magazine/how-silicon-valley-stole-the-future.html
 
-**Is a Blue Wave Coming? 6 Pollsters and Pundits Offer Their Best Guesses.**\
+**The Midterms Are Next Week. Here’s Who We Think Will Win.**\
 `It’s crunch time and still looking bullish for Democrats.`\
 https://www.nytimes.com/interactive/2026/10/26/opinion/midterms-pollsters-pundits-scorecard-october.html
 
