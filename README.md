@@ -1,3 +1,11 @@
+**The Storm Wrecked Their Bridges. ‘All That Red Tape’ Left Them Stranded.**\
+`Hundreds of households in North Carolina remain without a private bridge two years after Hurricane Helene. Many are frustrated by a state program’s progress.`\
+https://www.nytimes.com/2026/10/26/us/north-carolina-hurricane-helene-bridges.html
+
+**What to Know About Trump’s Rally in Mississippi**\
+`President Trump will stump for a senator in a state he has won three times by double digits, and as Democrats see a path to victory.`\
+https://www.nytimes.com/2026/10/26/us/trump-rally-mississippi.html
+
 **Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
 `Norwegian officials emphasized that their country does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
 https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011153947/north-carolina-bridges-destroye
 **Shiny Glass Skyscrapers Are a Hot Thing. Literally.**\
 `They’re transforming cities with million-dollar views and a message of modernity. But climate change makes cooling them tricky and costly.`\
 https://www.nytimes.com/2026/10/26/climate/glass-skyscrapers-heat-climate-change.html
-
-**What Happened to the Neanderthals?**\
-`Scientists now know that they shared many of the sophisticated abilities of Homo sapiens. So why are we the only humans left standing?`\
-https://www.nytimes.com/2026/10/26/science/what-happened-to-the-neanderthals.html
-
-**Why Some People Are Paying to Make Friends**\
-`Apps that match personalities — for a price — have surged in popularity amid a loneliness epidemic.`\
-https://www.nytimes.com/2026/10/26/business/why-some-people-are-paying-to-make-friends.html
 

@@ -1,3 +1,7 @@
+**Norway Pushes Back After Trump Disparages It Over Nobel Prize Decision**\
+`Norwegian officials emphasized that their country does not have any influence over who receives the Peace Prize, after President Trump used crude language to express his frustration.`\
+https://www.nytimes.com/2026/10/26/world/europe/trump-norway-nobel-prize.html
+
 **Brazilian Markets Convulse After Unlikely Election Result**\
 `President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
 https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
