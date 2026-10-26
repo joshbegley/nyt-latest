@@ -1,3 +1,7 @@
+**To Work With P.O.W.s, Ukrainians Suppress Feelings About the Enemy**\
+`Much has been said about how Ukraine should treat Russian prisoners of war. Less attention has been paid to the emotional struggle for the Ukrainians tasked with that work.`\
+https://www.nytimes.com/2026/10/26/world/europe/ukraine-russia-pows-prisoners.html
+
 **Jordan Arrests 3 in Connection With Church Attack, State Media Reports**\
 `Nine people were killed and dozens were wounded in the attack last week on a Greek Orthodox Church in southern Jordan.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/jordan-arrests-terror-attack-church.html

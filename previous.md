@@ -1,3 +1,7 @@
+**To Work With P.O.W.s, Ukrainians Suppress Feelings About the Enemy**\
+`Much has been said about how Ukraine should treat Russian prisoners of war. Less attention has been paid to the emotional struggle for the Ukrainians tasked with that work.`\
+https://www.nytimes.com/2026/10/26/world/europe/ukraine-russia-pows-prisoners.html
+
 **Jordan Arrests 3 in Connection With Church Attack, State Media Reports**\
 `Nine people were killed and dozens were wounded in the attack last week on a Greek Orthodox Church in southern Jordan.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/jordan-arrests-terror-attack-church.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/world/middleeast/israel-election-stakes.html
 **‘Pull Out the Sick Trees’: Xi’s Constant Purges Pave Way for Next Term**\
 `The Chinese leader Xi Jinping, who is likely preparing to secure a fourth term in power in 2027, has complained that officials cannot be trusted.`\
 https://www.nytimes.com/2026/10/26/world/asia/china-communist-party-xi-forever-purge.html
-
-**From the Front Page: On Oct. 26, 1994, Israel and Jordan Sign a Peace Treaty**\
-`In 1994, Prime Minister Yitzhak Rabin of Israel and Prime Minister Abdel Salam Majali of Jordan signed the Israel-Jordan peace accord at a ceremony attended by President Bill Clinton.`\
-https://www.nytimes.com/2026/10/26/learning/from-the-front-page-on-oct-26-1994-israel-and-jordan-sign-a-peace-treaty.html
 
