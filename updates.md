@@ -1,3 +1,15 @@
+**Student News Quiz: Latin American Election, Blockbuster Documentary, N.B.A. Season**\
+`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/10/26/learning/26studentnewsquiz-ln.html
+
+**Trump Dangles $1 Million Reward for Reporting Voter Fraud**\
+`It was unclear how the president would pay for the proposal, which fused his campaign trail promotion of financial incentives to help his party win and his unfounded warnings about voter fraud.`\
+https://www.nytimes.com/2026/10/26/us/trump-1-million-reward-voter-fraud-tips.html
+
+**Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
+`Lawyers for James Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
+
 **France Makes Concessions to Students, but Not Enough to Halt Protests**\
 `The government promised to phase out an unpopular university admissions system by 2028. Student groups are pushing for more.`\
 https://www.nytimes.com/2026/10/26/world/europe/france-student-protests.html
