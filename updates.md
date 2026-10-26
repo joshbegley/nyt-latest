@@ -1,3 +1,7 @@
+**In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
+`The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
+https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
+
 **Brazil Live Updates: Lula Wins Re-Election as Bolsonaro Rejects Result**\
 `President Luiz Inácio Lula da Silva’s win ended a string of conservative victories in Latin America. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
 https://www.nytimes.com/live/2026/10/25/world/brazil-election
