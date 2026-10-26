@@ -1,3 +1,27 @@
+**Chocolate-Peanut Butter Swirl Cookies**\
+`These are like those three-ingredient peanut butter cookies everyone loves, but with a little cocoa powder and bittersweet chocolate thrown in to make them fancy.`\
+https://www.nytimes.com/video/dining/100000011237362/chocolate-peanut-butter-swirl-cookies.html
+
+**Pumpkin Chocoflan**\
+`The beloved Mexican classic chocoflan is a fantastic make-ahead centerpiece, and this seasonal variation, featuring creamy spiced pumpkin custard and a rich chocolate-pumpkin sponge, makes for a spectacular fall showstopper.`\
+https://www.nytimes.com/video/dining/100000011237346/pumpkin-chocoflan.html
+
+**Extra-Crispy Brussels Sprouts**\
+`While nothing compares to the crackle of restaurant-made, deep-fried brussels sprouts, these get satisfyingly close.`\
+https://www.nytimes.com/video/dining/100000011237409/extra-crispy-brussels-sprouts.html
+
+**Chile Crisp Snack Mix**\
+`This unstoppable snack mix effortlessly blends crunchy grocery standbys like cheese crackers, peanuts and rice cereal with staples of the Asian American pantry: soy sauce, black vinegar, chile crisp, dried seaweed and sweet chili sauce.`\
+https://www.nytimes.com/video/dining/100000011237355/chile-crisp-snack-mix.html
+
+**Spicy and Creamy Cashew Chicken Salad**\
+`Chicken salad can often veer a little heavy, weighed down by too much mayonnaise or a dressing that dulls everything it touches. This one takes a different approach: Cashew butter gives the dressing a creamy body, while soy sauce, fresh lemon juice and a little honey keep it bright, salty and lively.`\
+https://www.nytimes.com/video/dining/100000011222982/spicy-and-creamy-cashew-chicken-salad.html
+
+**Elaine de Kooning Gets Her Time in the Spotlight**\
+`A show at the Berry Campbell gallery in Manhattan offers a rare extensive examination of work by the artist, whose reputation has always been complicated by that of her famous husband.`\
+https://www.nytimes.com/2026/10/26/arts/design/elaine-de-kooning-berry-campbell-exhibition.html
+
 **Jane Benson Makes Frankenstein’s Monster Sing**\
 `In the show “her her,” Jane Benson anatomizes Mary Shelley’s novel, highlighting its feminism and creating visual works that are also vocal scores.`\
 https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-art-show.html
