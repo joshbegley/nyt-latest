@@ -1,3 +1,19 @@
+**Israelis Have Chosen to Be Feared, Not Loved**\
+`Israelis care more about what their country’s enemies think than their friends.`\
+https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
+
+**After Weekend Rape in Central Park, Police Step Up Patrols**\
+`The victim, a 39-year-old woman, was attacked at knife point on Saturday night. Her assailant remains at large.`\
+https://www.nytimes.com/2026/10/26/nyregion/rape-central-park-police.html
+
+**Bob Woodward Criticizes Jeff Bezos in New Memoir**\
+`Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
+https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
+
+**Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
+`Lawyers for James B. Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
+
 **Ohio State Professor Who Tackled a Filmmaker on Campus Resigns**\
 `The professor, Luke M. Perez, taught at the university’s civics center. He wrestled down a documentary filmmaker who was trying to question the university’s former president.`\
 https://www.nytimes.com/2026/10/26/us/ohio-state-professor-tackled-filmmaker-resignation.html
