@@ -126,13 +126,13 @@ https://www.nytimes.com/2026/10/26/business/why-some-people-are-paying-to-make-f
 `The National Ballet of Canada celebrates a landmark anniversary with solid accomplishments, a new leader and some of its founder’s original chutzpah.`\
 https://www.nytimes.com/2026/10/26/arts/dance/national-ballet-canada-75-anniversary.html
 
-**For Senegalese Street Vendors in New York, ‘Work Is Worship’**\
-`Struggling to find steady work, many migrants who have arrived recently from Senegal have adapted with a relentless sidewalk hustle, sustaining their families through street vending.`\
-https://www.nytimes.com/2026/10/26/nyregion/senegal-nyc-street-vendors-immigration.html
-
 **‘Donnie Darko’ Oral History: A Mind-Twisting Cult Classic Turns 25**\
 `Jake Gyllenhaal, Seth Rogen and others explain how an audacious 2001 sci-fi indie flop overcame early disaster to become a phenomenon.`\
 https://www.nytimes.com/2026/10/26/movies/donnie-darko-oral-history-25-year-anniversary.html
+
+**For Senegalese Street Vendors in New York, ‘Work Is Worship’**\
+`Struggling to find steady work, many migrants who have arrived recently from Senegal have adapted with a relentless sidewalk hustle, sustaining their families through street vending.`\
+https://www.nytimes.com/2026/10/26/nyregion/senegal-nyc-street-vendors-immigration.html
 
 **How to Embrace a Fitness Mind-Set**\
 `To build an effective workout habit, you have to start by changing how you see yourself.`\
