@@ -1,3 +1,11 @@
+**Walter Koenig Has Died at 90. He Played Chekov on ‘Star Trek.’**\
+`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films.`\
+https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
+
+**Serbia’s Election Shows New Vulnerability for Nationalist Populists**\
+`In much of Europe, the advance of the right has been seen as unstoppable. But in the east, nationalists are being cast aside in places where they long governed.`\
+https://www.nytimes.com/2026/10/26/world/europe/serbia-election-vucic-nationalist-populists.html
+
 **Controversies in the Ohio and Alaska Races**\
 `About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
 https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/opinion/penn-jillette-bob-saget-nyt-175.html
 **How New York City’s ‘Furniture Queen’ Lives on $48,630 in the Bronx**\
 `By day, Regina Carter works for the city. By night, she canvasses convention centers and closed businesses to find goods that she can donate to neighbors in need.`\
 https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-budgeting-affordability-carter.html
-
-**On Spain’s Costa Brava, a Wall of Glass Opens to the Sea**\
-`When a second home became a primary home, a couple looked abroad for a new part-time abode that would be just big enough.`\
-https://www.nytimes.com/2026/10/26/realestate/on-spains-costa-brava-a-wall-of-glass-opens-to-the-sea.html
-
-**Who’s Winning the Race for Congress?**\
-`It’s Oct. 26 — eight days from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/10/26/us/politics/whos-winning-the-race-for-congress.html
 
