@@ -1,3 +1,7 @@
+**Brazil’s Vote Is a Victory for the Amazon, Environmentalists Say**\
+`The re-election of President Luiz Inácio Lula da Silva is expected to lead to continued rainforest protections. His opponent wanted to make it easier to clear land.`\
+https://www.nytimes.com/2026/10/26/climate/brazil-lula-bolsonaro-amazon.html
+
 **The Other Dan Sullivan Fires Back at Trump’s Lawsuit in Alaska**\
 `Dan Sullivan, a schoolteacher, has the same name as a Republican senator in Alaska. He said that a pre-emptive lawsuit challenging the results was “a gross misuse of the Justice Department.”`\
 https://www.nytimes.com/2026/10/26/us/teacher-alaska-senate-trump-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-rulin
 **Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
 `Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
 https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
-
-**Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
-`Ms. Comey, the daughter of James Comey, the former director of the F.B.I., worked for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
-https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
 

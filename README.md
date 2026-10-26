@@ -1,3 +1,7 @@
+**France Makes Concessions to Students, but Not Enough to Halt Protests**\
+`The government promised to phase out an unpopular university admissions system by 2028. Student groups are pushing for more.`\
+https://www.nytimes.com/2026/10/26/world/europe/france-student-protests.html
+
 **Brazil’s Vote Is a Victory for the Amazon, Environmentalists Say**\
 `The re-election of President Luiz Inácio Lula da Silva is expected to lead to continued rainforest protections. His opponent wanted to make it easier to clear land.`\
 https://www.nytimes.com/2026/10/26/climate/brazil-lula-bolsonaro-amazon.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.ht
 **Maurene Comey’s rights were violated when she was fired, a judge ruled.**\
 `Ms. Comey was a highly regarded trial lawyer for the government, handling the prosecutions of Jeffrey Epstein and Sean Combs. A federal judge said the Justice Department violated various laws when they fired her.`\
 https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-ruling.html
-
-**Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
-`Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
-https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
 

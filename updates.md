@@ -1,3 +1,7 @@
+**Brazil’s Vote Is a Victory for the Amazon, Environmentalists Say**\
+`The re-election of President Luiz Inácio Lula da Silva is expected to lead to continued rainforest protections. His opponent wanted to make it easier to clear land.`\
+https://www.nytimes.com/2026/10/26/climate/brazil-lula-bolsonaro-amazon.html
+
 **The Other Dan Sullivan Fires Back at Trump’s Lawsuit in Alaska**\
 `Dan Sullivan, a schoolteacher, has the same name as a Republican senator in Alaska. He said that a pre-emptive lawsuit challenging the results was “a gross misuse of the Justice Department.”`\
 https://www.nytimes.com/2026/10/26/us/teacher-alaska-senate-trump-lawsuit.html
