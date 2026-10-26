@@ -1,3 +1,7 @@
+**The Other Dan Sullivan Fires Back at Trump’s Lawsuit in Alaska**\
+`Dan Sullivan, a schoolteacher, has the same name as a Republican senator in Alaska. He said that a pre-emptive lawsuit challenging the results was “a gross misuse of the Justice Department.”`\
+https://www.nytimes.com/2026/10/26/us/teacher-alaska-senate-trump-lawsuit.html
+
 **How Lula’s Social Media Campaign Helped Him Win Brazil’s Election**\
 `President Luiz Inácio Lula da Silva won another term on Sunday, with the help of a seismic social media campaign that convinced Brazilians to reject his rival.`\
 https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-social-media.html
