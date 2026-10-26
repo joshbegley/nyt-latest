@@ -1,3 +1,7 @@
+**In Maine, an ‘Oyster Thug’s’ Struggle to Get Over Graham Platner**\
+`A Platner superfan’s reluctance to support the Democrat now running against Senator Susan Collins reflects the party’s challenges navigating left-wing passions.`\
+https://www.nytimes.com/2026/10/26/us/politics/maine-midterms-platner-jackson-collins.html
+
 **California’s Potential Quartz Ban Pushes Contractors and Retailers to Alternatives**\
 `Manufacturers and their customers are using materials made without the clouds of dust that have sickened workers in quartz-cutting shops.`\
 https://www.nytimes.com/2026/10/26/business/economy/california-quartz-countertop-ban-alternatives.html
@@ -174,7 +178,7 @@ https://www.nytimes.com/2026/10/26/us/politics/midterm-races-progressive-nixon-e
 `A reader wonders if there is such a thing as clothing that also works after pregnancy.`\
 https://www.nytimes.com/2026/10/26/style/maternity-fashion-that-works-after-the-baby-is-born.html
 
-**Makes Rules for?**\
+**What Should the Rules for A.I. Companies Actually Be? We Asked the Experts.**\
 `Five experts on how best to limit a rapidly evolving technology.`\
 https://www.nytimes.com/2026/10/26/magazine/ai-companies-law-regulations.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/learning/word-of-the-day-sentimental.html
 **How Does Abe Lincoln Sound? In ‘Lincoln in the Bardo,’ Ugly, Honest, Cathartic**\
 `Missy Mazzoli and Royce Vavrek’s “Lincoln in the Bardo” at the Met Opera is the latest, and perhaps darkest, in a long series of musical portraits of Lincoln.`\
 https://www.nytimes.com/2026/10/26/arts/music/lincoln-in-the-bardo-mazzoli-portait-of-lincoln-in-sound.html
-
-**The Man Who Gets the World’s Most Famous Women to Dish**\
-`What do Kim Kardashian, Oprah Winfrey, Lady Gaga, Jill Biden and many others have in common? They’ve all opened up to Jonathan Van Meter, who sees his job as “celebrating” his subjects.`\
-https://www.nytimes.com/2026/10/26/style/jonathan-van-meter-kim-kardashian-book.html
 

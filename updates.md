@@ -1,3 +1,15 @@
+**California’s Potential Quartz Ban Pushes Contractors and Retailers to Alternatives**\
+`Manufacturers and their customers are using materials made without the clouds of dust that have sickened workers in quartz-cutting shops.`\
+https://www.nytimes.com/2026/10/26/business/economy/california-quartz-countertop-ban-alternatives.html
+
+**Brazilian Markets Convulse After Unexpected Election Result**\
+`President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
+https://www.nytimes.com/2026/10/26/business/brazil-stock-markets-election-lula.html
+
+**Maps: Tracking Tropical Depression Olana**\
+`See the likely path and wind arrival times for Olana`\
+https://www.nytimes.com/interactive/2026/10/26/weather/olana-map-path-tracker.html
+
 **Brazilian Markets Convulse After Unexpected Election Result**\
 `President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
 https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
