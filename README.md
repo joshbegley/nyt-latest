@@ -1,3 +1,7 @@
+**Brazilian Markets Convulse After Unlikely Election Result**\
+`President Luiz Inácio Lula da Silva’s re-election victory prompted a sharp reversal in financial markets that had expected his opponent to win.`\
+https://www.nytimes.com/2026/10/26/business/brazil-markets-election-lula.html
+
 **Meet Anthropic’s Seven Founders**\
 `Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/business/why-some-people-are-paying-to-make-f
 **What Is Canadian Ballet? At 75, the National Company Is Its Own Answer.**\
 `The National Ballet of Canada celebrates a landmark anniversary with solid accomplishments, a new leader and some of its founder’s original chutzpah.`\
 https://www.nytimes.com/2026/10/26/arts/dance/national-ballet-canada-75-anniversary.html
-
-**‘Donnie Darko’ Oral History: A Mind-Twisting Cult Classic Turns 25**\
-`Jake Gyllenhaal, Seth Rogen and others explain how an audacious 2001 sci-fi indie flop overcame early disaster to become a phenomenon.`\
-https://www.nytimes.com/2026/10/26/movies/donnie-darko-oral-history-25-year-anniversary.html
 
