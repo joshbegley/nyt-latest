@@ -1,3 +1,11 @@
+**Meta and SpaceX to Raise Billions More to Fund A.I. Ambitions**\
+`The race to build artificial intelligence infrastructure is consuming increasingly enormous amounts of cash at the biggest tech companies.`\
+https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
+
+**Anthropic Reveals 14-Fold Increase in Growth as It Prepares for Blockbuster I.P.O.**\
+`The maker of Claude is on the verge of what could be the largest ever public listing, in a test of the A.I. industry amid questions about whether the boom can be sustained.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
+
 **Maps: Tracking Tropical Cyclone Arnab**\
 `See the likely path and wind arrival times for Arnab`\
 https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
