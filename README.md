@@ -1,3 +1,7 @@
+**Meet Anthropic’s Seven Founders**\
+`Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
+
 **Meta and SpaceX to Raise Billions More to Fund A.I. Ambitions**\
 `The race to build artificial intelligence infrastructure is consuming increasingly enormous amounts of cash at the biggest tech companies.`\
 https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/arts/dance/national-ballet-canada-75-annivers
 **‘Donnie Darko’ Oral History: A Mind-Twisting Cult Classic Turns 25**\
 `Jake Gyllenhaal, Seth Rogen and others explain how an audacious 2001 sci-fi indie flop overcame early disaster to become a phenomenon.`\
 https://www.nytimes.com/2026/10/26/movies/donnie-darko-oral-history-25-year-anniversary.html
-
-**For Senegalese Street Vendors in New York, ‘Work Is Worship’**\
-`Struggling to find steady work, many migrants who have arrived recently from Senegal have adapted with a relentless sidewalk hustle, sustaining their families through street vending.`\
-https://www.nytimes.com/2026/10/26/nyregion/senegal-nyc-street-vendors-immigration.html
 
