@@ -1,3 +1,7 @@
+**Election Surprises**\
+`Serbia and Brazil are very different countries. But their unexpected election results tell us a lot.`\
+https://www.nytimes.com/2026/10/26/world/brazil-serbia-election-results-anthropic.html
+
 **Brazilians React to Lula’s Election Victory Over Bolsonaro**\
 `Supporters of President Luiz Inácio Lula da Silva celebrated his re-election in Brazil. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
 https://www.nytimes.com/video/world/americas/100000011236847/brazil-election-lula-bolsonaro-reaction.html
