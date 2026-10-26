@@ -1,3 +1,11 @@
+**In Maine, an ‘Oyster Thug’s’ Struggle to Get Over Graham Platner**\
+`A Platner superfan’s reluctance to support the Democrat now running against Senator Susan Collins reflects the party’s challenges navigating left-wing passions.`\
+https://www.nytimes.com/2026/10/26/us/politics/maine-midterms-platner-jackson-collins.html
+
+**What Should the Rules for A.I. Companies Actually Be?**\
+`Five experts on how best to limit a rapidly evolving technology.`\
+https://www.nytimes.com/2026/10/26/magazine/ai-companies-law-regulations.html
+
 **California’s Potential Quartz Ban Pushes Contractors and Retailers to Alternatives**\
 `Manufacturers and their customers are using materials made without the clouds of dust that have sickened workers in quartz-cutting shops.`\
 https://www.nytimes.com/2026/10/26/business/economy/california-quartz-countertop-ban-alternatives.html
