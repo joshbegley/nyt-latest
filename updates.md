@@ -1,3 +1,7 @@
+**Eric Bauza, Modern Voice of ‘Looney Toons’ Stars, Dies at 46**\
+`The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
+https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
+
 **Darline Graham Gets Help From the Data Center Industry in South Carolina Senate Race**\
 `As political fights over artificial intelligence accelerate, there is now a super PAC aligned with the data center industry. Its first bet is on Ms. Graham, a Republican in an unexpectedly tight race.`\
 https://www.nytimes.com/2026/10/26/us/politics/darline-graham-data-centers-south-carolina.html

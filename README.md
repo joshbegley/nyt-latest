@@ -1,3 +1,7 @@
+**Jordan Arrests 3 in Connection With Church Attack, State Media Reports**\
+`Nine people were killed and dozens were wounded in the attack last week on a Greek Orthodox Church in southern Jordan.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/jordan-arrests-terror-attack-church.html
+
 **Darline Graham Gets Help From the Data Center Industry in South Carolina Senate Race**\
 `As political fights over artificial intelligence accelerate, there is now a super PAC aligned with the data center industry. Its first bet is on Ms. Graham, a Republican in an unexpectedly tight race.`\
 https://www.nytimes.com/2026/10/26/us/politics/darline-graham-data-centers-south-carolina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/world/asia/china-communist-party-xi-forever-p
 **From the Front Page: On Oct. 26, 1994, Israel and Jordan Sign a Peace Treaty**\
 `In 1994, Prime Minister Yitzhak Rabin of Israel and Prime Minister Abdel Salam Majali of Jordan signed the Israel-Jordan peace accord at a ceremony attended by President Bill Clinton.`\
 https://www.nytimes.com/2026/10/26/learning/from-the-front-page-on-oct-26-1994-israel-and-jordan-sign-a-peace-treaty.html
-
-**In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
-`The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
-https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
 
