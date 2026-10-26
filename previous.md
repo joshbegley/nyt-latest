@@ -1,3 +1,7 @@
+**Israel’s Future**\
+`We look at what’s at stake in tomorrow’s elections.`\
+https://www.nytimes.com/2026/10/26/briefing/israels-future.html
+
 **What to Know About Lula’s Election Victory in Brazil, and What Comes Next**\
 `President Luiz Inácio Lula da Silva won a fourth term, halting a string of conservative victories in Latin America. His opponent disputed the result.`\
 https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-win-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/crosswords/spelling-bee-forum.html
 **Eric Bauza, Modern Voice of ‘Looney Tunes’ Stars, Dies at 46**\
 `The voice actor brought Bugs Bunny, Daffy Duck and other characters of the long-running cartoon franchise to life.`\
 https://www.nytimes.com/2026/10/26/arts/television/eric-bauza-dead.html
-
-**Brazil Election Results in Maps: How Lula Came Back**\
-`Maps show where Brazil’s progressive president surged ahead to win re-election, a dramatic reversal from the first round of voting.`\
-https://www.nytimes.com/interactive/2026/10/26/world/americas/brazil-election-results-maps.html
 

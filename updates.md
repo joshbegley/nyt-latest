@@ -1,3 +1,7 @@
+**Israel’s Future**\
+`We look at what’s at stake in tomorrow’s elections.`\
+https://www.nytimes.com/2026/10/26/briefing/israels-future.html
+
 **What to Know About Lula’s Election Victory in Brazil, and What Comes Next**\
 `President Luiz Inácio Lula da Silva won a fourth term, halting a string of conservative victories in Latin America. His opponent disputed the result.`\
 https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-win-what-to-know.html
