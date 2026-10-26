@@ -1,3 +1,7 @@
+**Flurry of Diplomacy in Iran Amid Reports of U.S. and Israeli Plans to Renew War**\
+`A rare joint visit to Tehran is expected by Saudi Arabia, Turkey and Pakistan amid reports that the U.S. and Israel are drawing up plans to renew their war on Iran.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/iran-war-new-attacks-diplomacy.html
+
 **Chris Brown Gets Suspended Sentence Over London Nightclub Assault**\
 `The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in 2023.`\
 https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairing
 **Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
 `Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
 https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
-
-**Underdog G.O.P. Challenger to Letitia James Runs as a Crime Fighter**\
-`Saritha Komatireddy, who criticized Ms. James’s comments on the Cornell case, has seen her long-shot candidacy gain momentum and support from Republican donors.`\
-https://www.nytimes.com/2026/10/26/nyregion/komatireddy-james-attorney-general-election.html
 
