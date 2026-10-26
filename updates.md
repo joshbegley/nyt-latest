@@ -1,3 +1,11 @@
+**Meet Anthropic’s Seven Founders**\
+`Former OpenAI employees started the company in 2021 after disagreements over how to safely build artificial intelligence. An I.P.O. could make them billionaires.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-founders.html
+
+**Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
+`The maker of Claude is on the verge of what could be the largest ever public listing, in a test of the A.I. industry amid questions about whether the boom can be sustained.`\
+https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
+
 **Meta and SpaceX to Raise Billions More to Fund A.I. Ambitions**\
 `The race to build artificial intelligence infrastructure is consuming increasingly enormous amounts of cash at the biggest tech companies.`\
 https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.html
