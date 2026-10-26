@@ -1,3 +1,7 @@
+**Bob Woodward Criticizes Jeff Bezos in New Memoir**\
+`Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
+https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
+
 **Appeals Court Declines to Intervene in California Ballot Lawsuit**\
 `By a 2-1 vote, a federal appeals court panel denied the Trump administration’s request that it immediately order the state to set aside 20,000 mail-in ballots.`\
 https://www.nytimes.com/2026/10/26/us/politics/appeals-court-california-ballot-suit.html
@@ -10,13 +14,9 @@ https://www.nytimes.com/2026/10/26/world/americas/venezuela-machado-rodriguez-tr
 `Israelis care more about what their country’s enemies think than their friends.`\
 https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
 
-**After Weekend Rape in Central Park, Police Step Up Patrols**\
-`The victim, a 39-year-old woman, was attacked at knife point on Saturday night. Her assailant remains at large.`\
+**After Report of Rape in Central Park, Police Step Up Patrols**\
+`A 39-year-old woman said she was attacked at knife point on Saturday night. The police said they had increased patrols and had yet to make an arrest.`\
 https://www.nytimes.com/2026/10/26/nyregion/rape-central-park-police.html
-
-**Bob Woodward Criticizes Jeff Bezos in New Memoir**\
-`Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
-https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
 
 **Ohio State Professor Who Tackled a Filmmaker on Campus Resigns**\
 `The professor, Luke M. Perez, taught at the university’s civics center. He wrestled down a documentary filmmaker who was trying to question the university’s former president.`\
