@@ -1,3 +1,7 @@
+**Machado’s Return to Venezuela Tests Limits of U.S. Sway**\
+`Seeking new elections, María Corina Machado will need to tread carefully to avoid offending the Trump administration, while also asserting her own leadership.`\
+https://www.nytimes.com/2026/10/26/world/americas/venezuela-machado-rodriguez-trump.html
+
 **Israelis Have Chosen to Be Feared, Not Loved**\
 `Israelis care more about what their country’s enemies think than their friends.`\
 https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-tre
 **Serbia’s Election Shows New Vulnerability for Nationalist Populists**\
 `In much of Europe, the advance of the right has been seen as unstoppable. But in the east, nationalists are being cast aside in places where they long governed.`\
 https://www.nytimes.com/2026/10/26/world/europe/serbia-election-vucic-nationalist-populists.html
-
-**Controversies in the Ohio and Alaska Races**\
-`About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
-https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
 

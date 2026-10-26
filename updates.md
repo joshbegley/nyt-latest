@@ -1,3 +1,7 @@
+**Machado’s Return to Venezuela Tests Limits of U.S. Sway**\
+`Seeking new elections, María Corina Machado will need to tread carefully to avoid offending the Trump administration, while also asserting her own leadership.`\
+https://www.nytimes.com/2026/10/26/world/americas/venezuela-machado-rodriguez-trump.html
+
 **Israelis Have Chosen to Be Feared, Not Loved**\
 `Israelis care more about what their country’s enemies think than their friends.`\
 https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
