@@ -1,3 +1,19 @@
+**U.S. Army Trains Apache Helicopter Pilots to Shoot Drones**\
+`The U.S. Army is training Apache pilots to shoot down drones as militaries around the world assess the efficacy of 20th-century technologies in a new era.`\
+https://www.nytimes.com/2026/10/26/world/europe/helicopters-drones-apache-shahed-russia-iran.html
+
+**The $10 Billion Midterm Ad War**\
+`The noise of the midterm elections has exploded into public consciousness after a TV commercial highlighted the two very different stories that Democratic and Republican candidates are telling.`\
+https://www.nytimes.com/2026/10/26/podcasts/the-daily/trump-midterm-campaign-ad-democrats-republicans.html
+
+**Brazil’s Election Defies a Right-Wing Trend, and Trump’s Midterm Attacks Enter a New Phase**\
+`Plus, can a three-hour documentary lead the box office?`\
+https://www.nytimes.com/2026/10/26/podcasts/the-headlines/brazil-election-trumps-midterm-attacks.html
+
+**NYT Connections Answers for October 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
+https://www.nytimes.com/2026/10/26/crosswords/connections-companion-1234.html
+
 **NYT Strands Hints for October 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 27, 2026.`\
 https://www.nytimes.com/2026/10/26/crosswords/strands-sidekick-968.html
