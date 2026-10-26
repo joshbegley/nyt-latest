@@ -1,3 +1,15 @@
+**I Went to India and Found It Has Lessons for Us All**\
+`Young people have revived the country’s glorious tradition of nonviolent dissent.`\
+https://www.nytimes.com/2026/10/26/opinion/india-modi-students-protests.html
+
+**How Netanyahu Could Cling to Power**\
+`Despite three disastrous years for Israelis, Prime Minister Benjamin Netanyahu’s core support remains strong.`\
+https://www.nytimes.com/2026/10/26/opinion/israel-elections-netanyahu.html
+
+**‘Minimum Wage,’ and 6 More Shows to Watch on TV This Week**\
+`This new comedy comes to Netflix. And documentaries about Matthew Perry and “SCTV” are on tap.`\
+https://www.nytimes.com/2026/10/26/arts/television/minimum-wage-and-6-more-shows-to-watch-on-tv-this-week.html
+
 **Who Is Netanyahu’s Main Opponent in Israel’s Elections?**\
 `Gadi Eisenkot has emerged as Benjamin Netanyahu’s main opponent in the upcoming elections. The New York Times Jerusalem bureau chief, David Halbfinger, describes why Mr. Eisenkot is resonating with Israeli voters.`\
 https://www.nytimes.com/video/world/asia/100000011222464/who-is-netanyahus-main-opponent-in-israels-elections.html
@@ -165,16 +177,4 @@ https://www.nytimes.com/video/opinion/100000011223790/the-second-big-bang-is-her
 **Thomas L. Friedman: We Just Set Off the Second Big Bang**\
 `The columnist on why humanity is entering its most dangerous era yet.`\
 https://www.nytimes.com/video/opinion/100000011223755/thomas-l-friedman-we-just-set-off-the-second-big-bang.html
-
-**Trump Should Stay Out of Brazilian Politics**\
-`The president seems not to understand that the global standing of the United States suffers when he plays into the stereotype of the ugly American.`\
-https://www.nytimes.com/2026/10/25/opinion/trump-should-stay-out-of-brazilian-politics.html
-
-**Despicable Doesn’t Begin to Cover It**\
-`Trump’s culture of cruelty spreads.`\
-https://www.nytimes.com/2026/10/25/opinion/midterm-ads-ramaswamy-acton-ohio.html
-
-**Netanyahu Won the Middle East and Lost the World**\
-`Both Israelis and Palestinians are trapped in the Netanyahu paradigm.`\
-https://www.nytimes.com/2026/10/25/opinion/israel-gaza-election-netanyahu-hamas.html
 
