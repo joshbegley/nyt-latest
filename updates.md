@@ -1,3 +1,11 @@
+**Egypt OKs Military Aid to Saudis in Fight With Houthis**\
+`The Egyptians will commit forces for defensive purposes only, officials have said, as the kingdom exchanges increasingly deadly strikes with the Iranian-backed militia in Yemen.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/egypt-military-saudi-houthis.html
+
+**Walter Koenig, Chekov From ‘Star Trek,’ Has Died’**\
+`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films. He was 90.`\
+https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
+
 **Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
 `At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
 https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html

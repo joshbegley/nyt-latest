@@ -1,3 +1,7 @@
+**Egypt OKs Military Aid to Saudis in Fight With Houthis**\
+`The Egyptians will commit forces for defensive purposes only, officials have said, as the kingdom exchanges increasingly deadly strikes with the Iranian-backed militia in Yemen.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/egypt-military-saudi-houthis.html
+
 **Anthropic’s IPO S-1 Spells Out a Future of Promise and Peril**\
 `The A.I. company took great pains to describe the many benefits that can come from using its Claude chatbot and technology, but also offered up a heavy dose of gloom.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
 `Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
 https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
 
-**Walter Koenig Has Died at 90. He Played Chekov on ‘Star Trek.’**\
-`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films.`\
+**Walter Koenig, Chekov From ‘Star Trek,’ Has Died’**\
+`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films. He was 90.`\
 https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
 
 **Serbia’s Election Shows New Vulnerability for Nationalist Populists**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/world/middleeast/jordan-arrests-terror-attack
 **Darline Graham Gets Help From the Data Center Industry in South Carolina Senate Race**\
 `As political fights over artificial intelligence accelerate, there is now a super PAC aligned with the data center industry. Its first bet is on Ms. Graham, a Republican in an unexpectedly tight race.`\
 https://www.nytimes.com/2026/10/26/us/politics/darline-graham-data-centers-south-carolina.html
-
-**Alexander Skarsgard and Olivia Colman on the Joy of a Wicker Husband**\
-`Is the male love interest the answer to toxic masculinity? The actors contemplate that prospect and the challenges of creating a very adult fable.`\
-https://www.nytimes.com/2026/10/26/movies/wicker-movie-alexander-skarsgard-olivia-colman.html
 
