@@ -1,3 +1,11 @@
+**Walter Koenig Has Died at 90. He Played Chekov on ‘Star Trek.’**\
+`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films.`\
+https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
+
+**Serbia’s Election Shows New Vulnerability for Nationalist Populists**\
+`In much of Europe, the advance of the right has been seen as unstoppable. But in the east, nationalists are being cast aside in places where they long governed.`\
+https://www.nytimes.com/2026/10/26/world/europe/serbia-election-vucic-nationalist-populists.html
+
 **Controversies in the Ohio and Alaska Races**\
 `About an ad in which the candidate’s mother calls her a liar and a lawsuit over similar names in a Senate race. Also: “The Twilight Zone”; no smartphones.`\
 https://www.nytimes.com/2026/10/26/opinion/midterm-elections-ohio-alaska.html
