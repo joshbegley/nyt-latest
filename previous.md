@@ -1,3 +1,7 @@
+**Civilian Suffering Was Goal of Russian Strikes in Ukraine, U.N. Panel Says**\
+`The assaults on infrastructure, which cut off heat and power on bitterly cold winter days, amounted to a crime against humanity, investigators said.`\
+https://www.nytimes.com/2026/10/26/world/europe/russia-ukraine-energy-strikes-un.html
+
 **Last Ditch, a Lesbian Bar Whose Mask Policy Made It Famous, Will Close**\
 `The Massachusetts bar, which catered to lesbians, lifted its Covid mask requirement once a week to attract more patrons. The decision brought criticism and national attention, but did not save the business.`\
 https://www.nytimes.com/2026/10/26/us/last-ditch-lesbian-bar-closing.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/business/meta-spacex-artificial-intelligence.
 **Anthropic S-1 Reveals Rapid Growth Ahead of Blockbuster IPO**\
 `Ahead of what could be the largest public listing ever, Anthropic said revenue soared to $16.3 billion in the first half of the year, and it planned to spend $807 billion on A.I. infrastructure.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-finances.html
-
-**Maps: Tracking Tropical Cyclone Arnab**\
-`See the likely path and wind arrival times for Arnab`\
-https://www.nytimes.com/interactive/2026/10/26/weather/arnab-map-path-tracker.html
 

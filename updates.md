@@ -1,3 +1,7 @@
+**Civilian Suffering Was Goal of Russian Strikes in Ukraine, U.N. Panel Says**\
+`The assaults on infrastructure, which cut off heat and power on bitterly cold winter days, amounted to a crime against humanity, investigators said.`\
+https://www.nytimes.com/2026/10/26/world/europe/russia-ukraine-energy-strikes-un.html
+
 **Last Ditch, a Lesbian Bar Whose Mask Policy Made It Famous, Will Close**\
 `The Massachusetts bar, which catered to lesbians, lifted its Covid mask requirement once a week to attract more patrons. The decision brought criticism and national attention, but did not save the business.`\
 https://www.nytimes.com/2026/10/26/us/last-ditch-lesbian-bar-closing.html
