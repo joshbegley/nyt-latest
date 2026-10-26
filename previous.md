@@ -1,5 +1,9 @@
+**Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
+`Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
+https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
+
 **Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
-`At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+`Ms. Comey, the daughter of James B. Comey, was a trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
 https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
 
 **This Is Bigger Than Brazil**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/nyregion/winnie-the-pooh-new-york-public-libr
 **How Trump Unwittingly Boosted Green Energy**\
 `Deregulation is technology neutral, which means that green energy will win.`\
 https://www.nytimes.com/2026/10/26/opinion/how-trump-unwittingly-boosted-green-energy.html
-
-**In Fight for the Senate, Democrats Face a Once-in-a-Generation Test**\
-`Democrats are targeting G.O.P. strongholds that could set them up for new majorities. But if they don’t win those races now, it could be a long time before they have another chance.`\
-https://www.nytimes.com/2026/10/26/us/elections/democrats-senate-republicans-midterms.html
 

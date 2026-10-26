@@ -1,3 +1,11 @@
+**Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
+`Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
+https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
+
+**Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
+`Ms. Comey, the daughter of James B. Comey, was a trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
+
 **Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
 `At the time of her firing, Ms. Comey was a highly regarded trial lawyer for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
 https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
