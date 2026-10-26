@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Poetry Pairings**\
+`What image, video or article from your news or social media feed might you match with Rita Dove’s “November for Beginners”?`\
+https://www.nytimes.com/2026/10/26/learning/15-minute-lesson-plan-poetry-pairings.html
+
 **Lula Wins Brazil’s Presidency as Bolsonaro Rejects Results**\
 `Luiz Inácio Lula da Silva was re-elected as the president of Brazil on Sunday, defeating Flávio Bolsonaro, who rejected the results.`\
 https://www.nytimes.com/video/world/americas/100000011236196/brazil-election-results-lula-bolsonaro.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/10/25/opinion/ai-bubble-financial-crisis-lehman.htm
 **Turning an Academic Slump Around**\
 `Readers offer their suggestions for improving our schools. Also: College’s real payoff; A.I. is not human.`\
 https://www.nytimes.com/2026/10/25/opinion/fixing-schools.html
-
-**Saudi Arabia Reopens Riyadh Airport Even as Houthis Threaten Further Strikes**\
-`The Houthis, an Iran-backed Yemeni militia, launched several deadly attacks on the airport this month.`\
-https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html
 
