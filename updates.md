@@ -1,3 +1,11 @@
+**Trump Slings Insults at Norway for Not Winning Nobel Prize**\
+`President Trump disparaged Norway to express his irritation over not winning the Nobel Peace Prize. Norwegian officials have repeatedly stated that they don’t have any influence over the award.`\
+https://www.nytimes.com/video/us/100000011237056/trump-norway-nobel-peace-prize.html
+
+**Trump Administration Unlawfully Fired Maurene Comey, Judge Rules**\
+`Ms. Comey, the daughter of James Comey, the former director of the F.B.I., worked for the U.S. attorney’s office in Manhattan, handling the prosecutions of Jeffrey Epstein and Sean Combs.`\
+https://www.nytimes.com/2026/10/26/nyregion/maurene-comey-firing-doj-trump-epstein.html
+
 **7 Numbers That Explain Anthropic’s Business**\
 `We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
