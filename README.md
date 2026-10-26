@@ -1,3 +1,11 @@
+**Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
+`Lawyers for Mr. Comey said that the case centers on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
+
+**Netanyahu Pushed for Attack on Iran Ahead of Israeli Election, Officials Say**\
+`Israel’s military chief resisted the prime minister, who then pressed in recent days for a separate action, short of an overt strike, according to an official and a person briefed on the matter.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/netanyahu-iran-israel-election.html
+
 **Mexico’s Top Election Official Resigns Amid Corruption Scandal**\
 `Guadalupe Taddei Zavala, the head of the electoral watchdog, stepped down after facing accusations of corruption and influence peddling.`\
 https://www.nytimes.com/2026/10/26/world/americas/mexico-election-official-resigns.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html
 **Seahawks Hand Kansas City First Loss of Season**\
 `The Seattle Seahawks allowed just three points against one of the league’s best quarterbacks, dominating the Kansas City Chiefs 20-3 to get back into the win column.`\
 https://www.nytimes.com/video/the-athletic/100000011236731/seahawks-hand-kansas-city-first-loss-of-season.html
-
-**Giants Win in Overtime Against Houston**\
-`The quarterback J.J. McCarthy made his first start for the New York Giants, leading them to a 27-21 overtime victory against the Houston Texans.`\
-https://www.nytimes.com/video/the-athletic/100000011236734/giants-win-in-overtime-against-houston.html
-
-**Chris Brown Gets Suspended Prison Sentence Over London Nightclub Assault**\
-`The pop star Chris Brown received an eight-month suspended prison sentence on Monday over a 2023 episode in which he repeatedly hit a man in the head with a tequila bottle in a London nightclub.`\
-https://www.nytimes.com/video/arts/music/100000011236654/chris-brown-prison-sentence-london-nightclub-assault.html
 
