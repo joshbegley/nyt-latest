@@ -1,3 +1,7 @@
+**Ohio State Professor Who Tackled a Filmmaker on Campus Resigns**\
+`The professor, Luke M. Perez, taught at the university’s civics center. He wrestled down a documentary filmmaker who was trying to question the university’s former president.`\
+https://www.nytimes.com/2026/10/26/us/ohio-state-professor-tackled-filmmaker-resignation.html
+
 **Student News Quiz: Latin American Election, Blockbuster Documentary, N.B.A. Season**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/10/26/learning/26studentnewsquiz-ln.html

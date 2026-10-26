@@ -1,3 +1,7 @@
+**Ohio State Professor Who Tackled a Filmmaker on Campus Resigns**\
+`The professor, Luke M. Perez, taught at the university’s civics center. He wrestled down a documentary filmmaker who was trying to question the university’s former president.`\
+https://www.nytimes.com/2026/10/26/us/ohio-state-professor-tackled-filmmaker-resignation.html
+
 **Student News Quiz: Latin American Election, Blockbuster Documentary, N.B.A. Season**\
 `Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/10/26/learning/26studentnewsquiz-ln.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/briefing/hidden-gems-local-twin-cities.html
 **Convicted Australian Murderer Loses Bid to Eat Vegemite in Prison**\
 `A judge agreed that denying the staple restricted the prisoner’s cultural rights but ruled that keeping drug dogs focused and cells free of illicit home brew was more important.`\
 https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban-lawsuit.html
-
-**Gospel Horror and Creepy Bluegrass: Behind the Music of ‘Get Out’**\
-`Ahead of the New York Philharmonic’s live soundtrack performances of the film, the composer Michael Abels discusses pivotal moments from his score.`\
-https://www.nytimes.com/2026/10/26/arts/music/get-out-soundtrack.html
 
