@@ -1,3 +1,7 @@
+**Ken Paxton’s State-Funded Jet-Setting Draws Campaign Scrutiny**\
+`Mr. Paxton, the Republican candidate for Senate in Texas, has taken about 350 trips outside of the state since he was sworn in as attorney general.`\
+https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html
+
 **Chris Brown Gets Suspended Prison Sentence Over Nightclub Assault**\
 `The singer, 37, had pleaded guilty after hitting a music producer repeatedly in the head with a bottle in London in 2023. He is unlikely to serve any prison time.`\
 https://www.nytimes.com/2026/10/26/arts/music/chris-brown-sentencing.html

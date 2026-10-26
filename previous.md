@@ -1,3 +1,7 @@
+**Ken Paxton’s State-Funded Jet-Setting Draws Campaign Scrutiny**\
+`Mr. Paxton, the Republican candidate for Senate in Texas, has taken about 350 trips outside of the state since he was sworn in as attorney general.`\
+https://www.nytimes.com/2026/10/26/us/politics/ken-paxton-texas-trips.html
+
 **Seahawks Hand Kansas City First Loss of Season**\
 `The Seattle Seahawks allowed just three points against one of the league’s best quarterbacks, dominating the Kansas City Chiefs 20-3 to get back into the win column.`\
 https://www.nytimes.com/video/the-athletic/100000011236731/seahawks-hand-kansas-city-first-loss-of-season.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/us/elections/state-attorney-general-elections
 **5 Hotels That Celebrate Music**\
 `From San Antonio to London, hotels are taking the music theme seriously, offering concerts, listening rooms, studios and more.`\
 https://www.nytimes.com/2026/10/26/travel/music-hotels.html
-
-**“The One About Matthew Perry” Docuseries Comes to Netflix**\
-`Mia Perry Bowick, speaking publicly for the first time in “The One About Matthew Perry,” joins its director, Mary Robertson, to discuss her new Netflix docuseries about the “Friends” star.`\
-https://www.nytimes.com/2026/10/26/arts/television/matthew-perry-netflix-documentary.html
 
