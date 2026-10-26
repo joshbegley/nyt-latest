@@ -1,3 +1,19 @@
+**Is the Venice Soccer Team Ever Going to Be as Good as It Looks?**\
+`Venezia FC, a historically modest club, has become a fashion sensation. But its performance has struggled to match the off-field hype.`\
+https://www.nytimes.com/2026/10/26/world/europe/venice-soceer.html
+
+**Israeli Jews Across the Spectrum Face an Election of Fears**\
+`Supporters and opponents of Prime Minister Benjamin Netanyahu have expressed intense anxieties about isolation abroad, security at home and the future of Israel’s identity.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/israel-election-stakes.html
+
+**‘Pull Out the Sick Trees’: Xi’s Constant Purges Pave Way for Next Term**\
+`The Chinese leader Xi Jinping, who is likely preparing to secure a fourth term in power in 2027, has complained that officials cannot be trusted.`\
+https://www.nytimes.com/2026/10/26/world/asia/china-communist-party-xi-forever-purge.html
+
+**From the Front Page: On Oct. 26, 1994, Israel and Jordan Sign a Peace Treaty**\
+`In 1994, Prime Minister Yitzhak Rabin of Israel and Prime Minister Abdel Salam Majali of Jordan signed the Israel-Jordan peace accord at a ceremony attended by President Bill Clinton.`\
+https://www.nytimes.com/2026/10/26/learning/from-the-front-page-on-oct-26-1994-israel-and-jordan-sign-a-peace-treaty.html
+
 **In Islamophobic Rant, Trump Seeks to Stir Republican Base in Michigan**\
 `The president contended that Dr. Abdul El-Sayed, a Muslim, would “invite hordes of jihadis to our shores” as he sought to bolster the G.O.P. candidate in a tight Senate race.`\
 https://www.nytimes.com/2026/10/25/us/elections/trump-michigan-el-sayed-rogers.html
@@ -161,20 +177,4 @@ https://www.nytimes.com/2026/10/25/opinion/israel-gaza-election-netanyahu-hamas.
 **Tricks, Treats and Trends: Our Reporters On the Most Popular Candy, Costumes and Decor of This Spooky Season.**\
 `Our reporters on the most popular candy, costumes and décor of this spooky season.`\
 https://www.nytimes.com/2026/10/25/podcasts/the-daily/tricks-treats-and-trends.html
-
-**This Year, Yet Again, I’m Dressing as Grapes**\
-`Every Halloween for nearly two decades, I’ve adorned myself with purple (or black) balloons. It’s a lifelong commitment to the bit.`\
-https://www.nytimes.com/2026/10/25/opinion/this-year-yet-again-im-dressing-as-grapes.html
-
-**NYT Connections Answers for October 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
-https://www.nytimes.com/2026/10/25/crosswords/connections-companion-1233.html
-
-**Today’s Wordle Hints for October 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
-https://www.nytimes.com/2026/10/25/crosswords/wordle-review-1955.html
-
-**NYT Strands Hints for October 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 26, 2026.`\
-https://www.nytimes.com/2026/10/25/crosswords/strands-sidekick-967.html
 
