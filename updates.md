@@ -1,3 +1,11 @@
+**Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
+`Lawyers for Mr. Comey said that the case centers on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
+https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
+
+**Netanyahu Pushed for Attack on Iran Ahead of Israeli Election, Officials Say**\
+`Israel’s military chief resisted the prime minister, who then pressed in recent days for a separate action, short of an overt strike, according to an official and a person briefed on the matter.`\
+https://www.nytimes.com/2026/10/26/world/middleeast/netanyahu-iran-israel-election.html
+
 **Mexico’s Top Election Official Resigns Amid Corruption Scandal**\
 `Guadalupe Taddei Zavala, the head of the electoral watchdog, stepped down after facing accusations of corruption and influence peddling.`\
 https://www.nytimes.com/2026/10/26/world/americas/mexico-election-official-resigns.html
