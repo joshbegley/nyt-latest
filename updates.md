@@ -1,3 +1,11 @@
+**House Democrats Call for Special Counsel to Scrutinize Trump’s Ties to Epstein**\
+`The request comes as Democrats are working to paint Republicans as corrupt and highlight their plans to investigate Trump should they win the midterm elections.`\
+https://www.nytimes.com/2026/10/26/us/democrats-special-counsel-trump-epstein.html
+
+**Maurene Comey’s rights were violated when she was fired, a judge ruled.**\
+`Ms. Comey was a highly regarded trial lawyer for the government, handling the prosecutions of Jeffrey Epstein and Sean Combs. A federal judge said the Justice Department violated various laws when they fired her.`\
+https://www.nytimes.com/interactive/2026/10/26/nyregion/comey-trump-firing-ruling.html
+
 **Swing State Republican in a Razor-Thin Race Tries to Outrun Trump**\
 `Joe Lombardo, the governor of Nevada, was favored to win a second term. Now he’s in one of the nation’s tightest contests.`\
 https://www.nytimes.com/2026/10/26/us/lombardo-nevada-governor-republican.html
