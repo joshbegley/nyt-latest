@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/10/26/us/politics/midterm-races-progressive-nixon-e
 `A reader wonders if there is such a thing as clothing that also works after pregnancy.`\
 https://www.nytimes.com/2026/10/26/style/maternity-fashion-that-works-after-the-baby-is-born.html
 
-**What Should the Rules for A.I. Companies Actually Be? We Asked the Experts.**\
+**What Should the Rules for A.I. Companies Actually Be?**\
 `Five experts on how best to limit a rapidly evolving technology.`\
 https://www.nytimes.com/2026/10/26/magazine/ai-companies-law-regulations.html
 
