@@ -1,3 +1,7 @@
+**Share Your Hidden Gems With The Local: Twin Cities**\
+`What’s an underappreciated spot in the Twin Cities? We want to hear from you.`\
+https://www.nytimes.com/2026/10/26/briefing/hidden-gems-local-twin-cities.html
+
 **Convicted Australian Murderer Loses Bid to Eat Vegemite in Prison**\
 `A judge agreed that denying the staple restricted the prisoner’s cultural rights but ruled that keeping drug dogs focused and cells free of illicit home brew was more important.`\
 https://www.nytimes.com/2026/10/26/world/australia/australia-prison-vegemite-ban-lawsuit.html
