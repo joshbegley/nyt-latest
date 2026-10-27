@@ -1,3 +1,15 @@
+**Say Yes to Gnocchi**\
+`Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
+https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
+
+**Will Trump Ever Have to Face the Music?**\
+`The president has initiated extensive maneuvers to personally profit as a private citizen while wielding the threat of his public power.`\
+https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
+
+**A Trip to the Dining Hall**\
+`My lunch with some college students.`\
+https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
+
 **Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
 `State and local plans for Election Day include how to react to potential ICE raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
 https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
