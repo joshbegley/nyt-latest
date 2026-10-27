@@ -2,7 +2,7 @@
 `President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
 https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
 
-**Jordan Airstrikes On Syria Kill Seven Civilians, Syrian State Media Says**\
+**Jordan Airstrikes on Syria Kill Seven Civilians, Syrian State Media Says**\
 `The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
 
