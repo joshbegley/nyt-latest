@@ -1,3 +1,7 @@
+**See How the Way We Train A.I. Leads to Rogue Behaviors**\
+`We built a simple A.I. model to show how training with incentives can lead to unintended behaviors in agents.`\
+https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
+
 **El-Sayed Campaign Distances Itself From Group’s Ad Critical of Israel**\
 `As the Democratic Senate nominee in Michigan seeks to overcome intraparty tensions, his opponent in the primary, Haley Stevens, said a PAC’s ad was “fearmongering about Israel.”`\
 https://www.nytimes.com/2026/10/26/us/michigan-senate-el-sayed-stevens-ad.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/technology/microsoft-buyouts-ai-spending.html
 **New Yorkers, Where’s the Best Place to Cry in the City?**\
 `To help us report an upcoming article, we want to hear about all the places you’ve cried — subways, sidewalks, stoops, saunas and beyond.`\
 https://www.nytimes.com/2026/10/26/nyregion/new-yorkers-whats-the-best-place-to-cry-in-the-city.html
-
-**The Local: New Q in town**\
-`Also, what a new Timberwolves arena could mean for Minneapolis.`\
-https://www.nytimes.com/2026/10/26/briefing/q-minnesota.html
 
