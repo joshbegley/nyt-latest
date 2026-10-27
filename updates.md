@@ -1,3 +1,7 @@
+**5 Key Moments From Israel’s Pivotal Election Campaign**\
+`New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
+
 **Nate Silver Predicts a ‘Momentous’ Midterm**\
 `The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
 https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
