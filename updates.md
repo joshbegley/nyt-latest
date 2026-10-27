@@ -1,3 +1,7 @@
+**Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
+`Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
+
 **In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
 `Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
 https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley.html
