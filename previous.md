@@ -1,3 +1,7 @@
+**Before the Plaza’s Glow-Up, One Last ‘Gilded’ Party**\
+`Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
+https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
+
 **Prominent Texas Congregation Votes to Leave United Methodist Church**\
 `Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
 https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/opinion/election-interference-trump-midterms.
 **Could the Prius of Planes Be the Next Air Taxi?**\
 `Ultrashorts can land in tight spaces like helicopters. One landed this week at the Downtown Skyport.`\
 https://www.nytimes.com/2026/10/27/nyregion/ultrashort-airplane-air-taxi.html
-
-**Could ‘You Can See Everything’ Be Up for Best Picture but Not Documentary?**\
-`The popular nonfiction film is eligible for several Oscars. But the academy’s documentary branch may not be receptive to its unconventional approach.`\
-https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-fielder.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
