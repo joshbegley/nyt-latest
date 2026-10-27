@@ -1,3 +1,7 @@
+**California’s High Tides Set Records This Week. They’re Going to Get Higher.**\
+`El Niño is expected to push this winter’s high tides even higher.`\
+https://www.nytimes.com/2026/10/27/weather/king-tides-california-la-sf.html
+
 **Tensions Between North and South Korea Stem From Decade-Old Border Dispute**\
 `A heated disagreement over recent land mine explosions is part of the legacy of the truce that halted the Korean War 73 years ago.`\
 https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.h
 **Alaska Asks Court to Halt Trump’s Effort to Block Votes in Senate Race**\
 `The administration had filed a lawsuit seeking to prevent certification of the election if the Republican incumbent narrowly loses.`\
 https://www.nytimes.com/2026/10/27/us/alaska-election-doj-trump-lawsuit-sullivan.html
-
-**ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
-`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors.`\
-https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
 
 **Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
 `A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
