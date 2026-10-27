@@ -1,3 +1,7 @@
+**See How the Way We Train A.I. Leads to Rogue Behaviors**\
+`We built an A.I. model and trained its agents to be persistent. They went rogue.`\
+https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
+
 **Obama’s ‘Cheesecake Factory’ Jab Rankles Trump on Mississippi Campaign Stop**\
 `Former President Barack Obama had cast his successor as out of touch while jabbing at his extravagant sense of style. Mr. Trump responded at length.`\
 https://www.nytimes.com/2026/10/26/us/politics/obamas-cheesecake-factory-jab-rankles-trump-on-mississippi-campaign-stop.html
