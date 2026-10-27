@@ -1,3 +1,7 @@
+**Meghan, Actress Turned Duchess, Will Join Australian Cooking Show**\
+`The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
+https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
+
 **Nate Silver’s Predictions for the Midterms**\
 `The polling analyst Nate Silver predicts a “momentous” midterm election on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011232734/nate-silvers-predictions-for-the-midterms.html

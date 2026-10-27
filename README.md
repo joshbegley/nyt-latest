@@ -1,3 +1,7 @@
+**What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
+`The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
+https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-performance-theater.html
+
 **Meghan, Actress Turned Duchess, Will Join Australian Cooking Show**\
 `The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
 https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
@@ -16,7 +20,7 @@ https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.
 
 **Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
 `Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
-https://www.nytimes.com/2026/10/27/obituaries/ursula-vonrydingsvard-sculptor-dead.html
+https://www.nytimes.com/2026/10/27/arts/ursula-vonrydingsvard-sculptor-dead.html
 
 **Who Stands to Gain From an Anthropic I.P.O.**\
 `Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/27/theater/few-good-men-whitford-blyth-sorkin.ht
 **‘Event Horizon’: The Cosmic Horror Flop That Rose From the Void**\
 `Paul W.S. Anderson’s nightmarish 1997 space film starring Sam Neill became a pulpy horror classic after shocking viewers expecting a simple space adventure.`\
 https://www.nytimes.com/2026/10/27/movies/event-horizon-good-bad.html
-
-**Word of the Day: diametrically**\
-`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/27/learning/word-of-the-day-diametrically.html
 
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
