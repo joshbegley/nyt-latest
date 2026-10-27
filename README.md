@@ -1,3 +1,7 @@
+**A Restaurant With a Cart of Chicharrones? Tell Me More.**\
+`Norte brings the pleasures of northern Mexican cuisine to the Flatiron district, Cholapink serves up Peruvian street food and more restaurant news.`\
+https://www.nytimes.com/2026/10/27/dining/nyc-restaurant-news.html
+
 **Why Nora Ephron Considered Langer’s Pastrami Sandwich the Best in the World**\
 `Langer’s, in Los Angeles’s MacArthur Park, has wowed locals of every stripe for 79 years.`\
 https://www.nytimes.com/2026/10/27/t-magazine/langers-deli-los-angeles.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/opinion/100000011232734/nate-silvers-predictions-f
 **Street Style Look of the Week: ‘Highlighter Chic’**\
 `A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
 https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
-
-**U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
-`The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
-https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
