@@ -1,3 +1,7 @@
+**Why Nora Ephron Considered Langer’s Pastrami Sandwich the Best in the World**\
+`Langer’s, in Los Angeles’s MacArthur Park, has wowed locals of every stripe for 79 years.`\
+https://www.nytimes.com/2026/10/27/t-magazine/langers-deli-los-angeles.html
+
 **Justice Department Charges James Comey for the Third Time**\
 `Federal prosecutors have brought charges against James Comey, the former F.B.I. director, for the third time. He is accused of mishandling national security information in October 2016, according to court papers.`\
 https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
 **U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
 `The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
 https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
-
-**Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
-`Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
-https://www.nytimes.com/2026/10/27/arts/ursula-vonrydingsvard-sculptor-dead.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
