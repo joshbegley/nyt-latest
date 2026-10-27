@@ -1,3 +1,11 @@
+**Who Stands to Gain from an Anthropic I.P.O.**\
+`Wall Street banks and chipmakers are among those who look set to capitalize on the artificial intelligence giant’s public trading debut.`\
+https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
+
+**2 Right-Wingers Who Broke With Netanyahu Could Bid to Unseat Him**\
+`The political evolutions of Naftali Bennett, a former prime minister, and Avigdor Liberman, a former defense minister, are indicative of how Benjamin Netanyahu has polarized Israel.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-liberman-naftali-bennett.html
+
 **India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
 `The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
 https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/27/science/how-antidepressants-ssri-work.html
 **Book Review: ‘Public Access Afterworld,’ by Jane Schoenbrun**\
 `In the filmmaker Jane Schoenbrun’s first novel, a strange broadcast invites curious outsiders to an alternate world behind the screen.`\
 https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld.html
-
-**Brady Farrar Goes From ‘Dance Moms’ to Choreographing for ABT**\
-`At 21, Brady Farrar, a child star for a season of reality television, is the youngest person to have choreographed a dance for the American Ballet Theater.`\
-https://www.nytimes.com/2026/10/27/arts/dance/brady-farrar-american-ballet-theater-choreographer.html
-
-**Hong Kong’s ‘Apartment Horror’ Films Skewer Its Ghastly Property Market**\
-`In one of the world’s least affordable housing markets, high-density housing is a backdrop for exploring superstition and socioeconomic anxiety.`\
-https://www.nytimes.com/2026/10/27/world/asia/hong-kong-apartment-horror-movies.html
 
