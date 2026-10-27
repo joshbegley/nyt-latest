@@ -1,3 +1,7 @@
+**Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
+`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials, and halting projects to build a dining room and firing range.`\
+https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
+
 **Utah Investigators Link Teenager’s 1974 Death to Ted Bundy**\
 `Recent developments in a similar case and advances in forensic science linked the death of Melissa Ann Smith, 17, to one of the nation’s most notorious serial killers, officials said.`\
 https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html

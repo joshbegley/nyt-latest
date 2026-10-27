@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-tr
 https://www.nytimes.com/video/world/asia/100000011239510/india-cyclone-evacuation-arnab.html
 
 **Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
-`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials and halting projects to build a dining room and firing range.`\
+`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials, and halting projects to build a dining room and firing range.`\
 https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
 
 **Restaurant Review: Noury in New York**\

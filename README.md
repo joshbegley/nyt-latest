@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
 `Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
 https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
 
-**Live Updates: Israeli Opposition Holds Slim Lead Over Netanyahu’s Coalition in Exit Polls**\
-`No clear winner emerged in an election that produced the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
+**Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
+`Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
