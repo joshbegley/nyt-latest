@@ -1,3 +1,19 @@
+**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trial in Michigan**\
+`Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
+https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
+
+**Israelis Head to the Polls in High-Stakes National Election**\
+`Polls opened in Israel on Tuesday as citizens voted in a national election widely described as the most consequential in the country’s history.`\
+https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-netanyahu-polls.html
+
+**Supreme Court Allows Texas’ Deal With Justice Dept. on Deportation Proceedings**\
+`Immigrant advocates called the agreement “collusion” and had asked the justices to reinstate a Biden-era policy that gave immigration judges discretion.`\
+https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.html
+
+**Alaska Asks Court to Halt Trump’s Effort to Block Votes in Senate Race**\
+`The administration had filed a lawsuit seeking to prevent certification of the election if the Republican incumbent narrowly loses.`\
+https://www.nytimes.com/2026/10/27/us/alaska-election-doj-trump-lawsuit-sullivan.html
+
 **ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
 `The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors, advice that came with devastating consequences.`\
 https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
@@ -169,22 +185,6 @@ https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
 **Restaurant Review: Creepies in Chicago**\
 `Creepies is a lush Midwestern fever dream of French food in Chicago.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-creepies-chicago.html
-
-**The Fed Is Expected to Hold Rates Steady. Warsh Will Have to Explain Why.**\
-`Inflation is moving in the wrong direction and the labor market remains stable, a combination that bolsters the case for higher interest rates.`\
-https://www.nytimes.com/2026/10/27/business/the-fed-is-expected-to-hold-rates-steady-warsh-will-have-to-explain-why.html
-
-**How Spiegelworld’s Founder Brought the Circus Vibes to his Brooklyn Duplex**\
-`Ross Mollison’s Brooklyn duplex features elements of surprise throughout, including hidden doors and secret bars.`\
-https://www.nytimes.com/2026/10/27/realestate/for-spiegelworlds-founder-making-a-house-a-home-called-for-some-magic.html
-
-**Can Tini Younger, One of TikTok’s Biggest Food Influencers, Get Gen Z in the Kitchen?**\
-`At 24, Tini Younger is one of the biggest food influencers on TikTok. Her new challenge: Selling a cookbook to young people with scant connection to the kitchen.`\
-https://www.nytimes.com/2026/10/27/dining/tini-younger-tiktok-food-cooking.html
-
-**What ‘A Different World’ Still Says About Black America**\
-`In the ’90s, we invested in Hillman’s students because they helped us imagine ourselves, whether our past or our future.`\
-https://www.nytimes.com/2026/10/27/opinion/different-world-black-america-future.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

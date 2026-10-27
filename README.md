@@ -1,3 +1,11 @@
+**GM Is Leaving NYSE for the Nasdaq After More Than 100 Years**\
+`After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
+https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
+
+**Serbian Students, Victorious and Leaderless, Go After the Media**\
+`Supporters of the opposition movement that won Sunday’s election stormed the offices of a pro-government tabloid. Another news outlet apologized for years of “one-sided” coverage.`\
+https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
+
 **RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trial in Michigan**\
 `Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
 https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
 `Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
 https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
 
-**Will Trump Ever Have to Face the Music?**\
+**Trump’s Never-Go-to-Jail Card**\
 `The president has initiated extensive maneuvers to personally profit as a private citizen while wielding the threat of his public power.`\
 https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-f
 **Nate Silver Predicts a ‘Momentous’ Midterm**\
 `The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
 https://www.nytimes.com/video/opinion/100000011232732/nate-silver-predicts-a-momentous-midterm.html
-
-**Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
-`State and local plans for Election Day include how to react to potential ICE raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
-https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
-
-**Restaurant Review: Creepies in Chicago**\
-`Creepies is a lush Midwestern fever dream of French food in Chicago.`\
-https://www.nytimes.com/2026/10/27/dining/restaurant-review-creepies-chicago.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

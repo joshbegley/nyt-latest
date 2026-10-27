@@ -1,3 +1,19 @@
+**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trial in Michigan**\
+`Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
+https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
+
+**Israelis Head to the Polls in High-Stakes National Election**\
+`Polls opened in Israel on Tuesday as citizens voted in a national election widely described as the most consequential in the country’s history.`\
+https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-netanyahu-polls.html
+
+**Supreme Court Allows Texas’ Deal With Justice Dept. on Deportation Proceedings**\
+`Immigrant advocates called the agreement “collusion” and had asked the justices to reinstate a Biden-era policy that gave immigration judges discretion.`\
+https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.html
+
+**Alaska Asks Court to Halt Trump’s Effort to Block Votes in Senate Race**\
+`The administration had filed a lawsuit seeking to prevent certification of the election if the Republican incumbent narrowly loses.`\
+https://www.nytimes.com/2026/10/27/us/alaska-election-doj-trump-lawsuit-sullivan.html
+
 **ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
 `The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors, advice that came with devastating consequences.`\
 https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
