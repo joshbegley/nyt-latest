@@ -179,6 +179,6 @@ https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
 https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
 
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
-`No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
+`No clear winner emerged in an election that produced the highest turnout in decades. A bloc led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
