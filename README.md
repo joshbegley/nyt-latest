@@ -1,3 +1,7 @@
+**Justice Department Charges James Comey for the Third Time**\
+`Federal prosecutors have brought charges against James Comey, the former F.B.I. director, for the third time. He is accused of mishandling national security information in October 2016, according to court papers.`\
+https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
+
 **European Leaders Split Over Phone Call to Putin**\
 `The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcome by all European leaders.`\
 https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.
 **Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
 `Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
 https://www.nytimes.com/2026/10/27/arts/ursula-vonrydingsvard-sculptor-dead.html
-
-**Who Stands to Gain From an Anthropic I.P.O.**\
-`Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
-https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
