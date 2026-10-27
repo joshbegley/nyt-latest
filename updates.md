@@ -1,3 +1,7 @@
+**European Leaders Split Over Phone Call to Putin**\
+`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcome by all European leaders.`\
+https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
+
 **Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
 `Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
 https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
