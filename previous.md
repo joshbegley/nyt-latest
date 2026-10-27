@@ -1,3 +1,15 @@
+**As Election Nears, Reports of an Increase in ICE Arrests Across California**\
+`Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
+https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
+
+**Justice Dept. Steps Up Moves on Comey and Others as Midterm Elections Near**\
+`In some cases, court paperwork bears unmistakable signs of urgency — typos, unorthodox tactics and the signatures of the department’s senior political leadership.`\
+https://www.nytimes.com/2026/10/27/us/politics/trump-blanche-elections-comey.html
+
+**South Africa Deploys 500 Soldiers to Quell Anti-Immigration Violence**\
+`The deployment comes after a foreign national was beaten to death by a mob during an anti-immigrant protest last week.`\
+https://www.nytimes.com/2026/10/27/world/africa/south-africa-durban-soldiers.html
+
 **Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
 `Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
 https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
@@ -79,7 +91,7 @@ https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.h
 https://www.nytimes.com/2026/10/27/us/alaska-election-doj-trump-lawsuit-sullivan.html
 
 **ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
-`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors, advice that came with devastating consequences.`\
+`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors.`\
 https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
 
 **When ChatGPT’s Medical Advice Led to Tragedy**\
@@ -110,8 +122,8 @@ https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 `My lunch with some college students.`\
 https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
 
-**Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
-`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
+**Nanotyrannus Skeleton ‘Jodi’ Is Auctioned for $47.3 Million**\
+`The T. Rex cousin is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-libe
 **India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
 `The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
 https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
-
-**Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
-`Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
-
-**The Surprise Tossups**\
-`We look at how gerrymandering shapes the midterm elections.`\
-https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
-
-**British Man Charged With Helping Iranian Intelligence In RAF Fairford Incident**\
-`A second British man was also charged on Tuesday in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
-https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

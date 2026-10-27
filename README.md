@@ -135,7 +135,7 @@ https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-de
 https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
 
 **Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
-`The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
+`The parents of the Minneapolis nurse who was fatally shot by federal agents in January said on Tuesday that the government had ignored and misled them.`\
 https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
 
 **How Billionaires Are Fighting the Prop 40 California Wealth Tax**\

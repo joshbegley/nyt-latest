@@ -1,3 +1,23 @@
+**As Election Nears, Reports of an Increase in ICE Arrests Across California**\
+`Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
+https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
+
+**Justice Dept. Steps Up Moves on Comey and Others as Midterm Elections Near**\
+`In some cases, court paperwork bears unmistakable signs of urgency — typos, unorthodox tactics and the signatures of the department’s senior political leadership.`\
+https://www.nytimes.com/2026/10/27/us/politics/trump-blanche-elections-comey.html
+
+**South Africa Deploys 500 Soldiers to Quell Anti-Immigration Violence**\
+`The deployment comes after a foreign national was beaten to death by a mob during an anti-immigrant protest last week.`\
+https://www.nytimes.com/2026/10/27/world/africa/south-africa-durban-soldiers.html
+
+**ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
+`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors.`\
+https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
+
+**Nanotyrannus Skeleton ‘Jodi’ Is Auctioned for $47.3 Million**\
+`The T. Rex cousin is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
+https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
+
 **Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
 `Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
 https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
