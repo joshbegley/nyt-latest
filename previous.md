@@ -1,3 +1,7 @@
+**Prominent Texas Congregation Votes to Leave United Methodist Church**\
+`Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
+https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
+
 **GM Is Leaving NYSE for the Nasdaq After More Than 100 Years**\
 `After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
 https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/nyregion/ultrashort-airplane-air-taxi.html
 **Could ‘You Can See Everything’ Be Up for Best Picture but Not Documentary?**\
 `The popular nonfiction film is eligible for several Oscars. But the academy’s documentary branch may not be receptive to its unconventional approach.`\
 https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-fielder.html
-
-**Nate Silver Predicts a ‘Momentous’ Midterm**\
-`The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
-https://www.nytimes.com/video/opinion/100000011232732/nate-silver-predicts-a-momentous-midterm.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

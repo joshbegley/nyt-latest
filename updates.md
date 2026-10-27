@@ -1,3 +1,7 @@
+**Prominent Texas Congregation Votes to Leave United Methodist Church**\
+`Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
+https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
+
 **GM Is Leaving NYSE for the Nasdaq After More Than 100 Years**\
 `After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
 https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
