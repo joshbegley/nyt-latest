@@ -1,3 +1,7 @@
+**Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
+`Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
+https://www.nytimes.com/2026/10/27/obituaries/ursula-vonrydingsvard-sculptor-dead.html
+
 **Who Stands to Gain From an Anthropic I.P.O.**\
 `Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
 https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/arts/100000011237303/drag-opera-new-york-city-thea
 **Antidepressants Don’t Correct A Chemical Imbalance. How, Then, Do They Work?**\
 `Here’s how psychiatrists like me think about the most promising hypotheses.`\
 https://www.nytimes.com/2026/10/27/science/how-antidepressants-ssri-work.html
-
-**Book Review: ‘Public Access Afterworld,’ by Jane Schoenbrun**\
-`In the filmmaker Jane Schoenbrun’s first novel, a strange broadcast invites curious outsiders to an alternate world behind the screen.`\
-https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld.html
 
