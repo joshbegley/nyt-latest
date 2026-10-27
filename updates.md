@@ -1,3 +1,7 @@
+**Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
+`No clear winner emerged in an election that produced the highest turnout in decades. A bloc led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
 `The rejection of the indictment was the latest extraordinary setback in President Trump’s wide-ranging campaign to go after his political opponents.`\
 https://www.nytimes.com/2026/10/27/us/politics/cassidy-hutchinson-indicted-trump-testimony.html
