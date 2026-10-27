@@ -1,3 +1,7 @@
+**China Steps In to Rescue Stocks, But the Market Continues to Fall**\
+`The Communist Party uses a “national team” of state-owned investment funds to stem the market rout. But this time, investors are not sure it will work.`\
+https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
+
 **Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
 `The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
 https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
