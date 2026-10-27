@@ -1,3 +1,7 @@
+**El-Sayed Campaign Distances Itself From Group’s Ad Critical of Israel**\
+`As the Democratic Senate nominee in Michigan seeks to overcome intraparty tensions, his opponent in the primary, Haley Stevens, said a PAC’s ad was “fearmongering about Israel.”`\
+https://www.nytimes.com/2026/10/26/us/michigan-senate-el-sayed-stevens-ad.html
+
 **NYC Ballot Measures: What to Know About the 5 Proposals Before Election Day**\
 `Bike lanes, outdoor dining and paperwork for contractors all figure in the amendments on the back of New Yorkers' ballots.`\
 https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-ballot-measures-proposals.html

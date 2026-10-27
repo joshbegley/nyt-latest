@@ -1,3 +1,7 @@
+**El-Sayed Campaign Distances Itself From Group’s Ad Critical of Israel**\
+`As the Democratic Senate nominee in Michigan seeks to overcome intraparty tensions, his opponent in the primary, Haley Stevens, said a PAC’s ad was “fearmongering about Israel.”`\
+https://www.nytimes.com/2026/10/26/us/michigan-senate-el-sayed-stevens-ad.html
+
 **NYC Ballot Measures: What to Know About the 5 Proposals Before Election Day**\
 `Bike lanes, outdoor dining and paperwork for contractors all figure in the amendments on the back of New Yorkers' ballots.`\
 https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-ballot-measures-proposals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/nyregion/new-yorkers-whats-the-best-place-to-
 **The Local: New Q in town**\
 `Also, what a new Timberwolves arena could mean for Minneapolis.`\
 https://www.nytimes.com/2026/10/26/briefing/q-minnesota.html
-
-**How Scuffles at Trump Rallies Echo His Past Events**\
-`Examining President Trump’s praise of a rallygoer who punched a protester last week, David E. Sanger, a White House and national security correspondent for The New York Times, studied the atmosphere at Mr. Trump’s recent events. What he found was a faint echo of the moments that made Mr. Trump’s 2016 rallies so shocking.`\
-https://www.nytimes.com/video/us/politics/100000011231247/how-scuffles-at-trump-rallies-echo-his-past-events.html
 
