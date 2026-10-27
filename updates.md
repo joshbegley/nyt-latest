@@ -1,3 +1,11 @@
+**What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
+`The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
+https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-performance-theater.html
+
+**Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
+`Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
+https://www.nytimes.com/2026/10/27/arts/ursula-vonrydingsvard-sculptor-dead.html
+
 **Meghan, Actress Turned Duchess, Will Join Australian Cooking Show**\
 `The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
 https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
