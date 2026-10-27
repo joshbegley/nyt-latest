@@ -1,3 +1,87 @@
+**Bradley Whitford, Tom Blyth and Krysta Rodriguez on Sorkin’s ‘A Few Good Men’**\
+`Bradley Whitford, Tom Blyth and Krysta Rodriguez are starring in a revival of Aaron Sorkin’s breakthrough, “A Few Good Men,” at Lincoln Center Theater.`\
+https://www.nytimes.com/2026/10/27/theater/few-good-men-whitford-blyth-sorkin.html
+
+**‘Event Horizon’: The Cosmic Horror Flop That Rose From the Void**\
+`Paul W.S. Anderson’s nightmarish 1997 space film starring Sam Neill became a pulpy horror classic after shocking viewers expecting a simple space adventure.`\
+https://www.nytimes.com/2026/10/27/movies/event-horizon-good-bad.html
+
+**Word of the Day: diametrically**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/27/learning/word-of-the-day-diametrically.html
+
+**Why Gen Z Is Running for Congress in 2026**\
+`More than 100 candidates under the age of 29 filed to run for Congress this election cycle. The New York Times spoke to five of these Gen Z candidates and asked them a series of questions to understand their qualifications and positions on key issues.`\
+https://www.nytimes.com/video/us/elections/100000011191925/gen-z-congress-midterms.html
+
+**The Art of the City Teen Side Hustle**\
+`Children and teenagers in New York are still earning money shoveling sidewalks and watching your cats.`\
+https://www.nytimes.com/2026/10/27/realestate/teenage-entrepreneurs-new-york-city.html
+
+**Lewd, Leering and Reveling in Opera’s Queerness**\
+`Heartbeat’s Drag Opera Extravaganza, a yearly event around Halloween, is an off-color pastiche of opera and pop culture. This year: “Queeney Todd.”`\
+https://www.nytimes.com/2026/10/27/arts/music/heartbeat-drag-opera-extravaganza-queeney-todd.html
+
+**‘Sweeney Todd’ Drag Opera Parody Draws Audiences to New York City Church**\
+`Judson Memorial Church in New York City hosts Heartbeat’s Drag Opera Extravaganza for the 11th year. This year the seasonal event featured, “Queeney Todd: The Demon Bottom of Fleet Street.”`\
+https://www.nytimes.com/video/arts/100000011237303/drag-opera-new-york-city-theater.html
+
+**Antidepressants Don’t Correct A Chemical Imbalance. How, Then, Do They Work?**\
+`Here’s how psychiatrists like me think about the most promising hypotheses.`\
+https://www.nytimes.com/2026/10/27/science/how-antidepressants-ssri-work.html
+
+**Book Review: ‘Public Access Afterworld,’ by Jane Schoenbrun**\
+`In the filmmaker Jane Schoenbrun’s first novel, a strange broadcast invites curious outsiders to an alternate world behind the screen.`\
+https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld.html
+
+**Brady Farrar Goes From ‘Dance Moms’ to Choreographing for ABT**\
+`At 21, Brady Farrar, a child star for a season of reality television, is the youngest person to have choreographed a dance for the American Ballet Theater.`\
+https://www.nytimes.com/2026/10/27/arts/dance/brady-farrar-american-ballet-theater-choreographer.html
+
+**Hong Kong’s ‘Apartment Horror’ Films Skewer Its Ghastly Property Market**\
+`In one of the world’s least affordable housing markets, high-density housing is a backdrop for exploring superstition and socioeconomic anxiety.`\
+https://www.nytimes.com/2026/10/27/world/asia/hong-kong-apartment-horror-movies.html
+
+**Book Review: ‘American Socialist,’ by Shawn Gude**\
+`In “American Socialist,” Shawn Gude tracks the rise and fall of the movement led by the left-wing presidential candidate Eugene V. Debs.`\
+https://www.nytimes.com/2026/10/27/books/review/american-socialist-shawn-gude.html
+
+**Celebrating the Life of Jimmy Buffett on Alabama’s Gulf Coast**\
+`The “son of a son of a sailor” grew up on the Gulf, and a new museum, hoping to attract the Parrothead nation, celebrates his early life and career. A Times journalist and friend offers a look.`\
+https://www.nytimes.com/2026/10/27/travel/new-jimmy-buffett-exhibit-mobile-alabama.html
+
+**Should There Be Screen Time Limits in School?**\
+`A recent study found that 73 percent of teachers strongly or somewhat supported screen time restrictions for students. What are your thoughts?`\
+https://www.nytimes.com/2026/10/27/learning/should-there-be-screen-time-limits-in-school.html
+
+**Is There a Healthier Way to Eat Halloween Candy?**\
+`We asked experts whether it’s better to devour your treats in a day or savor them for weeks.`\
+https://www.nytimes.com/2026/10/27/well/eat/halloween-candy-sugar-calories.html
+
+**A Showcase of Works by the Designer Gio Ponti in New York**\
+`From skyscrapers to chairs to whimsical coat hooks, the Milan native Gio Ponti, who died in 1979, left an extraordinary legacy.`\
+https://www.nytimes.com/2026/10/27/arts/design/gio-ponti-exhibition-new-york.html
+
+**Ragtime: The Music That’s Everywhere and Nowhere**\
+`It is one of music’s most enduring genres, but its role in American culture has often been lost to time. This exhibition is aiming to change that.`\
+https://www.nytimes.com/2026/10/27/arts/design/ragtime-morgan-joplin-hogan.html
+
+**The Denver Art Museum Explores the Diva Universe**\
+`Against a glittering backdrop and to the beat of a powerful soundtrack, an art museum exhibition gives the Dollys, Whitneys and Marías their due.`\
+https://www.nytimes.com/2026/10/27/arts/design/museums-denver-divas-exhibition.html
+
+**Across the U.S., Neon Signs Are Being Celebrated at Museums and Parks**\
+`Across the United States, from Nevada to Missouri, museums and parks are displaying and honoring signs that “are like jewels on a necklace of the road.”`\
+https://www.nytimes.com/2026/10/27/arts/design/neon-signs-musems.html
+
+**The Brands Making Furniture to Please Kids and Their Parents**\
+`The children’s furniture market has expanded far beyond cribs and changing tables.`\
+https://www.nytimes.com/2026/10/27/realestate/childrens-furniture-designers.html
+
+**Jane Schoenbrun’s First Novel is Another Exploration of Weird Pop Culture**\
+`The filmmaker Jane Schoenbrun envisioned a sci-fi TV series about a sinister video store. “Public Access Afterworld” is the ambitious 600-page result.`\
+https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld-book.html
+
 **Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
 `President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
 https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia
 **Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
 `Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
 https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
-
-**Bob Woodward Criticizes Jeff Bezos in New Memoir**\
-`Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
-https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
-
-**Appeals Court Declines to Intervene in California Ballot Lawsuit**\
-`By a 2-1 vote, a federal appeals court panel denied the Trump administration’s request that it immediately order the state to set aside 20,000 mail-in ballots.`\
-https://www.nytimes.com/2026/10/26/us/politics/appeals-court-california-ballot-suit.html
-
-**Machado’s Return to Venezuela Tests Limits of U.S. Sway**\
-`Seeking new elections, María Corina Machado will need to tread carefully to avoid offending the Trump administration, while also asserting her own leadership.`\
-https://www.nytimes.com/2026/10/26/world/americas/venezuela-machado-rodriguez-trump.html
-
-**Israelis Have Chosen to Be Feared, Not Loved**\
-`Israelis care more about what their country’s enemies think than their friends.`\
-https://www.nytimes.com/2026/10/26/opinion/israel-gaza-war-fear.html
-
-**After Report of Rape in Central Park, Police Step Up Patrols**\
-`A 39-year-old woman said she was attacked at knife point on Saturday night. The police said they had increased patrols and had yet to make an arrest.`\
-https://www.nytimes.com/2026/10/26/nyregion/rape-central-park-police.html
-
-**Ohio State Professor Who Tackled a Filmmaker on Campus Resigns**\
-`The professor, Luke M. Perez, taught at the university’s civics center. He wrestled down a documentary filmmaker who was trying to question the university’s former president.`\
-https://www.nytimes.com/2026/10/26/us/ohio-state-professor-tackled-filmmaker-resignation.html
-
-**Student News Quiz: Latin American Election, Blockbuster Documentary, N.B.A. Season**\
-`Have you been paying attention to current events recently? See how well you can do on this week’s news quiz for students`\
-https://www.nytimes.com/quiz/2026/10/26/learning/26studentnewsquiz-ln.html
-
-**Trump Dangles $1 Million Reward for Reporting Voter Fraud**\
-`It was unclear how the president would pay for the proposal, which fused his campaign trail promotion of financial incentives to help his party win and his unfounded warnings about voter fraud.`\
-https://www.nytimes.com/2026/10/26/us/trump-1-million-reward-voter-fraud-tips.html
-
-**France Makes Concessions to Students, but Not Enough to Halt Protests**\
-`The government promised to phase out an unpopular university admissions system by 2028. Student groups are pushing for more.`\
-https://www.nytimes.com/2026/10/26/world/europe/france-student-protests.html
-
-**Brazil’s Vote Is a Victory for the Amazon, Environmentalists Say**\
-`The re-election of President Luiz Inácio Lula da Silva is expected to lead to continued rainforest protections. His opponent wanted to make it easier to clear land.`\
-https://www.nytimes.com/2026/10/26/climate/brazil-lula-bolsonaro-amazon.html
-
-**The Other Dan Sullivan Fires Back at Trump’s Lawsuit in Alaska**\
-`Dan Sullivan, a schoolteacher, has the same name as a Republican senator in Alaska. He said that a pre-emptive lawsuit challenging the results was “a gross misuse of the Justice Department.”`\
-https://www.nytimes.com/2026/10/26/us/teacher-alaska-senate-trump-lawsuit.html
-
-**How Lula’s Social Media Campaign Helped Him Win Brazil’s Election**\
-`President Luiz Inácio Lula da Silva won another term on Sunday, with the help of a seismic social media campaign that convinced Brazilians to reject his rival.`\
-https://www.nytimes.com/2026/10/26/world/americas/brazil-election-lula-social-media.html
-
-**Anthropic Reveals Rapid Revenue Growth, and Even Faster Spending**\
-`Also, both parties are nervous about the Senate. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/10/26/briefing/anthropic-ipo-trump-mississippi-campaigning.html
-
-**Justice Dept. Brings More Charges Against Comey, Accusing Him of Leaks**\
-`Lawyers for James B. Comey said the case centered on an issue that had already been investigated and had not led to charges, of a purported leak of national security information to The Times in October 2016.`\
-https://www.nytimes.com/2026/10/26/us/politics/james-comey-charges-doj.html
-
-**Netanyahu Pushed for Attack on Iran Ahead of Israeli Election, Officials Say**\
-`Israel’s military chief resisted the prime minister, who then pressed in recent days for a separate action, short of an overt strike, according to an official and a person briefed on the matter.`\
-https://www.nytimes.com/2026/10/26/world/middleeast/netanyahu-iran-israel-election.html
-
-**Mexico’s Top Election Official Resigns Amid Corruption Scandal**\
-`Guadalupe Taddei Zavala, the head of the electoral watchdog, stepped down after facing accusations of corruption and influence peddling.`\
-https://www.nytimes.com/2026/10/26/world/americas/mexico-election-official-resigns.html
-
-**Manhunt Begins After Convicted Murderer Escapes From Tennessee Prison**\
-`Jacob Allen Morley, 28, was discovered to be missing late Sunday at a correctional facility in Tiptonville, Tenn., officials said.`\
-https://www.nytimes.com/2026/10/26/us/tennessee-inmate-missing-manhunt.html
-
-**The Science Behind Your Reaction to Art**\
-`The Honolulu Museum of Art is showing how art can influence thinking, perspective and mood, in an exhibition that is part of a trend by museums to mix science and art.`\
-https://www.nytimes.com/2026/10/26/arts/design/museums-mix-science-art.html
-
-**A World War II Museum Brings the Lessons of War to a Younger Audience**\
-`An idea sparked by the historian Stephen E. Ambrose became the National World War II Museum in New Orleans.`\
-https://www.nytimes.com/2026/10/26/arts/design/world-war-ii-museum-new-orleans.html
-
-**Whom Should We Feature on 3 Questions?**\
-`Nominate someone you’d like to hear from in our newsletter interview feature.`\
-https://www.nytimes.com/2026/10/26/briefing/3-questions.html
-
-**What Early Voting Can Reveal About the 2026 Midterm Elections So Far**\
-`Millions of early votes tell us less than many would think, but there are key takeaways from results in Texas, Kansas, Georgia and North Carolina.`\
-https://www.nytimes.com/2026/10/26/us/midterm-elections-early-voting-takeaways.html
 
