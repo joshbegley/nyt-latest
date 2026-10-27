@@ -1,3 +1,7 @@
+**Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
+`More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
+https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
+
 **Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
 `Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html

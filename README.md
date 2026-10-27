@@ -1,3 +1,11 @@
+**ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
+`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors, advice that came with devastating consequences.`\
+https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
+
+**When ChatGPT’s Medical Advice Led to Tragedy**\
+`A young woman experiencing side effects from her anti-seizure medicine asked ChatGPT for advice. It helped her to devise a plan to taper off the medication — leading to devastating consequences. Teddy Rosenbluth, a reporter for Well, explores the growing trend of turning to chatbots for medical advice, along with the associated risks.`\
+https://www.nytimes.com/video/well/100000011222851/chatgpt-health-medical-advice-ai-death.html
+
 **Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
 `More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
 https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/27/dining/tini-younger-tiktok-food-cooking.html
 **What ‘A Different World’ Still Says About Black America**\
 `In the ’90s, we invested in Hillman’s students because they helped us imagine ourselves, whether our past or our future.`\
 https://www.nytimes.com/2026/10/27/opinion/different-world-black-america-future.html
-
-**Why Is Halloween Candy So Expensive?**\
-`The average cost of a 100-piece bag has jumped 71 percent in the last five years. Consumers are thinking twice about what they’ll spend.`\
-https://www.nytimes.com/2026/10/27/dining/halloween-candy-prices.html
-
-**Wanted: Robot-Dog Walkers. $20/Hour.**\
-`No pooper scooper required.`\
-https://www.nytimes.com/2026/10/27/technology/robot-dog-walkers.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
