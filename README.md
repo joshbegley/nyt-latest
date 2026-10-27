@@ -1,3 +1,7 @@
+**Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
+`The three siblings were convicted earlier this year of a sex trafficking conspiracy that lasted more than a decade. At least 11 of the victims spoke on Tuesday before the brothers were sentenced.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
+
 **Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
 `India evacuated tens of thousands of people ahead of a powerful cyclone that could bring heavy rainfall and 93-m.p.h. winds. The storm, Arnab, is expected to affect coastal cities in the state of Andhra Pradesh.`\
 https://www.nytimes.com/video/world/asia/100000011239510/india-cyclone-evacuation-arnab.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
 `At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
 
-**Flávio Bolsonaro Flees Brazil for the. U.S. After Election Defeat**\
+**Flávio Bolsonaro Leves Brazil for the. U.S. After Election Defeat**\
 `Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
 https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/well/100000011222851/chatgpt-health-medical-advice
 **Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
 `More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
 https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
-
-**Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
-`Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html
 
 **Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
 `A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\

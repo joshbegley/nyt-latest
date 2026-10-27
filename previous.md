@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-
 https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 
 **What to Expect Now That Polls Are Closed in Israel**\
-`Polls have closed across the country, but those in line are still voting. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+`Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
 **Israelis Surge to Polls With Nation’s Future on the Ballot**\

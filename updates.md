@@ -1,3 +1,7 @@
+**What to Expect Now That Polls Are Closed in Israel**\
+`Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
+
 **Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
 `India evacuated tens of thousands of people ahead of a powerful cyclone that could bring heavy rainfall and 93-m.p.h. winds. The storm, Arnab, is expected to affect coastal cities in the state of Andhra Pradesh.`\
 https://www.nytimes.com/video/world/asia/100000011239510/india-cyclone-evacuation-arnab.html
