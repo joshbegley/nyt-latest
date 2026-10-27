@@ -1,3 +1,7 @@
+**Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
+`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Street Style Look of the Week: ‘Highlighter Chic’**\
 `A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
 https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html

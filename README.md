@@ -1,3 +1,7 @@
+**Nate Silver’s Predictions for the Midterms**\
+`The polling analyst Nate Silver predicts a “momentous” midterm election on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011232734/nate-silvers-predictions-for-the-midterms.html
+
 **Street Style Look of the Week: ‘Highlighter Chic’**\
 `A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
 https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/27/learning/word-of-the-day-diametrically.html
 **Why Gen Z Is Running for Congress in 2026**\
 `More than 100 candidates under the age of 29 filed to run for Congress this election cycle. The New York Times spoke to five of these Gen Z candidates and asked them a series of questions to understand their qualifications and positions on key issues.`\
 https://www.nytimes.com/video/us/elections/100000011191925/gen-z-congress-midterms.html
-
-**The Art of the City Teen Side Hustle**\
-`Children and teenagers in New York are still earning money shoveling sidewalks and watching your cats.`\
-https://www.nytimes.com/2026/10/27/realestate/teenage-entrepreneurs-new-york-city.html
 
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
