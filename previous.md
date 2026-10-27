@@ -1,3 +1,7 @@
+**U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
+`The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
+https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
+
 **Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
 `Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
 https://www.nytimes.com/2026/10/27/obituaries/ursula-vonrydingsvard-sculptor-dead.html
@@ -90,7 +94,7 @@ https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-f
 `The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
 https://www.nytimes.com/video/opinion/100000011232732/nate-silver-predicts-a-momentous-midterm.html
 
-**Election Officials Fear Federal Interference in Voting Next Week**\
+**Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
 `State and local plans for Election Day include how to react to potential I.C.E. raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
 https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/arts/music/heartbeat-drag-opera-extravaganza-
 **‘Sweeney Todd’ Drag Opera Parody Draws Audiences to New York City Church**\
 `Judson Memorial Church in New York City hosts Heartbeat’s Drag Opera Extravaganza for the 11th year. This year the seasonal event featured, “Queeney Todd: The Demon Bottom of Fleet Street.”`\
 https://www.nytimes.com/video/arts/100000011237303/drag-opera-new-york-city-theater.html
-
-**Antidepressants Don’t Correct A Chemical Imbalance. How, Then, Do They Work?**\
-`Here’s how psychiatrists like me think about the most promising hypotheses.`\
-https://www.nytimes.com/2026/10/27/science/how-antidepressants-ssri-work.html
 

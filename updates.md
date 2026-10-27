@@ -1,3 +1,11 @@
+**U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
+`The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
+https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
+
+**Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
+`State and local plans for Election Day include how to react to potential I.C.E. raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
+https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
+
 **Ursula von Rydingsvard, Sculptor of Monumental Forms, Dies at 84**\
 `Working with four-by-four cedar beams, she created towering sculptures that evoked cave walls, frozen waves, seashells or the folds of a giant’s brain.`\
 https://www.nytimes.com/2026/10/27/obituaries/ursula-vonrydingsvard-sculptor-dead.html
