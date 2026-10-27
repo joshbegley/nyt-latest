@@ -174,10 +174,6 @@ https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-inter
 `The parents of the Minneapolis nurse who was fatally shot by federal agents in January said on Tuesday that the government had ignored and misled them.`\
 https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
 
-**How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
-`The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
-https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billionaire-tax.html
-
 **Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
