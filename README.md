@@ -1,3 +1,15 @@
+**Say Yes to Gnocchi**\
+`Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
+https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
+
+**Will Trump Ever Have to Face the Music?**\
+`The president has initiated extensive maneuvers to personally profit as a private citizen while wielding the threat of his public power.`\
+https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
+
+**A Trip to the Dining Hall**\
+`My lunch with some college students.`\
+https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
+
 **Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
 `The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/10/27/travel/discounts-holiday-travel.html
 **A Tight Senate Race in Mississippi? Trump and Others Seem to Think So.**\
 `President Trump on Monday was the latest big political star to swing through Mississippi and boost a candidate in a red-state Senate race that suddenly seems competitive.`\
 https://www.nytimes.com/2026/10/27/us/elections/mississippi-senate-race-trump.html
-
-**Book Review: ‘All in Your Head,’ by Fredrik deBoer**\
-`In a new book, Fredrik deBoer argues that deinstitutionalization, the anti-psychiatry movement and Gen Z’s romanticization have done more harm than good.`\
-https://www.nytimes.com/2026/10/27/books/review/all-in-your-head-fredrik-deboer.html
-
-**Did You Know That I Have Been Breathing All Wrong?**\
-`And other lessons from trying “breathwork.”`\
-https://www.nytimes.com/2026/10/27/magazine/breathwork-snoring-anxiety.html
-
-**In the A.I. ‘Robogym,’ Machines Train to Be More Like Humans**\
-`Germany’s Neura is one of the companies at the forefront of efforts to use artificial intelligence in robotics, and crucial to whether Europe can close the gap with China.`\
-https://www.nytimes.com/2026/10/27/business/neura-robotics-germany-china-ai.html
 
 **Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
