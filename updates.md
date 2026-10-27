@@ -1,3 +1,7 @@
+**Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
+`State and local plans for Election Day include how to react to potential ICE raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
+https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
+
 **Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
 `The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
