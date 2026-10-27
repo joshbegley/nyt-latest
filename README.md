@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.
 
 **How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
 `The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
-https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billioniare-tax.html
+https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billionaire-tax.html
 
 **What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
 `The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
