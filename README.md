@@ -1,3 +1,7 @@
+**Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
+`A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
+https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html
+
 **See How the Way We Train A.I. Leads to Rogue Behaviors**\
 `We built a simple A.I. model to show how training with incentives can lead to unintended behaviors in agents.`\
 https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.htm
 **Microsoft Offers Buyouts to 60,000 Employees as It Spends on A.I.**\
 `About a quarter of the tech giant’s employees were eligible for the packages, although the company cautioned it did not expect many employees to sign on.`\
 https://www.nytimes.com/2026/10/26/technology/microsoft-buyouts-ai-spending.html
-
-**New Yorkers, Where’s the Best Place to Cry in the City?**\
-`To help us report an upcoming article, we want to hear about all the places you’ve cried — subways, sidewalks, stoops, saunas and beyond.`\
-https://www.nytimes.com/2026/10/26/nyregion/new-yorkers-whats-the-best-place-to-cry-in-the-city.html
 
