@@ -1,3 +1,7 @@
+**California’s High Tides Set Records This Week. They’re Going to Get Higher.**\
+`El Niño is expected to push this winter’s high tides even higher.`\
+https://www.nytimes.com/2026/10/27/weather/king-tides-california-la-sf.html
+
 **Tensions Between North and South Korea Stem From Decade-Old Border Dispute**\
 `A heated disagreement over recent land mine explosions is part of the legacy of the truce that halted the Korean War 73 years ago.`\
 https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html

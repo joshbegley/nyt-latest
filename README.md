@@ -1,3 +1,7 @@
+**Bots Drive Online Chatter About Races in Kansas and Texas**\
+`Much of the online discourse about Senate races in Texas and Kansas is coming from accounts that appear to be automated, according to new research.`\
+https://www.nytimes.com/2026/10/27/business/senate-races-kansas-texas-bots.html
+
 **California’s High Tides Set Records This Week. They’re Going to Get Higher.**\
 `El Niño is expected to push this winter’s high tides even higher.`\
 https://www.nytimes.com/2026/10/27/weather/king-tides-california-la-sf.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-n
 **Supreme Court Allows Texas’ Deal With Justice Dept. on Deportation Proceedings**\
 `Immigrant advocates called the agreement “collusion” and had asked the justices to reinstate a Biden-era policy that gave immigration judges discretion.`\
 https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.html
-
-**Alaska Asks Court to Halt Trump’s Effort to Block Votes in Senate Race**\
-`The administration had filed a lawsuit seeking to prevent certification of the election if the Republican incumbent narrowly loses.`\
-https://www.nytimes.com/2026/10/27/us/alaska-election-doj-trump-lawsuit-sullivan.html
 
 **Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
 `A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
