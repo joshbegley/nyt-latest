@@ -1,3 +1,7 @@
+**Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
+`Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html
+
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
 `Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html

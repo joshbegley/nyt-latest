@@ -1,3 +1,7 @@
+**Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
+`Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html
+
 **Trump-Appointed CDC Deputy Director Jennifer Shuford Resigns After 4 Months**\
 `Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
 https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/technology/robot-dog-walkers.html
 **Did the Hardest A.I. Problem Just Get Much Easier?**\
 `A prominent researcher claims to have a revolutionary approach to “interpretability,” or the science of why A.I. models do what they do. Other experts aren’t so sure.`\
 https://www.nytimes.com/2026/10/27/science/ai-problem-interpretability.html
-
-**Joe Redner, the ‘Strip Club King’ of Tampa, Has Died**\
-`More than just the owner of an adult venue, Joe Redner was a political gadfly and fierce advocate for free speech and gay rights. He was 86.`\
-https://www.nytimes.com/2026/10/27/us/joe-redner-dead.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

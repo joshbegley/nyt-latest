@@ -1,3 +1,7 @@
+**Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
+`More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
+https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
+
 **Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
 `Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/dining/halloween-candy-prices.html
 **Wanted: Robot-Dog Walkers. $20/Hour.**\
 `No pooper scooper required.`\
 https://www.nytimes.com/2026/10/27/technology/robot-dog-walkers.html
-
-**Did the Hardest A.I. Problem Just Get Much Easier?**\
-`A prominent researcher claims to have a revolutionary approach to “interpretability,” or the science of why A.I. models do what they do. Other experts aren’t so sure.`\
-https://www.nytimes.com/2026/10/27/science/ai-problem-interpretability.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
