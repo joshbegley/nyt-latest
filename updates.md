@@ -1,3 +1,31 @@
+**Quote of the Day: Edgy Markets See Bellwether in Anthropic I.P.O.**\
+`Quotation of the Day for Tuesday, October 27, 2026.`\
+https://www.nytimes.com/2026/10/27/pageoneplus/quote-of-the-day-edgy-markets-see-bellwether-in-anthropic-ipo.html
+
+**Two Candidates, Two Israels, One Nation in the Balance**\
+`As Israel votes, hard-right nationalism competes with the country’s founding ideals. The outcome could shape Israel’s identity for years.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-identity.html
+
+**What Is the Commonwealth? What to Know as King Charles Hosts Meeting in the Caribbean**\
+`King Charles III is traveling to host a meeting of the leaders of more than 50 nations.`\
+https://www.nytimes.com/2026/10/27/world/europe/commonwealth-king-charles-chogm.html
+
+**King Charles Faces High Stakes Test With Caribbean Tour**\
+`The king will confront calls for reparations and apologies for his country’s colonial past as he attends the Commonwealth heads of government meeting.`\
+https://www.nytimes.com/2026/10/27/world/europe/king-charles-caribbean-tour-uk-commonwealth.html
+
+**How Netanyahu Strained the U.S.-Israel Alliance**\
+`Benjamin Netanyahu, Israel’s prime minister, has long sold himself as the best politician to manage relations with America. Our reporter Mark Mazzetti describes how that alliance is now under strain as support for Israel erodes across party lines.`\
+https://www.nytimes.com/video/us/100000011229956/how-netanyahu-strained-the-us-israel-alliance.html
+
+**From the Front Page: On Oct. 27, 1904, New York City’s First Subway Opens**\
+`New York City’s first subway line, the IRT, began carrying passengers for a nickel a ride.`\
+https://www.nytimes.com/2026/10/27/learning/from-the-front-page-on-oct-27-1904-new-york-citys-first-subway-opens.html
+
+**An Extremely Detailed Ranking of the Most Gerrymandered States in America**\
+`Our guide to the most brazen, twisted and even innocuous maps that will help determine the midterms.`\
+https://www.nytimes.com/interactive/2026/10/26/upshot/gerrymandering-ranking.html
+
 **With ‘DreamQuil,’ Alex Prager Makes Stepford Wives for the Age of AI**\
 `With “DreamQuil,” the artist Alex Prager has made her first feature-length film.`\
 https://www.nytimes.com/2026/10/26/t-magazine/dreamquil-alex-prager.html
