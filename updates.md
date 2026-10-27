@@ -1,3 +1,7 @@
+**Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
+`Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
 `The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
 https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billionaire-tax.html
