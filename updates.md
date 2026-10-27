@@ -1,3 +1,11 @@
+**2 British Men Charged Over RAF Fairford Incident**\
+`One man is accused of helping Iranian intelligence in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
+
+**The State of the American Sports Fan**\
+`We polled liberals and conservatives on their favorite players, the trans-athlete debate and more.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-state-of-the-american-sports-fan.html
+
 **They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
 `The strange story behind the first federal terrorism prosecution of American protesters.`\
 https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
