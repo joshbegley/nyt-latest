@@ -1,3 +1,15 @@
+**The U.S. Called It Putin’s ‘Slush Fund.’ Now Trump May Drop Sanctions on It.**\
+`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
+https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
+
+**Political Satire Is an American Tradition. Deceptive A.I. Ads Are Not.**\
+`Despite how cringeworthy they are, political campaigns have spent $137 million on A.I.-generated ads for the midterms. And the lack of regulation on these ads is warping our sense of what’s real. The Opinion writer Rotimi Adeoye argues that while this kind of political satire falls under First Amendment protection, “you should be free to fake a politician, but you shouldn’t be free to hide the fact that you did.”`\
+https://www.nytimes.com/video/opinion/100000011237739/political-satire-is-an-american-tradition-deceptive-ai-ads-are-not.html
+
+**Canada’s Climate Policies Go on Trial**\
+`The case, La Rose v. His Majesty the King, is the first youth-led federal case in Canada to be heard.`\
+https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
+
 **Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
 `Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
 https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
