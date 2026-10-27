@@ -1,3 +1,15 @@
+**Arab Parties’ Strong Showing May Bring Role in Formation of Israel’s Next Government**\
+`Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
+
+**Mamdani Seeks to Replace Head of Commission on Racial Equity**\
+`Linda Tigani, chairwoman of the commission, has been critical of the Mamdani administration’s handling of a racial equity report. She responded to the mayor’s plan to remove her with fiery comments.`\
+https://www.nytimes.com/2026/10/27/nyregion/mamdani-tigani-racial-equality-commission.html
+
+**White House Has Tight Grip Over FBI in Pursuing Trump Targets, Agent Says**\
+`In court testimony, the agent outlined the willingness of Kash Patel, the F.B.I. director, to take orders from President Trump to investigate his perceived enemies.`\
+https://www.nytimes.com/2026/10/27/us/politics/fbi-trump-patel-witt-testimony.html
+
 **A New Dwarf Planet (Probably) Spotted Beyond Pluto**\
 `The object, known for now as 2026 ED138, is one of the first discoveries by the new Vera C. Rubin Observatory in Chile.`\
 https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
 **E.P.A. to Loosen Methane Rules for Oil Firms**\
 `The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
 https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
-
-**In Congress, Support for Israel Is Waning Among Democrats**\
-`Anger has focused on Prime Minister Benjamin Netanyahu, who has become a political lightning rod in the United States, and the high death toll in Gaza.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.html
-
-**The Truth About ‘True Vintage’**\
-`It’s expensive and subject to trends, but the gems still delight.`\
-https://www.nytimes.com/2026/10/27/style/true-vintage-bidstitch.html
-
-**Before the Plaza’s Glow-Up, One More ‘Gilded’ Party**\
-`Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
-https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
 
 **Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
 `Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
