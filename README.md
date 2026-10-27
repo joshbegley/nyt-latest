@@ -1,3 +1,7 @@
+**India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
+`The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
+https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
+
 **Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
 `Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/arts/dance/brady-farrar-american-ballet-theat
 **Hong Kong’s ‘Apartment Horror’ Films Skewer Its Ghastly Property Market**\
 `In one of the world’s least affordable housing markets, high-density housing is a backdrop for exploring superstition and socioeconomic anxiety.`\
 https://www.nytimes.com/2026/10/27/world/asia/hong-kong-apartment-horror-movies.html
-
-**Book Review: ‘American Socialist,’ by Shawn Gude**\
-`In “American Socialist,” Shawn Gude tracks the rise and fall of the movement led by the left-wing presidential candidate Eugene V. Debs.`\
-https://www.nytimes.com/2026/10/27/books/review/american-socialist-shawn-gude.html
 
