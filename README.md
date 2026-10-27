@@ -1,6 +1,6 @@
 **What to Expect When the Polls Close in Israel**\
 `Polls are about to close across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/what-to-expect-when-the-polls-close-in-israel.html
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
 **Israelis Surge to Polls With Nation’s Future on the Ballot**\
 `As Prime Minister Benjamin Netanyahu and his right-wing allies fought to remain in power, voter turnout, especially among Israeli Arabs, hit a new high.`\
@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-
 `We want to hear from you.`\
 https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
 
-**How Accurate Are the Midterm Polls? The Bias Varies by State.**\
+**How Accurate Are Midterm Polls? Errors Vary From State to State.**\
 `Recent presidential election polls have overestimated Democrats, but midterm polls are far less consistent state by state. The differences could matter quite a bit.`\
 https://www.nytimes.com/2026/10/27/us/politics/midterm-polls-errors-states.html
 
