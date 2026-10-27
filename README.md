@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-c
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
 
 **Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
-`Halima Salman was taken by her father to ISIS-controlled territory when she was 17. She was brought back to the United States in 2024.`\
+`Halima Salman, a U.S. citizen, was brought by her father to ISIS-controlled territory in 2016, when she was 17. She returned to the United States in 2024.`\
 https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
 
 **In Vienna, a Celebration of Handmade Ceramics and Iconic Austrian Design**\

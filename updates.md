@@ -1,3 +1,7 @@
+**Bots Drive Online Chatter About Races in Kansas and Texas**\
+`Much of the online discourse about Senate races in Texas and Kansas is coming from accounts that appear to be automated, according to new research.`\
+https://www.nytimes.com/2026/10/27/business/senate-races-kansas-texas-bots.html
+
 **California’s High Tides Set Records This Week. They’re Going to Get Higher.**\
 `El Niño is expected to push this winter’s high tides even higher.`\
 https://www.nytimes.com/2026/10/27/weather/king-tides-california-la-sf.html
