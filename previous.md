@@ -1,3 +1,7 @@
+**“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
+`Complete secrecy is the new luxury.`\
+https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
+
 **The U.S. Called It Putin’s ‘Slush Fund.’ Now Trump May Drop Sanctions on It.**\
 `The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
 https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/27/crosswords/connections-companion-1235.html
 **Israel’s First Election Since Oct. 7, and What Anthropic’s I.P.O. Means for the Whole Economy**\
 `Plus, why Halloween candy is scary expensive.`\
 https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthropic-ipo.html
-
-**Today’s Wordle Hints for October 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
-https://www.nytimes.com/2026/10/27/crosswords/wordle-review-1957.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
