@@ -1,3 +1,23 @@
+**They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
+`The strange story behind the first federal terrorism prosecution of American protesters.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
+
+**NYT Connections Answers for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/connections-companion-1235.html
+
+**Israel’s First Election Since Oct. 7, and What Anthropic’s I.P.O. Means for the Whole Economy**\
+`Plus, why Halloween candy is scary expensive.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthropic-ipo.html
+
+**Today’s Wordle Hints for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/wordle-review-1957.html
+
+**NYT Strands Hints for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/strands-sidekick-969.html
+
 **5 Key Moments From Israel’s Pivotal Election Campaign**\
 `New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/10/27/well/eat/halloween-candy-sugar-calories.html
 **A Showcase of Works by the Designer Gio Ponti in New York**\
 `From skyscrapers to chairs to whimsical coat hooks, the Milan native Gio Ponti, who died in 1979, left an extraordinary legacy.`\
 https://www.nytimes.com/2026/10/27/arts/design/gio-ponti-exhibition-new-york.html
-
-**Ragtime: The Music That’s Everywhere and Nowhere**\
-`It is one of music’s most enduring genres, but its role in American culture has often been lost to time. This exhibition is aiming to change that.`\
-https://www.nytimes.com/2026/10/27/arts/design/ragtime-morgan-joplin-hogan.html
-
-**The Denver Art Museum Explores the Diva Universe**\
-`Against a glittering backdrop and to the beat of a powerful soundtrack, an art museum exhibition gives the Dollys, Whitneys and Marías their due.`\
-https://www.nytimes.com/2026/10/27/arts/design/museums-denver-divas-exhibition.html
-
-**Across the U.S., Neon Signs Are Being Celebrated at Museums and Parks**\
-`Across the United States, from Nevada to Missouri, museums and parks are displaying and honoring signs that “are like jewels on a necklace of the road.”`\
-https://www.nytimes.com/2026/10/27/arts/design/neon-signs-musems.html
-
-**The Brands Making Furniture to Please Kids and Their Parents**\
-`The children’s furniture market has expanded far beyond cribs and changing tables.`\
-https://www.nytimes.com/2026/10/27/realestate/childrens-furniture-designers.html
-
-**Jane Schoenbrun’s First Novel is Another Exploration of Weird Pop Culture**\
-`The filmmaker Jane Schoenbrun envisioned a sci-fi TV series about a sinister video store. “Public Access Afterworld” is the ambitious 600-page result.`\
-https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld-book.html
 
