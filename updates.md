@@ -1,3 +1,11 @@
+**Jimmy Kimmel Proposes a Battle of Wits Between Trump and Obama**\
+`“There is only one way to settle this: roast battle on the White House lawn, live,” Kimmel offered, after former President Barack Obama mocked President Trump.`\
+https://www.nytimes.com/2026/10/27/arts/television/jimmy-kimmel-trump-obama-roast.html
+
+**It’s Docktober. Do You Know Where the Sea Slugs Are?**\
+`Where there are floating docks, there are often communities of colorful marine organisms just below — and a community of curious people just above.`\
+https://www.nytimes.com/2026/10/27/science/docktober-nudibranchs.html
+
 **What to Know About the Cease-Fire for a Besieged Ukrainian City**\
 `Many people left in Oleshky, where bombardment is constant, have run out of food. A truce set to begin early Tuesday is supposed to allow aid in and civilians out.`\
 https://www.nytimes.com/2026/10/26/world/europe/oleshky-cease-fire.html

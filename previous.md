@@ -1,3 +1,11 @@
+**Jimmy Kimmel Proposes a Battle of Wits Between Trump and Obama**\
+`“There is only one way to settle this: roast battle on the White House lawn, live,” Kimmel offered, after former President Barack Obama mocked President Trump.`\
+https://www.nytimes.com/2026/10/27/arts/television/jimmy-kimmel-trump-obama-roast.html
+
+**It’s Docktober. Do You Know Where the Sea Slugs Are?**\
+`Where there are floating docks, there are often communities of colorful marine organisms just below — and a community of curious people just above.`\
+https://www.nytimes.com/2026/10/27/science/docktober-nudibranchs.html
+
 **Live Updates: Israel Votes in Election Seen as Referendum on Netanyahu**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html
 **Election Surprises**\
 `Serbia and Brazil are very different countries. But their unexpected election results tell us a lot.`\
 https://www.nytimes.com/2026/10/26/world/brazil-serbia-election-results-anthropic.html
-
-**Brazilians React to Lula’s Election Victory Over Bolsonaro**\
-`Supporters of President Luiz Inácio Lula da Silva celebrated his re-election in Brazil. His opponent, Flávio Bolsonaro, called for the election to be annulled.`\
-https://www.nytimes.com/video/world/americas/100000011236847/brazil-election-lula-bolsonaro-reaction.html
-
-**Israel Has Committed Genocidal Acts in Gaza Since Cease-Fire, U.N. Human Rights Panel Says**\
-`The panel also accuses Israel of committing crimes against humanity in the West Bank. Israel condemned the report.`\
-https://www.nytimes.com/2026/10/26/world/middleeast/un-human-rights-panel-israel-palestinians.html
 
