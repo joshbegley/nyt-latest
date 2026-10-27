@@ -1,3 +1,7 @@
+**The State of the American Sports Fan**\
+`We polled liberals and conservatives on their favorite players, the trans-athlete debate and more.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-state-of-the-american-sports-fan.html
+
 **They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
 `The strange story behind the first federal terrorism prosecution of American protesters.`\
 https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/learning/should-there-be-screen-time-limits-i
 **Is There a Healthier Way to Eat Halloween Candy?**\
 `We asked experts whether it’s better to devour your treats in a day or savor them for weeks.`\
 https://www.nytimes.com/2026/10/27/well/eat/halloween-candy-sugar-calories.html
-
-**A Showcase of Works by the Designer Gio Ponti in New York**\
-`From skyscrapers to chairs to whimsical coat hooks, the Milan native Gio Ponti, who died in 1979, left an extraordinary legacy.`\
-https://www.nytimes.com/2026/10/27/arts/design/gio-ponti-exhibition-new-york.html
 
