@@ -1,3 +1,7 @@
+**European Leaders Split Over Phone Call to Putin**\
+`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcome by all European leaders.`\
+https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
+
 **Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
 `Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
 https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/arts/ursula-vonrydingsvard-sculptor-dead.html
 **Who Stands to Gain From an Anthropic I.P.O.**\
 `Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
 https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
-
-**2 Right-Wingers Who Broke With Netanyahu Could Bid to Unseat Him**\
-`The political evolutions of Naftali Bennett, a former prime minister, and Avigdor Liberman, a former defense minister, are indicative of how Benjamin Netanyahu has polarized Israel.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-liberman-naftali-bennett.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

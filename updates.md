@@ -1,3 +1,11 @@
+**Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
+`Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
+https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
+
+**Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
+`The parents of the Minneapolis nurse who was fatally shot by federal agents in January said on Tuesday that the government had ignored and misled them.`\
+https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
+
 **As Election Nears, Reports of an Increase in ICE Arrests Across California**\
 `Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
 https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html

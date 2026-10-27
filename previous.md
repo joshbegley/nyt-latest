@@ -1,3 +1,7 @@
+**Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
+`Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
+https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
+
 **As Election Nears, Reports of an Increase in ICE Arrests Across California**\
 `Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
 https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
@@ -135,7 +139,7 @@ https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-de
 https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
 
 **Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
-`The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
+`The parents of the Minneapolis nurse who was fatally shot by federal agents in January said on Tuesday that the government had ignored and misled them.`\
 https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
 
 **How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ip
 **2 Right-Wingers Who Broke With Netanyahu Could Bid to Unseat Him**\
 `The political evolutions of Naftali Bennett, a former prime minister, and Avigdor Liberman, a former defense minister, are indicative of how Benjamin Netanyahu has polarized Israel.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-liberman-naftali-bennett.html
-
-**India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
-`The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
-https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
