@@ -1,3 +1,11 @@
+**ChatGPT’s Advice to Cut Her Seizure Drug Led to Devastating Consequences**\
+`The chatbot helped a woman taper off a lifesaving drug and hide the plan from her doctors, advice that came with devastating consequences.`\
+https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.html
+
+**When ChatGPT’s Medical Advice Led to Tragedy**\
+`A young woman experiencing side effects from her anti-seizure medicine asked ChatGPT for advice. It helped her to devise a plan to taper off the medication — leading to devastating consequences. Teddy Rosenbluth, a reporter for Well, explores the growing trend of turning to chatbots for medical advice, along with the associated risks.`\
+https://www.nytimes.com/video/well/100000011222851/chatgpt-health-medical-advice-ai-death.html
+
 **Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
 `More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
 https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
