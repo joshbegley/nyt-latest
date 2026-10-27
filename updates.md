@@ -1,3 +1,7 @@
+**Low-Key or Electric? The Style Gulf Splitting the Democratic Party**\
+`Should a candidate light the world on fire, or is being a little bit boring actually a secret weapon?`\
+https://www.nytimes.com/2026/10/27/us/politics/low-key-or-electric-the-style-gulf-splitting-the-democratic-party.html
+
 **Exit Polls in Israel Show No Clear Winner**\
 `Also, Trump is set to loosen methane rules. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/27/briefing/israel-election-candy-prices.html

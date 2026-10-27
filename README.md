@@ -1,3 +1,7 @@
+**Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
+`The rejection of the indictment was the latest extraordinary setback in President Trump’s wide-ranging campaign to go after his political opponents.`\
+https://www.nytimes.com/2026/10/27/us/politics/cassidy-hutchinson-indicted-trump-testimony.html
+
 **Low-Key or Electric? The Style Gulf Splitting the Democratic Party**\
 `Should a candidate light the world on fire, or is being a little bit boring actually a secret weapon?`\
 https://www.nytimes.com/2026/10/27/us/politics/low-key-or-electric-the-style-gulf-splitting-the-democratic-party.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
 https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
 
 **Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
-`The three siblings used their wealth and influence to lure women and sexually assault for more than a decade. At least 11 of their victims spoke on Tuesday before they were sentenced.`\
+`The three siblings used their wealth and influence to lure women and sexually assault them over more than a decade. At least 11 of their victims spoke on Tuesday before they were sentenced.`\
 https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
 
 **Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
 **Serbian Students, Victorious and Leaderless, Go After the Media**\
 `Supporters of the opposition movement that won Sunday’s election stormed the offices of a pro-government tabloid. Another news outlet apologized for years of “one-sided” coverage.`\
 https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
-
-**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trail in Michigan**\
-`Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
-https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
 
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
 `No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
