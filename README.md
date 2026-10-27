@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performe
 https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html
 
 **See How the Way We Train A.I. Leads to Rogue Behaviors**\
-`We built a simple A.I. model to show how training with incentives can lead to unintended behaviors in agents.`\
+`We built an A.I. model and trained its agents to be persistent. They went rogue.`\
 https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
 
 **El-Sayed Campaign Distances Itself From Group’s Ad Critical of Israel**\
