@@ -1,3 +1,11 @@
+**The Surprise Tossups**\
+`We look at how gerrymandering shapes the midterm elections.`\
+https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
+
+**Nate Silver on What the Polls Say — and What His Gut’s Telling Him**\
+`The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
+https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
+
 **2 British Men Charged Over RAF Fairford Incident**\
 `One man is accused of helping Iranian intelligence in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html

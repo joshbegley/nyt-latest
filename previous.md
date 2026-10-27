@@ -1,3 +1,7 @@
+**The Surprise Tossups**\
+`We look at how gerrymandering shapes the midterm elections.`\
+https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
+
 **2 British Men Charged Over RAF Fairford Incident**\
 `One man is accused of helping Iranian intelligence in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/27/crosswords/strands-sidekick-969.html
 `New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
 
-**Nate Silver Predicts a ‘Momentous’ Midterm**\
+**Nate Silver on What the Polls Say — and What His Gut’s Telling Him**\
 `The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
 https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/books/review/american-socialist-shawn-gude.ht
 **Celebrating the Life of Jimmy Buffett on Alabama’s Gulf Coast**\
 `The “son of a son of a sailor” grew up on the Gulf, and a new museum, hoping to attract the Parrothead nation, celebrates his early life and career. A Times journalist and friend offers a look.`\
 https://www.nytimes.com/2026/10/27/travel/new-jimmy-buffett-exhibit-mobile-alabama.html
-
-**Should There Be Screen Time Limits in School?**\
-`A recent study found that 73 percent of teachers strongly or somewhat supported screen time restrictions for students. What are your thoughts?`\
-https://www.nytimes.com/2026/10/27/learning/should-there-be-screen-time-limits-in-school.html
 
