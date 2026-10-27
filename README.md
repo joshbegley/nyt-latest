@@ -1,3 +1,7 @@
+**An Extremely Detailed Ranking of the Most Gerrymandered States in America**\
+`Our guide to the most brazen, twisted and even innocuous maps that will help determine the midterms.`\
+https://www.nytimes.com/interactive/2026/10/26/upshot/gerrymandering-ranking.html
+
 **With ‘DreamQuil,’ Alex Prager Makes Stepford Wives for the Age of AI**\
 `With “DreamQuil,” the artist Alex Prager has made her first feature-length film.`\
 https://www.nytimes.com/2026/10/26/t-magazine/dreamquil-alex-prager.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/dining/100000011222982/spicy-and-creamy-cashew-chi
 **Elaine de Kooning Gets Her Time in the Spotlight**\
 `A show at the Berry Campbell gallery in Manhattan offers a rare extensive examination of work by the artist, whose reputation has always been complicated by that of her famous husband.`\
 https://www.nytimes.com/2026/10/26/arts/design/elaine-de-kooning-berry-campbell-exhibition.html
-
-**Jane Benson Makes Frankenstein’s Monster Sing**\
-`In the show “her her,” Jane Benson anatomizes Mary Shelley’s novel, highlighting its feminism and creating visual works that are also vocal scores.`\
-https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-art-show.html
 
