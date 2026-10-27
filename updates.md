@@ -1,3 +1,7 @@
+**Susan Saint James, Emmy Winner Who Starred in ‘Kate & Allie,’ Dies at 80**\
+`In a long career, she was best known for starring opposite Jane Curtin in “Kate & Allie,” a 1980s sitcom about two divorced women raising three children in New York City.`\
+https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-allie.html
+
 **Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
