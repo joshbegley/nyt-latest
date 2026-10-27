@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire for a Besieged Ukrainian City**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce set to begin early Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/todayspaper/oleshky-cease-fire.html
+
 **Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
 `Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
 https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/world/middleeast/egypt-military-saudi-houthis
 **Anthropic’s IPO S-1 Spells Out a Future of Promise and Peril**\
 `The A.I. company took great pains to describe the many benefits that can come from using its Claude chatbot and technology, but also offered up a heavy dose of gloom.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
-
-**Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
-`Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
-https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
 

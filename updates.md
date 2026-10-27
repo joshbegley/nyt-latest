@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire for a Besieged Ukrainian City**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce set to begin early Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/todayspaper/oleshky-cease-fire.html
+
 **Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
 `Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
 https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
