@@ -1,3 +1,7 @@
+**Susan Saint James, Emmy Winner Who Starred in ‘Kate & Allie,’ Dies at 80**\
+`In a long career, she was best known for starring opposite Jane Curtin in “Kate & Allie,” a 1980s sitcom about two divorced women raising three children in New York City.`\
+https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-allie.html
+
 **Do You Have Questions About the U.S. Midterm Elections?**\
 `We want to hear from you.`\
 https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.
 **How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
 `The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
 https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billionaire-tax.html
-
-**What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
-`The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
-https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-performance-theater.html
-
-**Meghan, Actress Turned Duchess, Will Join Australian Cooking Show**\
-`The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
-https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
 
 **Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
