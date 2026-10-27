@@ -1,3 +1,15 @@
+**Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
+`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons with New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
+
+**British Man Charged With Helping Iranian Intelligence In RAF Fairford Incident**\
+`A second British man was also charged on Tuesday in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
+
+**Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
+`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **China Steps In to Rescue Stocks, But the Market Continues to Fall**\
 `The Communist Party uses a “national team” of state-owned investment funds to stem the market rout. But this time, investors are not sure it will work.`\
 https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
