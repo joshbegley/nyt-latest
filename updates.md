@@ -1,3 +1,7 @@
+**Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
+`No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
 `The U.S. plans to issue a visa to Mr. Bolsonaro, a U.S. official said. Brazilian police had asked him to hand over his passports because of his links to an investigation.`\
 https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
