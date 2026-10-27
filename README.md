@@ -1,3 +1,7 @@
+**Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
+`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons with New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
+
 **China Steps In to Rescue Stocks, But the Market Continues to Fall**\
 `The Communist Party uses a “national team” of state-owned investment funds to stem the market rout. But this time, investors are not sure it will work.`\
 https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smo
 `We look at how gerrymandering shapes the midterm elections.`\
 https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
 
-**2 British Men Charged Over RAF Fairford Incident**\
-`One man is accused of helping Iranian intelligence in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
+**British Man Charged With Helping Iranian Intelligence In RAF Fairford Incident**\
+`A second British man was also charged on Tuesday in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
 
 **The State of the American Sports Fan**\
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/10/27/business/neura-robotics-germany-china-ai.html
 `Collectors, influencers and vintage purveyors converged in Tokyo for the first PoloFest.`\
 https://www.nytimes.com/2026/10/27/style/polofest-tokyo-ralph-lauren.html
 
-**Inflation. War. Corruption. Hold Trump Accountable.**\
-`The American people have a chance to allow the nation to glimpse the end of the Trump era and the start of something brighter.`\
-https://www.nytimes.com/2026/10/27/opinion/editorials/inflation-war-corruption-trump-editorial.html
-
-**Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
+**Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 

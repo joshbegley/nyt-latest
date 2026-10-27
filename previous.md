@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/10/27/style/polofest-tokyo-ralph-lauren.html
 `The American people have a chance to allow the nation to glimpse the end of the Trump era and the start of something brighter.`\
 https://www.nytimes.com/2026/10/27/opinion/editorials/inflation-war-corruption-trump-editorial.html
 
-**The Key Election Issues Dividing Israelis as They Vote**\
-`The question of accountability for the government’s failures in the Hamas-led attacks on Oct. 7, 2023, looms over the election.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-elections-key-issues.html
-
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
