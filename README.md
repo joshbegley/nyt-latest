@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
-`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons with New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
 
 **China Steps In to Rescue Stocks, But the Market Continues to Fall**\
