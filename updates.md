@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire for a Besieged Ukrainian City**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/world/europe/oleshky-cease-fire.html
+
 **NYT Spelling Bee Answers for October 27, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/27/crosswords/spelling-bee-forum.html
