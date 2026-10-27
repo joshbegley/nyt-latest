@@ -1,3 +1,23 @@
+**They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
+`The strange story behind the first federal terrorism prosecution of American protesters.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
+
+**NYT Connections Answers for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/connections-companion-1235.html
+
+**Israel’s First Election Since Oct. 7, and What Anthropic’s I.P.O. Means for the Whole Economy**\
+`Plus, why Halloween candy is scary expensive.`\
+https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthropic-ipo.html
+
+**Today’s Wordle Hints for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/wordle-review-1957.html
+
+**NYT Strands Hints for October 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/27/crosswords/strands-sidekick-969.html
+
 **5 Key Moments From Israel’s Pivotal Election Campaign**\
 `New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
