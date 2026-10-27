@@ -1,3 +1,11 @@
+**In Congress, Support for Israel Is Waning Among Democrats**\
+`Anger has focused on Prime Minister Benjamin Netanyahu, who has become a political lightning rod in the United States, and the high death toll in Gaza.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.html
+
+**The Truth About ‘True Vintage’**\
+`It’s expensive and subject to trends, but the gems still delight.`\
+https://www.nytimes.com/2026/10/27/style/true-vintage-bidstitch.html
+
 **Before the Plaza’s Glow-Up, One Last ‘Gilded’ Party**\
 `Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
 https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/27/pageoneplus/editors-note-oct-27-2026.html
 **Four Thoughts About Israel’s Election**\
 `A Middle Eastern nation votes — more than can be said for its neighbors.`\
 https://www.nytimes.com/2026/10/27/opinion/israel-election-middle-east.html
-
-**How to Prevent Election Interference**\
-`The buck stops with local officials.`\
-https://www.nytimes.com/2026/10/27/opinion/election-interference-trump-midterms.html
-
-**Could the Prius of Planes Be the Next Air Taxi?**\
-`Ultrashorts can land in tight spaces like helicopters. One landed this week at the Downtown Skyport.`\
-https://www.nytimes.com/2026/10/27/nyregion/ultrashort-airplane-air-taxi.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

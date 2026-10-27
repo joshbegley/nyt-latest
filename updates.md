@@ -1,3 +1,11 @@
+**In Congress, Support for Israel Is Waning Among Democrats**\
+`Anger has focused on Prime Minister Benjamin Netanyahu, who has become a political lightning rod in the United States, and the high death toll in Gaza.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.html
+
+**The Truth About ‘True Vintage’**\
+`It’s expensive and subject to trends, but the gems still delight.`\
+https://www.nytimes.com/2026/10/27/style/true-vintage-bidstitch.html
+
 **Before the Plaza’s Glow-Up, One Last ‘Gilded’ Party**\
 `Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
 https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
