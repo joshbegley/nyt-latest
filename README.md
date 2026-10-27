@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/10/27/us/joe-redner-dead.html
 `As airfares and gas prices surge, here’s how you can extend your travel budget.`\
 https://www.nytimes.com/2026/10/27/travel/discounts-holiday-travel.html
 
-**Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
-`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+**Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
+`Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 

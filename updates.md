@@ -1,3 +1,7 @@
+**How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
+`The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
+https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billionaire-tax.html
+
 **Trump-Appointed CDC Deputy Director Jennifer Shuford Resigns After 4 Months**\
 `Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
 https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
