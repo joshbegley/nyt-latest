@@ -1,8 +1,12 @@
+**Restaurant Review: Noury in New York**\
+`At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
+https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
+
 **Flávio Bolsonaro Flees Brazil for the. U.S. After Election Defeat**\
 `Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
 https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
 
-**Plans to Make Microdrama Out an Old Margot Robbie Show Stir Debate**\
+**Plans to Make Microdrama Out of an Old Margot Robbie Show Stir Debate**\
 `The group that produced “Neighbours” more than a decade ago plans to carve some episodes into micro-bits, generating more debate around TV shows in the digital age.`\
 https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 
@@ -170,11 +174,7 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities
 `Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
 https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
 
-**Say Yes to Gnocchi**\
-`Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
-https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
-
-**Live Updates: Polls Close in Israeli Election as Netanyahu Fights for Political Survival**\
-`Election officials reported record turnout as Prime Minister Benjamin Netanyahu’s far-right coalition faced an opposition bloc led by a former military chief of staff, Gadi Eisenkot. A winner might not be immediately clear.`\
+**Live Updates: First Exit Polls Show No Clear Winner in Pivotal Israeli Election**\
+`Prime Minister Benjamin Netanyahu’s Likud party and his allies were battling a bloc of opposition parties led by a former military chief of staff, Gadi Eisenkot. Neither appeared to have won an outright victory.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
