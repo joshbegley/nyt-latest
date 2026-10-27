@@ -1,3 +1,7 @@
+**Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
+`Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
+https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
+
 **A High-Stakes Election: ‘Let Us Choose Wisely’**\
 `Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
 https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
 **How Much Health Data Is Too Much?**\
 `To find out if wearables and self-pay tests actually improve health, one of our hosts tracked her data 24/7 for six months.`\
 https://www.nytimes.com/2026/10/27/podcasts/how-much-health-data-is-too-much.html
-
-**In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
-`Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
-https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
