@@ -1,3 +1,7 @@
+**Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
+`A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
+https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html
+
 **How We Train A.I. Leads to Rogue Behavior**\
 `We built an A.I. model and trained its agents to be persistent. They went rogue.`\
 https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
