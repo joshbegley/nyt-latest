@@ -1,3 +1,7 @@
+**Trump Isn’t as Powerful as He Seems**\
+`After more than a decade of Trump looming over American politics, many believe that he can do whatever he wants, says the columnist Jamelle Bouie on “The Opinions.” But he urges us to remember: Just because there’s a will doesn’t always mean there’s a way.`\
+https://www.nytimes.com/video/opinion/100000011230471/trump-isnt-as-powerful-as-he-seems.html
+
 **What to Know About the Cease-Fire for a Besieged Ukrainian City**\
 `Many people left in Oleshky, where bombardment is constant, have run out of food. A truce set to begin early Tuesday is supposed to allow aid in and civilians out.`\
 https://www.nytimes.com/2026/10/26/todayspaper/oleshky-cease-fire.html
