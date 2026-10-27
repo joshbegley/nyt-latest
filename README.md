@@ -1,3 +1,7 @@
+**E.P.A. to Loosen Methan Rules for Oil Firms**\
+`The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
+https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
+
 **In Congress, Support for Israel Is Waning Among Democrats**\
 `Anger has focused on Prime Minister Benjamin Netanyahu, who has become a political lightning rod in the United States, and the high death toll in Gaza.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.html
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
-`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+`Little known a year ago, she is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
 
 **China Steps In to Rescue Stocks, But the Market Continues to Fall**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley
 **Corrections: Oct. 27, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 27, 2027.`\
 https://www.nytimes.com/2026/10/27/pageoneplus/editors-note-oct-27-2026.html
-
-**Four Thoughts About Israel’s Election**\
-`A Middle Eastern nation votes — more than can be said for its neighbors.`\
-https://www.nytimes.com/2026/10/27/opinion/israel-election-middle-east.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
