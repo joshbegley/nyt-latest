@@ -1,3 +1,11 @@
+**Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
+`President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
+https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
+
+**Jordan Airstrikes On Syria Kill Seven Civilians, Syrian State Media Says**\
+`The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
+
 **15-Minute Lesson Plan: Senate Midterms Game**\
 `Which party will control Congress after the midterm elections and why does it matter?`\
 https://www.nytimes.com/2026/10/27/learning/15-minute-lesson-plan-senate-midterms-game.html
