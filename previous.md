@@ -1,3 +1,115 @@
+**Nate Silver Predicts a ‘Momentous’ Midterm**\
+`The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
+https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
+
+**How Much Health Data Is Too Much?**\
+`To find out if wearables and self-pay tests actually improve health, one of our hosts tracked her data 24/7 for six months.`\
+https://www.nytimes.com/2026/10/27/podcasts/how-much-health-data-is-too-much.html
+
+**In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
+`Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
+https://www.nytimes.com/2026/10/27/business/in-anthropic-ipo-goldman-and-morgan-stanley-slug-it-out-for-top-bank.html
+
+**Corrections: Oct. 27, 2026**\
+`Corrections that appeared in print on Tuesday, Oct. 27, 2027.`\
+https://www.nytimes.com/2026/10/27/pageoneplus/editors-note-oct-27-2026.html
+
+**Four Thoughts About Israel’s Election**\
+`A Middle Eastern nation votes — more than can be said for its neighbors.`\
+https://www.nytimes.com/2026/10/27/opinion/israel-election-middle-east.html
+
+**How to Prevent Election Interference**\
+`The buck stops with local officials.`\
+https://www.nytimes.com/2026/10/27/opinion/election-interference-trump-midterms.html
+
+**Could the Prius of Planes Be the Next Air Taxi?**\
+`Ultrashorts can land in tight spaces like helicopters. One landed this week at the Downtown Skyport.`\
+https://www.nytimes.com/2026/10/27/nyregion/ultrashort-airplane-air-taxi.html
+
+**Could ‘You Can See Everything’ Be Up for Best Picture but Not Documentary?**\
+`The popular nonfiction film is eligible for several Oscars. But the academy’s documentary branch may not be receptive to its unconventional approach.`\
+https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-fielder.html
+
+**Nate Silver Predicts a ‘Momentous’ Midterm**\
+`The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
+https://www.nytimes.com/video/opinion/100000011232732/nate-silver-predicts-a-momentous-midterm.html
+
+**Election Officials Fear Federal Interference in Voting Next Week**\
+`State and local plans for Election Day include how to react to potential I.C.E. raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
+https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
+
+**Restaurant Review: Creepies in Chicago**\
+`Creepies is a lush Midwestern fever dream of French food in Chicago.`\
+https://www.nytimes.com/2026/10/27/dining/restaurant-review-creepies-chicago.html
+
+**The Fed Is Expected to Hold Rates Steady. Warsh Will Have to Explain Why.**\
+`Inflation is moving in the wrong direction and the labor market remains stable, a combination that bolsters the case for higher interest rates.`\
+https://www.nytimes.com/2026/10/27/business/the-fed-is-expected-to-hold-rates-steady-warsh-will-have-to-explain-why.html
+
+**How Spiegelworld’s Founder Brought the Circus Vibes to his Brooklyn Duplex**\
+`Ross Mollison’s Brooklyn duplex features elements of surprise throughout, including hidden doors and secret bars.`\
+https://www.nytimes.com/2026/10/27/realestate/for-spiegelworlds-founder-making-a-house-a-home-called-for-some-magic.html
+
+**Can Tini Younger, One of TikTok’s Biggest Food Influencers, Get Gen Z in the Kitchen?**\
+`At 24, Tini Younger is one of the biggest food influencers on TikTok. Her new challenge: Selling a cookbook to young people with scant connection to the kitchen.`\
+https://www.nytimes.com/2026/10/27/dining/tini-younger-tiktok-food-cooking.html
+
+**What ‘A Different World’ Still Says About Black America**\
+`In the ’90s, we invested in Hillman’s students because they helped us imagine ourselves, whether our past or our future.`\
+https://www.nytimes.com/2026/10/27/opinion/different-world-black-america-future.html
+
+**Why Is Halloween Candy So Expensive?**\
+`The average cost of a 100-piece bag has jumped 71 percent in the last five years. Consumers are thinking twice about what they’ll spend.`\
+https://www.nytimes.com/2026/10/27/dining/halloween-candy-prices.html
+
+**Wanted: Robot-Dog Walkers. $20/Hour.**\
+`No pooper scooper required.`\
+https://www.nytimes.com/2026/10/27/technology/robot-dog-walkers.html
+
+**Did the Hardest A.I. Problem Just Get Much Easier?**\
+`A prominent researcher claims to have a revolutionary approach to “interpretability,” or the science of why A.I. models do what they do. Other experts aren’t so sure.`\
+https://www.nytimes.com/2026/10/27/science/ai-problem-interpretability.html
+
+**Joe Redner, the ‘Strip Club King’ of Tampa, Has Died**\
+`More than just the owner of an adult venue, Joe Redner was a political gadfly and fierce advocate for free speech and gay rights. He was 86.`\
+https://www.nytimes.com/2026/10/27/us/joe-redner-dead.html
+
+**Holiday Travel Costs Are Soaring. Here’s How to Save.**\
+`As airfares and gas prices surge, here’s how you can extend your travel budget.`\
+https://www.nytimes.com/2026/10/27/travel/discounts-holiday-travel.html
+
+**A Tight Senate Race in Mississippi? Trump and Others Seem to Think So.**\
+`President Trump on Monday was the latest big political star to swing through Mississippi and boost a candidate in a red-state Senate race that suddenly seems competitive.`\
+https://www.nytimes.com/2026/10/27/us/elections/mississippi-senate-race-trump.html
+
+**Book Review: ‘All in Your Head,’ by Fredrik deBoer**\
+`In a new book, Fredrik deBoer argues that deinstitutionalization, the anti-psychiatry movement and Gen Z’s romanticization have done more harm than good.`\
+https://www.nytimes.com/2026/10/27/books/review/all-in-your-head-fredrik-deboer.html
+
+**Did You Know That I Have Been Breathing All Wrong?**\
+`And other lessons from trying “breathwork.”`\
+https://www.nytimes.com/2026/10/27/magazine/breathwork-snoring-anxiety.html
+
+**In the A.I. ‘Robogym,’ Machines Train to Be More Like Humans**\
+`Germany’s Neura is one of the companies at the forefront of efforts to use artificial intelligence in robotics, and crucial to whether Europe can close the gap with China.`\
+https://www.nytimes.com/2026/10/27/business/neura-robotics-germany-china-ai.html
+
+**Looks From PoloFest in Tokyo, a Meet-Up for Collectors, Vintage Sellers and Fans**\
+`Collectors, influencers and vintage purveyors converged in Tokyo for the first PoloFest.`\
+https://www.nytimes.com/2026/10/27/style/polofest-tokyo-ralph-lauren.html
+
+**Inflation. War. Corruption. Hold Trump Accountable.**\
+`The American people have a chance to allow the nation to glimpse the end of the Trump era and the start of something brighter.`\
+https://www.nytimes.com/2026/10/27/opinion/editorials/inflation-war-corruption-trump-editorial.html
+
+**The Key Election Issues Dividing Israelis as They Vote**\
+`The question of accountability for the government’s failures in the Hamas-led attacks on Oct. 7, 2023, looms over the election.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-elections-key-issues.html
+
+**U.S. Pensions Are Riding the A.I. Wave. For Better or Worse.**\
+`As exuberance around the technology stokes fears of a bubble, the nation’s public pensions are starting to grapple with their role — and their risks.`\
+https://www.nytimes.com/2026/10/27/business/pensions-ai.html
+
 **Bradley Whitford, Tom Blyth and Krysta Rodriguez on Sorkin’s ‘A Few Good Men’**\
 `Bradley Whitford, Tom Blyth and Krysta Rodriguez are starring in a revival of Aaron Sorkin’s breakthrough, “A Few Good Men,” at Lincoln Center Theater.`\
 https://www.nytimes.com/2026/10/27/theater/few-good-men-whitford-blyth-sorkin.html
@@ -85,116 +197,4 @@ https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-af
 **Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
 `President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
 https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
-
-**Jordan Airstrikes on Syria Kill Seven Civilians, Syrian State Media Says**\
-`The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
-
-**15-Minute Lesson Plan: Senate Midterms Game**\
-`Which party will control Congress after the midterm elections and why does it matter?`\
-https://www.nytimes.com/2026/10/27/learning/15-minute-lesson-plan-senate-midterms-game.html
-
-**NYT Spelling Bee Answers for October 27, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/27/crosswords/spelling-bee-forum.html
-
-**A Trump Die-Hard Is Suddenly at Risk in an Upstate G.O.P. District**\
-`Blake Gendebien, a Democratic dairy farmer, is trying to flip a House seat in upstate New York, and his opponent’s loyalty to President Trump may be helping.`\
-https://www.nytimes.com/2026/10/27/nyregion/constantino-gendebien-stefanik-ny21.html
-
-**What to Know About the Alexander Brothers’ Sentencing for Sex Crimes**\
-`The three men face life in prison for running a decades-long sex trafficking scheme. Several of the victims are expected to speak at the sentencing.`\
-https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sex-trafficking.html
-
-**Jimmy Kimmel Proposes a Battle of Wits Between Trump and Obama**\
-`“There is only one way to settle this: roast battle on the White House lawn, live,” Kimmel offered, after former President Barack Obama mocked President Trump.`\
-https://www.nytimes.com/2026/10/27/arts/television/jimmy-kimmel-trump-obama-roast.html
-
-**It’s Docktober. Do You Know Where the Sea Slugs Are?**\
-`Where there are floating docks, there are often communities of colorful marine organisms just below — and a community of curious people just above.`\
-https://www.nytimes.com/2026/10/27/science/docktober-nudibranchs.html
-
-**Live Updates: Israel Votes in Election Seen as Referendum on Netanyahu**\
-`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
-https://www.nytimes.com/live/2026/10/27/world/israel-elections
-
-**What It Will Take to Defeat the Houthis**\
-`The international community should set a clear goal to end the Yemeni group as an armed terrorist force.`\
-https://www.nytimes.com/2026/10/27/opinion/houthis-yemen-saudi-arabia.html
-
-**Quote of the Day: Edgy Markets See Bellwether in Anthropic I.P.O.**\
-`Quotation of the Day for Tuesday, October 27, 2026.`\
-https://www.nytimes.com/2026/10/27/pageoneplus/quote-of-the-day-edgy-markets-see-bellwether-in-anthropic-ipo.html
-
-**Two Candidates, Two Israels, One Nation in the Balance**\
-`As Israel votes, hard-right nationalism competes with the country’s founding ideals. The outcome could shape Israel’s identity for years.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-identity.html
-
-**What Is the Commonwealth? What to Know as King Charles Hosts Meeting in the Caribbean**\
-`King Charles III is traveling to host a meeting of the leaders of more than 50 nations.`\
-https://www.nytimes.com/2026/10/27/world/europe/commonwealth-king-charles-chogm.html
-
-**King Charles Faces High Stakes Test With Caribbean Tour**\
-`The king will confront calls for reparations and apologies for his country’s colonial past as he attends the Commonwealth heads of government meeting.`\
-https://www.nytimes.com/2026/10/27/world/europe/king-charles-caribbean-tour-uk-commonwealth.html
-
-**How Netanyahu Strained the U.S.-Israel Alliance**\
-`Benjamin Netanyahu, Israel’s prime minister, has long sold himself as the best politician to manage relations with America. Our reporter Mark Mazzetti describes how that alliance is now under strain as support for Israel erodes across party lines.`\
-https://www.nytimes.com/video/us/100000011229956/how-netanyahu-strained-the-us-israel-alliance.html
-
-**From the Front Page: On Oct. 27, 1904, New York City’s First Subway Opens**\
-`New York City’s first subway line, the IRT, began carrying passengers for a nickel a ride.`\
-https://www.nytimes.com/2026/10/27/learning/from-the-front-page-on-oct-27-1904-new-york-citys-first-subway-opens.html
-
-**An Extremely Detailed Ranking of the Most Gerrymandered States in America**\
-`Our guide to the most brazen, twisted and even innocuous maps that will help determine the midterms.`\
-https://www.nytimes.com/interactive/2026/10/26/upshot/gerrymandering-ranking.html
-
-**With ‘DreamQuil,’ Alex Prager Makes Stepford Wives for the Age of AI**\
-`With “DreamQuil,” the artist Alex Prager has made her first feature-length film.`\
-https://www.nytimes.com/2026/10/26/t-magazine/dreamquil-alex-prager.html
-
-**Obama’s ‘Cheesecake Factory’ Jab Rankles Trump on Mississippi Campaign Stop**\
-`Former President Barack Obama had cast his successor as out of touch while jabbing at his extravagant sense of style. Mr. Trump responded at length.`\
-https://www.nytimes.com/2026/10/26/us/politics/obamas-cheesecake-factory-jab-rankles-trump-on-mississippi-campaign-stop.html
-
-**NYT Crossword Answers for Oct. 27, 2026**\
-`Jeff Chen and Bharati Hemmady make their collaborative debut in the New York Times Crossword.`\
-https://www.nytimes.com/2026/10/26/crosswords/daily-puzzle-2026-10-27.html
-
-**Jay-Z Announced as 2027 Super Bowl Halftime Show Performer**\
-`It will be the eighth Super Bowl halftime show produced by Roc Nation, the entertainment and sports company founded by the rapper and businessman.`\
-https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performer.html
-
-**Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
-`A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
-https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html
-
-**How We Train A.I. Leads to Rogue Behavior**\
-`We built an A.I. model and trained its agents to be persistent. They went rogue.`\
-https://www.nytimes.com/interactive/2026/10/26/technology/ai-agent-hacks-training.html
-
-**El-Sayed Campaign Distances Itself From Group’s Ad Critical of Israel**\
-`As the Democratic Senate nominee in Michigan seeks to overcome intraparty tensions, his opponent in the primary, Haley Stevens, said a PAC’s ad was “fearmongering about Israel.”`\
-https://www.nytimes.com/2026/10/26/us/michigan-senate-el-sayed-stevens-ad.html
-
-**NYC Ballot Measures: What to Know About the 5 Proposals Before Election Day**\
-`Bike lanes, outdoor dining and paperwork for contractors all figure in the amendments on the back of New Yorkers' ballots.`\
-https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-ballot-measures-proposals.html
-
-**Book Review: ‘Princes and Thieves,’ by Matthew Cole**\
-`The new book by the reporter Matthew Cole connects $2 billion in slush funds from gulf state leaders to Trump’s son-in-law in an effort to influence U.S. policy.`\
-https://www.nytimes.com/2026/10/26/books/review/princes-and-thieves-matthew-cole.html
-
-**Trump Isn’t as Powerful as He Seems**\
-`After more than a decade of Trump looming over American politics, many believe that he can do whatever he wants, says the columnist Jamelle Bouie on “The Opinions.” But he urges us to remember: Just because there’s a will doesn’t always mean there’s a way.`\
-https://www.nytimes.com/video/opinion/100000011230471/trump-isnt-as-powerful-as-he-seems.html
-
-**Cease-Fire Brokered by Melania Trump Begins in Ukrainian City of Oleshky**\
-`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
-https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia-war.html
-
-**Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
-`Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
-https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
 
