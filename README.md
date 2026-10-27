@@ -1,3 +1,7 @@
+**Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
+`Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
+https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
+
 **Milwaukee vs. Tampa: A World Series Playlist**\
 `Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
 https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
 
 **Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
-`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
+`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
 **British Man Charged With Helping Iranian Intelligence In RAF Fairford Incident**\
 `A second British man was also charged on Tuesday in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
-
-**The State of the American Sports Fan**\
-`We polled liberals and conservatives on their favorite players, the trans-athlete debate and more.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-state-of-the-american-sports-fan.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
