@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/10/27/movies/you-can-see-everything-oscars-nathan-f
 https://www.nytimes.com/video/opinion/100000011232732/nate-silver-predicts-a-momentous-midterm.html
 
 **Election Officials Fear Trump Administration’s Interference in Midterms Voting**\
-`State and local plans for Election Day include how to react to potential I.C.E. raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
+`State and local plans for Election Day include how to react to potential ICE raids, misbehavior by federal election monitors and attempts to seize votes or machines.`\
 https://www.nytimes.com/2026/10/27/us/election-interference-trump-midterms.html
 
 **Restaurant Review: Creepies in Chicago**\
