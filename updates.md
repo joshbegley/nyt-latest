@@ -1,3 +1,7 @@
+**Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
+`Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
+
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
