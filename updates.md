@@ -1,3 +1,11 @@
+**Who Stands to Gain From an Anthropic I.P.O.**\
+`Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
+https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
+
+**2 Right-Wingers Who Broke With Netanyahu Could Bid to Unseat Him**\
+`The political evolutions of Naftali Bennett, a former prime minister, and Avigdor Liberman, a former defense minister, are indicative of how Benjamin Netanyahu has polarized Israel.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-liberman-naftali-bennett.html
+
 **India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
 `The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
 https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
