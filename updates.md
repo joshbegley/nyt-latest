@@ -1,3 +1,7 @@
+**Tensions Between North and South Korea Stem From Decade-Old Border Dispute**\
+`A heated disagreement over recent land mine explosions is part of the legacy of the truce that halted the Korean War 73 years ago.`\
+https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
+
 **Venezuela’s Moment of Truth**\
 `The country’s most popular politician, María Corina Machado, has returned home from exile. What happens next?`\
 https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
