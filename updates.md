@@ -1,3 +1,11 @@
+**Live Updates: Israel Votes in Election Seen as Referendum on Netanyahu**\
+`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
+**What It Will Take to Defeat the Houthis**\
+`The international community should set a clear goal to end the Yemeni group as an armed terrorist force.`\
+https://www.nytimes.com/2026/10/27/opinion/houthis-yemen-saudi-arabia.html
+
 **Quote of the Day: Edgy Markets See Bellwether in Anthropic I.P.O.**\
 `Quotation of the Day for Tuesday, October 27, 2026.`\
 https://www.nytimes.com/2026/10/27/pageoneplus/quote-of-the-day-edgy-markets-see-bellwether-in-anthropic-ipo.html
