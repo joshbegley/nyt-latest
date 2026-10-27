@@ -1,3 +1,11 @@
+**Milwaukee vs. Tampa: A World Series Playlist**\
+`Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
+https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
+
+**The Christian Influencer at the Center of Ken Paxton’s New Life**\
+`The Texas attorney general has been silent about his relationship with Tracy Duhon, a New Orleans woman who has built a personal brand around faith and redemption.`\
+https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
+
 **“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
@@ -169,18 +177,6 @@ https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base
 **The State of the American Sports Fan**\
 `We polled liberals and conservatives on their favorite players, the trans-athlete debate and more.`\
 https://www.nytimes.com/2026/10/27/podcasts/the-state-of-the-american-sports-fan.html
-
-**They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
-`The strange story behind the first federal terrorism prosecution of American protesters.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
-
-**NYT Connections Answers for October 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
-https://www.nytimes.com/2026/10/27/crosswords/connections-companion-1235.html
-
-**Israel’s First Election Since Oct. 7, and What Anthropic’s I.P.O. Means for the Whole Economy**\
-`Plus, why Halloween candy is scary expensive.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthropic-ipo.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

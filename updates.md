@@ -1,3 +1,7 @@
+**Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
+`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
+https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
+
 **“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
