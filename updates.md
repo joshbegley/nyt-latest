@@ -1,3 +1,15 @@
+**Utah Investigators Link Teenager’s 1974 Death to Ted Bundy**\
+`Recent developments in a similar case and advances in forensic science linked the death of Melissa Ann Smith, 17, to one of the nation’s most notorious serial killers, officials said.`\
+https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
+
+**Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
+`The three siblings used their wealth and influence to lure and sexually assault women for more than a decade. Eleven of the victims spoke on Tuesday before the brothers were sentenced.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
+
+**Israeli Voting Ends After Strong Turnout With No Clear Winner**\
+`A bloc of opposition parties held a lead over Prime Minister Benjamin Netanyahu’s coalition, according to exit polls. But it could take weeks or even months to form a new government.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
+
 **No Clear Winner in the Israeli Elections, Exit Polls Show**\
 `Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
 https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
