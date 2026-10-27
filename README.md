@@ -1,3 +1,7 @@
+**Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
+`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials and halting projects to build a dining room and firing range.`\
+https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
+
 **Restaurant Review: Noury in New York**\
 `At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-musli
 **Israeli Election Authorities and Volunteers Seek to Counter Threats to Voting**\
 `Election observers point to risks including the growing sophistication and prevalence of A.I.-generated content and senior government officials who have repeatedly suggested the results could be rigged.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-authorities-and-volunteers-seek-to-counter-threats-to-voting.html
-
-**Trump-Appointed CDC Deputy Director Jennifer Shuford Resigns After 4 Months**\
-`Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
-https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
 
 **Live Updates: First Exit Polls Show No Clear Winner in Pivotal Israeli Election**\
 `Prime Minister Benjamin Netanyahu’s Likud party and his allies were battling a bloc of opposition parties led by a former military chief of staff, Gadi Eisenkot. Neither appeared to have won an outright victory.`\
