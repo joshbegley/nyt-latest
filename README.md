@@ -1,3 +1,7 @@
+**Venezuela’s Moment of Truth**\
+`The country’s most popular politician, María Corina Machado, has returned home from exile. What happens next?`\
+https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
+
 **Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
 `The three siblings were convicted earlier this year of a sex trafficking conspiracy that lasted more than a decade. At least 11 of the victims spoke on Tuesday before the brothers were sentenced.`\
 https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
 `At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
 
-**Flávio Bolsonaro Leves Brazil for the. U.S. After Election Defeat**\
+**Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
 `Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
 https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
 
@@ -67,7 +71,7 @@ https://www.nytimes.com/2026/10/27/t-magazine/langers-deli-los-angeles.html
 https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
 
 **European Leaders Split Over Phone Call to Putin**\
-`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcome by all European leaders.`\
+`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcomed by all European leaders.`\
 https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
 
 **Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/well/ai-chatgpt-medication-epilepsy-death.htm
 **When ChatGPT’s Medical Advice Led to Tragedy**\
 `A young woman experiencing side effects from her anti-seizure medicine asked ChatGPT for advice. It helped her to devise a plan to taper off the medication — leading to devastating consequences. Teddy Rosenbluth, a reporter for Well, explores the growing trend of turning to chatbots for medical advice, along with the associated risks.`\
 https://www.nytimes.com/video/well/100000011222851/chatgpt-health-medical-advice-ai-death.html
-
-**Michigan Senate Race Drives Anxiety Among Jewish and Muslim Voters**\
-`More than elsewhere in the country, U.S. policy toward Israel is at the forefront of the race between Mike Rogers and Abdul El-Sayed.`\
-https://www.nytimes.com/2026/10/27/us/politics/michigan-senate-race-jewish-muslim-voters.html
 
 **Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
 `A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
