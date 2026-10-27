@@ -1,5 +1,5 @@
-**Who Stands to Gain from an Anthropic I.P.O.**\
-`Wall Street banks and chipmakers are among those who look set to capitalize on the artificial intelligence giant’s public trading debut.`\
+**Who Stands to Gain From an Anthropic I.P.O.**\
+`Wall Street banks and chipmakers are among those poised to capitalize on the artificial intelligence giant’s public trading debut.`\
 https://www.nytimes.com/2026/10/27/business/dealbook/winners-losers-anthropic-ipo-ai.html
 
 **2 Right-Wingers Who Broke With Netanyahu Could Bid to Unseat Him**\
