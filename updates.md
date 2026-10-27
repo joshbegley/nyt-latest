@@ -1,3 +1,19 @@
+**Do You Have Questions About the U.S. Midterm Elections?**\
+`We want to hear from you.`\
+https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
+
+**How Accurate Are the Midterm Polls? The Bias Varies by State.**\
+`Recent presidential election polls have overestimated Democrats, but midterm polls are far less consistent state by state. The differences could matter quite a bit.`\
+https://www.nytimes.com/2026/10/27/us/politics/midterm-polls-errors-states.html
+
+**Israel’s Election: 4 Things to Watch For**\
+`The election on Tuesday is unlikely to yield quick answers about who might lead the next government.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-four-things.html
+
+**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trail in Michigan**\
+`Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
+https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
+
 **A Restaurant With a Cart of Chicharrones? Tell Me More.**\
 `Norte brings the pleasures of northern Mexican cuisine to the Flatiron district, Cholapink serves up Peruvian street food and more restaurant news.`\
 https://www.nytimes.com/2026/10/27/dining/nyc-restaurant-news.html

@@ -1,3 +1,15 @@
+**Do You Have Questions About the U.S. Midterm Elections?**\
+`We want to hear from you.`\
+https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
+
+**How Accurate Are the Midterm Polls? The Bias Varies by State.**\
+`Recent presidential election polls have overestimated Democrats, but midterm polls are far less consistent state by state. The differences could matter quite a bit.`\
+https://www.nytimes.com/2026/10/27/us/politics/midterm-polls-errors-states.html
+
+**Israel’s Election: 4 Things to Watch For**\
+`The election on Tuesday is unlikely to yield quick answers about who might lead the next government.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-four-things.html
+
 **A Restaurant With a Cart of Chicharrones? Tell Me More.**\
 `Norte brings the pleasures of northern Mexican cuisine to the Flatiron district, Cholapink serves up Peruvian street food and more restaurant news.`\
 https://www.nytimes.com/2026/10/27/dining/nyc-restaurant-news.html
@@ -94,7 +106,7 @@ https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
 `Supporters of the opposition movement that won Sunday’s election stormed the offices of a pro-government tabloid. Another news outlet apologized for years of “one-sided” coverage.`\
 https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
 
-**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trial in Michigan**\
+**RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trail in Michigan**\
 `Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
 https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
 
@@ -169,14 +181,6 @@ https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-perfor
 **Meghan, Actress Turned Duchess, Will Join Australian Cooking Show**\
 `The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
 https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
-
-**Nate Silver’s Predictions for the Midterms**\
-`The polling analyst Nate Silver predicts a “momentous” midterm election on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011232734/nate-silvers-predictions-for-the-midterms.html
-
-**Street Style Look of the Week: ‘Highlighter Chic’**\
-`A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
-https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

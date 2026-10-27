@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-perfor
 `The Duchess of Sussex will be a “special guest” next year on “Junior MasterChef Australia,” the channel that airs it announced.`\
 https://www.nytimes.com/2026/10/27/world/europe/meghan-junior-masterchef-australia.html
 
-**Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
-`Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
+**Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
+`Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
