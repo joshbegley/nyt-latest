@@ -1,3 +1,11 @@
+**Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
+`Halima Salman was brought by her father to ISIS-controlled territory when she was 17. She returned to the United States in 2019.`\
+https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
+
+**In Vienna, a Celebration of Handmade Ceramics and Iconic Austrian Design**\
+`The women behind the housewares brand Carolina Irving & Daughters invited friends to a dinner to mark the launch of their new Wiener Werkstätte-inspired collection.`\
+https://www.nytimes.com/2026/10/27/t-magazine/carolina-irving-daughters-mafalda-kahane-ceramics.html
+
 **Susan Saint James, Emmy Winner Who Starred in ‘Kate & Allie,’ Dies at 80**\
 `In a long career, she was best known for starring opposite Jane Curtin in “Kate & Allie,” a 1980s sitcom about two divorced women raising three children in New York City.`\
 https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-allie.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.ht
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
 `Little known a year ago, she is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
-
-**China Steps In to Rescue Stocks, But the Market Continues to Fall**\
-`The Communist Party uses a “national team” of state-owned investment funds to stem the market rout. But this time, investors are not sure it will work.`\
-https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
-
-**Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
-`The parents of the Minneapolis nurse who was fatally shot by federal agents in January said on Tuesday that the government had ignored and misled them.`\
-https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
 
 **Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
