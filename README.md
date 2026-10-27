@@ -1,3 +1,7 @@
+**5 Key Moments From Israel’s Pivotal Election Campaign**\
+`New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
+
 **Nate Silver Predicts a ‘Momentous’ Midterm**\
 `The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
 https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/realestate/childrens-furniture-designers.html
 **Jane Schoenbrun’s First Novel is Another Exploration of Weird Pop Culture**\
 `The filmmaker Jane Schoenbrun envisioned a sci-fi TV series about a sinister video store. “Public Access Afterworld” is the ambitious 600-page result.`\
 https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld-book.html
-
-**Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
-`President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
-https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
 
