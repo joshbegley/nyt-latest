@@ -1,3 +1,19 @@
+**Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
+`Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
+https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
+
+**A High-Stakes Election: ‘Let Us Choose Wisely’**\
+`Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
+https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
+
+**E.P.A. to Loosen Methane Rules for Oil Firms**\
+`The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
+https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
+
+**Before the Plaza’s Glow-Up, One More ‘Gilded’ Party**\
+`Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
+https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
+
 **E.P.A. to Loosen Methan Rules for Oil Firms**\
 `The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
 https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html

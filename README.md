@@ -1,3 +1,7 @@
+**Canada’s Climate Policies Go on Trial**\
+`Draft preview text here for visibility and workshopping (It will not show up in newsletter)`\
+https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
+
 **Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
 `Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
 https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
@@ -177,14 +181,6 @@ https://www.nytimes.com/2026/10/27/crosswords/strands-sidekick-969.html
 **5 Key Moments From Israel’s Pivotal Election Campaign**\
 `New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
-
-**Nate Silver on What the Polls Say — and What His Gut’s Telling Him**\
-`The election forecaster Nate Silver breaks down the likelihood of a G.O.P. wipeout.`\
-https://www.nytimes.com/2026/10/27/opinion/ezra-klein-podcast-nate-silver.html
-
-**How Much Health Data Is Too Much?**\
-`To find out if wearables and self-pay tests actually improve health, one of our hosts tracked her data 24/7 for six months.`\
-https://www.nytimes.com/2026/10/27/podcasts/how-much-health-data-is-too-much.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
