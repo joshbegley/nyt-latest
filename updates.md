@@ -1,3 +1,87 @@
+**Bradley Whitford, Tom Blyth and Krysta Rodriguez on Sorkin’s ‘A Few Good Men’**\
+`Bradley Whitford, Tom Blyth and Krysta Rodriguez are starring in a revival of Aaron Sorkin’s breakthrough, “A Few Good Men,” at Lincoln Center Theater.`\
+https://www.nytimes.com/2026/10/27/theater/few-good-men-whitford-blyth-sorkin.html
+
+**‘Event Horizon’: The Cosmic Horror Flop That Rose From the Void**\
+`Paul W.S. Anderson’s nightmarish 1997 space film starring Sam Neill became a pulpy horror classic after shocking viewers expecting a simple space adventure.`\
+https://www.nytimes.com/2026/10/27/movies/event-horizon-good-bad.html
+
+**Word of the Day: diametrically**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/27/learning/word-of-the-day-diametrically.html
+
+**Why Gen Z Is Running for Congress in 2026**\
+`More than 100 candidates under the age of 29 filed to run for Congress this election cycle. The New York Times spoke to five of these Gen Z candidates and asked them a series of questions to understand their qualifications and positions on key issues.`\
+https://www.nytimes.com/video/us/elections/100000011191925/gen-z-congress-midterms.html
+
+**The Art of the City Teen Side Hustle**\
+`Children and teenagers in New York are still earning money shoveling sidewalks and watching your cats.`\
+https://www.nytimes.com/2026/10/27/realestate/teenage-entrepreneurs-new-york-city.html
+
+**Lewd, Leering and Reveling in Opera’s Queerness**\
+`Heartbeat’s Drag Opera Extravaganza, a yearly event around Halloween, is an off-color pastiche of opera and pop culture. This year: “Queeney Todd.”`\
+https://www.nytimes.com/2026/10/27/arts/music/heartbeat-drag-opera-extravaganza-queeney-todd.html
+
+**‘Sweeney Todd’ Drag Opera Parody Draws Audiences to New York City Church**\
+`Judson Memorial Church in New York City hosts Heartbeat’s Drag Opera Extravaganza for the 11th year. This year the seasonal event featured, “Queeney Todd: The Demon Bottom of Fleet Street.”`\
+https://www.nytimes.com/video/arts/100000011237303/drag-opera-new-york-city-theater.html
+
+**Antidepressants Don’t Correct A Chemical Imbalance. How, Then, Do They Work?**\
+`Here’s how psychiatrists like me think about the most promising hypotheses.`\
+https://www.nytimes.com/2026/10/27/science/how-antidepressants-ssri-work.html
+
+**Book Review: ‘Public Access Afterworld,’ by Jane Schoenbrun**\
+`In the filmmaker Jane Schoenbrun’s first novel, a strange broadcast invites curious outsiders to an alternate world behind the screen.`\
+https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld.html
+
+**Brady Farrar Goes From ‘Dance Moms’ to Choreographing for ABT**\
+`At 21, Brady Farrar, a child star for a season of reality television, is the youngest person to have choreographed a dance for the American Ballet Theater.`\
+https://www.nytimes.com/2026/10/27/arts/dance/brady-farrar-american-ballet-theater-choreographer.html
+
+**Hong Kong’s ‘Apartment Horror’ Films Skewer Its Ghastly Property Market**\
+`In one of the world’s least affordable housing markets, high-density housing is a backdrop for exploring superstition and socioeconomic anxiety.`\
+https://www.nytimes.com/2026/10/27/world/asia/hong-kong-apartment-horror-movies.html
+
+**Book Review: ‘American Socialist,’ by Shawn Gude**\
+`In “American Socialist,” Shawn Gude tracks the rise and fall of the movement led by the left-wing presidential candidate Eugene V. Debs.`\
+https://www.nytimes.com/2026/10/27/books/review/american-socialist-shawn-gude.html
+
+**Celebrating the Life of Jimmy Buffett on Alabama’s Gulf Coast**\
+`The “son of a son of a sailor” grew up on the Gulf, and a new museum, hoping to attract the Parrothead nation, celebrates his early life and career. A Times journalist and friend offers a look.`\
+https://www.nytimes.com/2026/10/27/travel/new-jimmy-buffett-exhibit-mobile-alabama.html
+
+**Should There Be Screen Time Limits in School?**\
+`A recent study found that 73 percent of teachers strongly or somewhat supported screen time restrictions for students. What are your thoughts?`\
+https://www.nytimes.com/2026/10/27/learning/should-there-be-screen-time-limits-in-school.html
+
+**Is There a Healthier Way to Eat Halloween Candy?**\
+`We asked experts whether it’s better to devour your treats in a day or savor them for weeks.`\
+https://www.nytimes.com/2026/10/27/well/eat/halloween-candy-sugar-calories.html
+
+**A Showcase of Works by the Designer Gio Ponti in New York**\
+`From skyscrapers to chairs to whimsical coat hooks, the Milan native Gio Ponti, who died in 1979, left an extraordinary legacy.`\
+https://www.nytimes.com/2026/10/27/arts/design/gio-ponti-exhibition-new-york.html
+
+**Ragtime: The Music That’s Everywhere and Nowhere**\
+`It is one of music’s most enduring genres, but its role in American culture has often been lost to time. This exhibition is aiming to change that.`\
+https://www.nytimes.com/2026/10/27/arts/design/ragtime-morgan-joplin-hogan.html
+
+**The Denver Art Museum Explores the Diva Universe**\
+`Against a glittering backdrop and to the beat of a powerful soundtrack, an art museum exhibition gives the Dollys, Whitneys and Marías their due.`\
+https://www.nytimes.com/2026/10/27/arts/design/museums-denver-divas-exhibition.html
+
+**Across the U.S., Neon Signs Are Being Celebrated at Museums and Parks**\
+`Across the United States, from Nevada to Missouri, museums and parks are displaying and honoring signs that “are like jewels on a necklace of the road.”`\
+https://www.nytimes.com/2026/10/27/arts/design/neon-signs-musems.html
+
+**The Brands Making Furniture to Please Kids and Their Parents**\
+`The children’s furniture market has expanded far beyond cribs and changing tables.`\
+https://www.nytimes.com/2026/10/27/realestate/childrens-furniture-designers.html
+
+**Jane Schoenbrun’s First Novel is Another Exploration of Weird Pop Culture**\
+`The filmmaker Jane Schoenbrun envisioned a sci-fi TV series about a sinister video store. “Public Access Afterworld” is the ambitious 600-page result.`\
+https://www.nytimes.com/2026/10/27/books/review/jane-schoenbrun-public-access-afterworld-book.html
+
 **Jordan Airstrikes on Syria Kill Seven Civilians, Syrian State Media Says**\
 `The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
