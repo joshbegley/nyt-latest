@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for October 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/27/crosswords/spelling-bee-forum.html
+
+**A Trump Die-Hard Is Suddenly at Risk in an Upstate G.O.P. District**\
+`Blake Gendebien, a Democratic dairy farmer, is trying to flip a House seat in upstate New York, and his opponent’s loyalty to President Trump may be helping.`\
+https://www.nytimes.com/2026/10/27/nyregion/constantino-gendebien-stefanik-ny21.html
+
+**What to Know About the Alexander Brothers’ Sentencing for Sex Crimes**\
+`The three men face life in prison for running a decades-long sex trafficking scheme. Several of the victims are expected to speak at the sentencing.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sex-trafficking.html
+
 **Jimmy Kimmel Proposes a Battle of Wits Between Trump and Obama**\
 `“There is only one way to settle this: roast battle on the White House lawn, live,” Kimmel offered, after former President Barack Obama mocked President Trump.`\
 https://www.nytimes.com/2026/10/27/arts/television/jimmy-kimmel-trump-obama-roast.html

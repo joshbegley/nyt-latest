@@ -1,3 +1,15 @@
+**NYT Spelling Bee Answers for October 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/27/crosswords/spelling-bee-forum.html
+
+**A Trump Die-Hard Is Suddenly at Risk in an Upstate G.O.P. District**\
+`Blake Gendebien, a Democratic dairy farmer, is trying to flip a House seat in upstate New York, and his opponent’s loyalty to President Trump may be helping.`\
+https://www.nytimes.com/2026/10/27/nyregion/constantino-gendebien-stefanik-ny21.html
+
+**What to Know About the Alexander Brothers’ Sentencing for Sex Crimes**\
+`The three men face life in prison for running a decades-long sex trafficking scheme. Several of the victims are expected to speak at the sentencing.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sex-trafficking.html
+
 **Jimmy Kimmel Proposes a Battle of Wits Between Trump and Obama**\
 `“There is only one way to settle this: roast battle on the White House lawn, live,” Kimmel offered, after former President Barack Obama mocked President Trump.`\
 https://www.nytimes.com/2026/10/27/arts/television/jimmy-kimmel-trump-obama-roast.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/26/briefing/twin-cities-commute.html
 **Gaze at the Cosmic Dawn in Dizzying Detail**\
 `A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
 https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
-
-**Astronomers Create Detailed Simulation of the Early Universe**\
-`Astronomers developed a simulation, called Lumina, that shows what most of the universe’s first two billion years might have looked like. To test its results, the team behind the project has started comparing it with actual observations from NASA.`\
-https://www.nytimes.com/video/science/100000011236561/universe-simulation-lumina.html
-
-**Questions for Reporters**\
-`Have questions for reporters at The New York Times? We’ll help get them answered.`\
-https://www.nytimes.com/2026/10/26/briefing/questions-for-reporters.html
-
-**Election Surprises**\
-`Serbia and Brazil are very different countries. But their unexpected election results tell us a lot.`\
-https://www.nytimes.com/2026/10/26/world/brazil-serbia-election-results-anthropic.html
 
