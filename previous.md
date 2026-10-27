@@ -1,3 +1,7 @@
+**Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
+`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
+https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
+
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
 `Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons with New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/27/magazine/breathwork-snoring-anxiety.html
 **In the A.I. ‘Robogym,’ Machines Train to Be More Like Humans**\
 `Germany’s Neura is one of the companies at the forefront of efforts to use artificial intelligence in robotics, and crucial to whether Europe can close the gap with China.`\
 https://www.nytimes.com/2026/10/27/business/neura-robotics-germany-china-ai.html
-
-**Looks From PoloFest in Tokyo, a Meet-Up for Collectors, Vintage Sellers and Fans**\
-`Collectors, influencers and vintage purveyors converged in Tokyo for the first PoloFest.`\
-https://www.nytimes.com/2026/10/27/style/polofest-tokyo-ralph-lauren.html
 
 **Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\

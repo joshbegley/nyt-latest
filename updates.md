@@ -1,3 +1,7 @@
+**Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
+`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
+https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
+
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
 `Little known a year ago, Nithya Raman is a Democratic Socialist drawing comparisons with New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
 https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
