@@ -1,3 +1,7 @@
+**Justice Department Charges James Comey for the Third Time**\
+`Federal prosecutors have brought charges against James Comey, the former F.B.I. director, for the third time. He is accused of mishandling national security information in October 2016, according to court papers.`\
+https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
+
 **European Leaders Split Over Phone Call to Putin**\
 `The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcome by all European leaders.`\
 https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
