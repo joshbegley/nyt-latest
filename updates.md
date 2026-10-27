@@ -1,3 +1,11 @@
+**No Clear Winner in the Israeli Elections, Exit Polls Show**\
+`Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
+https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
+
+**Live Updates: Israeli Opposition Holds Slim Lead Over Netanyahu’s Coalition in Exit Polls**\
+`No clear winner emerged in an election that produced the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
 `No clear winner emerged in an election that produced the highest turnout in decades. A bloc led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
