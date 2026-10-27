@@ -1,3 +1,15 @@
+**Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
+`Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
+https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
+
+**Milwaukee vs. Tampa: A World Series Playlist**\
+`Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
+https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
+
+**The Christian Influencer at the Center of Ken Paxton’s New Life**\
+`The Texas attorney general has been silent about his relationship with Tracy Duhon, a New Orleans woman who has built a personal brand around faith and redemption.`\
+https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
+
 **“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
@@ -99,7 +111,7 @@ https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
 
 **Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
-`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at a private auction, this time at Sotheby’s.`\
+`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
 https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
@@ -165,22 +177,6 @@ https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
 **British Man Charged With Helping Iranian Intelligence In RAF Fairford Incident**\
 `A second British man was also charged on Tuesday in connection with the events at R.A.F. Fairford, a base used by the United States in its war against Iran.`\
 https://www.nytimes.com/2026/10/27/world/europe/raf-fairford-charges-uk-air-base-us-iran.html
-
-**The State of the American Sports Fan**\
-`We polled liberals and conservatives on their favorite players, the trans-athlete debate and more.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-state-of-the-american-sports-fan.html
-
-**They Protested ICE. Now They’ve Been Convicted of Terrorism.**\
-`The strange story behind the first federal terrorism prosecution of American protesters.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-daily/antifa-ice-terrorism.html
-
-**NYT Connections Answers for October 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
-https://www.nytimes.com/2026/10/27/crosswords/connections-companion-1235.html
-
-**Israel’s First Election Since Oct. 7, and What Anthropic’s I.P.O. Means for the Whole Economy**\
-`Plus, why Halloween candy is scary expensive.`\
-https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthropic-ipo.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

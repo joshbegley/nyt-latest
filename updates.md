@@ -1,3 +1,19 @@
+**Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
+`Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
+https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
+
+**Milwaukee vs. Tampa: A World Series Playlist**\
+`Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
+https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
+
+**The Christian Influencer at the Center of Ken Paxton’s New Life**\
+`The Texas attorney general has been silent about his relationship with Tracy Duhon, a New Orleans woman who has built a personal brand around faith and redemption.`\
+https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
+
+**Skeleton of Nanotyrannus ‘Jodi,’ T. Rex’s Cousin, Is Auctioned for $47.3 Million**\
+`The Nanotyrannus specimen is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
+https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
+
 **Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
 `The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
 https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
