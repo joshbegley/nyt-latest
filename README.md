@@ -1,5 +1,13 @@
+**The U.S. Called It Putin’s ‘Slush Fund.’ Now Trump May Drop Sanctions on It.**\
+`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
+https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
+
+**Political Satire Is an American Tradition. Deceptive A.I. Ads Are Not.**\
+`Despite how cringeworthy they are, political campaigns have spent $137 million on A.I.-generated ads for the midterms. And the lack of regulation on these ads is warping our sense of what’s real. The Opinion writer Rotimi Adeoye argues that while this kind of political satire falls under First Amendment protection, “you should be free to fake a politician, but you shouldn’t be free to hide the fact that you did.”`\
+https://www.nytimes.com/video/opinion/100000011237739/political-satire-is-an-american-tradition-deceptive-ai-ads-are-not.html
+
 **Canada’s Climate Policies Go on Trial**\
-`Draft preview text here for visibility and workshopping (It will not show up in newsletter)`\
+`The case, La Rose v. His Majesty the King, is the first youth-led federal case in Canada to be heard.`\
 https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
 
 **Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
@@ -173,14 +181,6 @@ https://www.nytimes.com/2026/10/27/podcasts/the-headlines/israel-election-anthro
 **Today’s Wordle Hints for October 28, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
 https://www.nytimes.com/2026/10/27/crosswords/wordle-review-1957.html
-
-**NYT Strands Hints for October 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 28, 2026.`\
-https://www.nytimes.com/2026/10/27/crosswords/strands-sidekick-969.html
-
-**5 Key Moments From Israel’s Pivotal Election Campaign**\
-`New political alliances, a contentious A.I. video and accusations about security failures all featured in the run-up to Tuesday’s election, widely seen as one of the most consequential in Israeli history.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-campaign-highlights.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
