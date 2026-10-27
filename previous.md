@@ -1,3 +1,7 @@
+**Street Style Look of the Week: ‘Highlighter Chic’**\
+`A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
+https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
+
 **U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
 `The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
 https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/realestate/teenage-entrepreneurs-new-york-cit
 **Lewd, Leering and Reveling in Opera’s Queerness**\
 `Heartbeat’s Drag Opera Extravaganza, a yearly event around Halloween, is an off-color pastiche of opera and pop culture. This year: “Queeney Todd.”`\
 https://www.nytimes.com/2026/10/27/arts/music/heartbeat-drag-opera-extravaganza-queeney-todd.html
-
-**‘Sweeney Todd’ Drag Opera Parody Draws Audiences to New York City Church**\
-`Judson Memorial Church in New York City hosts Heartbeat’s Drag Opera Extravaganza for the 11th year. This year the seasonal event featured, “Queeney Todd: The Demon Bottom of Fleet Street.”`\
-https://www.nytimes.com/video/arts/100000011237303/drag-opera-new-york-city-theater.html
 

@@ -1,3 +1,7 @@
+**Street Style Look of the Week: ‘Highlighter Chic’**\
+`A couple on their way to an art fair in London paused to extol the virtues of color, which they called “the greatest source of joy in our lives.”`\
+https://www.nytimes.com/2026/10/27/style/street-style-look-highlighter-chic.html
+
 **U.C.L.A. Asks Judge to Dismiss Trump Lawsuit Over Antisemitism**\
 `The filing was the second time in less than a month that the university moved to throw out a federal lawsuit about its actions after the Oct. 7 attack on Israel.`\
 https://www.nytimes.com/2026/10/27/us/ucla-trump-lawsuit-antisemitism-employees.html
