@@ -1,3 +1,7 @@
+**Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
+`Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
+
 **The Surprise Tossups**\
 `We look at how gerrymandering shapes the midterm elections.`\
 https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/27/world/asia/hong-kong-apartment-horror-movies.
 **Book Review: ‘American Socialist,’ by Shawn Gude**\
 `In “American Socialist,” Shawn Gude tracks the rise and fall of the movement led by the left-wing presidential candidate Eugene V. Debs.`\
 https://www.nytimes.com/2026/10/27/books/review/american-socialist-shawn-gude.html
-
-**Celebrating the Life of Jimmy Buffett on Alabama’s Gulf Coast**\
-`The “son of a son of a sailor” grew up on the Gulf, and a new museum, hoping to attract the Parrothead nation, celebrates his early life and career. A Times journalist and friend offers a look.`\
-https://www.nytimes.com/2026/10/27/travel/new-jimmy-buffett-exhibit-mobile-alabama.html
 

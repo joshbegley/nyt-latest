@@ -44,7 +44,7 @@ https://www.nytimes.com/2026/10/27/podcasts/how-much-health-data-is-too-much.htm
 
 **In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
 `Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
-https://www.nytimes.com/2026/10/27/business/in-anthropic-ipo-goldman-and-morgan-stanley-slug-it-out-for-top-bank.html
+https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley.html
 
 **Corrections: Oct. 27, 2026**\
 `Corrections that appeared in print on Tuesday, Oct. 27, 2027.`\

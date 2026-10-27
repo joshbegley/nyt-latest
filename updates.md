@@ -1,3 +1,7 @@
+**In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
+`Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
+https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley.html
+
 **The Surprise Tossups**\
 `We look at how gerrymandering shapes the midterm elections.`\
 https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
