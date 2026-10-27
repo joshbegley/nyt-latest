@@ -1,3 +1,11 @@
+**Obama’s ‘Cheesecake Factory’ Jab Rankles Trump on Mississippi Campaign Stop**\
+`Former President Barack Obama had cast his successor as out of touch while jabbing at his extravagant sense of style. Mr. Trump responded at length.`\
+https://www.nytimes.com/2026/10/26/us/politics/obamas-cheesecake-factory-jab-rankles-trump-on-mississippi-campaign-stop.html
+
+**NYT Crossword Answers for Oct. 27, 2026**\
+`Jeff Chen and Bharati Hemmady make their collaborative debut in the New York Times Crossword.`\
+https://www.nytimes.com/2026/10/26/crosswords/daily-puzzle-2026-10-27.html
+
 **Jay-Z Announced as 2027 Super Bowl Halftime Show Performer**\
 `It will be the eighth Super Bowl halftime show produced by Roc Nation, the entertainment and sports company founded by the rapper and businessman.`\
 https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performer.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-
 **Journalism Essentials: Seeking the Truth ‘Without Fear or Favor’**\
 `We explain a core value of many newsrooms: journalistic independence.`\
 https://www.nytimes.com/2026/10/26/learning/journalism-essentials-seeking-the-truth-without-fear-or-favor.html
-
-**Trump Slings Insults at Norway for Not Winning Nobel Prize**\
-`President Trump disparaged Norway to express his irritation over not winning the Nobel Peace Prize. Norwegian officials have repeatedly stated that they don’t have any influence over the award.`\
-https://www.nytimes.com/video/us/100000011237056/trump-norway-nobel-peace-prize.html
-
-**The Key Numbers From Anthropic’s IPO Filing**\
-`We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
-https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
 

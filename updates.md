@@ -1,3 +1,11 @@
+**Obama’s ‘Cheesecake Factory’ Jab Rankles Trump on Mississippi Campaign Stop**\
+`Former President Barack Obama had cast his successor as out of touch while jabbing at his extravagant sense of style. Mr. Trump responded at length.`\
+https://www.nytimes.com/2026/10/26/us/politics/obamas-cheesecake-factory-jab-rankles-trump-on-mississippi-campaign-stop.html
+
+**NYT Crossword Answers for Oct. 27, 2026**\
+`Jeff Chen and Bharati Hemmady make their collaborative debut in the New York Times Crossword.`\
+https://www.nytimes.com/2026/10/26/crosswords/daily-puzzle-2026-10-27.html
+
 **Jay-Z Announced as 2027 Super Bowl Halftime Show Performer**\
 `It will be the eighth Super Bowl halftime show produced by Roc Nation, the entertainment and sports company founded by the rapper and businessman.`\
 https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performer.html
