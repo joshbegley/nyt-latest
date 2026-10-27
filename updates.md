@@ -1,3 +1,11 @@
+**NYC Ballot Measures: What to Know About the 5 Proposals Before Election Day**\
+`Bike lanes, outdoor dining and paperwork for contractors all figure in the amendments on the back of New Yorkers' ballots.`\
+https://www.nytimes.com/interactive/2026/10/26/nyregion/nyc-ballot-measures-proposals.html
+
+**Book Review: ‘Princes and Thieves,’ by Matthew Cole**\
+`The new book by the reporter Matthew Cole connects $2 billion in slush funds from gulf state leaders to Trump’s son-in-law in an effort to influence U.S. policy.`\
+https://www.nytimes.com/2026/10/26/books/review/princes-and-thieves-matthew-cole.html
+
 **Trump Isn’t as Powerful as He Seems**\
 `After more than a decade of Trump looming over American politics, many believe that he can do whatever he wants, says the columnist Jamelle Bouie on “The Opinions.” But he urges us to remember: Just because there’s a will doesn’t always mean there’s a way.`\
 https://www.nytimes.com/video/opinion/100000011230471/trump-isnt-as-powerful-as-he-seems.html
