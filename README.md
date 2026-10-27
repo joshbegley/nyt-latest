@@ -1,3 +1,11 @@
+**Live Updates: Israel Votes in Election Seen as Referendum on Netanyahu**\
+`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
+**What It Will Take to Defeat the Houthis**\
+`The international community should set a clear goal to end the Yemeni group as an armed terrorist force.`\
+https://www.nytimes.com/2026/10/27/opinion/houthis-yemen-saudi-arabia.html
+
 **Quote of the Day: Edgy Markets See Bellwether in Anthropic I.P.O.**\
 `Quotation of the Day for Tuesday, October 27, 2026.`\
 https://www.nytimes.com/2026/10/27/pageoneplus/quote-of-the-day-edgy-markets-see-bellwether-in-anthropic-ipo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011236847/brazil-election-lul
 **Israel Has Committed Genocidal Acts in Gaza Since Cease-Fire, U.N. Human Rights Panel Says**\
 `The panel also accuses Israel of committing crimes against humanity in the West Bank. Israel condemned the report.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/un-human-rights-panel-israel-palestinians.html
-
-**Civilian Suffering Was Goal of Russian Strikes in Ukraine, U.N. Panel Says**\
-`The assaults on infrastructure, which cut off heat and power on bitterly cold winter days, amounted to a crime against humanity, investigators said.`\
-https://www.nytimes.com/2026/10/26/world/europe/russia-ukraine-energy-strikes-un.html
-
-**Last Ditch, a Lesbian Bar Whose Mask Policy Made It Famous, Will Close**\
-`The Massachusetts bar, which catered to lesbians, lifted its Covid mask requirement once a week to attract more patrons. The decision brought criticism and national attention, but did not save the business.`\
-https://www.nytimes.com/2026/10/26/us/last-ditch-lesbian-bar-closing.html
 
