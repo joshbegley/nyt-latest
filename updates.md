@@ -1,3 +1,19 @@
+**Venezuela’s Moment of Truth**\
+`The country’s most popular politician, María Corina Machado, has returned home from exile. What happens next?`\
+https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
+
+**Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
+`The three siblings were convicted earlier this year of a sex trafficking conspiracy that lasted more than a decade. At least 11 of the victims spoke on Tuesday before the brothers were sentenced.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
+
+**Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
+`Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
+https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
+
+**European Leaders Split Over Phone Call to Putin**\
+`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcomed by all European leaders.`\
+https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
+
 **What to Expect Now That Polls Are Closed in Israel**\
 `Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
