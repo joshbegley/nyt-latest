@@ -1,3 +1,11 @@
+**Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
+`President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
+https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
+
+**Jordan Airstrikes On Syria Kill Seven Civilians, Syrian State Media Says**\
+`The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
+
 **15-Minute Lesson Plan: Senate Midterms Game**\
 `Which party will control Congress after the midterm elections and why does it matter?`\
 https://www.nytimes.com/2026/10/27/learning/15-minute-lesson-plan-senate-midterms-game.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/26/briefing/3-questions.html
 **What Early Voting Can Reveal About the 2026 Midterm Elections So Far**\
 `Millions of early votes tell us less than many would think, but there are key takeaways from results in Texas, Kansas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/10/26/us/midterm-elections-early-voting-takeaways.html
-
-**Teen Arrested in Florida Shooting Will Be Tried as Adult, Officials Say**\
-`The 15-year-old suspect will be charged with 11 counts of attempted second-degree murder after the shooting on Saturday that happened after Florida A&M’s homecoming game.`\
-https://www.nytimes.com/2026/10/26/us/famu-shooting-florida-arrest.html
-
-**Share Your Commute with The Local: Twin Cities**\
-`Do you have a particularly notable commute? We’d like to hear from you.`\
-https://www.nytimes.com/2026/10/26/briefing/twin-cities-commute.html
 

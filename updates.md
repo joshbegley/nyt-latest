@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Senate Midterms Game**\
+`Which party will control Congress after the midterm elections and why does it matter?`\
+https://www.nytimes.com/2026/10/27/learning/15-minute-lesson-plan-senate-midterms-game.html
+
 **What to Know About the Cease-Fire for a Besieged Ukrainian City**\
 `Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
 https://www.nytimes.com/2026/10/26/world/europe/oleshky-cease-fire.html
