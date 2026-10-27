@@ -1,3 +1,7 @@
+**Nate Silver’s Predictions for the Midterms**\
+`The polling analyst Nate Silver predicts a “momentous” midterm election on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011232734/nate-silvers-predictions-for-the-midterms.html
+
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
