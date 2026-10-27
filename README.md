@@ -1,3 +1,7 @@
+**Book Review: ‘Princes and Thieves,’ by Matthew Cole**\
+`The new book by the reporter Matthew Cole connects $2 billion in slush funds from gulf state leaders to Trump’s son-in-law in an effort to influence U.S. policy.`\
+https://www.nytimes.com/2026/10/26/books/review/princes-and-thieves-matthew-cole.html
+
 **Trump Isn’t as Powerful as He Seems**\
 `After more than a decade of Trump looming over American politics, many believe that he can do whatever he wants, says the columnist Jamelle Bouie on “The Opinions.” But he urges us to remember: Just because there’s a will doesn’t always mean there’s a way.`\
 https://www.nytimes.com/video/opinion/100000011230471/trump-isnt-as-powerful-as-he-seems.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011231247/how-scuffles-at-trump-
 **Egypt OKs Military Aid to Saudis in Fight With Houthis**\
 `The Egyptians will commit forces for defensive purposes only, officials have said, as the kingdom exchanges increasingly deadly strikes with the Iranian-backed militia in Yemen.`\
 https://www.nytimes.com/2026/10/26/world/middleeast/egypt-military-saudi-houthis.html
-
-**Anthropic’s IPO S-1 Spells Out a Future of Promise and Peril**\
-`The A.I. company took great pains to describe the many benefits that can come from using its Claude chatbot and technology, but also offered up a heavy dose of gloom.`\
-https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
 
