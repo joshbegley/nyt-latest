@@ -1,3 +1,7 @@
+**Low-Key or Electric? The Style Gulf Splitting the Democratic Party**\
+`Should a candidate light the world on fire, or is being a little bit boring actually a secret weapon?`\
+https://www.nytimes.com/2026/10/27/us/politics/low-key-or-electric-the-style-gulf-splitting-the-democratic-party.html
+
 **Exit Polls in Israel Show No Clear Winner**\
 `Also, Trump is set to loosen methane rules. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/10/27/briefing/israel-election-candy-prices.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-v
 **RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trail in Michigan**\
 `Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
 https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
-
-**Israelis Head to the Polls in High-Stakes National Election**\
-`Polls opened in Israel on Tuesday as citizens voted in a national election widely described as the most consequential in the country’s history.`\
-https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-netanyahu-polls.html
 
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
 `No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\

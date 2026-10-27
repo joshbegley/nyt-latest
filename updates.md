@@ -1,3 +1,15 @@
+**Exit Polls in Israel Show No Clear Winner**\
+`Also, Trump is set to loosen methane rules. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/27/briefing/israel-election-candy-prices.html
+
+**Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
+`The three siblings used their wealth and influence to lure women and sexually assault for more than a decade. At least 11 of their victims spoke on Tuesday before they were sentenced.`\
+https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
+
+**Israeli Voting Ends After Record Turnout With No Clear Winner**\
+`A bloc of opposition parties held a lead over Prime Minister Benjamin Netanyahu’s coalition, according to exit polls. But it could take weeks or even months to form a new government.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
+
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
 `No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
