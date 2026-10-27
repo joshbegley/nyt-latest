@@ -1,3 +1,15 @@
+**GM Is Leaving NYSE for the Nasdaq After More Than 100 Years**\
+`After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
+https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
+
+**Serbian Students, Victorious and Leaderless, Go After the Media**\
+`Supporters of the opposition movement that won Sunday’s election stormed the offices of a pro-government tabloid. Another news outlet apologized for years of “one-sided” coverage.`\
+https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
+
+**Trump’s Never-Go-to-Jail Card**\
+`The president has initiated extensive maneuvers to personally profit as a private citizen while wielding the threat of his public power.`\
+https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
+
 **RFK Jr. Makes Bigoted Remarks About Arabs on the Campaign Trial in Michigan**\
 `Stumping for the Republican Senate nominee in Michigan, Health Secretary Robert F. Kennedy Jr. falsely claimed that Arabs did not win global awards for science and “don’t produce literature.”`\
 https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
