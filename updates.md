@@ -1,3 +1,7 @@
+**A New Dwarf Planet (Probably) Spotted Beyond Pluto**\
+`The object, known for now as 2026 ED138, is one of the first discoveries by the new Vera C. Rubin Observatory in Chile.`\
+https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.html
+
 **Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
 `Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections

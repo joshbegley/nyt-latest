@@ -1,3 +1,7 @@
+**A New Dwarf Planet (Probably) Spotted Beyond Pluto**\
+`The object, known for now as 2026 ED138, is one of the first discoveries by the new Vera C. Rubin Observatory in Chile.`\
+https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.html
+
 **Utah Investigators Link Teenager’s 1974 Death to Ted Bundy**\
 `Recent developments in a similar case and advances in forensic science linked the death of Melissa Ann Smith, 17, to one of the nation’s most notorious serial killers, officials said.`\
 https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/style/true-vintage-bidstitch.html
 **Before the Plaza’s Glow-Up, One More ‘Gilded’ Party**\
 `Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
 https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
-
-**Prominent Texas Congregation Votes to Leave United Methodist Church**\
-`Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
-https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
 
 **Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
 `Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
