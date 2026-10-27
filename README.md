@@ -1,4 +1,8 @@
-**E.P.A. to Loosen Methan Rules for Oil Firms**\
+**A High-Stakes Election: ‘Let Us Choose Wisely’**\
+`Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
+https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
+
+**E.P.A. to Loosen Methane Rules for Oil Firms**\
 `The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
 https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
 
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.ht
 `It’s expensive and subject to trends, but the gems still delight.`\
 https://www.nytimes.com/2026/10/27/style/true-vintage-bidstitch.html
 
-**Before the Plaza’s Glow-Up, One Last ‘Gilded’ Party**\
+**Before the Plaza’s Glow-Up, One More ‘Gilded’ Party**\
 `Cast members from HBO’s “The Gilded Age” snacked on cheese tortelloni and duck shawarma and had their portraits sketched at the Plaza Hotel on Monday night.`\
 https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/podcasts/how-much-health-data-is-too-much.htm
 **In Anthropic I.P.O., Goldman and Morgan Stanley Slug It Out for Top Bank**\
 `Anthropic named the Wall Street firms lead underwriters on its upcoming public offering, a role that will generate generous fees and enormous prestige.`\
 https://www.nytimes.com/2026/10/27/business/anthropic-ipo-goldman-morgan-stanley.html
-
-**Corrections: Oct. 27, 2026**\
-`Corrections that appeared in print on Tuesday, Oct. 27, 2027.`\
-https://www.nytimes.com/2026/10/27/pageoneplus/editors-note-oct-27-2026.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\

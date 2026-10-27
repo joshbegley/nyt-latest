@@ -1,3 +1,11 @@
+**E.P.A. to Loosen Methan Rules for Oil Firms**\
+`The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
+https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
+
+**Nithya Raman Is Not L.A.’s Mamdani. But She Might Become Mayor, Too.**\
+`Little known a year ago, she is a Democratic Socialist drawing comparisons to New York’s Zohran Mamdani. She has mounted a strong challenge to the incumbent, Karen Bass.`\
+https://www.nytimes.com/2026/10/27/us/politics/los-angeles-mayor-nithya-raman-democratic-socialist.html
+
 **In Congress, Support for Israel Is Waning Among Democrats**\
 `Anger has focused on Prime Minister Benjamin Netanyahu, who has become a political lightning rod in the United States, and the high death toll in Gaza.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/house-democrats-us-israel.html
