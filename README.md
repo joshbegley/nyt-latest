@@ -1,3 +1,11 @@
+**As Election Nears, Reports of an Increase in ICE Arrests Across California**\
+`Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
+https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
+
+**Justice Dept. Steps Up Moves on Comey and Others as Midterm Elections Near**\
+`In some cases, court paperwork bears unmistakable signs of urgency — typos, unorthodox tactics and the signatures of the department’s senior political leadership.`\
+https://www.nytimes.com/2026/10/27/us/politics/trump-blanche-elections-comey.html
+
 **South Africa Deploys 500 Soldiers to Quell Anti-Immigration Violence**\
 `The deployment comes after a foreign national was beaten to death by a mob during an anti-immigrant protest last week.`\
 https://www.nytimes.com/2026/10/27/world/africa/south-africa-durban-soldiers.html
@@ -169,14 +177,6 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-avigdor-libe
 **India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
 `The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
 https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
-
-**Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
-`Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
-
-**The Surprise Tossups**\
-`We look at how gerrymandering shapes the midterm elections.`\
-https://www.nytimes.com/2026/10/27/briefing/the-surprise-tossups.html
 
 **Live Updates: Record Turnout in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Polls close Tuesday night but might not immediately deliver a clear winner.`\
