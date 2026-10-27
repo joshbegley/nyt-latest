@@ -1,3 +1,7 @@
+**Utah Investigators Link Teenager’s 1974 Death to Ted Bundy**\
+`Recent developments in a similar case and advances in forensic science linked the death of Melissa Ann Smith, 17, to one of the nation’s most notorious serial killers, officials said.`\
+https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
+
 **No Clear Winner in the Israeli Elections, Exit Polls Show**\
 `Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
 https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
 https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
 
 **Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
-`The three siblings used their wealth and influence to lure women and sexually assault them over more than a decade. At least 11 of their victims spoke on Tuesday before they were sentenced.`\
+`The three siblings used their wealth and influence to lure and sexually assault women for more than a decade. Eleven of the victims spoke on Tuesday before the brothers were sentenced.`\
 https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
 
 **Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 `Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
-**Israeli Voting Ends After Record Turnout With No Clear Winner**\
+**Israeli Voting Ends After Strong Turnout With No Clear Winner**\
 `A bloc of opposition parties held a lead over Prime Minister Benjamin Netanyahu’s coalition, according to exit polls. But it could take weeks or even months to form a new government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
 
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/style/gilded-age-party-nyc-plaza-hotel.html
 **Prominent Texas Congregation Votes to Leave United Methodist Church**\
 `Highland Park United Methodist Church in Dallas had waged an unusually public campaign against the denomination’s demands for control.`\
 https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodist-church.html
-
-**GM Is Leaving NYSE for the Nasdaq After More Than 100 Years**\
-`After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
-https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
 
 **Live Updates: Israeli Opposition Holds Slim Lead Over Netanyahu’s Coalition in Exit Polls**\
 `No clear winner emerged in an election that produced the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
