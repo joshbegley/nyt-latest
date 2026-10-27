@@ -1,3 +1,7 @@
+**Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
+`The U.S. plans to issue a visa to Mr. Bolsonaro, a U.S. official said. Brazilian police had asked him to hand over his passports because of his links to an investigation.`\
+https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
+
 **Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
 `Halima Salman, a U.S. citizen, was brought by her father to ISIS-controlled territory in 2016, when she was 17. She returned to the United States in 2024.`\
 https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
