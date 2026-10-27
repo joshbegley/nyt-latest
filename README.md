@@ -1,3 +1,7 @@
+**Exit Polls in Israel Show No Clear Winner**\
+`Also, Trump is set to loosen methane rules. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/10/27/briefing/israel-election-candy-prices.html
+
 **Bots Drive Online Chatter About Races in Kansas and Texas**\
 `Much of the online discourse about Senate races in Texas and Kansas is coming from accounts that appear to be automated, according to new research.`\
 https://www.nytimes.com/2026/10/27/business/senate-races-kansas-texas-bots.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
 https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
 
 **Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
-`The three siblings were convicted earlier this year of a sex trafficking conspiracy that lasted more than a decade. At least 11 of the victims spoke on Tuesday before the brothers were sentenced.`\
+`The three siblings used their wealth and influence to lure women and sexually assault for more than a decade. At least 11 of their victims spoke on Tuesday before they were sentenced.`\
 https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
 
 **Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
@@ -42,8 +46,8 @@ https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 `Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
-**Israelis Surge to Polls With Nation’s Future on the Ballot**\
-`As Prime Minister Benjamin Netanyahu and his right-wing allies fought to remain in power, voter turnout, especially among Israeli Arabs, hit a new high.`\
+**Israeli Voting Ends After Record Turnout With No Clear Winner**\
+`A bloc of opposition parties held a lead over Prime Minister Benjamin Netanyahu’s coalition, according to exit polls. But it could take weeks or even months to form a new government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
 
 **Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/us/rfk-jr-arabs-islamophobia-michigan.html
 **Israelis Head to the Polls in High-Stakes National Election**\
 `Polls opened in Israel on Tuesday as citizens voted in a national election widely described as the most consequential in the country’s history.`\
 https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-netanyahu-polls.html
-
-**Supreme Court Allows Texas’ Deal With Justice Dept. on Deportation Proceedings**\
-`Immigrant advocates called the agreement “collusion” and had asked the justices to reinstate a Biden-era policy that gave immigration judges discretion.`\
-https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.html
 
 **Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
 `No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
