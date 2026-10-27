@@ -1,3 +1,7 @@
+**Israelis Surge to Polls With Nation’s Future on the Ballot**\
+`As Prime Minister Benjamin Netanyahu and his right-wing allies fought to remain in power, voter turnout, especially among Israeli Arabs, hit a new high.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
+
 **Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
 `Halima Salman was brought by her father to ISIS-controlled territory when she was 17. She returned to the United States in 2019.`\
 https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html

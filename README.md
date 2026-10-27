@@ -1,3 +1,7 @@
+**What to Expect When the Polls Close in Israel**\
+`Polls are about to close across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/what-to-expect-when-the-polls-close-in-israel.html
+
 **Israelis Surge to Polls With Nation’s Future on the Ballot**\
 `As Prime Minister Benjamin Netanyahu and his right-wing allies fought to remain in power, voter turnout, especially among Israeli Arabs, hit a new high.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 **A Trip to the Dining Hall**\
 `My lunch with some college students.`\
 https://www.nytimes.com/2026/10/27/briefing/a-trip-to-the-dining-hall.html
-
-**Nanotyrannus Skeleton ‘Jodi’ Is Auctioned for $47.3 Million**\
-`The T. Rex cousin is the latest dinosaur fossil to fetch a high price at an auction, this time at Sotheby’s.`\
-https://www.nytimes.com/2026/10/27/us/jodi-dinosaur-skeleton-auction-sothebys.html
 
 **Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
 `Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
