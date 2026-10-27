@@ -1,3 +1,7 @@
+**China Steps In to Rescue Stocks, But the Market Continues to Fall**\
+`The Communist Party uses a “national team” of state-owned investment funds to stem the market rout. But this time, investors are not sure it will work.`\
+https://www.nytimes.com/2026/10/27/business/china-stocks-losses-government-intervention.html
+
 **Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
 `The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
 https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/27/opinion/editorials/inflation-war-corruption-t
 **The Key Election Issues Dividing Israelis as They Vote**\
 `The question of accountability for the government’s failures in the Hamas-led attacks on Oct. 7, 2023, looms over the election.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-elections-key-issues.html
-
-**U.S. Pensions Are Riding the A.I. Wave. For Better or Worse.**\
-`As exuberance around the technology stokes fears of a bubble, the nation’s public pensions are starting to grapple with their role — and their risks.`\
-https://www.nytimes.com/2026/10/27/business/pensions-ai.html
 
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
