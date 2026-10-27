@@ -1,3 +1,11 @@
+**Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
+`Halima Salman was brought by her father to ISIS-controlled territory when she was 17. She returned to the United States in 2019.`\
+https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
+
+**In Vienna, a Celebration of Handmade Ceramics and Iconic Austrian Design**\
+`The women behind the housewares brand Carolina Irving & Daughters invited friends to a dinner to mark the launch of their new Wiener Werkstätte-inspired collection.`\
+https://www.nytimes.com/2026/10/27/t-magazine/carolina-irving-daughters-mafalda-kahane-ceramics.html
+
 **Susan Saint James, Emmy Winner Who Starred in ‘Kate & Allie,’ Dies at 80**\
 `In a long career, she was best known for starring opposite Jane Curtin in “Kate & Allie,” a 1980s sitcom about two divorced women raising three children in New York City.`\
 https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-allie.html
