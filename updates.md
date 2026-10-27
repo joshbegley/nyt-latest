@@ -1,3 +1,7 @@
+**Jay-Z Announced as 2027 Super Bowl Halftime Show Performer**\
+`It will be the eighth Super Bowl halftime show produced by Roc Nation, the entertainment and sports company founded by the rapper and businessman.`\
+https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performer.html
+
 **Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
 `A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
 https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html

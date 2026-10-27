@@ -1,3 +1,7 @@
+**Jay-Z Announced as 2027 Super Bowl Halftime Show Performer**\
+`It will be the eighth Super Bowl halftime show produced by Roc Nation, the entertainment and sports company founded by the rapper and businessman.`\
+https://www.nytimes.com/2026/10/26/arts/music/jay-z-super-bowl-halftime-performer.html
+
 **Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
 `A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
 https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011237056/trump-norway-nobel-peace-prize.
 **The Key Numbers From Anthropic’s IPO Filing**\
 `We broke down the A.I. company’s key figures, which give insight into the health of its business, its future plans and who’s in charge.`\
 https://www.nytimes.com/2026/10/26/technology/anthropic-business-key-numbers.html
-
-**Microsoft Offers Buyouts to 60,000 Employees as It Spends on A.I.**\
-`About a quarter of the tech giant’s employees were eligible for the packages, although the company cautioned it did not expect many employees to sign on.`\
-https://www.nytimes.com/2026/10/26/technology/microsoft-buyouts-ai-spending.html
 
