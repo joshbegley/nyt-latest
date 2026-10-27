@@ -1,3 +1,7 @@
+**No Clear Winner in the Israeli Elections, Exit Polls Show**\
+`Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
+https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
+
 **Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
 `The rejection of the indictment was the latest extraordinary setback in President Trump’s wide-ranging campaign to go after his political opponents.`\
 https://www.nytimes.com/2026/10/27/us/politics/cassidy-hutchinson-indicted-trump-testimony.html
@@ -174,11 +178,7 @@ https://www.nytimes.com/2026/10/27/us/highland-park-congregation-united-methodis
 `After more than 100 years on the New York Stock Exchange, the automaker is shifting its listing to the Nasdaq, which is home to many technology companies.`\
 https://www.nytimes.com/2026/10/27/business/general-motors-nasdaq-nyse.html
 
-**Serbian Students, Victorious and Leaderless, Go After the Media**\
-`Supporters of the opposition movement that won Sunday’s election stormed the offices of a pro-government tabloid. Another news outlet apologized for years of “one-sided” coverage.`\
-https://www.nytimes.com/2026/10/27/world/europe/serbia-student-list-news-media-vucic.html
-
-**Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
-`No clear winner emerged in an election that produced the highest turnout in decades. A bloc led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
+**Live Updates: Israeli Opposition Holds Slim Lead Over Netanyahu’s Coalition in Exit Polls**\
+`No clear winner emerged in an election that produced the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
