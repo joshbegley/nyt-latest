@@ -1,3 +1,7 @@
+**Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
+`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials and halting projects to build a dining room and firing range.`\
+https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
+
 **Restaurant Review: Noury in New York**\
 `At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
