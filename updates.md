@@ -1,3 +1,7 @@
+**Jordan Airstrikes on Syria Kill Seven Civilians, Syrian State Media Says**\
+`The strikes were in retaliation for an attack on a church in southern Jordan on Friday, the Jordan military said. They threatened to damage relations between the two neighbors.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/jordan-syria-strikes-attack.html
+
 **Cease-Fire Brokered by Melania Trump Begins in Ukrainian City of Oleshky**\
 `Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
 https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia-war.html
