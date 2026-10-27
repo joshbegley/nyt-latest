@@ -1,3 +1,7 @@
+**Trump-Appointed CDC Deputy Director Jennifer Shuford Resigns After 4 Months**\
+`Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
+https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
+
 **Say Yes to Gnocchi**\
 `Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
 https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/27/us/joe-redner-dead.html
 **Holiday Travel Costs Are Soaring. Here’s How to Save.**\
 `As airfares and gas prices surge, here’s how you can extend your travel budget.`\
 https://www.nytimes.com/2026/10/27/travel/discounts-holiday-travel.html
-
-**A Tight Senate Race in Mississippi? Trump and Others Seem to Think So.**\
-`President Trump on Monday was the latest big political star to swing through Mississippi and boost a candidate in a red-state Senate race that suddenly seems competitive.`\
-https://www.nytimes.com/2026/10/27/us/elections/mississippi-senate-race-trump.html
 
 **Live Updates: Turnout Is Strong in Israeli Election as Netanyahu Fights for Political Survival**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
