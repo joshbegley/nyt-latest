@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Senate Midterms Game**\
+`Which party will control Congress after the midterm elections and why does it matter?`\
+https://www.nytimes.com/2026/10/27/learning/15-minute-lesson-plan-senate-midterms-game.html
+
 **NYT Spelling Bee Answers for October 27, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/27/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/us/famu-shooting-florida-arrest.html
 **Share Your Commute with The Local: Twin Cities**\
 `Do you have a particularly notable commute? We’d like to hear from you.`\
 https://www.nytimes.com/2026/10/26/briefing/twin-cities-commute.html
-
-**Gaze at the Cosmic Dawn in Dizzying Detail**\
-`A new simulation offers a highly immersive look at what happened during the first couple of billion years following the Big Bang.`\
-https://www.nytimes.com/2026/10/26/science/space/early-universe-simulation-lumina.html
 
