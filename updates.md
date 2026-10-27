@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire for a Besieged Ukrainian City**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia-war.html
+
 **Trump Fires Back After Obama’s ‘Cheesecake Factory’ Jab**\
 `President Trump defended his renovation projects after former President Barack Obama said the White House looked like “Saddam Hussein opened a Cheesecake Factory.”`\
 https://www.nytimes.com/video/us/politics/100000011238617/obama-trump-cheesecake-factory.html
