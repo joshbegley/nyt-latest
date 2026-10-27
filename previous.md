@@ -1,3 +1,11 @@
+**Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
+`The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
+https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
+
+**How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
+`The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
+https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billioniare-tax.html
+
 **What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
 `The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
 https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-performance-theater.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-elections-key-issues.
 **U.S. Pensions Are Riding the A.I. Wave. For Better or Worse.**\
 `As exuberance around the technology stokes fears of a bubble, the nation’s public pensions are starting to grapple with their role — and their risks.`\
 https://www.nytimes.com/2026/10/27/business/pensions-ai.html
-
-**Bradley Whitford, Tom Blyth and Krysta Rodriguez on Sorkin’s ‘A Few Good Men’**\
-`Bradley Whitford, Tom Blyth and Krysta Rodriguez are starring in a revival of Aaron Sorkin’s breakthrough, “A Few Good Men,” at Lincoln Center Theater.`\
-https://www.nytimes.com/2026/10/27/theater/few-good-men-whitford-blyth-sorkin.html
-
-**‘Event Horizon’: The Cosmic Horror Flop That Rose From the Void**\
-`Paul W.S. Anderson’s nightmarish 1997 space film starring Sam Neill became a pulpy horror classic after shocking viewers expecting a simple space adventure.`\
-https://www.nytimes.com/2026/10/27/movies/event-horizon-good-bad.html
 
 **Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\

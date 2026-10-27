@@ -1,3 +1,11 @@
+**Alex Pretti’s Parents Say Federal Government Is Silent on Investigation**\
+`The parents of the Minneapolis nurse who was fatally shot by federal agents in January were scheduled to speak to reporters on Tuesday.`\
+https://www.nytimes.com/2026/10/27/us/alex-pretti-parents-federal-investigation.html
+
+**How Billionaires Are Fighting the Prop 40 California Wealth Tax**\
+`The latest Silicon Valley billionaire club is a $333 million political ad machine that is heavily engaged in next week’s elections.`\
+https://www.nytimes.com/2026/10/27/technology/proposition-40-california-billioniare-tax.html
+
 **What Makes Andrew Scott So Good at Tragedy in ‘Sea Wall’ and Other Works?**\
 `The actor says he is no more tragic than anyone else, but in the one-man play “Sea Wall,” he’s the soul of a sadness machine.`\
 https://www.nytimes.com/2026/10/27/theater/andrew-scott-sea-wall-elsinore-performance-theater.html
