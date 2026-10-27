@@ -1,3 +1,7 @@
+**Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
+`Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
+https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
+
 **Bob Woodward Criticizes Jeff Bezos in New Memoir**\
 `Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
 https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/26/technology/anthropic-ipo-s1-dario-amodei.html
 **Former South Carolina Governors Endorse Annie Andrews Over Darline Graham in Senate Race**\
 `Former Republican Gov. David Beasley and Democratic Gov. Jim Hodges recorded a joint video throwing their support to the Democrat in the tight Senate race.`\
 https://www.nytimes.com/2026/10/26/us/south-carolina-senate-andrews-graham.html
-
-**Walter Koenig, Chekov From ‘Star Trek,’ Has Died**\
-`As the baby-faced Russian navigator of the U.S.S. Enterprise, he was a mainstay of the original television series and seven films. He was 90.`\
-https://www.nytimes.com/2026/10/26/arts/television/walter-koenig-chekov-star-trek-dead.html
 

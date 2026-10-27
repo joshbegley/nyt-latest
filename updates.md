@@ -1,3 +1,7 @@
+**Brazil Supreme Court Orders Flávio Bolsonaro to Hand Over Passports in Money Laundering Inquiry**\
+`Brazil’s Supreme Court told the police to seize passport of Mr. Bolsonaro, who lost the presidential election, over his links to an investigation.`\
+https://www.nytimes.com/2026/10/26/world/americas/flavio-bolsonaro-passport-brazil.html
+
 **Bob Woodward Criticizes Jeff Bezos in New Memoir**\
 `Six takeaways from a new memoir by Mr. Woodward, the star Washington Post reporter, including his disappointment with the newspaper’s billionaire owner.`\
 https://www.nytimes.com/2026/10/26/us/politics/bob-woodward-memoir-jeff-bezos.html
