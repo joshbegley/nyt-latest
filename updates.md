@@ -1,3 +1,7 @@
+**Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
+`Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
 `Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials, and halting projects to build a dining room and firing range.`\
 https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
