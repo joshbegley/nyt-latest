@@ -1,3 +1,7 @@
+**With ‘DreamQuil,’ Alex Prager Makes Stepford Wives for the Age of AI**\
+`With “DreamQuil,” the artist Alex Prager has made her first feature-length film.`\
+https://www.nytimes.com/2026/10/26/t-magazine/dreamquil-alex-prager.html
+
 **Judge Temporarily Blocks Further Alterations at D.C.’s East Potomac Park**\
 `A federal judge stopped the Trump administration from cutting trees and prohibited other changes at the park where the president has sought to overhaul a golf course.`\
 https://www.nytimes.com/2026/10/26/us/politics/trump-golf-reyes-judge-ruling.html

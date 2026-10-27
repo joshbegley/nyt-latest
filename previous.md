@@ -1,3 +1,7 @@
+**With ‘DreamQuil,’ Alex Prager Makes Stepford Wives for the Age of AI**\
+`With “DreamQuil,” the artist Alex Prager has made her first feature-length film.`\
+https://www.nytimes.com/2026/10/26/t-magazine/dreamquil-alex-prager.html
+
 **Obama’s ‘Cheesecake Factory’ Jab Rankles Trump on Mississippi Campaign Stop**\
 `Former President Barack Obama had cast his successor as out of touch while jabbing at his extravagant sense of style. Mr. Trump responded at length.`\
 https://www.nytimes.com/2026/10/26/us/politics/obamas-cheesecake-factory-jab-rankles-trump-on-mississippi-campaign-stop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/26/arts/design/elaine-de-kooning-berry-campbell-
 **Jane Benson Makes Frankenstein’s Monster Sing**\
 `In the show “her her,” Jane Benson anatomizes Mary Shelley’s novel, highlighting its feminism and creating visual works that are also vocal scores.`\
 https://www.nytimes.com/2026/10/26/arts/design/jane-benson-frankenstein-monster-art-show.html
-
-**Journalism Essentials: Seeking the Truth ‘Without Fear or Favor’**\
-`We explain a core value of many newsrooms: journalistic independence.`\
-https://www.nytimes.com/2026/10/26/learning/journalism-essentials-seeking-the-truth-without-fear-or-favor.html
 
