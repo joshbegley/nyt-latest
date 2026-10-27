@@ -1,3 +1,11 @@
+**Plans to Make Microdrama Out an Old Margot Robbie Show Stir Debate**\
+`The group that produced “Neighbours” more than a decade ago plans to carve some episodes into micro-bits, generating more debate around TV shows in the digital age.`\
+https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
+
+**Live Updates: Polls Close in Israeli Election as Netanyahu Fights for Political Survival**\
+`Election officials reported record turnout as Prime Minister Benjamin Netanyahu’s far-right coalition faced an opposition bloc led by a former military chief of staff, Gadi Eisenkot. A winner might not be immediately clear.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **What to Expect When the Polls Close in Israel**\
 `Polls are about to close across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
