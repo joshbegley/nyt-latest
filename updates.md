@@ -1,3 +1,11 @@
+**Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
+`India evacuated tens of thousands of people ahead of a powerful cyclone that could bring heavy rainfall and 93-m.p.h. winds. The storm, Arnab, is expected to affect coastal cities in the state of Andhra Pradesh.`\
+https://www.nytimes.com/video/world/asia/100000011239510/india-cyclone-evacuation-arnab.html
+
+**Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
+`A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
 `Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials and halting projects to build a dining room and firing range.`\
 https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
