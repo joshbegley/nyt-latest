@@ -1,3 +1,7 @@
+**Trump-Appointed CDC Deputy Director Jennifer Shuford Resigns After 4 Months**\
+`Dr. Jennifer Shuford, a respected former Texas health official, had been appointed by President Trump to help steady the agency.`\
+https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
+
 **Say Yes to Gnocchi**\
 `Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
 https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
