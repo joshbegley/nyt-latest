@@ -1,9 +1,13 @@
+**Flávio Bolsonaro Flees Brazil for the. U.S. After Election Defeat**\
+`Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
+https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
+
 **Plans to Make Microdrama Out an Old Margot Robbie Show Stir Debate**\
 `The group that produced “Neighbours” more than a decade ago plans to carve some episodes into micro-bits, generating more debate around TV shows in the digital age.`\
 https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 
-**What to Expect When the Polls Close in Israel**\
-`Polls are about to close across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+**What to Expect Now That Polls Are Closed in Israel**\
+`Polls have closed across the country, but those in line are still voting. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
 **Israelis Surge to Polls With Nation’s Future on the Ballot**\
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-c
 https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
 
 **Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
-`Halima Salman was brought by her father to ISIS-controlled territory when she was 17. She returned to the United States in 2019.`\
+`Halima Salman was taken by her father to ISIS-controlled territory when she was 17. She was brought back to the United States in 2024.`\
 https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
 
 **In Vienna, a Celebration of Handmade Ceramics and Iconic Austrian Design**\
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/10/27/health/shuford-cdc-resign.html
 **Say Yes to Gnocchi**\
 `Especially this crisp gnocchi with brussels sprouts and brown butter, an Ali Slagle standby with five stars and over 28,500 reviews.`\
 https://www.nytimes.com/2026/10/27/dining/say-yes-to-gnocchi.html
-
-**Trump’s Never-Go-to-Jail Card**\
-`The president has initiated extensive maneuvers to personally profit as a private citizen while wielding the threat of his public power.`\
-https://www.nytimes.com/2026/10/27/opinion/trump-pardon-crime-punishment.html
 
 **Live Updates: Polls Close in Israeli Election as Netanyahu Fights for Political Survival**\
 `Election officials reported record turnout as Prime Minister Benjamin Netanyahu’s far-right coalition faced an opposition bloc led by a former military chief of staff, Gadi Eisenkot. A winner might not be immediately clear.`\

@@ -1,3 +1,15 @@
+**Flávio Bolsonaro Flees Brazil for the. U.S. After Election Defeat**\
+`Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
+https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
+
+**What to Expect Now That Polls Are Closed in Israel**\
+`Polls have closed across the country, but those in line are still voting. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
+
+**Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
+`Halima Salman was taken by her father to ISIS-controlled territory when she was 17. She was brought back to the United States in 2024.`\
+https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
+
 **Plans to Make Microdrama Out an Old Margot Robbie Show Stir Debate**\
 `The group that produced “Neighbours” more than a decade ago plans to carve some episodes into micro-bits, generating more debate around TV shows in the digital age.`\
 https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
