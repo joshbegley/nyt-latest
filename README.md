@@ -178,7 +178,7 @@ https://www.nytimes.com/video/world/middleeast/100000011238965/israel-election-n
 `Immigrant advocates called the agreement “collusion” and had asked the justices to reinstate a Biden-era policy that gave immigration judges discretion.`\
 https://www.nytimes.com/2026/10/27/us/politics/supreme-court-texas-immigration.html
 
-**Live Updates: Israeli Exit Polls Show Strength of Opposition to Netanyahu but No Clear Winner**\
-`A bloc of opposition parties, including two predominantly Arab parties, appeared to be leading over Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
+**Live Updates: Opposition Parties Ahead of Netanyahu’s Coalition in Israeli Exit Polls**\
+`No clear winner emerged in pivotal parliamentary elections. A bloc of parties led by a former Army chief of staff is trying to unseat Prime Minister Benjamin Netanyahu’s Likud party and his allies.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
