@@ -1,3 +1,7 @@
+**What to Know About the Cease-Fire for a Besieged Ukrainian City**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce set to begin early Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/world/europe/oleshky-cease-fire.html
+
 **Live Updates: Israel Votes in Election Seen as Referendum on Netanyahu**\
 `The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
