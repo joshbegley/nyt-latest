@@ -1,3 +1,7 @@
+**India Evacuates Tens of Thousands as Cyclone Arnab Approaches**\
+`The storm, Arnab, is forecast to make landfall Wednesday on the country’s eastern coast and then cut inland and head north toward Nepal.`\
+https://www.nytimes.com/2026/10/27/world/asia/india-cyclone-arnab-evacuations-nepal.html
+
 **Itamar Ben-Gvir and Bezalel Smotrich Diverge in Israel’s Election**\
 `Itamar Ben-Gvir and Bezalel Smotrich lead ultranationalist parties that previously joined forces, in deals brokered by Benjamin Netanyahu. They are not on the same slate this time.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-ben-gvir-smotrich.html
