@@ -1,3 +1,7 @@
+**Cease-Fire Brokered by Melania Trump Begins in Ukrainian City of Oleshky**\
+`Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
+https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia-war.html
+
 **What to Know About the Cease-Fire for a Besieged Ukrainian City**\
 `Many people left in Oleshky, where bombardment is constant, have run out of food. A truce that began Tuesday is supposed to allow aid in and civilians out.`\
 https://www.nytimes.com/2026/10/26/world/europe/ukraine-oleshky-ceasefire-russia-war.html
