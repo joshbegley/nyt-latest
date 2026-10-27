@@ -1,3 +1,7 @@
+**Live Updates: Polls Close Soon in Israeli Election as Netanyahu Fights for Political Survival**\
+`Prime Minister Benjamin Netanyahu’s far-right coalition faces an opposition loosely led by a former military chief of staff. Election officials reported record turnout but a clear winner might not emerge immediately.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Do You Have Questions About the U.S. Midterm Elections?**\
 `We want to hear from you.`\
 https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
