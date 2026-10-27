@@ -194,7 +194,7 @@ https://www.nytimes.com/video/us/elections/100000011191925/gen-z-congress-midter
 `Children and teenagers in New York are still earning money shoveling sidewalks and watching your cats.`\
 https://www.nytimes.com/2026/10/27/realestate/teenage-entrepreneurs-new-york-city.html
 
-**Lewd, Leering and Reveling in Opera’s Queerness**\
-`Heartbeat’s Drag Opera Extravaganza, a yearly event around Halloween, is an off-color pastiche of opera and pop culture. This year: “Queeney Todd.”`\
-https://www.nytimes.com/2026/10/27/arts/music/heartbeat-drag-opera-extravaganza-queeney-todd.html
+**Live Updates: Early Turnout Appears Strong in Pivotal Israeli Election**\
+`The election is Israel’s first since the Oct. 7, 2023, attacks. Prime Minister Benjamin Netanyahu’s far-right coalition faces opposition parties loosely led by a former military chief whose son was killed in the Gaza war.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
