@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
 
 **Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
-`Mr. Bolsonaro was trying to get to the United States after the Brazilian police asked him to hand over his passports because of his links to an investigation.`\
+`The U.S. plans to issue a visa to Mr. Bolsonaro, a U.S. official said. Brazilian police had asked him to hand over his passports because of his links to an investigation.`\
 https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
 
 **Plans to Make Microdrama Out of an Old Margot Robbie Show Stir Debate**\

@@ -1,3 +1,7 @@
+**Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
+`Halima Salman, a U.S. citizen, was brought by her father to ISIS-controlled territory in 2016, when she was 17. She returned to the United States in 2024.`\
+https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
+
 **Bots Drive Online Chatter About Races in Kansas and Texas**\
 `Much of the online discourse about Senate races in Texas and Kansas is coming from accounts that appear to be automated, according to new research.`\
 https://www.nytimes.com/2026/10/27/business/senate-races-kansas-texas-bots.html
