@@ -1,3 +1,11 @@
+**Barbara Barrie, Oscar Nominee Known for Mom Roles and More, Has Died**\
+`She was nominated for “Breaking Away,” appeared in the original Broadway cast of “Company” and was seen on “Barney Miller.” She was 95.`\
+https://www.nytimes.com/2026/10/28/theater/barbara-barrie-dead.html
+
+**Dolores Huerta, Labor Leader, Dies at 96**\
+`Dolores Huerta, the civil rights activist who co-founded the United Farm Workers with Cesar Chavez, died on Wednesday at her home in Bakersfield, Calif. She was 96.`\
+https://www.nytimes.com/video/obituaries/100000011242438/dolores-huerta.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Make your life bigger, color stories and back-seat rock.`\
 https://www.nytimes.com/2026/10/28/briefing/the-good-list-houdini-colors.html
