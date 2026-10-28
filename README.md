@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida
 `A longhorn cattle drive, a tractor pull, an armadillo race and a worm grunting festival are just some of the colorful customs across the country a guest essayist observed and photographed.`\
 https://www.nytimes.com/2026/10/28/learning/what-are-your-local-traditions.html
 
-**Italians Protesting High Prices Fear a Listless Future, Too**\
+**Behind Italy’s Protests: Rising Prices and Sinking Hopes**\
 `Inspired in part by French demonstrations, protests in Italy by students in the north and truckers in the south could affect national elections next year.`\
 https://www.nytimes.com/2026/10/28/world/europe/italy-protests-students-truckers-meloni.html
 
