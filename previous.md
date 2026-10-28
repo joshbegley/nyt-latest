@@ -1,3 +1,7 @@
+**Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
+`He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
+https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html
+
 **Dolores Huerta, Who Founded United Farm Workers With Cesar Chavez, Dies**\
 `She founded the United Farm Workers with Cesar Chavez. In early 2026, she told The Times that she had been raped by him decades earlier. She was 96.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-wh
 `Americans have lost faith that retailers are giving them fair deals. The F.T.C. is suing Dollar General over it.`\
 https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.html
 
-**The High-Stakes Effort to Grasp the True Rate of Brain Disease in the N.F.L.**\
+**Brain Disease Is Pervasive in N.F.L., New Estimate Suggests**\
 `Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
 https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
 
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
-`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
-https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
-
 **Is Running From Trump Enough to Save Republicans on Tuesday?**\
 `A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
 https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
+
+**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
+`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-n
 **Is This the Gateway Drug for Gambling?**\
 `We actually can regulate prediction markets, and we should do it now.`\
 https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
-
-**What Our New Senate Polls Tell Us About the State of the Midterms**\
-`South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
-https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
 

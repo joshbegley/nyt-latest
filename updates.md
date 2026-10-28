@@ -1,3 +1,11 @@
+**Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
+`He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
+https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html
+
+**Brain Disease Is Pervasive in N.F.L., New Estimate Suggests**\
+`Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
+https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
+
 **Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
 `Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
 https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
