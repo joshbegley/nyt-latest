@@ -1,3 +1,7 @@
+**Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
+`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on data centers and offered to pay workers to leave.`\
+https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
+
 **Passengers Recount Spain’s Deadly High-Speed Train Collision**\
 `Passengers recalled the moments before a high-speed passenger train rear-ended another in Spain on Wednesday.`\
 https://www.nytimes.com/video/world/europe/100000011242069/passengers-spain-deadly-train-collision.html
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
 
-**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+**Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.ht
 **Brain Disease Is Pervasive in N.F.L., New Estimate Suggests**\
 `Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
 https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
-
-**Weil Gotshal, Once A Legal Powerhouse, Plans to Dissolve**\
-`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
-https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
