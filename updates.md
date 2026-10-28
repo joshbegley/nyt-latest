@@ -1,3 +1,7 @@
+**The Senate Race in Heavily Republican South Carolina is a Tossup, Poll Finds**\
+`Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
+https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
+
 **Knife-Wielding Attacker Fatally Shot Outside Israeli Embassy in Serbia**\
 `The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
 https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
