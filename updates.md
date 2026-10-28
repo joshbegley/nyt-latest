@@ -1,3 +1,7 @@
+**Live Updates: No Clear Winner Yet in Israel’s Pivotal Election**\
+`Blocs led by Prime Minister Benjamin Netanyahu and his main challenger, Gadi Eisenkot, were roughly even as vote counting continued on Wednesday. It could take weeks to form the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
+
 **Israel’s President, Isaac Herzog, Faces a Difficult Choice**\
 `The president has a largely ceremonial role, except after elections when it is his responsibility to pick a candidate for prime minister.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-herzog-prime-minister.html
