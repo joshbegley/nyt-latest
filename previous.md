@@ -1,3 +1,7 @@
+**Bronx Fire Caused by E-Bike Battery Kills Boy**\
+`Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
+https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
+
 **Apple Unveils Its First Touch-Screen MacBook Pro**\
 `Steve Jobs and Tim Cook both dismissed the idea, but Apple’s new chief executive is reimagining some of the company’s most important products.`\
 https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
 `A “bad actor” tried to breach the system, according to the Federal Election Commission, disrupting political finance disclosures during the final week of campaigning.`\
 https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
 
-**Kennedy to Allow Broad Use of Unapproved Peptide Injections**\
+**RFK Jr. to Allow Broad Use of Unapproved Peptide Injections**\
 `In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
 https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-resul
 **Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
 `Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
-`Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
-https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-toplines.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\

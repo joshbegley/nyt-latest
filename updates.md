@@ -1,3 +1,11 @@
+**Bronx Fire Caused by E-Bike Battery Kills Boy**\
+`Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
+https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
+
+**RFK Jr. to Allow Broad Use of Unapproved Peptide Injections**\
+`In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
+https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
+
 **Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
 `Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She had pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
 https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
