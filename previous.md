@@ -1,3 +1,7 @@
+**Israel’s President, Isaac Herzog, Faces a Difficult Choice**\
+`The president has a largely ceremonial role, except after elections when it is his responsibility to pick a candidate for prime minister.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-herzog-prime-minister.html
+
 **A Chinese Port Could Be a Lifeline for Spain, but Also a Threat**\
 `Residents say a proposed Chinese car plant in northern Spain will create new jobs. Others say it’s a long-term risk, distilling a debate about the costs and perks of ties to China.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-saic-ferrol-china.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
 **Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
 `Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
 https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
-
-**As Election Nears, Reports of an Increase in ICE Arrests Across California**\
-`Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
-https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
 
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\

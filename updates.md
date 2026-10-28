@@ -1,3 +1,7 @@
+**Israel’s President, Isaac Herzog, Faces a Difficult Choice**\
+`The president has a largely ceremonial role, except after elections when it is his responsibility to pick a candidate for prime minister.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-herzog-prime-minister.html
+
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
