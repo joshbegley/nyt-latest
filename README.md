@@ -1,200 +1,200 @@
-**Our Favorite L.A. Movies: Artists, Directors and Other Locals Share the Films That Capture the City**\
-`Artists, directors and other locals on their favorite films set in the city, both in and beyond Hollywood.`\
-https://www.nytimes.com/2026/10/28/t-magazine/favorite-los-angeles-movies.html
+**This ‘New Form of Casino’ Is Terrible for Teens**\
+`We actually can regulate prediction markets, and we should do it now.`\
+https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
 
-**The Perfect Books for Classic Horror Movie Fans**\
-`The author Nick Medina recommends novels that capture the vibes of beloved scary movies like “The Thing,” “Scream” and more.`\
-https://www.nytimes.com/2026/10/28/books/horror-movie-books.html
+**What Our Three New Senate Polls Are Saying About the State of the Midterms**\
+`South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
+https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
 
-**Horror Bookstores Are (Gasp!) Multiplying**\
-`More shops are opening their doors, providing genre fans the chance to browse, buy and find creepy community.`\
-https://www.nytimes.com/2026/10/28/books/review/horror-bookstores-growth.html
+**What Are Your Local Traditions?**\
+`A longhorn cattle drive, a tractor pull, an armadillo race and a worm grunting festival are just some of the colorful customs across the country a guest essayist observed and photographed.`\
+https://www.nytimes.com/2026/10/28/learning/what-are-your-local-traditions.html
 
-**The Month’s Best New Mystery Books**\
-`Our columnist on four new books worth your time.`\
-https://www.nytimes.com/2026/10/28/books/review/october-mystery-books-louise-penny.html
+**Italians Protesting High Prices Fear a Listless Future, Too**\
+`Inspired in part by French demonstrations, protests in Italy by students in the north and truckers in the south could affect national elections next year.`\
+https://www.nytimes.com/2026/10/28/world/europe/italy-protests-students-truckers-meloni.html
 
-**Rural Get-Togethers Celebrate Art and America’s 250th Anniversary**\
-`The idea is to bring people together in places that are not always thought of as art hubs, and produce new art along the way.`\
-https://www.nytimes.com/2026/10/28/arts/design/arts-why-we-gather-mel-chin.html
+**Corrections: Oct. 28, 2026**\
+`Corrections that appeared in print on Wednesday, Oct. 28, 2026.`\
+https://www.nytimes.com/2026/10/28/pageoneplus/corrections-oct-28-2026.html
 
-**New Orleans’ Legacy of Death and Rebirth Helped Shaped Anne Rice’s Imagination**\
-`The Big Easy celebrates the 50th anniversary of ‘Interview With the Vampire,’ the first novel by Anne Rice, whose hometown served as her greatest muse.`\
-https://www.nytimes.com/2026/10/28/style/new-orleans-anne-rice-interview-with-vampire.html
+**‘One Job Away’ Tries to Help Actors Keep Their Health Insurance**\
+`The actor Cheyenne Jackson’s social media campaign highlights the increasing struggles of working actors to book enough parts to remain insured.`\
+https://www.nytimes.com/2026/10/28/arts/one-more-job-campaign-actors-health-benefits.html
 
-**Alex Da Corte Takes On Roy Lichtenstein and Marisol**\
-`The artist Alex Da Corte offers a fresh take on Roy Lichtenstein and Marisol in two new projects opening back-to-back this fall.`\
-https://www.nytimes.com/2026/10/28/arts/design/pop-art-dacorte-lichtenstein-marisol.html
+**Breaking Down Ad Spending for the 2026 Elections**\
+`Most ad spending in the general election is taking place in competitive races deep in Trump territory. Republicans are on the defensive.`\
+https://www.nytimes.com/interactive/2026/10/28/us/politics/ad-spending-house-senate-election-campaigns.html
 
-**To Get an Orchestra Job, Study ‘Jaws’ as Much as Mahler**\
-`As orchestras increasingly program film soundtracks and music by contemporary composers, the excerpts used in auditions are changing, too.`\
-https://www.nytimes.com/2026/10/28/arts/music/to-get-an-orchestra-job-study-jaws-as-much-as-mahler.html
+**Two Blocks in Pennsylvania Show Why It’s So Hard for Campaigns to Reach Voters**\
+`In a competitive House district, residents get their election news from under-the-radar sources — or no sources at all.`\
+https://www.nytimes.com/interactive/2026/10/28/us/politics/midterm-elections-10th-congressional-district-stelson-perry.html
 
-**How a Walmart Heir Is Transforming Rural Arkansas Into a Design Powerhouse**\
-`Alice Walton is helping the Ozark region shed its “flyover” status by creating civic projects with top architects. The Waltons say they are “giving back.” What is the region giving up?`\
-https://www.nytimes.com/2026/10/28/arts/design/walmart-alice-walton-bentonville-design.html
+**‘Ali G: Who Iz I?’ Review: A Bit Too Tired for This Media Age**\
+`Sacha Baron Cohen’s revival of his early 2000s persona is meant to speak to a polarized country, but the results are mixed.`\
+https://www.nytimes.com/2026/10/28/movies/ali-g-who-iz-i-review.html
 
-**This ‘Flying Dutchman’ Tests the Limits on Artists Speaking Freely About Israel**\
-`A Berlin production of “The Flying Dutchman” transforms Wagner’s opera into a provocative allegory amid fears of political interference and censorship in the arts.`\
-https://www.nytimes.com/2026/10/28/arts/music/the-flying-dutchman-milo-rau-deutsche-oper.html
+**The Ocean ‘Was the Color of Chocolate.’ Mexico Declares War on Seaweed**\
+`To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
+https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
 
-**How to Plan a Trip Around a Running Race**\
-`When should you arrive? How do you choose an event? Here are some tips on how best to center a vacation around a race.`\
-https://www.nytimes.com/2026/10/28/travel/marathon-vacation-planning.html
+**Byron Donalds Holds Slim Lead in Florida’s Race for Governor**\
+`New polls in Florida, South Carolina and Minnesota illuminate the head winds that Republicans are facing.`\
+https://www.nytimes.com/2026/10/28/us/politics/governors-poll-florida-south-carolina-minnesota.html
 
-**How Art and Engineering Built the Statue of Liberty**\
-`Exactly 140 years ago, on a rainy day, the Statue of Liberty was inaugurated in New York Harbor. Our critic at large Jason Farago looks at the statue piece by piece to describe how it came to be.`\
-https://www.nytimes.com/video/nyregion/100000011024494/how-art-and-engineering-built-the-statue-of-liberty.html
+**The Federal Reserve Will Release Its Interest Rate Decision Today. Here’s What to Watch.**\
+`The central bank is widely expected to hold interest rates steady on Wednesday, just days before the midterm elections.`\
+https://www.nytimes.com/2026/10/28/business/federal-reserve-interest-rates.html
 
-**Justice Dept. Declines to Unseal Warrant for Search of Ilhan Omar’s Home**\
-`More than a dozen news organizations have asked a federal judge to unseal documents related to a search warrant executed at Ms. Omar’s home this month.`\
-https://www.nytimes.com/2026/10/28/us/politics/ilhan-omar-doj-search-warrant.html
+**Heavily Republican South Carolina’s Senate Race Is a Tossup, Poll Finds**\
+`Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
+https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
 
-**15-Minute Lesson Plan: Symmetry and Soccer Balls**\
-`What is “humanity’s favorite truncated icosahedron” and what can we learn from it?`\
-https://www.nytimes.com/2026/10/28/learning/15-minute-lesson-plan-symmetry-and-soccer-balls.html
+**‘Minimum Wage’ Review: Netflix Adapts Another YouTube Comedy**\
+`The “new” series, featuring the sitcom veteran Randall Park and “S.N.L.” newcomer Grace Reiter, exists in a more liminal TV space.`\
+https://www.nytimes.com/2026/10/28/arts/television/minimum-wage-review-netflix-youtube.html
 
-**How Hochul Became a Surprise Champion of the Subway**\
-`Gov. Kathy Hochul isn’t from New York City, but she could be its biggest mass transit defender in a generation. She has embraced that distinction in her re-election campaign.`\
-https://www.nytimes.com/2026/10/28/nyregion/kathy-hochul-nyc-transit-support.html
+**How to Tax and Spend in a ‘Turbulent Time?’ U.K. Tries a Balancing Act.**\
+`The new government, led by Andy Burnham, will deliver its first budget on Wednesday, a plan expected to tread between wide ambition and narrow financial limits.`\
+https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
 
-**NYT Spelling Bee Answers for October 28, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/28/crosswords/spelling-bee-forum.html
+**Can You Trust the Midterm Polls? Three Times Journalists Talk It Out.**\
+`Members of the team behind the Times/Siena Poll on what the data show, how they’ve improved their methodology and what it means to be “right.”`\
+https://www.nytimes.com/2026/10/28/insider/polls-midterm-election.html
 
-**Jimmy Kimmel Turns Trump Heckler’s Taunt Into a T-Shirt**\
-`Kimmel was inspired after the president’s “‘Tone-Deaf Comedy Jam’ got tripped up by a heckler.”`\
-https://www.nytimes.com/2026/10/28/arts/television/jimmy-kimmel-trump-heckler.html
+**Two Murals That Celebrate New York**\
+`In 1986, Keith Haring created a mural with young helpers. Now an artist has worked with volunteers to make a colorful mural in the Bronx.`\
+https://www.nytimes.com/2026/10/28/nyregion/murals-keith-haring-.html
 
-**Live Updates: No Clear Winner Yet in Israel’s Pivotal Election**\
-`Blocs led by Prime Minister Benjamin Netanyahu and his main challenger, Gadi Eisenkot, were roughly even as vote counting continued on Wednesday. It could take weeks to form the next government.`\
-https://www.nytimes.com/live/2026/10/28/world/israel-elections
+**A Punishing Housing Market Is Squeezing Renters**\
+`Higher mortgage rates and slowing residential construction are again giving landlords the upper hand.`\
+https://www.nytimes.com/2026/10/28/business/housing-market-rent-pressure.html
 
-**Israel’s President, Isaac Herzog, Faces a Difficult Choice**\
-`The president has a largely ceremonial role, except after elections when it is his responsibility to pick a candidate for prime minister.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-herzog-prime-minister.html
+**Which $1.5 Million Home Would You Buy?**\
+`This week’s listings are a space age-inspired house in Idyllwild, Calif., a Cape Cod in Charlottesville, Va., and a condo in Washington, D.C.`\
+https://www.nytimes.com/2026/10/28/realestate/idyllwild-calif-charlottesville-va-washington-dc-homes-for-sale-.html
 
-**A Chinese Port Could Be a Lifeline for Spain, but Also a Threat**\
-`Residents say a proposed Chinese car plant in northern Spain will create new jobs. Others say it’s a long-term risk, distilling a debate about the costs and perks of ties to China.`\
-https://www.nytimes.com/2026/10/28/world/europe/spain-saic-ferrol-china.html
+**How Jim Morrison’s Unthinkable Loss Led Him to the Top of Mount Everest**\
+`Jim Morrison set a world record. Enduring love made it possible.`\
+https://www.nytimes.com/2026/10/28/podcasts/jim-morrison-mount-everest-family.html
 
-**Quote of the Day: In a ‘Robogym,’ Leveling Up Like a Human**\
-`Quotation of the Day for Wednesday, October 28, 2026.`\
-https://www.nytimes.com/2026/10/28/pageoneplus/quote-of-the-day-in-a-robogym-leveling-up-like-a-human.html
+**Rare Wartime Dissent in Moscow Over Plans to Dismantle Russia’s ‘Eiffel Tower’**\
+`A state broadcaster says it cannot afford the restoration of a 1922 steel tower, prompting rare wartime dissent and a movement to save the Modernist masterpiece.`\
+https://www.nytimes.com/2026/10/28/world/europe/russia-shukhov-radio-tower.html
 
-**From the Front Page: The Statue of Liberty Is Dedicated on Oct. 28, 1886**\
-`The Statue of Liberty, a gift from the people of France, was dedicated in New York Harbor by President Grover Cleveland.`\
-https://www.nytimes.com/2026/10/28/learning/from-the-front-page-the-statue-of-liberty-is-dedicated-on-oct-28-1886.html
+**AI Is Finding a Flood of Bugs, and Silicon Valley Is Rushing to Fix Them**\
+`A.I. has uncovered a horde of software flaws, which engineers are racing to fix before they can be exploited and abused by hackers.`\
+https://www.nytimes.com/2026/10/28/technology/silicon-valley-bugs-ai.html
 
-**Texas Senate Rivals Converge on Lubbock, With Trump in the Mix**\
-`It was a showdown of sorts in western Texas as James Talarico and Ken Paxton appeared at dueling rallies on either side of a prairie-dog-filled city park.`\
-https://www.nytimes.com/2026/10/27/us/elections/paxton-talarico-texas-senate-rally-lubbock.html
+**How Small Interior Design Changes Can Refresh a Room**\
+`Beata Heuman, a London-based designer, updates the look of her family dining room.`\
+https://www.nytimes.com/2026/10/28/realestate/beata-heuman-interior-design-tweaks.html
 
-**Democrats Are in Their Elder Millennial Era**\
-`From Abdul El-Sayed to James Talarico and Rob Sand, this election has revealed a new class of millennial talent in the Democratic Party. On “The Ezra Klein Show,” the polling analyst Nate Silver explains why he thinks these candidates are the result of what he calls the “Steph Curry effect.”`\
-https://www.nytimes.com/video/opinion/100000011232739/democrats-are-in-their-elder-millennial-era.html
+**How to Solve Connections Like an Expert**\
+`Tips and tricks from puzzle enthusiasts and Wyna Liu, the game’s editor, to help you become an expert.`\
+https://www.nytimes.com/2026/10/28/crosswords/how-to-solve-connections.html
 
-**Judge Limits Candace Owens’s Liability in Macron Defamation Case**\
-`The French president, Emmanuel Macron, and his wife, Brigitte, sued Candace Owens in 2025 over claims she made about Ms. Macron’s gender. A judge said the court had jurisdiction over her companies but not her.`\
-https://www.nytimes.com/2026/10/27/business/media/candace-owens-macron-defamation-case.html
+**Nobody Wanted Montague Street. Now Everybody Does.**\
+`With new shops filling empty storefronts, including Alison Roman’s First Bloom, the Brooklyn Heights street may finally be returning to its former glory.`\
+https://www.nytimes.com/2026/10/28/realestate/nobody-wanted-montague-street-now-everybody-does.html
 
-**NYT Crossword Answers for Oct. 28, 2026**\
-`Daniel Grinberg says “Boo!”`\
-https://www.nytimes.com/2026/10/27/crosswords/daily-puzzle-2026-10-28.html
+**Baby Boomers Are Retiring. Private Equity Is Waiting.**\
+`Investors in big cities are quietly consuming small businesses all over the country.`\
+https://www.nytimes.com/2026/10/28/opinion/private-equity-baby-boomers-investors.html
 
-**Brazilians Divided Over Flávio Bolsonaro’s Flight From Brazil for U.S. After Election Defeat**\
-`The defeated presidential candidate Flávio Bolsonaro fled Brazil for the United States on Tuesday, U.S. officials said, leaving Brazilians divided.`\
-https://www.nytimes.com/video/world/americas/100000011241083/brazil-bolsonaro-flee-reaction.html
+**In ‘I Became We,’ Many Voices Exalt One Very Personal Decision**\
+`For her latest autobiographical work, Mona Pirnot collaborated with Jack D. Coen on beautifully composed classical song-cycle.`\
+https://www.nytimes.com/2026/10/28/theater/i-became-we-review-mona-pirnot.html
 
-**Judge Who Used Racist Slur Forced Off Bench by New York’s Highest Court**\
-`Walter Jones, a longtime Canandaigua town justice, repeatedly used a slur aimed at Black people while telling a story set on his grandfather’s cotton farm.`\
-https://www.nytimes.com/2026/10/27/nyregion/judge-removed-racism.html
+**‘On the Road’ Review: A Queer Romantic Thriller**\
+`A young outcast hitches a ride with an older, married trucker in this atmospherically charged drama that traverses northern Mexico.`\
+https://www.nytimes.com/2026/10/28/movies/on-the-road-review.html
 
-**Iran War Cost Rises to $47.1 Billion, Pentagon Told Lawmakers**\
-`The estimate through Oct. 16 shows that bombs, missiles and other munitions accounted for more than 60 percent of expenses.`\
-https://www.nytimes.com/2026/10/27/us/politics/iran-war-cost-rises.html
+**Can We Make a Dent in the Housing Crisis? Two Projects Say Yes.**\
+`As the Mamdani administration, and cities across America, grapple with affordable housing, two handsome complexes in Queens and Brooklyn show signs of progress.`\
+https://www.nytimes.com/2026/10/28/arts/design/24mamdani-affordable-housing-new-york.html
 
-**Judge Questions Trump Administration’s Need to Target Noncitizen Voters**\
-`In the legal tangle between the Justice Department and California, a federal judge on Tuesday deferred a ruling but said the government already had a remedy it could use after the election.`\
-https://www.nytimes.com/2026/10/27/us/politics/california-ballots-noncitizens.html
+**‘Closure’ Review: Looking for Hope in a River**\
+`A gorgeous and devastating documentary follows a father obsessively looking for his missing son.`\
+https://www.nytimes.com/2026/10/28/movies/closure-review.html
 
-**Everything You Could Possibly Want to Know About El Niño**\
-`It’s the hot weather word of the year, but what does it actually mean? We’ve got answers to all the most pressing El Niño questions.`\
-https://www.nytimes.com/interactive/2026/10/27/science/earth/el-nino-climate-faq.html
+**Book Review: ‘The Creativity Con,’ by Thomas Frank**\
+`In a new book, the culture critic Thomas Frank skewers pundits who promote novelty and ingenuity as a solution to our ills at the expense of working people.`\
+https://www.nytimes.com/2026/10/28/books/review/the-creativity-con-thomas-frank.html
 
-**Mamdani Seeks to Replace Head of Commission on Racial Equity**\
-`Linda Tigani, chairwoman of the commission, has been critical of the Mamdani administration’s handling of a racial equity report. She responded to the mayor’s plan to remove her with fiery comments.`\
-https://www.nytimes.com/2026/10/27/nyregion/mamdani-tigani-racial-equality-commission.html
+**One Race in Texas Has Become a Referendum on Bigotry in the G.O.P.**\
+`Bo French said the presence of Indian American students at a football game was a “problem.” His campaign for Railroad Commission tests whether these biased views are now mainstream.`\
+https://www.nytimes.com/2026/10/28/us/politics/bo-french-texas-railroad-commission-south-asian.html
 
-**Tennessee Race Is Rattled by a Republican’s Acknowledgment of a ‘Past Indiscretion’**\
-`State Senator Brent Taylor, the Republican nominee for a U.S. House seat, responded to a Nashville outlet’s report that he had sent “an unsolicited nude picture.”`\
-https://www.nytimes.com/2026/10/27/us/tennessee-brent-taylor.html
+**The ‘Deep State’ Didn’t Take Nixon Down. Nixon Did.**\
+`We investigated Watergate. The former president and his henchmen got what they deserved.`\
+https://www.nytimes.com/2026/10/28/opinion/nixon-watergate-vance-trump.html
 
-**U.S. Defends Military Campaign Against Cartels as Leaders Gather in Caribbean**\
-`A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
-https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
+**Trump Administration Backs Down on an Opioid Ban After Kratom Industry Lobbying**\
+`Health officials will now allow some levels of a powerful substance to remain in products marketed as natural. The change could help a G.O.P. donor facing wrongful death lawsuits.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-opioid-kratom.html
 
-**For Israel’s Arab Minority, a Historic Show of Strength**\
-`Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government in Tuesday’s election.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
+**The Special Ops Podcasts Changing the Narrative of the War on Terror**\
+`Veterans’ complaints about the rules of engagement have reached Pete Hegseth and a generation of new recruits.`\
+https://www.nytimes.com/2026/10/28/magazine/special-ops-podcasts-war-on-terror.html
 
-**White House Has Tight Grip Over FBI in Pursuing Trump Targets, Agent Says**\
-`In court testimony, the agent outlined the willingness of Kash Patel, the F.B.I. director, to take orders from President Trump to investigate his perceived enemies.`\
-https://www.nytimes.com/2026/10/27/us/politics/fbi-trump-patel-witt-testimony.html
+**Trump’s Beef Promise Backfires in Kansas**\
+`Why is President Trump campaigning in deep-red Kansas in the final stretch of the midterms? One reason is that voters here are angry that his promise to bring down the price of beef ended up costing Kansas cattle ranchers tens of thousands of dollars.`\
+https://www.nytimes.com/video/us/politics/100000011212387/trump-beef-kansas.html
 
-**A New Dwarf Planet (Probably) Spotted Beyond Pluto**\
-`The object, known for now as 2026 ED138, is one of the first discoveries by the new Vera C. Rubin Observatory in Chile.`\
-https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.html
+**How Audiences Scare Themselves at ‘Paranormal Activity’**\
+`Our chief theater critic, Helen Shaw, and our movie critic Alissa Wilkinson go to the set of “Paranormal Activity” to talk with an illusion designer about the fine art of scaring people.`\
+https://www.nytimes.com/video/theater/100000011211130/how-audiences-scare-themselves-at-paranormal-activity.html
 
-**Utah Investigators Link Teenager’s 1974 Death to Ted Bundy**\
-`Recent developments in a similar case and advances in forensic science linked the death of Melissa Ann Smith, 17, to one of the nation’s most notorious serial killers, officials said.`\
-https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
+**Peter May Has Died. The Scottish Noir Author Turned Rejections Into Best-Sellers.**\
+`He made his name with “The Blackhouse,” a mystery set in the Outer Hebrides that was turned down by publishers before fueling a bidding war. He was 74.`\
+https://www.nytimes.com/2026/10/28/books/peter-may-dead.html
 
-**No Clear Winner in the Israeli Elections, Exit Polls Show**\
-`Israeli exit polls showed early Wednesday that the opposition bloc, led by Gadi Eisenkot, was roughly even with Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
-https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
+**SC103, the Downtown New York Brand for Clothes Meant to Show Their Seams**\
+`The designs from SC103 capture a yen for garments that wear the signs of the hands that made them.`\
+https://www.nytimes.com/2026/10/28/style/sc103-claire-mckinney-sophie-andes-gascon-new-york.html
 
-**Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
-`The rejection of the indictment was the latest extraordinary setback in President Trump’s wide-ranging campaign to go after his political opponents.`\
-https://www.nytimes.com/2026/10/27/us/politics/cassidy-hutchinson-indicted-trump-testimony.html
+**The Rule of Law Is for Suckers**\
+`Trump has no use for pretense and he’s not interested in playing along.`\
+https://www.nytimes.com/2026/10/28/opinion/trump-law-lawlessness-presidency-congress.html
 
-**Low-Key or Electric? The Style Gulf Splitting the Democratic Party**\
-`Should a candidate light the world on fire, or is being a little bit boring actually a secret weapon?`\
-https://www.nytimes.com/2026/10/27/us/politics/low-key-or-electric-the-style-gulf-splitting-the-democratic-party.html
+**How James Talarico’s Years Teaching Middle School Prepared Him for Politics**\
+`Former students and teachers at the San Antonio school where he spent two years with Teach for America recalled a conscientious educator, though there are questions about how big his classes were.`\
+https://www.nytimes.com/2026/10/28/us/politics/talarico-texas-senate-teacher.html
 
-**Exit Polls in Israel Show No Clear Winner**\
-`Also, Trump is set to loosen methane rules. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/10/27/briefing/israel-election-candy-prices.html
+**Tyla and the New Watch Style: Wearing It Around Your Ankle**\
+`The South African singer Tyla recently displayed a new way of wearing timepieces.`\
+https://www.nytimes.com/2026/10/28/fashion/watch-anklet-chopard-tyla.html
 
-**Bots Drive Online Chatter About Races in Kansas and Texas**\
-`Much of the online discourse about Senate races in Texas and Kansas is coming from accounts that appear to be automated, according to new research.`\
-https://www.nytimes.com/2026/10/27/business/senate-races-kansas-texas-bots.html
+**Word of the Day: cohort**\
+`This word has appeared in 360 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/28/learning/word-of-the-day-cohort.html
 
-**California’s High Tides Set Records This Week. They’re Going to Get Higher.**\
-`El Niño is expected to push this winter’s high tides even higher.`\
-https://www.nytimes.com/2026/10/27/weather/king-tides-california-la-sf.html
+**What It Takes to Run a Home Day Care**\
+`Invisible to many New Yorkers, thousands of residential day cares meet the city’s huge demand for child care.`\
+https://www.nytimes.com/2026/10/28/realestate/home-day-cares-new-york-city.html
 
-**Tensions Between North and South Korea Stem From Decade-Old Border Dispute**\
-`A heated disagreement over recent land mine explosions is part of the legacy of the truce that halted the Korean War 73 years ago.`\
-https://www.nytimes.com/2026/10/27/world/asia/korea-tensions-border-dmz-mdl.html
+**The U.S. Attorneys Carrying Out Trump’s Election and Grievance Cases**\
+`Together, they have pursued cases against the president’s enemies and protesters and amplified false claims of widespread election fraud, often citing thin evidence.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-us-attorneys-elections-protests-cases.html
 
-**Venezuela’s Moment of Truth**\
-`The country’s most popular politician, María Corina Machado, has returned home from exile. What happens next?`\
-https://www.nytimes.com/2026/10/27/world/venezuela-machado-israel-elections.html
+**The Photographers Who Helped Turn Marilyn Monroe Into a Global Star**\
+`The New York Historical exhibition explores the images that propelled the rise of Marilyn Monroe.`\
+https://www.nytimes.com/2026/10/28/arts/design/marilyn-monroe-new-york-historical-photography.html
 
-**Alexander Brothers Sentenced to 30 Years Each for Sex Trafficking**\
-`The three siblings used their wealth and influence to lure and sexually assault women for more than a decade. Eleven of the victims spoke on Tuesday before the brothers were sentenced.`\
-https://www.nytimes.com/2026/10/27/nyregion/alexander-brothers-sentencing-sex-trafficking.html
+**Norman Foster’s New Design: Two Lebond Watches**\
+`The architect collaborated with the Spanish brand Lebond on the timepieces.`\
+https://www.nytimes.com/2026/10/28/fashion/watches-norman-foster-lebond.html
 
-**Tens of Thousands of People in India Evacuate Ahead of Powerful Cyclone**\
-`India evacuated tens of thousands of people ahead of a powerful cyclone that could bring heavy rainfall and 93-m.p.h. winds. The storm, Arnab, is expected to affect coastal cities in the state of Andhra Pradesh.`\
-https://www.nytimes.com/video/world/asia/100000011239510/india-cyclone-evacuation-arnab.html
+**The Foundational Feminist Marianne Wex Takes Her Place at MoMA**\
+`An exhibition is built around the German artist Marianne Wex, whose photos are in dialogue with the works of others.`\
+https://www.nytimes.com/2026/10/28/arts/design/marianne-wex-moma.html
 
-**Spy Chief Tries to Restore Order After Upheaval at Intelligence Office**\
-`Jay Clayton is pushing his office back to more traditional functions, reshuffling or firing some officials, and halting projects to build a dining room and firing range.`\
-https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
+**Josh Johnson, a Trusted Music Producer, Has a New Jazz LP Coming Out**\
+`Josh Johnson became a trusted producer of Meshell Ndegeocello and Flea for knowing when to guide and when to let go. He gives himself that license on a new LP, “Animative.”`\
+https://www.nytimes.com/2026/10/28/arts/music/an-anchor-of-the-los-angeles-jazz-scene-finds-his-way-forward.html
 
-**Restaurant Review: Noury in New York**\
-`At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
-https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
+**Baume & Mercier Now Is Owned by an Italian Jewelry Group**\
+`Baume & Mercier, formerly owned by Richemont, now belongs to the Damiani Group.`\
+https://www.nytimes.com/2026/10/28/fashion/watches-baume-mercier-richemont.html
 

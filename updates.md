@@ -1,3 +1,55 @@
+**Our Favorite L.A. Movies: Artists, Directors and Other Locals Share the Films That Capture the City**\
+`Artists, directors and other locals on their favorite films set in the city, both in and beyond Hollywood.`\
+https://www.nytimes.com/2026/10/28/t-magazine/favorite-los-angeles-movies.html
+
+**The Perfect Books for Classic Horror Movie Fans**\
+`The author Nick Medina recommends novels that capture the vibes of beloved scary movies like “The Thing,” “Scream” and more.`\
+https://www.nytimes.com/2026/10/28/books/horror-movie-books.html
+
+**Horror Bookstores Are (Gasp!) Multiplying**\
+`More shops are opening their doors, providing genre fans the chance to browse, buy and find creepy community.`\
+https://www.nytimes.com/2026/10/28/books/review/horror-bookstores-growth.html
+
+**The Month’s Best New Mystery Books**\
+`Our columnist on four new books worth your time.`\
+https://www.nytimes.com/2026/10/28/books/review/october-mystery-books-louise-penny.html
+
+**Rural Get-Togethers Celebrate Art and America’s 250th Anniversary**\
+`The idea is to bring people together in places that are not always thought of as art hubs, and produce new art along the way.`\
+https://www.nytimes.com/2026/10/28/arts/design/arts-why-we-gather-mel-chin.html
+
+**New Orleans’ Legacy of Death and Rebirth Helped Shaped Anne Rice’s Imagination**\
+`The Big Easy celebrates the 50th anniversary of ‘Interview With the Vampire,’ the first novel by Anne Rice, whose hometown served as her greatest muse.`\
+https://www.nytimes.com/2026/10/28/style/new-orleans-anne-rice-interview-with-vampire.html
+
+**Alex Da Corte Takes On Roy Lichtenstein and Marisol**\
+`The artist Alex Da Corte offers a fresh take on Roy Lichtenstein and Marisol in two new projects opening back-to-back this fall.`\
+https://www.nytimes.com/2026/10/28/arts/design/pop-art-dacorte-lichtenstein-marisol.html
+
+**To Get an Orchestra Job, Study ‘Jaws’ as Much as Mahler**\
+`As orchestras increasingly program film soundtracks and music by contemporary composers, the excerpts used in auditions are changing, too.`\
+https://www.nytimes.com/2026/10/28/arts/music/to-get-an-orchestra-job-study-jaws-as-much-as-mahler.html
+
+**How a Walmart Heir Is Transforming Rural Arkansas Into a Design Powerhouse**\
+`Alice Walton is helping the Ozark region shed its “flyover” status by creating civic projects with top architects. The Waltons say they are “giving back.” What is the region giving up?`\
+https://www.nytimes.com/2026/10/28/arts/design/walmart-alice-walton-bentonville-design.html
+
+**This ‘Flying Dutchman’ Tests the Limits on Artists Speaking Freely About Israel**\
+`A Berlin production of “The Flying Dutchman” transforms Wagner’s opera into a provocative allegory amid fears of political interference and censorship in the arts.`\
+https://www.nytimes.com/2026/10/28/arts/music/the-flying-dutchman-milo-rau-deutsche-oper.html
+
+**How to Plan a Trip Around a Running Race**\
+`When should you arrive? How do you choose an event? Here are some tips on how best to center a vacation around a race.`\
+https://www.nytimes.com/2026/10/28/travel/marathon-vacation-planning.html
+
+**How Art and Engineering Built the Statue of Liberty**\
+`Exactly 140 years ago, on a rainy day, the Statue of Liberty was inaugurated in New York Harbor. Our critic at large Jason Farago looks at the statue piece by piece to describe how it came to be.`\
+https://www.nytimes.com/video/nyregion/100000011024494/how-art-and-engineering-built-the-statue-of-liberty.html
+
+**Justice Dept. Declines to Unseal Warrant for Search of Ilhan Omar’s Home**\
+`More than a dozen news organizations have asked a federal judge to unseal documents related to a search warrant executed at Ms. Omar’s home this month.`\
+https://www.nytimes.com/2026/10/28/us/politics/ilhan-omar-doj-search-warrant.html
+
 **For Israel’s Arab Minority, a Historic Show of Strength**\
 `Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government in Tuesday’s election.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
