@@ -1,3 +1,7 @@
+**An Unpredictable President, a Grim White House: Trump Faces Down the Midterms**\
+`The White House has been rocked by turnover and anxiety over the midterms. The president, who is tightening his inner circle, has lashed out at critics, held meandering rallies and feasted on a diet of news clips and “A.I. slop,” as one aide put it.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-midterms-white-house-mood.html
+
 **Huerta Is Remembered as a Labor Champion With a Multidimensional Legacy**\
 `Ms. Huerta, a champion for workers and Latinos, was lauded after revealing she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
