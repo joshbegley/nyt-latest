@@ -1,3 +1,11 @@
+**Dozens Dead After High-Speed Trains Collide in Spain**\
+`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 30 people, according to a spokesperson for the regional government.`\
+https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
+
+**How to Tax and Spend in a ‘Turbulent Time’? U.K. Tries a Balancing Act.**\
+`The new government, led by Andy Burnham, will deliver its first budget on Wednesday, a plan expected to tread between wide ambition and narrow financial limits.`\
+https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
+
 **A.I. by the Numbers**\
 `Plus, Israel’s election, Flávio Bolsonaro and a Gen Z cookbook.`\
 https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
