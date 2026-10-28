@@ -1,3 +1,7 @@
+**Atlanta’s Mayor Walked Away After Covid Chaos. Will Voters Make Her Georgia’s Governor?**\
+`Keisha Lance Bottoms, in her bid for Georgia governor, has faced pointed criticism of her leadership in Atlanta and disappointment in her decision to leave after one term.`\
+https://www.nytimes.com/2026/10/28/us/politics/keisha-lance-bottoms-atlanta-mayor.html
+
 **Can John Sununu, a Senator Before Trump, Reclaim His New Hampshire Seat?**\
 `Plus, ballot-stacking in Alaska and a polling surprise in South Carolina.`\
 https://www.nytimes.com/2026/10/28/us/politics/sununu-new-hampshire-senate.html
@@ -85,6 +89,10 @@ https://www.nytimes.com/video/insider/100000011165116/how-we-prepare-for-electio
 **Tiny Love Stories: ‘Turn Off That Dirge!’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-dirge.html
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/28/business/economy/heres-the-latest.html
 
 **TikTok Is Making Politics a Little Better**\
 `Algorithms are making politicians focus more on positive messaging in short video.`\
@@ -181,10 +189,6 @@ https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
 **Harvard’s Asian Student Enrollment Jumps as Black Enrollment Declines**\
 `Harvard’s Asian American student enrollment jumped to 43 percent and Black students enrollment dipped to 9 percent after the Supreme Court struck down affirmative action in 2023.`\
 https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-action.html
-
-**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
-`Judge Hellerstein was one of the oldest federal judges. He presided over major cases including the civil litigation tied to the Sept. 11 attacks.`\
-https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
