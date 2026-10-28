@@ -1,3 +1,7 @@
+**U.S. Defends Military Campaign Against Cartels as Leaders Gather in Caribbean**\
+`A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
+https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
+
 **Arab Parties’ Strong Showing May Bring Role in Formation of Israel’s Next Government**\
 `Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
