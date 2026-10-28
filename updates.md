@@ -1,3 +1,7 @@
+**Tennessee Race Is Rattled by a Republican’s Acknowledgment of a ‘Past Indiscretion’**\
+`State Senator Brent Taylor, the Republican nominee for a U.S. House seat, responded to a Nashville outlet’s report that he had sent “an unsolicited nude picture.”`\
+https://www.nytimes.com/2026/10/27/us/tennessee-brent-taylor.html
+
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections

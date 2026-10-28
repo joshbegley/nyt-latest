@@ -1,3 +1,11 @@
+**Mamdani Seeks to Replace Head of Commission on Racial Equity**\
+`Linda Tigani, chairwoman of the commission, has been critical of the Mamdani administration’s handling of a racial equity report. She responded to the mayor’s plan to remove her with fiery comments.`\
+https://www.nytimes.com/2026/10/27/nyregion/mamdani-tigani-racial-equality-commission.html
+
+**Tennessee Race Is Rattled by a Republican’s Acknowledgment of a ‘Past Indiscretion’**\
+`State Senator Brent Taylor, the Republican nominee for a U.S. House seat, responded to a Nashville outlet’s report that he had sent “an unsolicited nude picture.”`\
+https://www.nytimes.com/2026/10/27/us/tennessee-brent-taylor.html
+
 **U.S. Defends Military Campaign Against Cartels as Leaders Gather in Caribbean**\
 `A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
 https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
@@ -5,10 +13,6 @@ https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.htm
 **Arab Parties’ Strong Showing May Bring Role in Formation of Israel’s Next Government**\
 `Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
-
-**Mamdani Seeks to Replace Head of Commission on Racial Equity**\
-`Linda Tigani, chairwoman of the commission, has been critical of the Mamdani administration’s handling of a racial equity report. She responded to the mayor’s plan to remove her with fiery comments.`\
-https://www.nytimes.com/2026/10/27/nyregion/mamdani-tigani-racial-equality-commission.html
 
 **White House Has Tight Grip Over FBI in Pursuing Trump Targets, Agent Says**\
 `In court testimony, the agent outlined the willingness of Kash Patel, the F.B.I. director, to take orders from President Trump to investigate his perceived enemies.`\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
 **Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
 `Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
 https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
-
-**A High-Stakes Election: ‘Let Us Choose Wisely’**\
-`Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
-https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
 
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
