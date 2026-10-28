@@ -1,3 +1,15 @@
+**What We Know About the Deadly Train Crash in Spain**\
+`A train accident near Toledo, Spain, which killed at least 68 people, was one of the deadliest in the country’s history.`\
+https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
+
+**Netanyahu Didn’t Win Israel’s Election. But He’s Far From Out.**\
+`Prime Minister Benjamin Netanyahu lost some support from voters, but preliminary results suggest he has multiple ways to remain in power given the country’s fractured politics.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.html
+
+**Spain’s transportation minister described what led to the crash.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
+
 **Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\
 `Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
@@ -76,7 +88,7 @@ https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.htm
 
 **Can Scientists Make Football Safer?**\
 `Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
-https://www.nytimes.com/2026/10/28/science/can-scientists-make-football-safer.html
+https://www.nytimes.com/2026/10/28/science/cte-nfl-football-brain-safety.html
 
 **Three Great Documentaries to Stream**\
 `These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
 **Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
 `Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
 https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
-
-**For Israel’s Neighbors in Middle East, the Election Offers Little Hope of a Reset**\
-`Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html
-
-**Russell Brand Tells Court He ‘Misused’ His Fame, but Says Sex Was Consensual**\
-`The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
-https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\

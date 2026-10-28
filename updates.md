@@ -1,3 +1,19 @@
+**What We Know About the Deadly Train Crash in Spain**\
+`A train accident near Toledo, Spain, which killed at least 68 people, was one of the deadliest in the country’s history.`\
+https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
+
+**Netanyahu Didn’t Win Israel’s Election. But He’s Far From Out.**\
+`Prime Minister Benjamin Netanyahu lost some support from voters, but preliminary results suggest he has multiple ways to remain in power given the country’s fractured politics.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.html
+
+**Spain’s transportation minister described what led to the crash.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
+
+**Can Scientists Make Football Safer?**\
+`Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
+https://www.nytimes.com/2026/10/28/science/cte-nfl-football-brain-safety.html
+
 **Russell Brand Tells Court He ‘Misused’ His Fame, but Says Sex Was Consensual**\
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
