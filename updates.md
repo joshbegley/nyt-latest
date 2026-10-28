@@ -1,3 +1,7 @@
+**Judge Questions Trump Administration’s Need to Target Noncitizen Voters**\
+`In the legal tangle between the Justice Department and California, a federal judge on Tuesday deferred a ruling but said the government already had a remedy it could use after the election.`\
+https://www.nytimes.com/2026/10/27/us/politics/california-ballots-noncitizens.html
+
 **Everything You Could Possibly Want to Know About El Niño**\
 `It’s the hot weather word of the year, but what does it actually mean? We’ve got answers to all the most pressing El Niño questions.`\
 https://www.nytimes.com/interactive/2026/10/27/science/earth/el-nino-climate-faq.html
