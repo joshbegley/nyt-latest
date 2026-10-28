@@ -1,3 +1,31 @@
+**2 Trains Collide in Spain, Killing at Least 10, Officials Say**\
+`One train was said to have rear-ended another, sending two carriages down an embankment.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-toledo.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
+
+**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
+`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**NYT Connections Answers for October 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/connections-companion-1236.html
+
+**Flávio Bolsonaro Flees Brazil for the U.S., and How ChatGPT Laid Out a Dangerous Medical Plan**\
+`Plus, robot-dog walkers wanted: $20 an hour.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-headlines/bolsonaro-brazil-chatgpt-medical-plan.html
+
+**NYT Strands Hints for October 29, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/strands-sidekick-970.html
+
+**Today’s Wordle Answers for October 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/wordle-review-1958.html
+
 **New York City Marathon Weather Forecast: Warmer Temperatures Than Normal**\
 `Thousands of runners will take part in the New York City Marathon on Sunday. Temperatures are expected to be unusually warm for November.`\
 https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/28/opinion/trump-law-lawlessness-presidency-cong
 **How James Talarico’s Years Teaching Middle School Prepared Him for Politics**\
 `Former students and teachers at the San Antonio school where he spent two years with Teach for America recalled a conscientious educator, though there are questions about how big his classes were.`\
 https://www.nytimes.com/2026/10/28/us/politics/talarico-texas-senate-teacher.html
-
-**Tyla and the New Watch Style: Wearing It Around Your Ankle**\
-`The South African singer Tyla recently displayed a new way of wearing timepieces.`\
-https://www.nytimes.com/2026/10/28/fashion/watch-anklet-chopard-tyla.html
-
-**Word of the Day: cohort**\
-`This word has appeared in 360 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/28/learning/word-of-the-day-cohort.html
-
-**What It Takes to Run a Home Day Care**\
-`Invisible to many New Yorkers, thousands of residential day cares meet the city’s huge demand for child care.`\
-https://www.nytimes.com/2026/10/28/realestate/home-day-cares-new-york-city.html
-
-**The U.S. Attorneys Carrying Out Trump’s Election and Grievance Cases**\
-`Together, they have pursued cases against the president’s enemies and protesters and amplified false claims of widespread election fraud, often citing thin evidence.`\
-https://www.nytimes.com/2026/10/28/us/politics/trump-us-attorneys-elections-protests-cases.html
-
-**The Photographers Who Helped Turn Marilyn Monroe Into a Global Star**\
-`The New York Historical exhibition explores the images that propelled the rise of Marilyn Monroe.`\
-https://www.nytimes.com/2026/10/28/arts/design/marilyn-monroe-new-york-historical-photography.html
-
-**Norman Foster’s New Design: Two Lebond Watches**\
-`The architect collaborated with the Spanish brand Lebond on the timepieces.`\
-https://www.nytimes.com/2026/10/28/fashion/watches-norman-foster-lebond.html
-
-**The Foundational Feminist Marianne Wex Takes Her Place at MoMA**\
-`An exhibition is built around the German artist Marianne Wex, whose photos are in dialogue with the works of others.`\
-https://www.nytimes.com/2026/10/28/arts/design/marianne-wex-moma.html
 
