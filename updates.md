@@ -1,3 +1,7 @@
+**Weil Gotshal, Once A Legal Powerhouse, Plans to Dissolve**\
+`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
+
 **Passengers Recount Spain’s Deadly High-Speed Train Collision**\
 `Passengers recalled the moments before a high-speed passenger train rear-ended another in Spain on Wednesday.`\
 https://www.nytimes.com/video/world/europe/100000011242069/passengers-spain-deadly-train-collision.html
