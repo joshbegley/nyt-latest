@@ -1,3 +1,7 @@
+**Live Updates: No Clear Winner Yet in Israel’s Pivotal Election**\
+`Blocs led by Prime Minister Benjamin Netanyahu and his main challenger, Gadi Eisenkot, were roughly even as vote counting continued on Wednesday. It could take weeks to form the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
+
 **Israel’s President, Isaac Herzog, Faces a Difficult Choice**\
 `The president has a largely ceremonial role, except after elections when it is his responsibility to pick a candidate for prime minister.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-herzog-prime-minister.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-
 **European Leaders Split Over Phone Call to Putin**\
 `The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcomed by all European leaders.`\
 https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
-
-**Jordan Strikes Targeting Islamic State in Syria Kill at Least 7 Civilians**\
-`Jordan said it had conducted airstrikes on Islamic State targets in Syria in response to an attack on a church in southern Jordan on Friday. The strikes, which happened late Monday, killed at least seven civilians, including three children, the Syrian civil defense rescue service said.`\
-https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-strikes-islamic-state.html
 
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
