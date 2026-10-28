@@ -134,7 +134,7 @@ https://www.nytimes.com/2026/10/28/us/politics/governors-poll-florida-south-caro
 `The central bank is widely expected to hold interest rates steady on Wednesday, just days before the midterm elections.`\
 https://www.nytimes.com/2026/10/28/business/federal-reserve-interest-rates.html
 
-**Heavily Republican South Carolina’s Senate Race Is a Tossup, Poll Finds**\
+**The Senate Race in Heavily Republican South Carolina is a Tossup, Poll Finds**\
 `Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
 https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
 
