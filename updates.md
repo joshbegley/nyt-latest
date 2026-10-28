@@ -1,3 +1,11 @@
+**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies at 92**\
+`Judge Hellerstein died on Wednesday morning, according to a court spokesman. Judge Hellerstein was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
+https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
+
+**Midterm Elections Live Updates: Obama and Harris Descend on Georgia as Trump Returns to Ohio**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
+
 **Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
 `Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
 https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
