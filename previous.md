@@ -1,3 +1,7 @@
+**From Senate Candidates, Surprising Stances on Fixing Social Security**\
+`Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
+https://www.nytimes.com/2026/10/28/business/social-security-senate.html
+
 **Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
 `The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
 https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
@@ -86,7 +90,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: At Least 64 Killed in Train Crash in Spain, Officials Say**\
+**Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
 **Can You Trust the Midterm Polls? Three Times Journalists Talk It Out.**\
 `Members of the team behind the Times/Siena Poll on what the data show, how they’ve improved their methodology and what it means to be “right.”`\
 https://www.nytimes.com/2026/10/28/insider/polls-midterm-election.html
-
-**Two Murals That Celebrate New York**\
-`In 1986, Keith Haring created a mural with young helpers. Now an artist has worked with volunteers to make a colorful mural in the Bronx.`\
-https://www.nytimes.com/2026/10/28/nyregion/murals-keith-haring-.html
 

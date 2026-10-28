@@ -1,3 +1,11 @@
+**From Senate Candidates, Surprising Stances on Fixing Social Security**\
+`Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
+https://www.nytimes.com/2026/10/28/business/social-security-senate.html
+
+**Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
+`A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
 **Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
 `The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
 https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html

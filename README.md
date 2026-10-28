@@ -1,3 +1,23 @@
+**Can Scientists Make Football Safer?**\
+`Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
+https://www.nytimes.com/2026/10/28/science/can-scientists-make-football-safer.html
+
+**Three Great Documentaries to Stream**\
+`These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
+https://www.nytimes.com/2026/10/28/movies/halloween-documentaries-streaming.html
+
+**These Are the Big Midterm Elections Flying Under the Radar**\
+`National politics dominate people’s attention, but local politics often play a greater role in shaping their lives.`\
+https://www.nytimes.com/2026/10/28/opinion/midterms-local-state-elections.html
+
+**How to Avoid Knee Surgery**\
+`If you want to avoid the knife, you have to be patient.`\
+https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
+
+**How to Get a Mental Health Checkup**\
+`Here are a few questions to ask yourself — and your primary care doctor — to keep your psychological well-being on track.`\
+https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
+
 **From Senate Candidates, Surprising Stances on Fixing Social Security**\
 `Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
 https://www.nytimes.com/2026/10/28/business/social-security-senate.html
@@ -94,13 +114,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
-`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
-https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
-
 **Is Running From Trump Enough to Save Republicans on Tuesday?**\
 `A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
 https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
+
+**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
+`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
 **Byron Donalds Holds Slim Lead in Florida’s Race for Governor**\
 `New polls in Florida, South Carolina and Minnesota illuminate the head winds that Republicans are facing.`\
 https://www.nytimes.com/2026/10/28/us/politics/governors-poll-florida-south-carolina-minnesota.html
-
-**The Federal Reserve Will Release Its Interest Rate Decision Today. Here’s What to Watch.**\
-`The central bank is widely expected to hold interest rates steady on Wednesday, just days before the midterm elections.`\
-https://www.nytimes.com/2026/10/28/business/federal-reserve-interest-rates.html
-
-**The Senate Race in Heavily Republican South Carolina is a Tossup, Poll Finds**\
-`Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
-https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
-
-**‘Minimum Wage’ Review: Netflix Adapts Another YouTube Comedy**\
-`The “new” series, featuring the sitcom veteran Randall Park and “S.N.L.” newcomer Grace Reiter, exists in a more liminal TV space.`\
-https://www.nytimes.com/2026/10/28/arts/television/minimum-wage-review-netflix-youtube.html
-
-**How to Tax and Spend in a ‘Turbulent Time’? U.K. Tries a Balancing Act.**\
-`The new government, led by Andy Burnham, will deliver its first budget on Wednesday, a plan expected to tread between wide ambition and narrow financial limits.`\
-https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
-
-**Can You Trust the Midterm Polls? Three Times Journalists Talk It Out.**\
-`Members of the team behind the Times/Siena Poll on what the data show, how they’ve improved their methodology and what it means to be “right.”`\
-https://www.nytimes.com/2026/10/28/insider/polls-midterm-election.html
 
