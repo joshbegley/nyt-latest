@@ -1,3 +1,11 @@
+**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, is set to explain why the bank paused interest rates, as investors watch for signals of whether increases will resume soon.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
+
 **An Inconclusive Vote Leaves Israelis Pondering an Uncertain Future**\
 `A day after the election, supporters of Prime Minister Benjamin Netanyahu were relieved he still had a chance to stay in power, while his opponents worried the mixed results could lead to a political stalemate.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-netanyahu-eisenkot-mood.html

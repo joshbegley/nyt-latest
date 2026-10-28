@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
-**Live Updates: Fed Holds Rates Steady Even as Inflation Pushes on Prices**\
-`Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
+**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, is set to explain why the bank paused interest rates, as investors watch for signals of whether increases will resume soon.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.htm
 `Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
 
-**Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
-`A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
-https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+**Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
 

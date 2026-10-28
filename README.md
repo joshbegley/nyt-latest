@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-departmen
 https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
 
 **How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
-`The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+`The Federal Reserve left its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
 https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
 
 **Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
