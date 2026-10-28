@@ -1,3 +1,7 @@
+**Inside Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+`Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
+https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
+
 **For Democrats Eyeing 2028, the First Test Is ‘Money, Money, Money’**\
 `As soon as the midterms are over, presidential contenders are going to need to raise millions, quickly.`\
 https://www.nytimes.com/2026/10/28/us/politics/2028-democrats.html
