@@ -1,3 +1,7 @@
+**Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
+`Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
+https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
+
 **Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
 `He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
 https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html

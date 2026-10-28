@@ -1,3 +1,7 @@
+**Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
+`Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
+https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
+
 **Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
 `He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
 https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html
@@ -154,13 +158,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
-
 **Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
 `Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
 **Israelis Stay Hopeful Despite Uncertain Election Outcome**\
 `In Israel, supporters of Prime Minister Benjamin Netanyahu and Gadi Eisenkot stayed hopeful as exit polls suggested both sides were roughly even early Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-netanyahu-eisenkot.html
-
-**Is This the Gateway Drug for Gambling?**\
-`We actually can regulate prediction markets, and we should do it now.`\
-https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
 

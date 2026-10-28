@@ -1,3 +1,7 @@
+**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies at 92**\
+`Judge Hellerstein died on Wednesday morning, according to a court spokesman. Judge Hellerstein was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
+https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
+
 **Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
 `Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
 https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dea
 `The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
 https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
 
-**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Visits Ohio**\
+**Midterm Elections Live Updates: Obama and Harris Descend on Georgia as Trump Returns to Ohio**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/crosswords/wordle-review-1958.html
 **New York City Marathon Weather Forecast: Warmer Temperatures Than Normal**\
 `Thousands of runners will take part in the New York City Marathon on Sunday. Temperatures are expected to be unusually warm for November.`\
 https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
-
-**Israelis Stay Hopeful Despite Uncertain Election Outcome**\
-`In Israel, supporters of Prime Minister Benjamin Netanyahu and Gadi Eisenkot stayed hopeful as exit polls suggested both sides were roughly even early Wednesday.`\
-https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-netanyahu-eisenkot.html
 
