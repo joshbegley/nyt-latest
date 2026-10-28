@@ -1,3 +1,11 @@
+**A Ballot-Stacking Effort in Alaska**\
+`Also, Life magazine rises again. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/28/briefing/alaska-ballot-stacking-horror-bookshops.html
+
+**Watch Repair Specialist Often Works on Pieces Worth Millions**\
+`Daniele Del Vecchio regularly disassembles, inspects and repairs watches costing millions from his shop in Connecticut.`\
+https://www.nytimes.com/2026/10/28/fashion/watches-repairs-daniele-del-vecchio-connecticut.html
+
 **Officials Back Trump’s Claim That Triumphal Arch Is Needed for National Security**\
 `Defense Secretary Pete Hegseth and Markwayne Mullin, the homeland security secretary, submitted sworn statements to a federal court regarding the construction project.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-arch-national-security.html

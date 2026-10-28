@@ -1,3 +1,11 @@
+**A Ballot-Stacking Effort in Alaska**\
+`Also, Life magazine rises again. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/10/28/briefing/alaska-ballot-stacking-horror-bookshops.html
+
+**Watch Repair Specialist Often Works on Pieces Worth Millions**\
+`Daniele Del Vecchio regularly disassembles, inspects and repairs watches costing millions from his shop in Connecticut.`\
+https://www.nytimes.com/2026/10/28/fashion/watches-repairs-daniele-del-vecchio-connecticut.html
+
 **Officials Back Trump’s Claim That Triumphal Arch Is Needed for National Security**\
 `Defense Secretary Pete Hegseth and Markwayne Mullin, the homeland security secretary, submitted sworn statements to a federal court regarding the construction project.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-arch-national-security.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-te
 **Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
 `He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
 https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html
-
-**Dolores Huerta, Who Founded United Farm Workers With Cesar Chavez, Dies**\
-`She founded the United Farm Workers with Cesar Chavez. In early 2026, she told The Times that she had been raped by him decades earlier. She was 96.`\
-https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
-
-**Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
-`A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
-https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\

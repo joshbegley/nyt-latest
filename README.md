@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-
 `Algorithms are making politicians focus more on positive messaging in short video.`\
 https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
 
-**You Can’t Stop A.I. But You Can Bargain With It.**\
+**Worried About A.I. Taking Your Job? This Is for You.**\
 `We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
 https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
 
