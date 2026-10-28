@@ -1,3 +1,23 @@
+**TikTok Is Making Politics a Little Better**\
+`Algorithms are making politicians focus more on positive messaging in short video.`\
+https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
+
+**You Can’t Stop A.I. But You Can Bargain With It.**\
+`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
+https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
+
+**You Can’t Stop A.I. But You Can Bargain With It.**\
+`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
+https://www.nytimes.com/video/opinion/100000011225057/you-cant-stop-ai-but-you-can-bargain-with-it.html
+
+**Live Updates: Warsh Explains the Fed’s Rate Decision**\
+`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady. He said that the Fed would hold fewer rate-setting votes starting next year.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**How Spain's Deadly Train Crash Unfolded**\
+`Diagrams show how a high-speed train barreled into another train on the same track.`\
+https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
+
 **Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Returns to Ohio**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump

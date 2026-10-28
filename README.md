@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
-**Live Updates: Warsh Explains the Fed’s Rate Decision**\
-`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady. He said that the Fed would hold fewer rate-setting votes starting next year.`\
+**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
