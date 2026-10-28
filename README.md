@@ -1,3 +1,7 @@
+**New York City Marathon Weather Forecast: Warmer Temperatures Than Normal**\
+`Thousands of runners will take part in the New York City Marathon on Sunday. Temperatures are expected to be unusually warm for November.`\
+https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
+
 **Israelis Stay Hopeful Despite Uncertain Election Outcome**\
 `In Israel, supporters of Prime Minister Benjamin Netanyahu and Gadi Eisenkot stayed hopeful as exit polls suggested both sides were roughly even early Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-netanyahu-eisenkot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/fashion/watches-norman-foster-lebond.html
 **The Foundational Feminist Marianne Wex Takes Her Place at MoMA**\
 `An exhibition is built around the German artist Marianne Wex, whose photos are in dialogue with the works of others.`\
 https://www.nytimes.com/2026/10/28/arts/design/marianne-wex-moma.html
-
-**Josh Johnson, a Trusted Music Producer, Has a New Jazz LP Coming Out**\
-`Josh Johnson became a trusted producer of Meshell Ndegeocello and Flea for knowing when to guide and when to let go. He gives himself that license on a new LP, “Animative.”`\
-https://www.nytimes.com/2026/10/28/arts/music/an-anchor-of-the-los-angeles-jazz-scene-finds-his-way-forward.html
 

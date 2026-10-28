@@ -1,3 +1,7 @@
+**Israelis Stay Hopeful Despite Uncertain Election Outcome**\
+`In Israel, supporters of Prime Minister Benjamin Netanyahu and Gadi Eisenkot stayed hopeful as exit polls suggested both sides were roughly even early Wednesday.`\
+https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-netanyahu-eisenkot.html
+
 **This ‘New Form of Casino’ Is Terrible for Teens**\
 `We actually can regulate prediction markets, and we should do it now.`\
 https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
