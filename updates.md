@@ -1,3 +1,7 @@
+**For Israel’s Neighbors in Middle East, the Election Offers Little Hope of a Reset**\
+`Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html
+
 **Russell Brand Testifies in Rape Trial for First Time**\
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html

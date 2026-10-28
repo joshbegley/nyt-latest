@@ -1,3 +1,7 @@
+**For Israel’s Neighbors in Middle East, the Election Offers Little Hope of a Reset**\
+`Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html
+
 **Russell Brand Testifies in Rape Trial for First Time**\
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/books/peter-may-dead.html
 **SC103, the Downtown New York Brand for Clothes Meant to Show Their Seams**\
 `The designs from SC103 capture a yen for garments that wear the signs of the hands that made them.`\
 https://www.nytimes.com/2026/10/28/style/sc103-claire-mckinney-sophie-andes-gascon-new-york.html
-
-**The Rule of Law Is for Suckers**\
-`Trump has no use for pretense and he’s not interested in playing along.`\
-https://www.nytimes.com/2026/10/28/opinion/trump-law-lawlessness-presidency-congress.html
 
