@@ -1,3 +1,7 @@
+**U.S. Defends Military Campaign Against Cartels as Leaders Gather in Caribbean**\
+`A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
+https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
+
 **Arab Parties’ Strong Showing May Bring Role in Formation of Israel’s Next Government**\
 `Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-
 **A High-Stakes Election: ‘Let Us Choose Wisely’**\
 `Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
 https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
-
-**E.P.A. to Loosen Methane Rules for Oil Firms**\
-`The Biden administration had sought to crack down on methane leaks, a big driver of climate change. Those rules are now being scaled back.`\
-https://www.nytimes.com/2026/10/27/climate/trump-methane-rules-epa-greenhouse-gas.html
 
 **Live Updates: Opposition Holds Slim Lead Over Netanyahu’s Coalition in Israeli Elections**\
 `Exit polls showed no clear winner after the highest voter turnout in decades. A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies.`\
