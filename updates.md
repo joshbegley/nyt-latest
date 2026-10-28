@@ -1,3 +1,19 @@
+**Judge Who Used Racist Slur Forced Off Bench by New York’s Highest Court**\
+`Walter Jones, a longtime Canandaigua town justice, repeatedly used a slur aimed at Black people while telling a story set on his grandfather’s cotton farm.`\
+https://www.nytimes.com/2026/10/27/nyregion/judge-removed-racism.html
+
+**Todo lo que querrías saber sobre El Niño**\
+`Es el término del año sobre el clima cálido, pero ¿qué significa en realidad? Tenemos respuestas a todas las preguntas más apremiantes sobre El Niño.`\
+https://www.nytimes.com/interactive/2026/10/27/climate/el-nino-climate-faq-es.html
+
+**Iran War Cost Rises to $47.1 Billion, Pentagon Told Lawmakers**\
+`The estimate through Oct. 16 shows that bombs, missiles and other munitions accounted for more than 60 percent of expenses.`\
+https://www.nytimes.com/2026/10/27/us/politics/iran-war-cost-rises.html
+
+**No Clear Winner in the Israeli Elections, Exit Polls Show**\
+`Israeli exit polls showed early Wednesday that the opposition bloc, led by Gadi Eisenkot, was roughly even with Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
+https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
+
 **Judge Questions Trump Administration’s Need to Target Noncitizen Voters**\
 `In the legal tangle between the Justice Department and California, a federal judge on Tuesday deferred a ruling but said the government already had a remedy it could use after the election.`\
 https://www.nytimes.com/2026/10/27/us/politics/california-ballots-noncitizens.html

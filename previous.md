@@ -1,3 +1,15 @@
+**Judge Who Used Racist Slur Forced Off Bench by New York’s Highest Court**\
+`Walter Jones, a longtime Canandaigua town justice, repeatedly used a slur aimed at Black people while telling a story set on his grandfather’s cotton farm.`\
+https://www.nytimes.com/2026/10/27/nyregion/judge-removed-racism.html
+
+**Todo lo que querrías saber sobre El Niño**\
+`Es el término del año sobre el clima cálido, pero ¿qué significa en realidad? Tenemos respuestas a todas las preguntas más apremiantes sobre El Niño.`\
+https://www.nytimes.com/interactive/2026/10/27/climate/el-nino-climate-faq-es.html
+
+**Iran War Cost Rises to $47.1 Billion, Pentagon Told Lawmakers**\
+`The estimate through Oct. 16 shows that bombs, missiles and other munitions accounted for more than 60 percent of expenses.`\
+https://www.nytimes.com/2026/10/27/us/politics/iran-war-cost-rises.html
+
 **Judge Questions Trump Administration’s Need to Target Noncitizen Voters**\
 `In the legal tangle between the Justice Department and California, a federal judge on Tuesday deferred a ruling but said the government already had a remedy it could use after the election.`\
 https://www.nytimes.com/2026/10/27/us/politics/california-ballots-noncitizens.html
@@ -35,7 +47,7 @@ https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.h
 https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
 
 **No Clear Winner in the Israeli Elections, Exit Polls Show**\
-`Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
+`Israeli exit polls showed early Wednesday that the opposition bloc, led by Gadi Eisenkot, was roughly even with Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
 https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
 
 **Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
@@ -169,14 +181,6 @@ https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
 **“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
-
-**Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
-`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
-https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
-
-**Political Satire Is an American Tradition. Deceptive A.I. Ads Are Not.**\
-`Despite how cringeworthy they are, political campaigns have spent $137 million on A.I.-generated ads for the midterms. And the lack of regulation on these ads is warping our sense of what’s real. The Opinion writer Rotimi Adeoye argues that while this kind of political satire falls under First Amendment protection, “you should be free to fake a politician, but you shouldn’t be free to hide the fact that you did.”`\
-https://www.nytimes.com/video/opinion/100000011237739/political-satire-is-an-american-tradition-deceptive-ai-ads-are-not.html
 
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
