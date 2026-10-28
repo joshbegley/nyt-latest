@@ -1,3 +1,7 @@
+**Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
+`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
+https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
+
 **Judge Who Used Racist Slur Forced Off Bench by New York’s Highest Court**\
 `Walter Jones, a longtime Canandaigua town justice, repeatedly used a slur aimed at Black people while telling a story set on his grandfather’s cotton farm.`\
 https://www.nytimes.com/2026/10/27/nyregion/judge-removed-racism.html
