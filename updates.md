@@ -1,3 +1,7 @@
+**Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
+`A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Live Updates: Exit Polls Show No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
