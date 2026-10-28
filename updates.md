@@ -1,3 +1,7 @@
+**Justice Dept. Turns Civil Rights Group’s Informant Against It**\
+`Lawyers for the Southern Poverty Law Center say that federal prosecutors capitalized on the informant’s money problems and exposure to indictment to persuade him to assist the government.`\
+https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
+
 **Former Head of ‘Star Wars’ Studio to Lead L.A. Olympic Ceremonies**\
 `Kathleen Kennedy, who led Lucasfilm for nearly 14 years, will orchestrate the opening and closing ceremonies of the 2028 summer Olympics.`\
 https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
