@@ -1,3 +1,11 @@
+**Passengers Recount Spain’s Deadly High-Speed Train Collision**\
+`Passengers recalled the moments before a high-speed passenger train rear-ended another in Spain on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011242069/passengers-spain-deadly-train-collision.html
+
+**How André Janones Helped Turbocharge Lula’s Comeback in Brazil’s Election**\
+`With street talk and tactics from the far-right’s playbook, André Janones used a WhatsApp channel to help organize millions of Brazilians online.`\
+https://www.nytimes.com/2026/10/28/world/americas/andre-janones-whatsapp-lula-brazil-election.html
+
 **Text Message Referencing a ‘Hijack’ Forces United Flight to Return to Vegas**\
 `Now charged with a felony, the passenger who sent the text said that he had been drinking, and that the message was poorly worded banter between co-workers.`\
 https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.html

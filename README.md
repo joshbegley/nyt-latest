@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.ht
 `Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
 https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
 
-**Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
+**Weil Gotshal, Once A Legal Powerhouse, Plans to Dissolve**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
 https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
 
