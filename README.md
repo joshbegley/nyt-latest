@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-
 `Readers discuss the critical choices in the midterm elections. Also: Understanding stuttering; conscious A.I.?`\
 https://www.nytimes.com/2026/10/27/opinion/midterm-elections.html
 
-**Live Updates: Exit Polls Show No Clear Winner in Pivotal Israeli Election**\
+**Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
