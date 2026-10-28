@@ -1,3 +1,7 @@
+**Dolores Huerta, Who Founded United Farm Workers With Cesar Chavez, Dies**\
+`She founded the United Farm Workers with Cesar Chavez. In early 2026, she told The Times that she had been raped by him decades earlier. She was 96.`\
+https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
+
 **Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
 `A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
 https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
@@ -146,13 +150,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
-
 **Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
 `Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
 **What Our New Senate Polls Tell Us About the State of the Midterms**\
 `South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
 https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
-
-**What Are Your Local Traditions?**\
-`A longhorn cattle drive, a tractor pull, an armadillo race and a worm grunting festival are just some of the colorful customs across the country a guest essayist observed and photographed.`\
-https://www.nytimes.com/2026/10/28/learning/what-are-your-local-traditions.html
 

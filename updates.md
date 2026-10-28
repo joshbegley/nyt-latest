@@ -1,3 +1,7 @@
+**Dolores Huerta, Who Founded United Farm Workers With Cesar Chavez, Dies**\
+`She founded the United Farm Workers with Cesar Chavez. In early 2026, she told The Times that she had been raped by him decades earlier. She was 96.`\
+https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
+
 **Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
 `A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
 https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html

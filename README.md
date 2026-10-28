@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
 `A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
 https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
 
-**Ex-N.Y.P.D. Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
+**Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
 `Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
 https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
 
