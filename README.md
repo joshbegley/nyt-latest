@@ -1,3 +1,15 @@
+**TikTok Is Making Politics a Little Better**\
+`Algorithms are making politicians focus more on positive messaging in short video.`\
+https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
+
+**You Can’t Stop A.I. But You Can Bargain With It.**\
+`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
+https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
+
+**You Can’t Stop A.I. But You Can Bargain With It.**\
+`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
+https://www.nytimes.com/video/opinion/100000011225057/you-cant-stop-ai-but-you-can-bargain-with-it.html
+
 **The Local: Inside look at shuttered opera**\
 `Plus, Anthony Edwards’s knee surgery and what it could mean for the Timberwolves.`\
 https://www.nytimes.com/2026/10/28/briefing/minnesota-opera-laila-starr.html
@@ -55,7 +67,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
 **Live Updates: Warsh Explains the Fed’s Rate Decision**\
-`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady.  He said that the Fed would hold fewer rate-setting votes starting next year.`\
+`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady. He said that the Fed would hold fewer rate-setting votes starting next year.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
@@ -114,7 +126,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-eise
 `We caught up with the editor in chief of The Minnesota Daily.`\
 https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
 
-**How Two Trains Collided in Spain**\
+**How Spain's Deadly Train Crash Unfolded**\
 `Diagrams show how a high-speed train barreled into another train on the same track.`\
 https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
 
@@ -181,14 +193,6 @@ https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dea
 **U.S. Restricts Trade With Chinese Genomics Company**\
 `The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
 https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
-
-**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Returns to Ohio**\
-`(No description)`\
-https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
-
-**The Officiant Mooned the Guests at My Daughter’s Wedding. Help!**\
-`The mother of the bride feels that the groom’s brother tarnished a special day that she had worked hard to make beautiful. Should she confront him?`\
-https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
