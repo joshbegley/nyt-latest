@@ -1,3 +1,15 @@
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Make your life bigger, color stories and back-seat rock.`\
+https://www.nytimes.com/2026/10/28/briefing/the-good-list-houdini-colors.html
+
+**How We Prepare for Election Night**\
+`At The New York Times, we test every part of our election night process and workflow, including the technology, the communication and the space in the newsroom. Go behind the scenes of a full dress rehearsal before the big day.`\
+https://www.nytimes.com/video/insider/100000011165116/how-we-prepare-for-election-night.html
+
+**Tiny Love Stories: ‘Turn Off That Dirge!’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-dirge.html
+
 **Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
