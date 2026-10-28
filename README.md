@@ -1,3 +1,7 @@
+**Angry Anderson Has Died. He Rocked Hard and Played a Villain in ‘Mad Max.’**\
+`The diminutive Australian fronted the group Rose Tattoo and stole scenes as a glutton for punishment in “Mad Max Beyond Thunderdome.”`\
+https://www.nytimes.com/2026/10/28/obituaries/gary-angry-anderson-mad-max-dead.html
+
 **What We Know About the Deadly Train Crash in Spain**\
 `A train accident near Toledo, Spain, which killed at least 68 people, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-crossta
 **A.I. by the Numbers**\
 `Plus, Israel’s election, Flávio Bolsonaro and a Gen Z cookbook.`\
 https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
-
-**Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
-`Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
-https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
