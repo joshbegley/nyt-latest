@@ -1,3 +1,7 @@
+**An ‘Endless’ Cruise Around the World Is Suspended, Leaving Passengers Stranded**\
+`The cruise promised a lifetime of sailing, for less than what it cost to live on land. But it was underfunded and couldn’t absorb the rising cost of fuel.`\
+https://www.nytimes.com/2026/10/28/travel/endless-cruise-suspended-villa-vie-passengers.html
+
 **Nigeria’s Ebola Patient Evacuated as Investigators Press for Answers**\
 `More than a week after the first case was reported in Africa’s most populous nation, pressing questions about the infection remain unanswered.`\
 https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-uganda.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
-**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
-`Kevin Warsh, the Federal Reserve chairman, is set to explain the decision. Two officials voted for a rate increase.`\
+**Live Updates: Warsh Explains the Fed’s Rate Decision**\
+`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady. Two officials dissented, voting for an increase.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
 **Knife-Wielding Attacker Fatally Shot Outside Israeli Embassy in Serbia**\
 `The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
 https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
-
-**Life Magazine, Chronicler of 20th-Century America, Rises Again**\
-`The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
-https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
