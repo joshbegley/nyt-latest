@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
 
-**Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
-`A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
+**Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
+`Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 

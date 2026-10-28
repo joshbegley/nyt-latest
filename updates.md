@@ -1,3 +1,7 @@
+**Brazilians Divided Over Flávio Bolsonaro’s Flight From Brazil for U.S. After Election Defeat**\
+`The defeated presidential candidate Flávio Bolsonaro fled Brazil for the United States on Tuesday, U.S. officials said, leaving Brazilians divided.`\
+https://www.nytimes.com/video/world/americas/100000011241083/brazil-bolsonaro-flee-reaction.html
+
 **Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
 `The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
 https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
