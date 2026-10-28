@@ -1,3 +1,11 @@
+**Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
+`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on data centers and offered to pay workers to leave.`\
+https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
+
+**Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
 **Weil Gotshal, Once A Legal Powerhouse, Plans to Dissolve**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
 https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
