@@ -1,3 +1,11 @@
+**Atlanta’s Mayor Walked Away After Covid Chaos. Will Voters Make Her Georgia’s Governor?**\
+`Keisha Lance Bottoms, in her bid for Georgia governor, has faced pointed criticism of her leadership in Atlanta and disappointment in her decision to leave after one term.`\
+https://www.nytimes.com/2026/10/28/us/politics/keisha-lance-bottoms-atlanta-mayor.html
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/10/28/business/economy/heres-the-latest.html
+
 **Can John Sununu, a Senator Before Trump, Reclaim His New Hampshire Seat?**\
 `Plus, ballot-stacking in Alaska and a polling surprise in South Carolina.`\
 https://www.nytimes.com/2026/10/28/us/politics/sununu-new-hampshire-senate.html
