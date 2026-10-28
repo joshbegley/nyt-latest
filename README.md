@@ -1,3 +1,7 @@
+**Inside Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+`Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
+https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
+
 **For Democrats Eyeing 2028, the First Test Is ‘Money, Money, Money’**\
 `As soon as the midterms are over, presidential contenders are going to need to raise millions, quickly.`\
 https://www.nytimes.com/2026/10/28/us/politics/2028-democrats.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/nyregion/murals-keith-haring-.html
 **A Punishing Housing Market Is Squeezing Renters**\
 `Higher mortgage rates and slowing residential construction are again giving landlords the upper hand.`\
 https://www.nytimes.com/2026/10/28/business/housing-market-rent-pressure.html
-
-**Which $1.5 Million Home Would You Buy?**\
-`This week’s listings are a space age-inspired house in Idyllwild, Calif., a Cape Cod in Charlottesville, Va., and a condo in Washington, D.C.`\
-https://www.nytimes.com/2026/10/28/realestate/idyllwild-calif-charlottesville-va-washington-dc-homes-for-sale-.html
 
