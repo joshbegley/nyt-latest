@@ -1,3 +1,19 @@
+**Flávio Bolsonaro Lands in Miami After Fleeing Brazil**\
+`Mr. Bolsonaro, who lost Sunday’s presidential election, fled Brazil for the United States via Argentina after the police canceled his passport in relation to an investigation.`\
+https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-brazil-trump.html
+
+**Dozens Dead After High-Speed Trains Collide in Spain**\
+`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 64 people, according to a spokesperson for the regional government.`\
+https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
+
+**Life Magazine, Chronicler of 20th-Century America, Rises Again**\
+`The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
+https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
+
+**Live Updates: At Least 64 Killed in Train Crash in Spain, Officials Say**\
+`A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
 **4 Takeaways From Israel’s Election**\
 `Votes are still being counted, and much is in flux. But as the stage was set for bitter talks over forming a government, nearly all sides could face disappointment.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html

@@ -1,9 +1,13 @@
+**Flávio Bolsonaro Lands in Miami After Fleeing Brazil**\
+`Mr. Bolsonaro, who lost Sunday’s presidential election, fled Brazil for the United States via Argentina after the police canceled his passport in relation to an investigation.`\
+https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-brazil-trump.html
+
 **4 Takeaways From Israel’s Election**\
 `Votes are still being counted, and much is in flux. But as the stage was set for bitter talks over forming a government, nearly all sides could face disappointment.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html
 
 **Dozens Dead After High-Speed Trains Collide in Spain**\
-`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 30 people, according to a spokesperson for the regional government.`\
+`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 64 people, according to a spokesperson for the regional government.`\
 https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
 
 **U.S. Restricts Trade With Chinese Genomics Company**\
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
 `The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
 https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
 
-**Life Magazine, Chronicler of 20th Century America, Rises Again**\
+**Life Magazine, Chronicler of 20th-Century America, Rises Again**\
 `The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
 https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
 
@@ -71,16 +75,16 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
 **Live Updates: At Least 64 Killed in Train Crash in Spain, Officials Say**\
-`One high-speed passenger train rear-ended another one near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+`A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
-
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
 `Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/realestate/idyllwild-calif-charlottesville-va
 **How Jim Morrison’s Unthinkable Loss Led Him to the Top of Mount Everest**\
 `Jim Morrison set a world record. Enduring love made it possible.`\
 https://www.nytimes.com/2026/10/28/podcasts/jim-morrison-mount-everest-family.html
-
-**Rare Wartime Dissent in Moscow Over Plans to Dismantle Russia’s ‘Eiffel Tower’**\
-`A state broadcaster says it cannot afford the restoration of a 1922 steel tower, prompting rare wartime dissent and a movement to save the Modernist masterpiece.`\
-https://www.nytimes.com/2026/10/28/world/europe/russia-shukhov-radio-tower.html
 
