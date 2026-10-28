@@ -1,3 +1,7 @@
+**Kennedy to Allow Broad Use of Unapproved Peptide Injections**\
+`In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
+https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
+
 **How to Create Fairer Election Districts**\
 `Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
 https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
