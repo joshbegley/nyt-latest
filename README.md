@@ -1,3 +1,7 @@
+**Trump Officials Discussing Sanctions Relief for Russian Fund, Russia Acknowledges**\
+`A Russian official said potential relief for a state investment fund was part of talks. Russia has sought to wring economic benefits from the negotiations on ending the war with Ukraine.`\
+https://www.nytimes.com/2026/10/28/us/politics/russia-sanctions-relief-fund-trump.html
+
 **Surprise Showing by Arab Parties in Israeli Vote Puts Them in Spotlight**\
 `The Arab parties have long been kept on the political sidelines. But stunning turnout by their supporters makes the Arab minority an Israeli political reality that cannot be ignored.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-arab-parties.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm
 **How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
 `The Federal Reserve left its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
 https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
-
-**Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
-`Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
-https://www.nytimes.com/2026/10/28/business/economy/trump-lisa-cook-warsh.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
