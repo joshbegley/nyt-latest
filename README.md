@@ -1,3 +1,7 @@
+**Justice Dept. Turns Civil Rights Group’s Informant Against It**\
+`Lawyers for the Southern Poverty Law Center say that federal prosecutors capitalized on the informant’s money problems and exposure to indictment to persuade him to assist the government.`\
+https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
+
 **Former Head of ‘Star Wars’ Studio to Lead L.A. Olympic Ceremonies**\
 `Kathleen Kennedy, who led Lucasfilm for nearly 14 years, will orchestrate the opening and closing ceremonies of the 2028 summer Olympics.`\
 https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-net
 **Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
 `Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She had pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
 https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
-
-**Eisenkot, Netanyahu’s Main Rival in Israel’s Election, Faces a Dilemma**\
-`To form a government, Israeli opposition leader Gadi Eisenkot needs to either join forces with Arab parties — anathema to many Israelis — or with members of Benjamin Netanyahu’s alliance.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-eisenkot.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
