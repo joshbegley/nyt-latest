@@ -1,3 +1,15 @@
+**A Chinese Port Could Be a Lifeline for Spain, but Also a Threat**\
+`Residents say a proposed Chinese car plant in northern Spain will create new jobs. Others say it’s a long-term risk, distilling a debate about the costs and perks of ties to China.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-saic-ferrol-china.html
+
+**Quote of the Day: In a ‘Robogym,’ Leveling Up Like a Human**\
+`Quotation of the Day for Wednesday, October 28, 2026.`\
+https://www.nytimes.com/2026/10/28/pageoneplus/quote-of-the-day-in-a-robogym-leveling-up-like-a-human.html
+
+**From the Front Page: The Statue of Liberty Is Dedicated on Oct. 28, 1886**\
+`The Statue of Liberty, a gift from the people of France, was dedicated in New York Harbor by President Grover Cleveland.`\
+https://www.nytimes.com/2026/10/28/learning/from-the-front-page-the-statue-of-liberty-is-dedicated-on-oct-28-1886.html
+
 **Texas Senate Rivals Converge on Lubbock, With Trump in the Mix**\
 `It was a showdown of sorts in western Texas as James Talarico and Ken Paxton appeared at dueling rallies on either side of a prairie-dog-filled city park.`\
 https://www.nytimes.com/2026/10/27/us/elections/paxton-talarico-texas-senate-rally-lubbock.html
