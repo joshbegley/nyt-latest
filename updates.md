@@ -1,3 +1,7 @@
+**Live Updates: Exit Polls Show No Clear Winner in Pivotal Israeli Election**\
+`A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **U.S. Defends Military Campaign Against Cartels as Leaders Gather in Caribbean**\
 `A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
 https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
