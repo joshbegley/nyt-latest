@@ -1,3 +1,7 @@
+**Investors Brace for Big Tech’s A.I. Spending Bill**\
+`Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
+
 **Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
 `Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/28/movies/on-the-road-review.html
 **Can We Make a Dent in the Housing Crisis? Two Projects Say Yes.**\
 `As the Mamdani administration, and cities across America, grapple with affordable housing, two handsome complexes in Queens and Brooklyn show signs of progress.`\
 https://www.nytimes.com/2026/10/28/arts/design/24mamdani-affordable-housing-new-york.html
-
-**‘Closure’ Review: Looking for Hope in a River**\
-`A gorgeous and devastating documentary follows a father obsessively looking for his missing son.`\
-https://www.nytimes.com/2026/10/28/movies/closure-review.html
 

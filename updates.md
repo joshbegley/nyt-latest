@@ -1,3 +1,7 @@
+**Investors Brace for Big Tech’s A.I. Spending Bill**\
+`Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
+
 **What Our New Senate Polls Tell Us About the State of the Midterms**\
 `South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
 https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
