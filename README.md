@@ -1,3 +1,7 @@
+**How to Create Fairer Election Districts**\
+`Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
+https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
+
 **Angry Anderson Has Died. He Rocked Hard and Played a Villain in ‘Mad Max.’**\
 `The diminutive Australian fronted the group Rose Tattoo and stole scenes as a glutton for punishment in “Mad Max Beyond Thunderdome.”`\
 https://www.nytimes.com/2026/10/28/obituaries/gary-angry-anderson-mad-max-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-crossta
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
 `Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-crosstabs.html
-
-**A.I. by the Numbers**\
-`Plus, Israel’s election, Flávio Bolsonaro and a Gen Z cookbook.`\
-https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
