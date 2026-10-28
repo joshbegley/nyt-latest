@@ -1,3 +1,7 @@
+**Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
+`Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
+https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
+
 **Dolores Huerta, Who Founded United Farm Workers With Cesar Chavez, Dies**\
 `She founded the United Farm Workers with Cesar Chavez. In early 2026, she told The Times that she had been raped by him decades earlier. She was 96.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
