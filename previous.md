@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-
 `Algorithms are making politicians focus more on positive messaging in short video.`\
 https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
 
-**You Can’t Stop A.I. But You Can Bargain With It.**\
+**Worried About A.I. Taking Your Job? This Is for You.**\
 `We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
 https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
 
@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.htm
 `Fernando Seco, 62, said he and others moved at least a dozen wounded passengers from the crash site, using parts of the wreckage as makeshift stretchers.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
 
-**System to Report Campaign Donations Shut Down After a Hacking Attempt**\
-`A “bad actor” tried to breach the system, according to the Federal Election Commission, disrupting political finance disclosures during the final week of campaigning.`\
+**System to Report Campaign Donations Restored After a Hacking Attempt**\
+`A “bad actor” tried to breach the system, according to a Federal Election Commission email, disrupting political finance disclosures for two days during the final week of campaigning.`\
 https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
 
 **RFK Jr. to Allow Broad Use of Unapproved Peptide Injections**\

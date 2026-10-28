@@ -1,3 +1,11 @@
+**Worried About A.I. Taking Your Job? This Is for You.**\
+`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
+https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
+
+**System to Report Campaign Donations Restored After a Hacking Attempt**\
+`A “bad actor” tried to breach the system, according to a Federal Election Commission email, disrupting political finance disclosures for two days during the final week of campaigning.`\
+https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
+
 **A Ballot-Stacking Effort in Alaska**\
 `Also, Life magazine rises again. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/28/briefing/alaska-ballot-stacking-horror-bookshops.html

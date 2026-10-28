@@ -1,3 +1,7 @@
+**Cornell Faculty Senate Moves Ahead With No-Confidence Vote Over Handling of Rape Case**\
+`After fierce debate, faculty members will begin voting Thursday on a resolution to condemn the administration’s handling of campus sexual assault.`\
+https://www.nytimes.com/2026/10/28/nyregion/cornell-faculty-no-confidence-vote.html
+
 **A Ballot-Stacking Effort in Alaska**\
 `Also, Life magazine rises again. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/10/28/briefing/alaska-ballot-stacking-horror-bookshops.html
@@ -175,16 +179,12 @@ https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
 https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-action.html
 
 **Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
-`Judge Hellerstein died on Wednesday morning. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
+`Judge Hellerstein was one of the oldest federal judges. He presided over major cases including the civil litigation tied to the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
 
 **Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
 `Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
 https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
-
-**Right-Wing Provocateur James O’Keefe Charged in Minnesota Voting Stunt**\
-`He and another content creator, Cam Higby, are accused of breaking the law when they posed as Islamic voters in August.`\
-https://www.nytimes.com/2026/10/28/us/james-okeefe-charged-minnesota-voting-cam-higby.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
