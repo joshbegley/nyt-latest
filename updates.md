@@ -1,3 +1,11 @@
+**An ‘Endless’ Cruise Around the World Is Suspended, Leaving Passengers Stranded**\
+`The cruise promised a lifetime of sailing, for less than what it cost to live on land. But it was underfunded and couldn’t absorb the rising cost of fuel.`\
+https://www.nytimes.com/2026/10/28/travel/endless-cruise-suspended-villa-vie-passengers.html
+
+**Live Updates: Warsh Explains the Fed’s Rate Decision**\
+`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady. Two officials dissented, voting for an increase.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
 **Nigeria’s Ebola Patient Evacuated as Investigators Press for Answers**\
 `More than a week after the first case was reported in Africa’s most populous nation, pressing questions about the infection remain unanswered.`\
 https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-uganda.html
