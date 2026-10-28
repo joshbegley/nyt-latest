@@ -1,3 +1,7 @@
+**Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
+`The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
+https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
+
 **Inside Democrats’ Secret Effort to Stack Alaska’s Ballot**\
 `Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
 https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/insider/polls-midterm-election.html
 **Two Murals That Celebrate New York**\
 `In 1986, Keith Haring created a mural with young helpers. Now an artist has worked with volunteers to make a colorful mural in the Bronx.`\
 https://www.nytimes.com/2026/10/28/nyregion/murals-keith-haring-.html
-
-**A Punishing Housing Market Is Squeezing Renters**\
-`Higher mortgage rates and slowing residential construction are again giving landlords the upper hand.`\
-https://www.nytimes.com/2026/10/28/business/housing-market-rent-pressure.html
 
