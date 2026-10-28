@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 28, 2026**\
+`Daniel Grinberg says “Boo!”`\
+https://www.nytimes.com/2026/10/27/crosswords/daily-puzzle-2026-10-28.html
+
 **Brazilians Divided Over Flávio Bolsonaro’s Flight From Brazil for U.S. After Election Defeat**\
 `The defeated presidential candidate Flávio Bolsonaro fled Brazil for the United States on Tuesday, U.S. officials said, leaving Brazilians divided.`\
 https://www.nytimes.com/video/world/americas/100000011241083/brazil-bolsonaro-flee-reaction.html
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-
 https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
 
 **What to Expect Now That Polls Are Closed in Israel**\
-`Polls have closed across the country. Exits polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+`Polls have closed across the country. Exit polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
 
 **Israeli Voting Ends After Strong Turnout With No Clear Winner**\
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-do
 **The Christian Influencer at the Center of Ken Paxton’s New Life**\
 `The Texas attorney general has been silent about his relationship with Tracy Duhon, a New Orleans woman who has built a personal brand around faith and redemption.`\
 https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
-
-**“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
-`Complete secrecy is the new luxury.`\
-https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
 
 **Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
