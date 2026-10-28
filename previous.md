@@ -1,3 +1,15 @@
+**U.S. Restricts Trade With Chinese Genomics Company**\
+`The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
+https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
+
+**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Visits Ohio**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
+
+**The Officiant Mooned the Guests at My Daughter’s Wedding. Help!**\
+`The mother of the bride feels that the groom’s brother tarnished a special day that she had worked hard to make beautiful. Should she confront him?`\
+https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
+
 **Knife-Wielding Attacker Fatally Shot Outside Israeli Embassy in Serbia**\
 `The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
 https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
@@ -177,20 +189,4 @@ https://www.nytimes.com/2026/10/28/technology/silicon-valley-bugs-ai.html
 **How Small Interior Design Changes Can Refresh a Room**\
 `Beata Heuman, a London-based designer, updates the look of her family dining room.`\
 https://www.nytimes.com/2026/10/28/realestate/beata-heuman-interior-design-tweaks.html
-
-**How to Solve Connections Like an Expert**\
-`Tips and tricks from puzzle enthusiasts and Wyna Liu, the game’s editor, to help you become an expert.`\
-https://www.nytimes.com/2026/10/28/crosswords/how-to-solve-connections.html
-
-**Nobody Wanted Montague Street. Now Everybody Does.**\
-`With new shops filling empty storefronts, including Alison Roman’s First Bloom, the Brooklyn Heights street may finally be returning to its former glory.`\
-https://www.nytimes.com/2026/10/28/realestate/nobody-wanted-montague-street-now-everybody-does.html
-
-**Baby Boomers Are Retiring. Private Equity Is Waiting.**\
-`Investors in big cities are quietly consuming small businesses all over the country.`\
-https://www.nytimes.com/2026/10/28/opinion/private-equity-baby-boomers-investors.html
-
-**In ‘I Became We,’ Many Voices Exalt One Very Personal Decision**\
-`For her latest autobiographical work, Mona Pirnot collaborated with Jack D. Coen on beautifully composed classical song-cycle.`\
-https://www.nytimes.com/2026/10/28/theater/i-became-we-review-mona-pirnot.html
 

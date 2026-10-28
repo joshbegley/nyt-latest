@@ -1,3 +1,15 @@
+**U.S. Restricts Trade With Chinese Genomics Company**\
+`The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
+https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
+
+**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Visits Ohio**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
+
+**The Officiant Mooned the Guests at My Daughter’s Wedding. Help!**\
+`The mother of the bride feels that the groom’s brother tarnished a special day that she had worked hard to make beautiful. Should she confront him?`\
+https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
+
 **The Senate Race in Heavily Republican South Carolina is a Tossup, Poll Finds**\
 `Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
 https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
