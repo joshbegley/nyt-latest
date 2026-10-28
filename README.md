@@ -1,3 +1,11 @@
+**Passengers Recount Spain’s Deadly High-Speed Train Collision**\
+`Passengers recalled the moments before a high-speed passenger train rear-ended another in Spain on Wednesday.`\
+https://www.nytimes.com/video/world/europe/100000011242069/passengers-spain-deadly-train-collision.html
+
+**How André Janones Helped Turbocharge Lula’s Comeback in Brazil’s Election**\
+`With street talk and tactics from the far-right’s playbook, André Janones used a WhatsApp channel to help organize millions of Brazilians online.`\
+https://www.nytimes.com/2026/10/28/world/americas/andre-janones-whatsapp-lula-brazil-election.html
+
 **Text Message Referencing a ‘Hijack’ Forces United Flight to Return to Vegas**\
 `Now charged with a felony, the passenger who sent the text said that he had been drinking, and that the message was poorly worded banter between co-workers.`\
 https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
 **Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
 https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
-
-**Can Scientists Make Football Safer?**\
-`Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
-https://www.nytimes.com/2026/10/28/science/cte-nfl-football-brain-safety.html
-
-**Three Great Documentaries to Stream**\
-`These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
-https://www.nytimes.com/2026/10/28/movies/halloween-documentaries-streaming.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\

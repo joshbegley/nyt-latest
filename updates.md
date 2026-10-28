@@ -1,3 +1,11 @@
+**Text Message Referencing a ‘Hijack’ Forces United Flight to Return to Vegas**\
+`Now charged with a felony, the passenger who sent the text said that he had been drinking, and that the message was poorly worded banter between co-workers.`\
+https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.html
+
+**Fed Will Hold Fewer Rate-Setting Meetings Starting Next Year**\
+`Kevin M. Warsh, the Federal Reserve’s chairman, said the central bank would vote on interest rates seven times in 2027 and six in 2028. It has traditionally voted eight times per year.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-meetings-2027-interest-rates-warsh.html
+
 **Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
 `Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
