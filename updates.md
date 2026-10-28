@@ -1,3 +1,19 @@
+**Former Head of ‘Star Wars’ Studio to Lead L.A. Olympic Ceremonies**\
+`Kathleen Kennedy, who led Lucasfilm for nearly 14 years, will orchestrate the opening and closing ceremonies of the 2028 summer Olympics.`\
+https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
+
+**Alphabet’s Revenue Rises 25% as Profit Falls**\
+`The company has been spending relentlessly to build A.I., but its revenue growth was not as high as investors had anticipated. Profit dropped because of changes to the value of its investments.`\
+https://www.nytimes.com/2026/10/28/technology/alphabet-earnings-google-ai.html
+
+**CNN, MS Now and Politico Update Lawsuit Against Trump Over White House Access**\
+`The news outlets argued in an updated lawsuit that they should be granted access to the White House reporting pools.`\
+https://www.nytimes.com/2026/10/28/business/media/cnn-ms-now-politico-white-house-lawsuit.html
+
+**Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
+
 **What to Make of Israel’s Ambiguous Election**\
 `Neither Benjamin Netanyahu nor his rivals won a majority, leaving Arab lawmakers as potential kingmakers in the new Parliament.`\
 https://www.nytimes.com/2026/10/28/world/israel-election-results-spain-train.html
