@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Turn Off That Dirge!’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-dirge.html
+
 **TikTok Is Making Politics a Little Better**\
 `Algorithms are making politicians focus more on positive messaging in short video.`\
 https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-braz
 **4 Takeaways From Israel’s Election**\
 `Votes are still being counted, and much is in flux. But as the stage was set for bitter talks over forming a government, nearly all sides could face disappointment.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html
-
-**Dozens Dead After High-Speed Trains Collide in Spain**\
-`A high-speed passenger train rear-ended another one near Toledo, Spain, on Wednesday morning, causing a derailment and killing at least 68 people, officials said.`\
-https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\

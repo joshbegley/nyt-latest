@@ -1,3 +1,11 @@
+**Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
+`An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
+
+**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
 **TikTok Is Making Politics a Little Better**\
 `Algorithms are making politicians focus more on positive messaging in short video.`\
 https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
