@@ -1,3 +1,11 @@
+**The Local: Inside look at shuttered opera**\
+`Plus, Anthony Edwards’s knee surgery and what it could mean for the Timberwolves.`\
+https://www.nytimes.com/2026/10/28/briefing/minnesota-opera-laila-starr.html
+
+**Live Updates: Warsh Explains the Fed’s Rate Decision**\
+`Kevin Warsh, the Federal Reserve chairman, is speaking to reporters after the central bank held interest rates steady.  He said that the Fed would hold fewer rate-setting votes starting next year.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
 **An ‘Endless’ Cruise Around the World Is Suspended, Leaving Passengers Stranded**\
 `The cruise promised a lifetime of sailing, for less than what it cost to live on land. But it was underfunded and couldn’t absorb the rising cost of fuel.`\
 https://www.nytimes.com/2026/10/28/travel/endless-cruise-suspended-villa-vie-passengers.html
