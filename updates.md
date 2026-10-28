@@ -1,3 +1,7 @@
+**Russell Brand Tells Court He ‘Misused’ His Fame, but Says Sex Was Consensual**\
+`The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
+https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
+
 **Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\
 `Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
