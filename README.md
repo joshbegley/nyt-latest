@@ -1,4 +1,12 @@
-**CNN, MS NOW and Politico Escalate Legal Battle for White House Access**\
+**Former Head of ‘Star Wars’ Studio to Lead L.A. Olympic Ceremonies**\
+`Kathleen Kennedy, who led Lucasfilm for nearly 14 years, will orchestrate the opening and closing ceremonies of the 2028 summer Olympics.`\
+https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
+
+**Alphabet’s Revenue Rises 25% as Profit Falls**\
+`The company has been spending relentlessly to build A.I., but its revenue growth was not as high as investors had anticipated. Profit dropped because of changes to the value of its investments.`\
+https://www.nytimes.com/2026/10/28/technology/alphabet-earnings-google-ai.html
+
+**CNN, MS Now and Politico Update Lawsuit Against Trump Over White House Access**\
 `The news outlets argued in an updated lawsuit that they should be granted access to the White House reporting pools.`\
 https://www.nytimes.com/2026/10/28/business/media/cnn-ms-now-politico-white-house-lawsuit.html
 
@@ -178,15 +186,7 @@ https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.htm
 `To form a government, Israeli opposition leader Gadi Eisenkot needs to either join forces with Arab parties — anathema to many Israelis — or with members of Benjamin Netanyahu’s alliance.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-eisenkot.html
 
-**From the Student Newsroom**\
-`We caught up with the editor in chief of The Minnesota Daily.`\
-https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
-
-**How Spain's Deadly Train Crash Unfolded**\
-`Diagrams show how a high-speed train barreled into another train on the same track.`\
-https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
-
-**Live Updates: With Israeli Vote Count Nearly Complete, Leading Parties Face Long Contest for Power**\
-`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form next government.`\
+**Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections
 
