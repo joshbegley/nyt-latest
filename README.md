@@ -1,3 +1,15 @@
+**Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
+`A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
+https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
+
+**Ex-N.Y.P.D. Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
+`Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
+https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
+
+**Eisenkot, Netanyahu’s Main Rival in Israel’s Election, Faces a Dilemma**\
+`To form a government, Israeli opposition leader Gadi Eisenkot needs to either join forces with Arab parties — anathema to many Israelis — or with members of Benjamin Netanyahu’s alliance.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-eisenkot.html
+
 **From the Student Newsroom**\
 `We caught up with the editor in chief of The Minnesota Daily.`\
 https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
@@ -43,7 +55,7 @@ https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
 https://www.nytimes.com/2026/10/28/business/social-security-senate.html
 
 **Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
-`The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
+`The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, will be sentenced in December.`\
 https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
 
 **Inside Democrats’ Secret Effort to Stack Alaska’s Midterm Ballot With Another Dan Sullivan**\
@@ -134,13 +146,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
-`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
-https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
-
 **Is Running From Trump Enough to Save Republicans on Tuesday?**\
 `A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
 https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
+
+**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
+`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida
 **What Are Your Local Traditions?**\
 `A longhorn cattle drive, a tractor pull, an armadillo race and a worm grunting festival are just some of the colorful customs across the country a guest essayist observed and photographed.`\
 https://www.nytimes.com/2026/10/28/learning/what-are-your-local-traditions.html
-
-**Behind Italy’s Protests: Rising Prices and Sinking Hopes**\
-`Inspired in part by French demonstrations, protests in Italy by students in the north and truckers in the south could affect national elections next year.`\
-https://www.nytimes.com/2026/10/28/world/europe/italy-protests-students-truckers-meloni.html
-
-**Corrections: Oct. 28, 2026**\
-`Corrections that appeared in print on Wednesday, Oct. 28, 2026.`\
-https://www.nytimes.com/2026/10/28/pageoneplus/corrections-oct-28-2026.html
-
-**‘One Job Away’ Tries to Help Actors Keep Their Health Insurance**\
-`The actor Cheyenne Jackson’s social media campaign highlights the increasing struggles of working actors to book enough parts to remain insured.`\
-https://www.nytimes.com/2026/10/28/arts/one-more-job-campaign-actors-health-benefits.html
 
