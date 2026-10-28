@@ -1,3 +1,11 @@
+**How to Create Fairer Election Districts**\
+`Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
+https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
+
+**Angry Anderson Has Died. He Rocked Hard and Played a Villain in ‘Mad Max.’**\
+`The diminutive Australian fronted the group Rose Tattoo and stole scenes as a glutton for punishment in “Mad Max Beyond Thunderdome.”`\
+https://www.nytimes.com/2026/10/28/obituaries/gary-angry-anderson-mad-max-dead.html
+
 **Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
