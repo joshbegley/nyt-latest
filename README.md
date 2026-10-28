@@ -1,3 +1,11 @@
+**She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
+`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the cantankerous debate over when parents act irresponsibly.`\
+https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
+
+**Cabinet Officials on the Campaign Trail? Ethics Experts Say Some Are Breaking the Law.**\
+`As Trump officials stump for Republican candidates facing difficult races, ethics experts say they are being lax about complying with the Hatch Act, a federal anti-corruption law.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-hatch-act.html
+
 **Trump Officials Discussing Sanctions Relief for Russian Fund, Russia Acknowledges**\
 `A Russian official said potential relief for a state investment fund was part of talks. Russia has sought to wring economic benefits from the negotiations on ending the war with Ukraine.`\
 https://www.nytimes.com/2026/10/28/us/politics/russia-sanctions-relief-fund-trump.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rate
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
 `The education secretary says her old furniture “cannot be configurationally or aesthetically integrated” into new office space.`\
 https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-department-furniture-trump.html
-
-**What Does the Cheesecake Factory’s Designer Think of Obama and Trump’s Jabs at His Décor?**\
-`Long before its baroque décor and class identity became midterm talking points, this durable restaurant chain survived some withering critiques.`\
-https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
-
-**How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
-`The Federal Reserve left its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
-https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
