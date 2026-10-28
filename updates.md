@@ -1,3 +1,11 @@
+**Cornell Faculty Senate Moves Ahead With No-Confidence Vote Over Handling of Rape Case**\
+`After fierce debate, faculty members will begin voting Thursday on a resolution to condemn the administration’s handling of campus sexual assault.`\
+https://www.nytimes.com/2026/10/28/nyregion/cornell-faculty-no-confidence-vote.html
+
+**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
+`Judge Hellerstein was one of the oldest federal judges. He presided over major cases including the civil litigation tied to the Sept. 11 attacks.`\
+https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
+
 **Worried About A.I. Taking Your Job? This Is for You.**\
 `We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
 https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
