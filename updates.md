@@ -1,3 +1,19 @@
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
+`Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
+`Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-toplines.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
+`Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-toplines.html
+
+**Is This the Gateway Drug for Gambling?**\
+`We actually can regulate prediction markets, and we should do it now.`\
+https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
+
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
 `Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-crosstabs.html
