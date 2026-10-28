@@ -1,3 +1,7 @@
+**Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
+`Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She had pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
+https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
+
 **Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
 `Judge Hellerstein died on Wednesday morning. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
 https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
