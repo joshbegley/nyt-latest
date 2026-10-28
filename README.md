@@ -1,3 +1,7 @@
+**For Democrats Eyeing 2028, the First Test Is ‘Money, Money, Money’**\
+`As soon as the midterms are over, presidential contenders are going to need to raise millions, quickly.`\
+https://www.nytimes.com/2026/10/28/us/politics/2028-democrats.html
+
 **Flávio Bolsonaro Lands in Miami After Fleeing Brazil**\
 `Mr. Bolsonaro, who lost Sunday’s presidential election, fled Brazil for the United States via Argentina after the police canceled his passport in relation to an investigation.`\
 https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-brazil-trump.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/business/housing-market-rent-pressure.html
 **Which $1.5 Million Home Would You Buy?**\
 `This week’s listings are a space age-inspired house in Idyllwild, Calif., a Cape Cod in Charlottesville, Va., and a condo in Washington, D.C.`\
 https://www.nytimes.com/2026/10/28/realestate/idyllwild-calif-charlottesville-va-washington-dc-homes-for-sale-.html
-
-**How Jim Morrison’s Unthinkable Loss Led Him to the Top of Mount Everest**\
-`Jim Morrison set a world record. Enduring love made it possible.`\
-https://www.nytimes.com/2026/10/28/podcasts/jim-morrison-mount-everest-family.html
 
