@@ -1,3 +1,7 @@
+**Brazilians Divided Over Flávio Bolsonaro’s Flight From Brazil for U.S. After Election Defeat**\
+`The defeated presidential candidate Flávio Bolsonaro fled Brazil for the United States on Tuesday, U.S. officials said, leaving Brazilians divided.`\
+https://www.nytimes.com/video/world/americas/100000011241083/brazil-bolsonaro-flee-reaction.html
+
 **Judge Who Used Racist Slur Forced Off Bench by New York’s Highest Court**\
 `Walter Jones, a longtime Canandaigua town justice, repeatedly used a slur aimed at Black people while telling a story set on his grandfather’s cotton farm.`\
 https://www.nytimes.com/2026/10/27/nyregion/judge-removed-racism.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
 **“Leaked” Photos From Taylor Swift Wedding Don’t Reveal Much**\
 `Complete secrecy is the new luxury.`\
 https://www.nytimes.com/2026/10/27/style/taylor-swift-wedding-photos-daily-mail.html
-
-**Trump Explores Lifting Sanctions on Russia’s Flagship Investment Fund**\
-`The move would be the latest U.S. concession to Moscow as President Trump pursues economic incentives he hopes will secure an end to war in Ukraine.`\
-https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
 
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
