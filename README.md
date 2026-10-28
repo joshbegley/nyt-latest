@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.htm
 `Fernando Seco, 62, said he and others moved at least a dozen wounded passengers from the crash site, using parts of the wreckage as makeshift stretchers.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
 
-**System to Report Campaign Donations Shut Down After a Hacking Attempt**\
-`A “bad actor” tried to breach the system, according to the Federal Election Commission, disrupting political finance disclosures during the final week of campaigning.`\
+**System to Report Campaign Donations Restored After a Hacking Attempt**\
+`A “bad actor” tried to breach the system, according to a Federal Election Commission email, disrupting political finance disclosures for two days during the final week of campaigning.`\
 https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
 
 **RFK Jr. to Allow Broad Use of Unapproved Peptide Injections**\
