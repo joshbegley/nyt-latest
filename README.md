@@ -1,3 +1,11 @@
+**Text Message Referencing a ‘Hijack’ Forces United Flight to Return to Vegas**\
+`Now charged with a felony, the passenger who sent the text said that he had been drinking, and that the message was poorly worded banter between co-workers.`\
+https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.html
+
+**Fed Will Hold Fewer Rate-Setting Meetings Starting Next Year**\
+`Kevin M. Warsh, the Federal Reserve’s chairman, said the central bank would vote on interest rates seven times in 2027 and six in 2028. It has traditionally voted eight times per year.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-meetings-2027-interest-rates-warsh.html
+
 **Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
 `Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/28/science/cte-nfl-football-brain-safety.html
 **Three Great Documentaries to Stream**\
 `These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
 https://www.nytimes.com/2026/10/28/movies/halloween-documentaries-streaming.html
-
-**These Are the Big Midterm Elections Flying Under the Radar**\
-`National politics dominate people’s attention, but local politics often play a greater role in shaping their lives.`\
-https://www.nytimes.com/2026/10/28/opinion/midterms-local-state-elections.html
-
-**How to Avoid Knee Surgery**\
-`If you want to avoid the knife, you have to be patient.`\
-https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
