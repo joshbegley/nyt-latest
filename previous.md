@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
 https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-action.html
 
 **Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
-`Judge Hellerstein died on Wednesday morning, according to a court spokesman. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro of Venezuela.`\
+`Judge Hellerstein died on Wednesday morning. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
 https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
 
 **Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\

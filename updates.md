@@ -1,3 +1,7 @@
+**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
+`Judge Hellerstein died on Wednesday morning. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
+https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
+
 **Apple Unveils Its First Touch-Screen MacBook Pro**\
 `Steve Jobs and Tim Cook both dismissed the idea, but Apple’s new chief executive is reimagining some of the company’s most important products.`\
 https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.html
