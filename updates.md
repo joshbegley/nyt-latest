@@ -1,3 +1,7 @@
+**Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
+`Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **Brazilians Divided Over Flávio Bolsonaro’s Flight From Brazil for U.S. After Election Defeat**\
 `The defeated presidential candidate Flávio Bolsonaro fled Brazil for the United States on Tuesday, U.S. officials said, leaving Brazilians divided.`\
 https://www.nytimes.com/video/world/americas/100000011241083/brazil-bolsonaro-flee-reaction.html
