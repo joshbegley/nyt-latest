@@ -1,3 +1,15 @@
+**From the Student Newsroom**\
+`We caught up with the editor in chief of The Minnesota Daily.`\
+https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
+
+**How Two Trains Collided in Spain**\
+`Diagrams show how a high-speed train barreled into another train on the same track.`\
+https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
+
+**FTC Sues Dollar General Amid Growing Consumer Doubts Over Pricing**\
+`Americans have lost faith that retailers are giving them fair deals. The F.T.C. is suing Dollar General over it.`\
+https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.html
+
 **The High-Stakes Effort to Grasp the True Rate of Brain Disease in the N.F.L.**\
 `Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
 https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
@@ -122,13 +134,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
-
 **Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
 `Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/28/pageoneplus/corrections-oct-28-2026.html
 **‘One Job Away’ Tries to Help Actors Keep Their Health Insurance**\
 `The actor Cheyenne Jackson’s social media campaign highlights the increasing struggles of working actors to book enough parts to remain insured.`\
 https://www.nytimes.com/2026/10/28/arts/one-more-job-campaign-actors-health-benefits.html
-
-**Breaking Down Ad Spending for the 2026 Elections**\
-`Most ad spending in the general election is taking place in competitive races deep in Trump territory. Republicans are on the defensive.`\
-https://www.nytimes.com/interactive/2026/10/28/us/politics/ad-spending-house-senate-election-campaigns.html
-
-**Two Blocks in Pennsylvania Show Why It’s So Hard for Campaigns to Reach Voters**\
-`In a competitive House district, residents get their election news from under-the-radar sources — or no sources at all.`\
-https://www.nytimes.com/interactive/2026/10/28/us/politics/midterm-elections-10th-congressional-district-stelson-perry.html
-
-**‘Ali G: Who Iz I?’ Review: A Bit Too Tired for This Media Age**\
-`Sacha Baron Cohen’s revival of his early 2000s persona is meant to speak to a polarized country, but the results are mixed.`\
-https://www.nytimes.com/2026/10/28/movies/ali-g-who-iz-i-review.html
 

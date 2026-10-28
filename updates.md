@@ -1,3 +1,15 @@
+**From the Student Newsroom**\
+`We caught up with the editor in chief of The Minnesota Daily.`\
+https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
+
+**How Two Trains Collided in Spain**\
+`Diagrams show how a high-speed train barreled into another train on the same track.`\
+https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
+
+**FTC Sues Dollar General Amid Growing Consumer Doubts Over Pricing**\
+`Americans have lost faith that retailers are giving them fair deals. The F.T.C. is suing Dollar General over it.`\
+https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.html
+
 **The High-Stakes Effort to Grasp the True Rate of Brain Disease in the N.F.L.**\
 `Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
 https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
