@@ -1,3 +1,7 @@
+**Everything You Could Possibly Want to Know About El Niño**\
+`It’s the hot weather word of the year, but what does it actually mean? We’ve got answers to all the most pressing El Niño questions.`\
+https://www.nytimes.com/interactive/2026/10/27/science/earth/el-nino-climate-faq.html
+
 **Tennessee Race Is Rattled by a Republican’s Acknowledgment of a ‘Past Indiscretion’**\
 `State Senator Brent Taylor, the Republican nominee for a U.S. House seat, responded to a Nashville outlet’s report that he had sent “an unsolicited nude picture.”`\
 https://www.nytimes.com/2026/10/27/us/tennessee-brent-taylor.html

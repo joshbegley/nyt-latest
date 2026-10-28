@@ -1,3 +1,7 @@
+**Everything You Could Possibly Want to Know About El Niño**\
+`It’s the hot weather word of the year, but what does it actually mean? We’ve got answers to all the most pressing El Niño questions.`\
+https://www.nytimes.com/interactive/2026/10/27/science/earth/el-nino-climate-faq.html
+
 **Mamdani Seeks to Replace Head of Commission on Racial Equity**\
 `Linda Tigani, chairwoman of the commission, has been critical of the Mamdani administration’s handling of a racial equity report. She responded to the mayor’s plan to remove her with fiery comments.`\
 https://www.nytimes.com/2026/10/27/nyregion/mamdani-tigani-racial-equality-commission.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/video/opinion/100000011237739/political-satire-is-an-ame
 **Canada’s Climate Policies Go on Trial**\
 `The case, La Rose v. His Majesty the King, is the first youth-led federal case in Canada to be heard.`\
 https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
-
-**Egyptian Court Orders News Site Closed as Critics Warn of a Crackdown**\
-`Mada Masr, one of Egypt’s few independent media outlets, said a judge ordered it closed for operating without a license and detained its editor in chief.`\
-https://www.nytimes.com/2026/10/27/world/europe/egypt-press-crackdown-mada-masr-attalah.html
 
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
