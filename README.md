@@ -1,3 +1,7 @@
+**An Unpredictable President, a Grim White House: Trump Faces Down the Midterms**\
+`The White House has been rocked by turnover and anxiety over the midterms. The president, who is tightening his inner circle, has lashed out at critics, held meandering rallies and feasted on a diet of news clips and “A.I. slop,” as one aide put it.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-midterms-white-house-mood.html
+
 **Huerta Is Remembered as a Labor Champion With a Multidimensional Legacy**\
 `Ms. Huerta, a champion for workers and Latinos, was lauded after revealing she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-ca
 **Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
 `Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
 https://www.nytimes.com/2026/10/28/business/economy/trump-lisa-cook-warsh.html
-
-**I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
-`My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
-https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
