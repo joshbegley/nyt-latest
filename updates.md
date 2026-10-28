@@ -1,3 +1,7 @@
+**Huerta Is Remembered as a Labor Champion With a Multidimensional Legacy**\
+`Ms. Huerta, a champion for workers and Latinos, was lauded after revealing she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
+https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
+
 **Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
 `The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on capital expenses like data centers and offered to pay workers to leave.`\
 https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
