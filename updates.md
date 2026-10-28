@@ -1,3 +1,7 @@
+**Texas Senate Rivals Converge on Lubbock, With Trump in the Mix**\
+`It was a showdown of sorts in western Texas as James Talarico and Ken Paxton appeared at dueling rallies on either side of a prairie-dog-filled city park.`\
+https://www.nytimes.com/2026/10/27/us/elections/paxton-talarico-texas-senate-rally-lubbock.html
+
 **Democrats Are in Their Elder Millennial Era**\
 `From Abdul El-Sayed to James Talarico and Rob Sand, this election has revealed a new class of millennial talent in the Democratic Party. On “The Ezra Klein Show,” the polling analyst Nate Silver explains why he thinks these candidates are the result of what he calls the “Steph Curry effect.”`\
 https://www.nytimes.com/video/opinion/100000011232739/democrats-are-in-their-elder-millennial-era.html
