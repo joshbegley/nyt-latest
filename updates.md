@@ -1,3 +1,11 @@
+**An Inconclusive Vote Leaves Israelis Pondering an Uncertain Future**\
+`A day after the election, supporters of Prime Minister Benjamin Netanyahu were relieved he still had a chance to stay in power, while his opponents worried the mixed results could lead to a political stalemate.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-netanyahu-eisenkot-mood.html
+
+**Live Updates: Fed Holds Rates Steady Even as Inflation Pushes on Prices**\
+`Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
 **Bronx Fire Caused by E-Bike Battery Kills Boy**\
 `Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
 https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
