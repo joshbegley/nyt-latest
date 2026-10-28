@@ -1,3 +1,7 @@
+**CNN, MS NOW and Politico Escalate Legal Battle for White House Access**\
+`The news outlets argued in an updated lawsuit that they should be granted access to the White House reporting pools.`\
+https://www.nytimes.com/2026/10/28/business/media/cnn-ms-now-politico-white-house-lawsuit.html
+
 **What to Make of Israel’s Ambiguous Election**\
 `Neither Benjamin Netanyahu nor his rivals won a majority, leaving Arab lawmakers as potential kingmakers in the new Parliament.`\
 https://www.nytimes.com/2026/10/28/world/israel-election-results-spain-train.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
 **How Spain's Deadly Train Crash Unfolded**\
 `Diagrams show how a high-speed train barreled into another train on the same track.`\
 https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-what-happened.html
-
-**FTC Sues Dollar General Amid Growing Consumer Doubts Over Pricing**\
-`Americans have lost faith that retailers are giving them fair deals. The F.T.C. is suing Dollar General over it.`\
-https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.html
 
 **Live Updates: With Israeli Vote Count Nearly Complete, Leading Parties Face Long Contest for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form next government.`\

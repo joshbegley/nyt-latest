@@ -1,3 +1,7 @@
+**What to Make of Israel’s Ambiguous Election**\
+`Neither Benjamin Netanyahu nor his rivals won a majority, leaving Arab lawmakers as potential kingmakers in the new Parliament.`\
+https://www.nytimes.com/2026/10/28/world/israel-election-results-spain-train.html
+
 **Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
 `The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on data centers and offered to pay workers to leave.`\
 https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/interactive/2026/10/28/world/europe/spain-train-crash-wh
 `Americans have lost faith that retailers are giving them fair deals. The F.T.C. is suing Dollar General over it.`\
 https://www.nytimes.com/2026/10/28/business/dollar-general-prices-ftc-lawsuit.html
 
-**Brain Disease Is Pervasive in N.F.L., New Estimate Suggests**\
-`Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
-https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
-
-**Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
-`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
+**Live Updates: With Israeli Vote Count Nearly Complete, Leading Parties Face Long Contest for Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections
 
