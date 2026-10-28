@@ -84,7 +84,7 @@ https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
 
 **Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
-https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.html
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
 
 **Can Scientists Make Football Safer?**\
 `Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\

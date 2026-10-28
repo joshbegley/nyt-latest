@@ -1,3 +1,7 @@
+**Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
+`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
+
 **What We Know About the Deadly Train Crash in Spain**\
 `A train accident near Toledo, Spain, which killed at least 68 people, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
