@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Symmetry and Soccer Balls**\
+`What is “humanity’s favorite truncated icosahedron” and what can we learn from it?`\
+https://www.nytimes.com/2026/10/28/learning/15-minute-lesson-plan-symmetry-and-soccer-balls.html
+
 **How Hochul Became a Surprise Champion of the Subway**\
 `Gov. Kathy Hochul isn’t from New York City, but she could be its biggest mass transit defender in a generation. She has embraced that distinction in her re-election campaign.`\
 https://www.nytimes.com/2026/10/28/nyregion/kathy-hochul-nyc-transit-support.html

@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Symmetry and Soccer Balls**\
+`What is “humanity’s favorite truncated icosahedron” and what can we learn from it?`\
+https://www.nytimes.com/2026/10/28/learning/15-minute-lesson-plan-symmetry-and-soccer-balls.html
+
 **How Hochul Became a Surprise Champion of the Subway**\
 `Gov. Kathy Hochul isn’t from New York City, but she could be its biggest mass transit defender in a generation. She has embraced that distinction in her re-election campaign.`\
 https://www.nytimes.com/2026/10/28/nyregion/kathy-hochul-nyc-transit-support.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/us/politics/midterm-polls-errors-states.html
 **Israel’s Election: 4 Things to Watch For**\
 `The election on Tuesday is unlikely to yield quick answers about who might lead the next government.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-four-things.html
-
-**A Restaurant With a Cart of Chicharrones? Tell Me More.**\
-`Norte brings the pleasures of northern Mexican cuisine to the Flatiron district, Cholapink serves up Peruvian street food and more restaurant news.`\
-https://www.nytimes.com/2026/10/27/dining/nyc-restaurant-news.html
 
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
