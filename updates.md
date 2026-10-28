@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 28, 2026**\
+`Daniel Grinberg says “Boo!”`\
+https://www.nytimes.com/2026/10/27/crosswords/daily-puzzle-2026-10-28.html
+
+**What to Expect Now That Polls Are Closed in Israel**\
+`Polls have closed across the country. Exit polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
+
 **Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
