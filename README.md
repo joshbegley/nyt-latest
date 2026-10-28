@@ -1,3 +1,7 @@
+**Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
+`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.html
+
 **Can Scientists Make Football Safer?**\
 `Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
 https://www.nytimes.com/2026/10/28/science/can-scientists-make-football-safer.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/10/28/business/social-security-senate.html
 `The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
 https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
 
-**Inside Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+**Inside Democrats’ Secret Effort to Stack Alaska’s Midterm Ballot With Another Dan Sullivan**\
 `Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
 https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
 
@@ -114,13 +118,13 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
-
 **Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
 `Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
 
 **NYT Connections Answers for October 29, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/movies/ali-g-who-iz-i-review.html
 **The Ocean ‘Was the Color of Chocolate.’ Mexico Declares War on Seaweed.**\
 `To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
 https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
-
-**Byron Donalds Holds Slim Lead in Florida’s Race for Governor**\
-`New polls in Florida, South Carolina and Minnesota illuminate the head winds that Republicans are facing.`\
-https://www.nytimes.com/2026/10/28/us/politics/governors-poll-florida-south-carolina-minnesota.html
 
