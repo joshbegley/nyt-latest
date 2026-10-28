@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/10/28/business/media/cnn-ms-now-politico-white-hous
 https://www.nytimes.com/2026/10/28/world/israel-election-results-spain-train.html
 
 **Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
-`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on data centers and offered to pay workers to leave.`\
+`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on capital expenses like data centers and offered to pay workers to leave.`\
 https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
 
 **Passengers Recount Spain’s Deadly High-Speed Train Collision**\

@@ -1,3 +1,7 @@
+**Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
+`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on capital expenses like data centers and offered to pay workers to leave.`\
+https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
+
 **Atlanta’s Mayor Walked Away After Covid Chaos. Will Voters Make Her Georgia’s Governor?**\
 `Keisha Lance Bottoms, in her bid for Georgia governor, has faced pointed criticism of her leadership in Atlanta and disappointment in her decision to leave after one term.`\
 https://www.nytimes.com/2026/10/28/us/politics/keisha-lance-bottoms-atlanta-mayor.html

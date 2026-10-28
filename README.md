@@ -1,3 +1,7 @@
+**Huerta Is Remembered as a Labor Champion With a Multidimensional Legacy**\
+`Ms. Huerta, a champion for workers and Latinos, was lauded after revealing she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
+https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
+
 **Atlanta’s Mayor Walked Away After Covid Chaos. Will Voters Make Her Georgia’s Governor?**\
 `Keisha Lance Bottoms, in her bid for Georgia governor, has faced pointed criticism of her leadership in Atlanta and disappointment in her decision to leave after one term.`\
 https://www.nytimes.com/2026/10/28/us/politics/keisha-lance-bottoms-atlanta-mayor.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/business/economy/trump-lisa-cook-warsh.html
 **I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
 `My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
 https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
-
-**Harvard’s Asian Student Enrollment Jumps as Black Enrollment Declines**\
-`Harvard’s Asian American student enrollment jumped to 43 percent and Black students enrollment dipped to 9 percent after the Supreme Court struck down affirmative action in 2023.`\
-https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-action.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
