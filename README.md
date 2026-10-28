@@ -1,3 +1,7 @@
+**An Inconclusive Vote Leaves Israelis Pondering an Uncertain Future**\
+`A day after the election, supporters of Prime Minister Benjamin Netanyahu were relieved he still had a chance to stay in power, while his opponents worried the mixed results could lead to a political stalemate.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-netanyahu-eisenkot-mood.html
+
 **Bronx Fire Caused by E-Bike Battery Kills Boy**\
 `Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
 https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
-**Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\
+**Live Updates: Fed Holds Rates Steady Even as Inflation Pushes on Prices**\
 `Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.htm
 **Investors Brace for Big Tech’s A.I. Spending Bill**\
 `Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
-`Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
-https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
