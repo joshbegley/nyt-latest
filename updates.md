@@ -1,3 +1,7 @@
+**Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
+`Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
+
 **Spain Train Crash Kills at Least 68**\
 `The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
