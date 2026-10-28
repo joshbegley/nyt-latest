@@ -1,3 +1,15 @@
+**She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
+`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the cantankerous debate over when parents act irresponsibly.`\
+https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
+
+**Cabinet Officials on the Campaign Trail? Ethics Experts Say Some Are Breaking the Law.**\
+`As Trump officials stump for Republican candidates facing difficult races, ethics experts say they are being lax about complying with the Hatch Act, a federal anti-corruption law.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-hatch-act.html
+
+**Trump Officials Discussing Sanctions Relief for Russian Fund, Russia Acknowledges**\
+`A Russian official said potential relief for a state investment fund was part of talks. Russia has sought to wring economic benefits from the negotiations on ending the war with Ukraine.`\
+https://www.nytimes.com/2026/10/28/us/politics/russia-sanctions-relief-fund-trump.html
+
 **Surprise Showing by Arab Parties in Israeli Vote Puts Them in Spotlight**\
 `The Arab parties have long been kept on the political sidelines. But stunning turnout by their supporters makes the Arab minority an Israeli political reality that cannot be ignored.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-arab-parties.html
