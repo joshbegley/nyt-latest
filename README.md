@@ -64,7 +64,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 
 **Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
 `An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
-https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
 
 **Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
@@ -189,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results
 **Dozens Dead After High-Speed Trains Collide in Spain**\
 `A high-speed passenger train rear-ended another one near Toledo, Spain, on Wednesday morning, causing a derailment and killing at least 68 people, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
-
-**U.S. Restricts Trade With Chinese Genomics Company**\
-`The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
-https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
