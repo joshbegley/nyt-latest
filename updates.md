@@ -1,3 +1,7 @@
+**Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
+`Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
+https://www.nytimes.com/live/2026/10/27/world/israel-elections
+
 **A Chinese Port Could Be a Lifeline for Spain, but Also a Threat**\
 `Residents say a proposed Chinese car plant in northern Spain will create new jobs. Others say it’s a long-term risk, distilling a debate about the costs and perks of ties to China.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-saic-ferrol-china.html
