@@ -1,3 +1,15 @@
+**I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
+`My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
+https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
+
+**Harvard’s Asian Student Enrollment Jumps as Black Enrollment Declines**\
+`Harvard’s Asian American student enrollment jumped to 43 percent and Black students enrollment dipped to 9 percent after the Supreme Court struck down affirmative action in 2023.`\
+https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-action.html
+
+**Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
+`Judge Hellerstein died on Wednesday morning, according to a court spokesman. He was appointed in 1998 and was overseeing the trial of Nicolás Maduro of Venezuela.`\
+https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
+
 **Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies at 92**\
 `Judge Hellerstein died on Wednesday morning, according to a court spokesman. Judge Hellerstein was appointed in 1998 and was overseeing the trial of Nicolás Maduro.`\
 https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
