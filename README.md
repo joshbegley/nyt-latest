@@ -1,3 +1,7 @@
+**Russell Brand Testifies in Rape Trial for First Time**\
+`The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
+https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
+
 **Live Updates: At Least 10 Killed in Train Collision in Spain, Officials Say**\
 `Two high-speed passenger trains collided near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/style/sc103-claire-mckinney-sophie-andes-gasc
 **The Rule of Law Is for Suckers**\
 `Trump has no use for pretense and he’s not interested in playing along.`\
 https://www.nytimes.com/2026/10/28/opinion/trump-law-lawlessness-presidency-congress.html
-
-**How James Talarico’s Years Teaching Middle School Prepared Him for Politics**\
-`Former students and teachers at the San Antonio school where he spent two years with Teach for America recalled a conscientious educator, though there are questions about how big his classes were.`\
-https://www.nytimes.com/2026/10/28/us/politics/talarico-texas-senate-teacher.html
 

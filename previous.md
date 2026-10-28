@@ -1,6 +1,6 @@
-**2 Trains Collide in Spain, Killing at Least 10, Officials Say**\
-`One train was said to have rear-ended another, sending two carriages down an embankment.`\
-https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-toledo.html
+**Live Updates: At Least 10 Killed in Train Collision in Spain, Officials Say**\
+`Two high-speed passenger trains collided near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
 **Is Running From Trump Enough to Save Republicans on Tuesday?**\
 `A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
