@@ -1,3 +1,55 @@
+**Our Favorite L.A. Movies: Artists, Directors and Other Locals Share the Films That Capture the City**\
+`Artists, directors and other locals on their favorite films set in the city, both in and beyond Hollywood.`\
+https://www.nytimes.com/2026/10/28/t-magazine/favorite-los-angeles-movies.html
+
+**The Perfect Books for Classic Horror Movie Fans**\
+`The author Nick Medina recommends novels that capture the vibes of beloved scary movies like “The Thing,” “Scream” and more.`\
+https://www.nytimes.com/2026/10/28/books/horror-movie-books.html
+
+**Horror Bookstores Are (Gasp!) Multiplying**\
+`More shops are opening their doors, providing genre fans the chance to browse, buy and find creepy community.`\
+https://www.nytimes.com/2026/10/28/books/review/horror-bookstores-growth.html
+
+**The Month’s Best New Mystery Books**\
+`Our columnist on four new books worth your time.`\
+https://www.nytimes.com/2026/10/28/books/review/october-mystery-books-louise-penny.html
+
+**Rural Get-Togethers Celebrate Art and America’s 250th Anniversary**\
+`The idea is to bring people together in places that are not always thought of as art hubs, and produce new art along the way.`\
+https://www.nytimes.com/2026/10/28/arts/design/arts-why-we-gather-mel-chin.html
+
+**New Orleans’ Legacy of Death and Rebirth Helped Shaped Anne Rice’s Imagination**\
+`The Big Easy celebrates the 50th anniversary of ‘Interview With the Vampire,’ the first novel by Anne Rice, whose hometown served as her greatest muse.`\
+https://www.nytimes.com/2026/10/28/style/new-orleans-anne-rice-interview-with-vampire.html
+
+**Alex Da Corte Takes On Roy Lichtenstein and Marisol**\
+`The artist Alex Da Corte offers a fresh take on Roy Lichtenstein and Marisol in two new projects opening back-to-back this fall.`\
+https://www.nytimes.com/2026/10/28/arts/design/pop-art-dacorte-lichtenstein-marisol.html
+
+**To Get an Orchestra Job, Study ‘Jaws’ as Much as Mahler**\
+`As orchestras increasingly program film soundtracks and music by contemporary composers, the excerpts used in auditions are changing, too.`\
+https://www.nytimes.com/2026/10/28/arts/music/to-get-an-orchestra-job-study-jaws-as-much-as-mahler.html
+
+**How a Walmart Heir Is Transforming Rural Arkansas Into a Design Powerhouse**\
+`Alice Walton is helping the Ozark region shed its “flyover” status by creating civic projects with top architects. The Waltons say they are “giving back.” What is the region giving up?`\
+https://www.nytimes.com/2026/10/28/arts/design/walmart-alice-walton-bentonville-design.html
+
+**This ‘Flying Dutchman’ Tests the Limits on Artists Speaking Freely About Israel**\
+`A Berlin production of “The Flying Dutchman” transforms Wagner’s opera into a provocative allegory amid fears of political interference and censorship in the arts.`\
+https://www.nytimes.com/2026/10/28/arts/music/the-flying-dutchman-milo-rau-deutsche-oper.html
+
+**How to Plan a Trip Around a Running Race**\
+`When should you arrive? How do you choose an event? Here are some tips on how best to center a vacation around a race.`\
+https://www.nytimes.com/2026/10/28/travel/marathon-vacation-planning.html
+
+**How Art and Engineering Built the Statue of Liberty**\
+`Exactly 140 years ago, on a rainy day, the Statue of Liberty was inaugurated in New York Harbor. Our critic at large Jason Farago looks at the statue piece by piece to describe how it came to be.`\
+https://www.nytimes.com/video/nyregion/100000011024494/how-art-and-engineering-built-the-statue-of-liberty.html
+
+**Justice Dept. Declines to Unseal Warrant for Search of Ilhan Omar’s Home**\
+`More than a dozen news organizations have asked a federal judge to unseal documents related to a search warrant executed at Ms. Omar’s home this month.`\
+https://www.nytimes.com/2026/10/28/us/politics/ilhan-omar-doj-search-warrant.html
+
 **15-Minute Lesson Plan: Symmetry and Soccer Balls**\
 `What is “humanity’s favorite truncated icosahedron” and what can we learn from it?`\
 https://www.nytimes.com/2026/10/28/learning/15-minute-lesson-plan-symmetry-and-soccer-balls.html
@@ -145,48 +197,4 @@ https://www.nytimes.com/2026/10/27/us/politics/jay-clayton-odni.html
 **Restaurant Review: Noury in New York**\
 `At Noury, the chef-and-sommelier team of Alex Chang and Lina Goujjane bring sophistication and real culinary aptitude.`\
 https://www.nytimes.com/2026/10/27/dining/restaurant-review-noury-nyc.html
-
-**Flávio Bolsonaro Leaves Brazil for the U.S. After Election Defeat**\
-`The U.S. plans to issue a visa to Mr. Bolsonaro, a U.S. official said. Brazilian police had asked him to hand over his passports because of his links to an investigation.`\
-https://www.nytimes.com/2026/10/27/world/americas/brazil-flavio-bolsonaro-flees-election.html
-
-**Plans to Make Microdrama Out of an Old Margot Robbie Show Stir Debate**\
-`The group that produced “Neighbours” more than a decade ago plans to carve some episodes into micro-bits, generating more debate around TV shows in the digital age.`\
-https://www.nytimes.com/2026/10/27/arts/television/margot-robbie-microdrama.html
-
-**What to Expect Now That Polls Are Closed in Israel**\
-`Polls have closed across the country. Exit polls may offer clues about the direction of the voting but not necessarily a clear winner.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-exit-polls-close.html
-
-**Israeli Voting Ends After Strong Turnout With No Clear Winner**\
-`A bloc of opposition parties held a lead over Prime Minister Benjamin Netanyahu’s coalition, according to exit polls. But it could take weeks or even months to form a new government.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israeli-election-turnout.html
-
-**Brooklyn Woman Found Guilty of Training With ISIS in Syria**\
-`Halima Salman, a U.S. citizen, was brought by her father to ISIS-controlled territory in 2016, when she was 17. She returned to the United States in 2024.`\
-https://www.nytimes.com/2026/10/27/nyregion/isis-salman-syria-verdict.html
-
-**In Vienna, a Celebration of Handmade Ceramics and Iconic Austrian Design**\
-`The women behind the housewares brand Carolina Irving & Daughters invited friends to a dinner to mark the launch of their new Wiener Werkstätte-inspired collection.`\
-https://www.nytimes.com/2026/10/27/t-magazine/carolina-irving-daughters-mafalda-kahane-ceramics.html
-
-**Susan Saint James, Emmy Winner Who Starred in ‘Kate & Allie,’ Dies at 80**\
-`In a long career, she was best known for starring opposite Jane Curtin in “Kate & Allie,” a 1980s sitcom about two divorced women raising three children in New York City.`\
-https://www.nytimes.com/2026/10/27/arts/television/susan-st-james-dead-kate-and-allie.html
-
-**Do You Have Questions About the U.S. Midterm Elections?**\
-`We want to hear from you.`\
-https://www.nytimes.com/2026/10/27/world/americas/callout-reader-questions-us-midterm-elections.html
-
-**How Accurate Are Midterm Polls? Errors Vary From State to State.**\
-`Recent presidential election polls have overestimated Democrats, but midterm polls are far less consistent state by state. The differences could matter quite a bit.`\
-https://www.nytimes.com/2026/10/27/us/politics/midterm-polls-errors-states.html
-
-**Israel’s Election: 4 Things to Watch For**\
-`The election on Tuesday is unlikely to yield quick answers about who might lead the next government.`\
-https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-four-things.html
-
-**Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
-`Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
-https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
