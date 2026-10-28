@@ -1,3 +1,7 @@
+**Knife-Wielding Attacker Fatally Shot Outside Israeli Embassy in Serbia**\
+`The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
+https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
+
 **Life Magazine, Chronicler of 20th Century America, Rises Again**\
 `The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
 https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
