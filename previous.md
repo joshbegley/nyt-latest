@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
 `Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
 https://www.nytimes.com/2026/10/28/business/social-security-senate.html
 
-**Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
-`The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, will be sentenced in December.`\
-https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
-
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections
