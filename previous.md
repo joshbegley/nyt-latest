@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
 `Prime Minister Benjamin Netanyahu lost some support from voters, but preliminary results suggest he has multiple ways to remain in power given the country’s fractured politics.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.html
 
-**Spain’s transportation minister described what led to the crash.**\
-`(No description)`\
+**Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
+`An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
 **Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\

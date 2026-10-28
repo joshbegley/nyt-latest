@@ -1,3 +1,7 @@
+**Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
+`An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
+https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
+
 **Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
 https://www.nytimes.com/2026/10/28/business/weil-gotshal-law-firm.html
