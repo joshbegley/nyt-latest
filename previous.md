@@ -78,7 +78,7 @@ https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-n
 `We actually can regulate prediction markets, and we should do it now.`\
 https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
 
-**What Our Three New Senate Polls Are Saying About the State of the Midterms**\
+**What Our New Senate Polls Tell Us About the State of the Midterms**\
 `South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
 https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/10/28/arts/design/24mamdani-affordable-housing-new-
 **‘Closure’ Review: Looking for Hope in a River**\
 `A gorgeous and devastating documentary follows a father obsessively looking for his missing son.`\
 https://www.nytimes.com/2026/10/28/movies/closure-review.html
-
-**Book Review: ‘The Creativity Con,’ by Thomas Frank**\
-`In a new book, the culture critic Thomas Frank skewers pundits who promote novelty and ingenuity as a solution to our ills at the expense of working people.`\
-https://www.nytimes.com/2026/10/28/books/review/the-creativity-con-thomas-frank.html
 

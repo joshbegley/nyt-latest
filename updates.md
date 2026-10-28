@@ -1,3 +1,7 @@
+**What Our New Senate Polls Tell Us About the State of the Midterms**\
+`South Carolina seems like a serious race; Minnesota may not be; and Florida still appears out of reach for Democrats.`\
+https://www.nytimes.com/2026/10/28/upshot/polls-south-carolina-minnesota-florida.html
+
 **Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
 `Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
