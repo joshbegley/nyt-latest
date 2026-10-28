@@ -1,3 +1,7 @@
+**Officials Back Trump’s Claim That Triumphal Arch Is Needed for National Security**\
+`Defense Secretary Pete Hegseth and Markwayne Mullin, the homeland security secretary, submitted sworn statements to a federal court regarding the construction project.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-arch-national-security.html
+
 **Justice Dept. Turns Civil Rights Group’s Informant Against It**\
 `Lawyers for the Southern Poverty Law Center say that federal prosecutors capitalized on the informant’s money problems and exposure to indictment to persuade him to assist the government.`\
 https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/us/dolores-huerta-dead.html
 **Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
 `A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
 https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
-
-**Ex-NYPD Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
-`Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She had pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
-https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\

@@ -1,3 +1,7 @@
+**Officials Back Trump’s Claim That Triumphal Arch Is Needed for National Security**\
+`Defense Secretary Pete Hegseth and Markwayne Mullin, the homeland security secretary, submitted sworn statements to a federal court regarding the construction project.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-arch-national-security.html
+
 **Justice Dept. Turns Civil Rights Group’s Informant Against It**\
 `Lawyers for the Southern Poverty Law Center say that federal prosecutors capitalized on the informant’s money problems and exposure to indictment to persuade him to assist the government.`\
 https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
