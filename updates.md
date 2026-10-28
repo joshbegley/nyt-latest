@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Returns to Ohio**\
+`(No description)`\
+https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
+
 **The Local: Inside look at shuttered opera**\
 `Plus, Anthony Edwards’s knee surgery and what it could mean for the Timberwolves.`\
 https://www.nytimes.com/2026/10/28/briefing/minnesota-opera-laila-starr.html

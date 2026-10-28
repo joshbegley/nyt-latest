@@ -182,7 +182,7 @@ https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dea
 `The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
 https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
 
-**Midterm Elections Live Updates: Obama and Harris Descend on Georgia as Trump Returns to Ohio**\
+**Midterm Elections Live Updates: Obama and Harris Head to Georgia as Trump Returns to Ohio**\
 `(No description)`\
 https://www.nytimes.com/live/2026/10/28/us/midterms-elections-trump
 
