@@ -1,3 +1,7 @@
+**Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
+`Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
+
 **Spain Train Crash Kills at Least 68**\
 `The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/opinion/midterms-local-state-elections.html
 **How to Avoid Knee Surgery**\
 `If you want to avoid the knife, you have to be patient.`\
 https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
-
-**How to Get a Mental Health Checkup**\
-`Here are a few questions to ask yourself — and your primary care doctor — to keep your psychological well-being on track.`\
-https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\

@@ -1,3 +1,7 @@
+**Spain Train Crash Kills at Least 68**\
+`The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
+
 **Barbara Barrie, Oscar Nominee Known for Mom Roles and More, Has Died**\
 `She was nominated for “Breaking Away,” appeared in the original Broadway cast of “Company” and was seen on “Barney Miller.” She was 95.`\
 https://www.nytimes.com/2026/10/28/theater/barbara-barrie-dead.html

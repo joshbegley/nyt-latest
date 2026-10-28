@@ -1,3 +1,7 @@
+**Spain Train Crash Kills at Least 68**\
+`The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
+
 **Barbara Barrie, Oscar Nominee Known for Mom Roles and More, Has Died**\
 `She was nominated for “Breaking Away,” appeared in the original Broadway cast of “Company” and was seen on “Barney Miller.” She was 95.`\
 https://www.nytimes.com/2026/10/28/theater/barbara-barrie-dead.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
 **How to Get a Mental Health Checkup**\
 `Here are a few questions to ask yourself — and your primary care doctor — to keep your psychological well-being on track.`\
 https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
-
-**From Senate Candidates, Surprising Stances on Fixing Social Security**\
-`Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
-https://www.nytimes.com/2026/10/28/business/social-security-senate.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
