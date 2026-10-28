@@ -1,3 +1,7 @@
+**A.I. by the Numbers**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
+
 **Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
 `Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
 https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: At Least 10 Killed in Train Collision in Spain, Officials Say**\
+**Live Updates: At Least 30 Killed in Train Collision in Spain, Officials Say**\
 `Two high-speed passenger trains collided near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011212387/trump-beef-kansas.html
 **How Audiences Scare Themselves at ‘Paranormal Activity’**\
 `Our chief theater critic, Helen Shaw, and our movie critic Alissa Wilkinson go to the set of “Paranormal Activity” to talk with an illusion designer about the fine art of scaring people.`\
 https://www.nytimes.com/video/theater/100000011211130/how-audiences-scare-themselves-at-paranormal-activity.html
-
-**Peter May Has Died. The Scottish Noir Author Turned Rejections Into Best-Sellers.**\
-`He made his name with “The Blackhouse,” a mystery set in the Outer Hebrides that was turned down by publishers before fueling a bidding war. He was 74.`\
-https://www.nytimes.com/2026/10/28/books/peter-may-dead.html
 

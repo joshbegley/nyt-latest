@@ -1,3 +1,11 @@
+**A.I. by the Numbers**\
+`Intro TK: minus “good morning”`\
+https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
+
+**Live Updates: At Least 30 Killed in Train Collision in Spain, Officials Say**\
+`Two high-speed passenger trains collided near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
 **Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
 `Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
 https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
