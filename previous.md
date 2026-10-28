@@ -1,3 +1,27 @@
+**Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
+`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.html
+
+**Can Scientists Make Football Safer?**\
+`Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
+https://www.nytimes.com/2026/10/28/science/can-scientists-make-football-safer.html
+
+**Three Great Documentaries to Stream**\
+`These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
+https://www.nytimes.com/2026/10/28/movies/halloween-documentaries-streaming.html
+
+**These Are the Big Midterm Elections Flying Under the Radar**\
+`National politics dominate people’s attention, but local politics often play a greater role in shaping their lives.`\
+https://www.nytimes.com/2026/10/28/opinion/midterms-local-state-elections.html
+
+**How to Avoid Knee Surgery**\
+`If you want to avoid the knife, you have to be patient.`\
+https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
+
+**How to Get a Mental Health Checkup**\
+`Here are a few questions to ask yourself — and your primary care doctor — to keep your psychological well-being on track.`\
+https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
+
 **From Senate Candidates, Surprising Stances on Fixing Social Security**\
 `Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
 https://www.nytimes.com/2026/10/28/business/social-security-senate.html
@@ -6,7 +30,7 @@ https://www.nytimes.com/2026/10/28/business/social-security-senate.html
 `The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, was found guilty in London.`\
 https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
 
-**Inside Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+**Inside Democrats’ Secret Effort to Stack Alaska’s Midterm Ballot With Another Dan Sullivan**\
 `Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
 https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
 
@@ -165,28 +189,4 @@ https://www.nytimes.com/2026/10/28/movies/ali-g-who-iz-i-review.html
 **The Ocean ‘Was the Color of Chocolate.’ Mexico Declares War on Seaweed.**\
 `To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
 https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
-
-**Byron Donalds Holds Slim Lead in Florida’s Race for Governor**\
-`New polls in Florida, South Carolina and Minnesota illuminate the head winds that Republicans are facing.`\
-https://www.nytimes.com/2026/10/28/us/politics/governors-poll-florida-south-carolina-minnesota.html
-
-**The Federal Reserve Will Release Its Interest Rate Decision Today. Here’s What to Watch.**\
-`The central bank is widely expected to hold interest rates steady on Wednesday, just days before the midterm elections.`\
-https://www.nytimes.com/2026/10/28/business/federal-reserve-interest-rates.html
-
-**The Senate Race in Heavily Republican South Carolina is a Tossup, Poll Finds**\
-`Senator Darline Graham, the South Carolina Republican, is struggling to replicate her late brother’s success. Republicans lead in the Florida Senate race and Democrats are up in Minnesota.`\
-https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
-
-**‘Minimum Wage’ Review: Netflix Adapts Another YouTube Comedy**\
-`The “new” series, featuring the sitcom veteran Randall Park and “S.N.L.” newcomer Grace Reiter, exists in a more liminal TV space.`\
-https://www.nytimes.com/2026/10/28/arts/television/minimum-wage-review-netflix-youtube.html
-
-**How to Tax and Spend in a ‘Turbulent Time’? U.K. Tries a Balancing Act.**\
-`The new government, led by Andy Burnham, will deliver its first budget on Wednesday, a plan expected to tread between wide ambition and narrow financial limits.`\
-https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
-
-**Can You Trust the Midterm Polls? Three Times Journalists Talk It Out.**\
-`Members of the team behind the Times/Siena Poll on what the data show, how they’ve improved their methodology and what it means to be “right.”`\
-https://www.nytimes.com/2026/10/28/insider/polls-midterm-election.html
 

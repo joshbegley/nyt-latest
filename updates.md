@@ -1,3 +1,31 @@
+**Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
+`The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
+https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.html
+
+**Can Scientists Make Football Safer?**\
+`Researchers are exploring novel ways to treat, even prevent, the brain disease C.T.E. One of the most surprising: near-infrared light.`\
+https://www.nytimes.com/2026/10/28/science/can-scientists-make-football-safer.html
+
+**Three Great Documentaries to Stream**\
+`These Halloween-inspired doc picks look at satanic activism, gay subtext in an ’80s horror film and the origins of zombie lore.`\
+https://www.nytimes.com/2026/10/28/movies/halloween-documentaries-streaming.html
+
+**These Are the Big Midterm Elections Flying Under the Radar**\
+`National politics dominate people’s attention, but local politics often play a greater role in shaping their lives.`\
+https://www.nytimes.com/2026/10/28/opinion/midterms-local-state-elections.html
+
+**How to Avoid Knee Surgery**\
+`If you want to avoid the knife, you have to be patient.`\
+https://www.nytimes.com/2026/10/28/well/move/avoid-knee-surgery-advice.html
+
+**How to Get a Mental Health Checkup**\
+`Here are a few questions to ask yourself — and your primary care doctor — to keep your psychological well-being on track.`\
+https://www.nytimes.com/2026/10/28/well/mind/mental-health-annual-checkup.html
+
+**Inside Democrats’ Secret Effort to Stack Alaska’s Midterm Ballot With Another Dan Sullivan**\
+`Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
+https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
+
 **From Senate Candidates, Surprising Stances on Fixing Social Security**\
 `Congress needs a plan to prevent the program’s funds from running short by 2032. Many Senate candidates have shared their positions — some of them unexpected.`\
 https://www.nytimes.com/2026/10/28/business/social-security-senate.html
