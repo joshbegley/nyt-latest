@@ -1,3 +1,19 @@
+**Dutch Zookeeper Dies After Rare Mauling by a Leopard**\
+`A woman working with big cats was attacked on Saturday. She died from her injuries on Tuesday, the zoo said.`\
+https://www.nytimes.com/2026/10/28/world/europe/dutch-zookeeper-dead-leopard-netherlands.html
+
+**Ex-N.Y.P.D. Sergeant Sentenced to at Least 4 Years for Fatal Drunk-Driving Crash**\
+`Tiffany Howell apologized to the family of Manuel Boitel, a Manhattan doorman. She pleaded guilty to driving the wrong way down a highway while drunk, before crashing into his vehicle.`\
+https://www.nytimes.com/2026/10/28/nyregion/nypd-drunk-driving-crash-doorman.html
+
+**Eisenkot, Netanyahu’s Main Rival in Israel’s Election, Faces a Dilemma**\
+`To form a government, Israeli opposition leader Gadi Eisenkot needs to either join forces with Arab parties — anathema to many Israelis — or with members of Benjamin Netanyahu’s alliance.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-eisenkot.html
+
+**Tommy Robinson Found Guilty of Harassing 2 UK Journalists**\
+`The anti-immigrant agitator, whose real name is Stephen Yaxley-Lennon, will be sentenced in December.`\
+https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdict-court-uk.html
+
 **From the Student Newsroom**\
 `We caught up with the editor in chief of The Minnesota Daily.`\
 https://www.nytimes.com/2026/10/28/briefing/from-the-student-newsroom.html
