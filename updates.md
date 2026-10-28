@@ -1,3 +1,7 @@
+**Judge Limits Candace Owens’s Liability in Macron Defamation Case**\
+`The French president, Emmanuel Macron, and his wife, Brigitte, sued Candace Owens in 2025 over claims she made about Ms. Macron’s gender. A judge said the court had jurisdiction over her companies but not her.`\
+https://www.nytimes.com/2026/10/27/business/media/candace-owens-macron-defamation-case.html
+
 **NYT Crossword Answers for Oct. 28, 2026**\
 `Daniel Grinberg says “Boo!”`\
 https://www.nytimes.com/2026/10/27/crosswords/daily-puzzle-2026-10-28.html

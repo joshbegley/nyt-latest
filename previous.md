@@ -1,3 +1,7 @@
+**Judge Limits Candace Owens’s Liability in Macron Defamation Case**\
+`The French president, Emmanuel Macron, and his wife, Brigitte, sued Candace Owens in 2025 over claims she made about Ms. Macron’s gender. A judge said the court had jurisdiction over her companies but not her.`\
+https://www.nytimes.com/2026/10/27/business/media/candace-owens-macron-defamation-case.html
+
 **NYT Crossword Answers for Oct. 28, 2026**\
 `Daniel Grinberg says “Boo!”`\
 https://www.nytimes.com/2026/10/27/crosswords/daily-puzzle-2026-10-28.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate
 **Milwaukee vs. Tampa: A World Series Playlist**\
 `Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
 https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
-
-**The Christian Influencer at the Center of Ken Paxton’s New Life**\
-`The Texas attorney general has been silent about his relationship with Tracy Duhon, a New Orleans woman who has built a personal brand around faith and redemption.`\
-https://www.nytimes.com/2026/10/27/us/ken-paxton-divorce-tracy-duhon.html
 
 **Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
