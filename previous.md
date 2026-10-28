@@ -1,3 +1,7 @@
+**Nigeria’s Ebola Patient Evacuated as Investigators Press for Answers**\
+`More than a week after the first case was reported in Africa’s most populous nation, pressing questions about the infection remain unanswered.`\
+https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-uganda.html
+
 **An Inconclusive Vote Leaves Israelis Pondering an Uncertain Future**\
 `A day after the election, supporters of Prime Minister Benjamin Netanyahu were relieved he still had a chance to stay in power, while his opponents worried the mixed results could lead to a political stalemate.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-netanyahu-eisenkot-mood.html
@@ -43,7 +47,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.ht
 https://www.nytimes.com/2026/10/28/world/europe/spains-transportation-minister-described-what-led-to-the-crash.html
 
 **Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
-`Kevin Warsh, the Federal Reserve chairman, is set to explain why the bank paused interest rates, as investors watch for signals of whether increases will resume soon.`\
+`Kevin Warsh, the Federal Reserve chairman, is set to explain the decision. Two officials voted for a rate increase.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
 **Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-departmen
 https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
 
 **How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
-`The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+`The Federal Reserve left its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
 https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
 
 **Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-
 **Life Magazine, Chronicler of 20th-Century America, Rises Again**\
 `The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
 https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
-
-**Investors Brace for Big Tech’s A.I. Spending Bill**\
-`Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
-https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\

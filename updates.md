@@ -1,3 +1,15 @@
+**Nigeria’s Ebola Patient Evacuated as Investigators Press for Answers**\
+`More than a week after the first case was reported in Africa’s most populous nation, pressing questions about the infection remain unanswered.`\
+https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-uganda.html
+
+**Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
+`Kevin Warsh, the Federal Reserve chairman, is set to explain the decision. Two officials voted for a rate increase.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
+`The Federal Reserve left its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
+
 **Live Updates: Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, is set to explain why the bank paused interest rates, as investors watch for signals of whether increases will resume soon.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
