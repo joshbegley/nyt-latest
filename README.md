@@ -1,3 +1,7 @@
+**Kennedy to Allow Broad Use of Unapproved Peptide Injections**\
+`In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
+https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
+
 **How to Create Fairer Election Districts**\
 `Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
 https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-crossta
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
 `Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-crosstabs.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
-`Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
-https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-crosstabs.html
 
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
