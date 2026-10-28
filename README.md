@@ -1,3 +1,7 @@
+**Knife-Wielding Attacker Fatally Shot Outside Israeli Embassy in Serbia**\
+`The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
+https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
+
 **Life Magazine, Chronicler of 20th Century America, Rises Again**\
 `The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
 https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/28/opinion/private-equity-baby-boomers-investors
 **In ‘I Became We,’ Many Voices Exalt One Very Personal Decision**\
 `For her latest autobiographical work, Mona Pirnot collaborated with Jack D. Coen on beautifully composed classical song-cycle.`\
 https://www.nytimes.com/2026/10/28/theater/i-became-we-review-mona-pirnot.html
-
-**‘On the Road’ Review: A Queer Romantic Thriller**\
-`A young outcast hitches a ride with an older, married trucker in this atmospherically charged drama that traverses northern Mexico.`\
-https://www.nytimes.com/2026/10/28/movies/on-the-road-review.html
 
