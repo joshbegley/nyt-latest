@@ -1,3 +1,11 @@
+**How Hochul Became a Surprise Champion of the Subway**\
+`Gov. Kathy Hochul isn’t from New York City, but she could be its biggest mass transit defender in a generation. She has embraced that distinction in her re-election campaign.`\
+https://www.nytimes.com/2026/10/28/nyregion/kathy-hochul-nyc-transit-support.html
+
+**NYT Spelling Bee Answers for October 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/28/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Turns Trump Heckler’s Taunt Into a T-Shirt**\
 `Kimmel was inspired after the president’s “‘Tone-Deaf Comedy Jam’ got tripped up by a heckler.”`\
 https://www.nytimes.com/2026/10/28/arts/television/jimmy-kimmel-trump-heckler.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-four-things.
 **A Restaurant With a Cart of Chicharrones? Tell Me More.**\
 `Norte brings the pleasures of northern Mexican cuisine to the Flatiron district, Cholapink serves up Peruvian street food and more restaurant news.`\
 https://www.nytimes.com/2026/10/27/dining/nyc-restaurant-news.html
-
-**Why Nora Ephron Considered Langer’s Pastrami Sandwich the Best in the World**\
-`Langer’s, in Los Angeles’s MacArthur Park, has wowed locals of every stripe for 79 years.`\
-https://www.nytimes.com/2026/10/27/t-magazine/langers-deli-los-angeles.html
-
-**Justice Department Charges James Comey for the Third Time**\
-`Federal prosecutors have brought charges against James Comey, the former F.B.I. director, for the third time. He is accused of mishandling national security information in October 2016, according to court papers.`\
-https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
 
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\

@@ -1,3 +1,11 @@
+**How Hochul Became a Surprise Champion of the Subway**\
+`Gov. Kathy Hochul isn’t from New York City, but she could be its biggest mass transit defender in a generation. She has embraced that distinction in her re-election campaign.`\
+https://www.nytimes.com/2026/10/28/nyregion/kathy-hochul-nyc-transit-support.html
+
+**NYT Spelling Bee Answers for October 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/28/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Turns Trump Heckler’s Taunt Into a T-Shirt**\
 `Kimmel was inspired after the president’s “‘Tone-Deaf Comedy Jam’ got tripped up by a heckler.”`\
 https://www.nytimes.com/2026/10/28/arts/television/jimmy-kimmel-trump-heckler.html
