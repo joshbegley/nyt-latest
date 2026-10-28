@@ -1,3 +1,23 @@
+**Live Updates: Fed Reviews Interest Rates as Inflation Pushes on Prices**\
+`Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
+`The education secretary says her old furniture “cannot be configurationally or aesthetically integrated” into new office space.`\
+https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-department-furniture-trump.html
+
+**What Does the Cheesecake Factory’s Designer Think of Obama and Trump’s Jabs at His Décor?**\
+`Long before its baroque décor and class identity became midterm talking points, this durable restaurant chain survived some withering critiques.`\
+https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
+
+**How the Fed’s Interest Rates Decision Affects Your Wallet**\
+`The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
+
+**Trump’s Revived Push to Fire a Fed Governor Looms Over Warsh.**\
+`Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
+https://www.nytimes.com/2026/10/28/business/economy/trumps-revived-push-to-fire-a-fed-governor-looms-over-warsh.html
+
 **I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
 `My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
 https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html

@@ -1,3 +1,23 @@
+**Live Updates: Fed Reviews Interest Rates as Inflation Pushes on Prices**\
+`Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
+`The education secretary says her old furniture “cannot be configurationally or aesthetically integrated” into new office space.`\
+https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-department-furniture-trump.html
+
+**What Does the Cheesecake Factory’s Designer Think of Obama and Trump’s Jabs at His Décor?**\
+`Long before its baroque décor and class identity became midterm talking points, this durable restaurant chain survived some withering critiques.`\
+https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
+
+**How the Fed’s Interest Rates Decision Affects Your Wallet**\
+`The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
+
+**Trump’s Revived Push to Fire a Fed Governor Looms Over Warsh.**\
+`Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
+https://www.nytimes.com/2026/10/28/business/economy/trumps-revived-push-to-fire-a-fed-governor-looms-over-warsh.html
+
 **I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
 `My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
 https://www.nytimes.com/2026/10/28/magazine/nephew-problems-secret-ethics.html
@@ -169,20 +189,4 @@ https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.
 **Live Updates: At Least 68 Killed in Train Crash in Spain, Officials Say**\
 `A high-speed passenger train rear-ended another near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
-
-**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
-`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
-https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
-
-**Is Running From Trump Enough to Save Republicans on Tuesday?**\
-`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
-
-**NYT Connections Answers for October 29, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
-https://www.nytimes.com/2026/10/28/crosswords/connections-companion-1236.html
-
-**Flávio Bolsonaro Flees Brazil for the U.S., and How ChatGPT Laid Out a Dangerous Medical Plan**\
-`Plus, robot-dog walkers wanted: $20 an hour.`\
-https://www.nytimes.com/2026/10/28/podcasts/the-headlines/bolsonaro-brazil-chatgpt-medical-plan.html
 
