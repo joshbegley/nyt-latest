@@ -1,3 +1,11 @@
+**4 Takeaways From Israel’s Election**\
+`Votes are still being counted, and much is in flux. But as the stage was set for bitter talks over forming a government, nearly all sides could face disappointment.`\
+https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html
+
+**Live Updates: At Least 64 Killed in Train Crash in Spain, Officials Say**\
+`One high-speed passenger train rear-ended another one near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
 **Dozens Dead After High-Speed Trains Collide in Spain**\
 `Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 30 people, according to a spokesperson for the regional government.`\
 https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
