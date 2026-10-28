@@ -1,3 +1,7 @@
+**Can John Sununu, a Senator Before Trump, Reclaim His New Hampshire Seat?**\
+`Plus, ballot-stacking in Alaska and a polling surprise in South Carolina.`\
+https://www.nytimes.com/2026/10/28/us/politics/sununu-new-hampshire-senate.html
+
 **Cornell Faculty Senate Moves Ahead With No-Confidence Vote Over Handling of Rape Case**\
 `After fierce debate, faculty members will begin voting Thursday on a resolution to condemn the administration’s handling of campus sexual assault.`\
 https://www.nytimes.com/2026/10/28/nyregion/cornell-faculty-no-confidence-vote.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
 https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
 
 **Alphabet’s Revenue Rises 25% as Profit Falls**\
-`The company has been spending relentlessly to build A.I., but its revenue growth was not as high as investors had anticipated. Profit dropped because of changes to the value of its investments.`\
+`The company has been spending relentlessly to build A.I. and said it would increase those investments next year. Profit dropped because of changes to the value of its investments.`\
 https://www.nytimes.com/2026/10/28/technology/alphabet-earnings-google-ai.html
 
 **CNN, MS Now and Politico Update Lawsuit Against Trump Over White House Access**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/28/us/harvard-student-enrollment-affirmative-act
 **Alvin K. Hellerstein, Federal Judge Who Oversaw Maduro Case, Dies**\
 `Judge Hellerstein was one of the oldest federal judges. He presided over major cases including the civil litigation tied to the Sept. 11 attacks.`\
 https://www.nytimes.com/2026/10/28/nyregion/judge-alvin-hellerstein-dies-maduro-case.html
-
-**Gina Hinojosa’s Texas Governor Campaign Tests Limits of New Rules for Digital Political Ads**\
-`Some of the social media posts paid for by Gina Hinojosa’s campaign for Texas governor don’t include a disclosure, despite a state regulation that likely requires it.`\
-https://www.nytimes.com/2026/10/28/business/media/gina-hinojosa-political-ads-texas-midterm-elections.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\

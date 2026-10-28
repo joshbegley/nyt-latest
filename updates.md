@@ -1,3 +1,11 @@
+**Can John Sununu, a Senator Before Trump, Reclaim His New Hampshire Seat?**\
+`Plus, ballot-stacking in Alaska and a polling surprise in South Carolina.`\
+https://www.nytimes.com/2026/10/28/us/politics/sununu-new-hampshire-senate.html
+
+**Alphabet’s Revenue Rises 25% as Profit Falls**\
+`The company has been spending relentlessly to build A.I. and said it would increase those investments next year. Profit dropped because of changes to the value of its investments.`\
+https://www.nytimes.com/2026/10/28/technology/alphabet-earnings-google-ai.html
+
 **Cornell Faculty Senate Moves Ahead With No-Confidence Vote Over Handling of Rape Case**\
 `After fierce debate, faculty members will begin voting Thursday on a resolution to condemn the administration’s handling of campus sexual assault.`\
 https://www.nytimes.com/2026/10/28/nyregion/cornell-faculty-no-confidence-vote.html
