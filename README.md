@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: At Least 10 Killed in Train Collision in Spain, Officials Say**\
+**Live Updates: At Least 30 Killed in Train Collision in Spain, Officials Say**\
 `Two high-speed passenger trains collided near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 

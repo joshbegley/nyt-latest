@@ -1,3 +1,7 @@
+**Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
+`Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
+https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
+
 **For Israel’s Neighbors in Middle East, the Election Offers Little Hope of a Reset**\
 `Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html

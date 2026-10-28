@@ -1,3 +1,7 @@
+**Jio’s Blockbuster I.P.O. Gives India’s Investors a Lift**\
+`Jio Platforms shares surged on their first day of trading, even as questions mount about the telecom firm’s growth prospects and a new generation takes charge.`\
+https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
+
 **For Israel’s Neighbors in Middle East, the Election Offers Little Hope of a Reset**\
 `Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/theater/100000011211130/how-audiences-scare-themse
 **Peter May Has Died. The Scottish Noir Author Turned Rejections Into Best-Sellers.**\
 `He made his name with “The Blackhouse,” a mystery set in the Outer Hebrides that was turned down by publishers before fueling a bidding war. He was 74.`\
 https://www.nytimes.com/2026/10/28/books/peter-may-dead.html
-
-**SC103, the Downtown New York Brand for Clothes Meant to Show Their Seams**\
-`The designs from SC103 capture a yen for garments that wear the signs of the hands that made them.`\
-https://www.nytimes.com/2026/10/28/style/sc103-claire-mckinney-sophie-andes-gascon-new-york.html
 
