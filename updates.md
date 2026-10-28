@@ -1,3 +1,15 @@
+**Apple Unveils Its First Touch-Screen MacBook Pro**\
+`Steve Jobs and Tim Cook both dismissed the idea, but Apple’s new chief executive is reimagining some of the company’s most important products.`\
+https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.html
+
+**Spain Crash Survivor Describes a ‘Twisted Tangle of Metal’**\
+`Fernando Seco, 62, said he and others moved at least a dozen wounded passengers from the crash site, using parts of the wreckage as makeshift stretchers.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
+
+**System to Report Campaign Donations Shut Down After a Hacking Attempt**\
+`A “bad actor” tried to breach the system, according to the Federal Election Commission, disrupting political finance disclosures during the final week of campaigning.`\
+https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
+
 **Kennedy to Allow Broad Use of Unapproved Peptide Injections**\
 `In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
 https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
