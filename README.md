@@ -186,7 +186,7 @@ https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-stri
 `Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
 https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
 
-**Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
+**Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
 https://www.nytimes.com/live/2026/10/27/world/israel-elections
 
