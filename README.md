@@ -1,3 +1,15 @@
+**A Chinese Port Could Be a Lifeline for Spain, but Also a Threat**\
+`Residents say a proposed Chinese car plant in northern Spain will create new jobs. Others say it’s a long-term risk, distilling a debate about the costs and perks of ties to China.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-saic-ferrol-china.html
+
+**Quote of the Day: In a ‘Robogym,’ Leveling Up Like a Human**\
+`Quotation of the Day for Wednesday, October 28, 2026.`\
+https://www.nytimes.com/2026/10/28/pageoneplus/quote-of-the-day-in-a-robogym-leveling-up-like-a-human.html
+
+**From the Front Page: The Statue of Liberty Is Dedicated on Oct. 28, 1886**\
+`The Statue of Liberty, a gift from the people of France, was dedicated in New York Harbor by President Grover Cleveland.`\
+https://www.nytimes.com/2026/10/28/learning/from-the-front-page-the-statue-of-liberty-is-dedicated-on-oct-28-1886.html
+
 **Texas Senate Rivals Converge on Lubbock, With Trump in the Mix**\
 `It was a showdown of sorts in western Texas as James Talarico and Ken Paxton appeared at dueling rallies on either side of a prairie-dog-filled city park.`\
 https://www.nytimes.com/2026/10/27/us/elections/paxton-talarico-texas-senate-rally-lubbock.html
@@ -173,18 +185,6 @@ https://www.nytimes.com/video/world/middleeast/100000011239059/syria-jordan-stri
 **As Election Nears, Reports of an Increase in ICE Arrests Across California**\
 `Reports of an uptick in operations, alongside a push to root out alleged noncitizen voting, have unnerved immigrant communities ahead of next week’s election.`\
 https://www.nytimes.com/2026/10/27/us/ice-arrests-california-immigration.html
-
-**Justice Dept. Steps Up Moves on Comey and Others as Midterm Elections Near**\
-`In some cases, court paperwork bears unmistakable signs of urgency — typos, unorthodox tactics and the signatures of the department’s senior political leadership.`\
-https://www.nytimes.com/2026/10/27/us/politics/trump-blanche-elections-comey.html
-
-**South Africa Deploys 500 Soldiers to Quell Anti-Immigration Violence**\
-`The deployment comes after a foreign national was beaten to death by a mob during an anti-immigrant protest last week.`\
-https://www.nytimes.com/2026/10/27/world/africa/south-africa-durban-soldiers.html
-
-**Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
-`Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
-https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
 
 **Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
