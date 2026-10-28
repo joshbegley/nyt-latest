@@ -1,3 +1,7 @@
+**Democrats Are in Their Elder Millennial Era**\
+`From Abdul El-Sayed to James Talarico and Rob Sand, this election has revealed a new class of millennial talent in the Democratic Party. On “The Ezra Klein Show,” the polling analyst Nate Silver explains why he thinks these candidates are the result of what he calls the “Steph Curry effect.”`\
+https://www.nytimes.com/video/opinion/100000011232739/democrats-are-in-their-elder-millennial-era.html
+
 **Judge Limits Candace Owens’s Liability in Macron Defamation Case**\
 `The French president, Emmanuel Macron, and his wife, Brigitte, sued Candace Owens in 2025 over claims she made about Ms. Macron’s gender. A judge said the court had jurisdiction over her companies but not her.`\
 https://www.nytimes.com/2026/10/27/business/media/candace-owens-macron-defamation-case.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/10/27/world/africa/south-africa-durban-soldiers.htm
 **Manhunt Underway as Escaped Tennessee Inmate Steals Truck**\
 `Surveillance footage showed the moment convicted murderer, Jacob Allen Morley, stole a truck on Monday after escaping a prison in Tennessee.`\
 https://www.nytimes.com/video/us/100000011239320/manhunt-escape-tennessee-inmate-truck.html
-
-**Milwaukee vs. Tampa: A World Series Playlist**\
-`Play songs by artists from both cities, including Violent Femmes, Al Jarreau, Doechii and more.`\
-https://www.nytimes.com/2026/10/27/arts/music/amplifier-playlist-world-series-doechii-violent-femmes.html
 
 **Israel Election Live Updates: Rivals Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
