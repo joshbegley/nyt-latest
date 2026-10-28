@@ -1,3 +1,19 @@
+**Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\
+`Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
+https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
+
+**How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
+`The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
+https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
+
+**Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
+`Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
+https://www.nytimes.com/2026/10/28/business/economy/trump-lisa-cook-warsh.html
+
+**Dozens Dead After High-Speed Trains Collide in Spain**\
+`A high-speed passenger train rear-ended another one near Toledo, Spain, on Wednesday morning, causing a derailment and killing at least 68 people, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
+
 **Live Updates: Fed Reviews Interest Rates as Inflation Pushes on Prices**\
 `Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates

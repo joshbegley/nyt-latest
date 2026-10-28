@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/10/28/business/india-jio-ipo.html
 `Few countries in the Middle East expect a turning point in relations with Israel. But the outcome of the vote has implications for the regional conflict with Iran.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-relations.html
 
-**Russell Brand Tells Court Consent ‘Is More Important Than Sex’**\
+**Russell Brand Tells Court He ‘Misused’ His Fame, but Says Sex Was Consensual**\
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 

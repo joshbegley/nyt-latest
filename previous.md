@@ -1,4 +1,4 @@
-**Live Updates: Fed Reviews Interest Rates as Inflation Pushes on Prices**\
+**Live Updates: Fed Expected to Hold Rates Steady Even as Inflation Pushes on Prices**\
 `Kevin Warsh, the Federal Reserve chairman, will explain the central bank’s decision on rates, as energy prices and A.I. spending keep inflation uncomfortably high.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 
@@ -10,13 +10,13 @@ https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-departmen
 `Long before its baroque décor and class identity became midterm talking points, this durable restaurant chain survived some withering critiques.`\
 https://www.nytimes.com/2026/10/28/dining/cheesecake-factory-obama-trump-midterm-elections.html
 
-**How the Fed’s Interest Rates Decision Affects Your Wallet**\
+**How the Fed’s Interest Rate Decision Affects Credit Cards, Loans and More**\
 `The Federal Reserve is widely expected to leave its benchmark rate untouched, but a December hike could make holiday borrowing more costly.`\
 https://www.nytimes.com/2026/10/28/business/economy/fed-interest-rates-credit-cards-loans.html
 
-**Trump’s Revived Push to Fire a Fed Governor Looms Over Warsh.**\
+**Trump’s Push to Fire Fed Governor Lisa Cook Looms Over Warsh**\
 `Lisa D. Cook, a Fed governor, is set to face an unorthodox, private hearing over allegations of mortgage fraud she has consistently denied.`\
-https://www.nytimes.com/2026/10/28/business/economy/trumps-revived-push-to-fire-a-fed-governor-looms-over-warsh.html
+https://www.nytimes.com/2026/10/28/business/economy/trump-lisa-cook-warsh.html
 
 **I Think I Know Why My Nephew Has Had So Many Problems in Life. Should I Tell Him?**\
 `My sister contracted rubella while pregnant with him, and he has struggled throughout his life.`\
@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-braz
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html
 
 **Dozens Dead After High-Speed Trains Collide in Spain**\
-`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 64 people, according to a spokesperson for the regional government.`\
+`A high-speed passenger train rear-ended another one near Toledo, Spain, on Wednesday morning, causing a derailment and killing at least 68 people, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
 
 **U.S. Restricts Trade With Chinese Genomics Company**\
