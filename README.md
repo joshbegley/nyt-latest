@@ -1,3 +1,7 @@
+**Dozens Dead After High-Speed Trains Collide in Spain**\
+`Two high-speed passenger trains collided, causing a derailment on Wednesday morning near Toledo, Spain, and killing at least 30 people, according to a spokesperson for the regional government.`\
+https://www.nytimes.com/video/world/europe/100000011241683/spain-train-crash-dead-madrid-toledo.html
+
 **U.S. Restricts Trade With Chinese Genomics Company**\
 `The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
 https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
@@ -154,7 +158,7 @@ https://www.nytimes.com/2026/10/28/us/south-carolina-florida-minnesota-poll.html
 `The “new” series, featuring the sitcom veteran Randall Park and “S.N.L.” newcomer Grace Reiter, exists in a more liminal TV space.`\
 https://www.nytimes.com/2026/10/28/arts/television/minimum-wage-review-netflix-youtube.html
 
-**How to Tax and Spend in a ‘Turbulent Time?’ U.K. Tries a Balancing Act.**\
+**How to Tax and Spend in a ‘Turbulent Time’? U.K. Tries a Balancing Act.**\
 `The new government, led by Andy Burnham, will deliver its first budget on Wednesday, a plan expected to tread between wide ambition and narrow financial limits.`\
 https://www.nytimes.com/2026/10/28/business/uk-budget-chancellor-healey.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/world/europe/russia-shukhov-radio-tower.html
 **AI Is Finding a Flood of Bugs, and Silicon Valley Is Rushing to Fix Them**\
 `A.I. has uncovered a horde of software flaws, which engineers are racing to fix before they can be exploited and abused by hackers.`\
 https://www.nytimes.com/2026/10/28/technology/silicon-valley-bugs-ai.html
-
-**How Small Interior Design Changes Can Refresh a Room**\
-`Beata Heuman, a London-based designer, updates the look of her family dining room.`\
-https://www.nytimes.com/2026/10/28/realestate/beata-heuman-interior-design-tweaks.html
 
