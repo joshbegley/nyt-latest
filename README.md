@@ -118,7 +118,7 @@ https://www.nytimes.com/interactive/2026/10/28/us/politics/midterm-elections-10t
 `Sacha Baron Cohen’s revival of his early 2000s persona is meant to speak to a polarized country, but the results are mixed.`\
 https://www.nytimes.com/2026/10/28/movies/ali-g-who-iz-i-review.html
 
-**Facing Waters ‘the Color of Chocolate,’ Mexico Declares War on Seaweed**\
+**The Ocean ‘Was the Color of Chocolate.’ Mexico Declares War on Seaweed.**\
 `To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
 https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
 
