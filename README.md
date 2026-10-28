@@ -1,3 +1,7 @@
+**Life Magazine, Chronicler of 20th Century America, Rises Again**\
+`The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
+https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
+
 **Investors Brace for Big Tech’s A.I. Spending Bill**\
 `Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-middle-east-
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
 
-**Live Updates: At Least 30 Killed in Train Crash in Spain, Officials Say**\
+**Live Updates: At Least 30 Killed in Train Crash in Spain, Official Says**\
 `One high-speed passenger train rear-ended another one near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
 https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/28/theater/i-became-we-review-mona-pirnot.html
 **‘On the Road’ Review: A Queer Romantic Thriller**\
 `A young outcast hitches a ride with an older, married trucker in this atmospherically charged drama that traverses northern Mexico.`\
 https://www.nytimes.com/2026/10/28/movies/on-the-road-review.html
-
-**Can We Make a Dent in the Housing Crisis? Two Projects Say Yes.**\
-`As the Mamdani administration, and cities across America, grapple with affordable housing, two handsome complexes in Queens and Brooklyn show signs of progress.`\
-https://www.nytimes.com/2026/10/28/arts/design/24mamdani-affordable-housing-new-york.html
 
