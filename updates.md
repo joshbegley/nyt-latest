@@ -1,3 +1,15 @@
+**Life Magazine, Chronicler of 20th Century America, Rises Again**\
+`The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
+https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
+
+**Live Updates: At Least 30 Killed in Train Crash in Spain, Official Says**\
+`One high-speed passenger train rear-ended another one near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
+**The Ocean ‘Was the Color of Chocolate.’ Mexico Declares War on Seaweed.**\
+`To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
+https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
+
 **Investors Brace for Big Tech’s A.I. Spending Bill**\
 `Tech stocks have rebounded before pivotal earnings reports from artificial intelligence hyperscalers like Google and Microsoft.`\
 https://www.nytimes.com/2026/10/28/business/dealbook/ai-spending-quarterly-results-amazon-microsoft.html
