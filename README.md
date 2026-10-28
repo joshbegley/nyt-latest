@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/10/27/science/space/new-dwarf-planet-beyond-pluto.h
 https://www.nytimes.com/2026/10/27/us/ted-bundy-cold-case-utah.html
 
 **No Clear Winner in the Israeli Elections, Exit Polls Show**\
-`Israeli exit polls showed on Tuesday that the opposition bloc, led by Gadi Eisenkot, held a slight lead over Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
+`Israeli exit polls showed early Wednesday that the opposition bloc, led by Gadi Eisenkot, was roughly even with Prime Minister Benjamin Netanyahu’s bloc, with neither winning a parliamentary majority.`\
 https://www.nytimes.com/video/world/middleeast/100000011239402/israel-election-netanyahu-eisenkot.html
 
 **Grand Jury Declines to Bring Charges Against Cassidy Hutchinson**\
