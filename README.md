@@ -1,3 +1,7 @@
+**Judge Questions Trump Administration’s Need to Target Noncitizen Voters**\
+`In the legal tangle between the Justice Department and California, a federal judge on Tuesday deferred a ruling but said the government already had a remedy it could use after the election.`\
+https://www.nytimes.com/2026/10/27/us/politics/california-ballots-noncitizens.html
+
 **Everything You Could Possibly Want to Know About El Niño**\
 `It’s the hot weather word of the year, but what does it actually mean? We’ve got answers to all the most pressing El Niño questions.`\
 https://www.nytimes.com/interactive/2026/10/27/science/earth/el-nino-climate-faq.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/10/27/us/politics/russia-fund-sanctions-trump.html
 **Political Satire Is an American Tradition. Deceptive A.I. Ads Are Not.**\
 `Despite how cringeworthy they are, political campaigns have spent $137 million on A.I.-generated ads for the midterms. And the lack of regulation on these ads is warping our sense of what’s real. The Opinion writer Rotimi Adeoye argues that while this kind of political satire falls under First Amendment protection, “you should be free to fake a politician, but you shouldn’t be free to hide the fact that you did.”`\
 https://www.nytimes.com/video/opinion/100000011237739/political-satire-is-an-american-tradition-deceptive-ai-ads-are-not.html
-
-**Canada’s Climate Policies Go on Trial**\
-`The case, La Rose v. His Majesty the King, is the first youth-led federal case in Canada to be heard.`\
-https://www.nytimes.com/2026/10/27/climate/canada-youth-climate-lawsuit.html
 
 **Live Updates: Exit Polls Suggest No Clear Winner in Pivotal Israeli Election**\
 `A bloc of parties led by the former military chief Gadi Eisenkot is trying to unseat Prime Minister Benjamin Netanyahu and his right-wing allies. Vote counting continues after a day of strong voter turnout.`\
