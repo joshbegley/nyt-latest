@@ -1,3 +1,7 @@
+**For Israel’s Arab Minority, a Historic Show of Strength**\
+`Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government in Tuesday’s election.`\
+https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
+
 **15-Minute Lesson Plan: Symmetry and Soccer Balls**\
 `What is “humanity’s favorite truncated icosahedron” and what can we learn from it?`\
 https://www.nytimes.com/2026/10/28/learning/15-minute-lesson-plan-symmetry-and-soccer-balls.html

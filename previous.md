@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/10/27/us/tennessee-brent-taylor.html
 `A regional coalition convened as part of a U.S. military effort to disrupt and combat drug traffickers that officials have compared to the campaign against the Islamic State and Al Qaeda.`\
 https://www.nytimes.com/2026/10/27/us/politics/us-military-cartels-caribbean.html
 
-**Arab Parties’ Strong Showing May Bring Role in Formation of Israel’s Next Government**\
-`Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government.`\
+**For Israel’s Arab Minority, a Historic Show of Strength**\
+`Voters supporting two leading Arab parties turned out in record numbers to voice their opposition to the Netanyahu government in Tuesday’s election.`\
 https://www.nytimes.com/2026/10/27/world/middleeast/israel-election-arab-parties.html
 
 **White House Has Tight Grip Over FBI in Pursuing Trump Targets, Agent Says**\
