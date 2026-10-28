@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/28/us/politics/russia-sanctions-relief-fund-trum
 `The Arab parties have long been kept on the political sidelines. But stunning turnout by their supporters makes the Arab minority an Israeli political reality that cannot be ignored.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-arab-parties.html
 
-**An Unpredictable President, a Grim White House: Trump Faces Down the Midterms**\
+**As Trump Faces Down the Midterms, a Grim Mood Takes Over the White House**\
 `The White House has been rocked by turnover and anxiety over the midterms. The president, who is tightening his inner circle, has lashed out at critics, held meandering rallies and feasted on a diet of news clips and “A.I. slop,” as one aide put it.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-midterms-white-house-mood.html
 
