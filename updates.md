@@ -1,3 +1,31 @@
+**2 Trains Collide in Spain, Killing at Least 10, Officials Say**\
+`One train was said to have rear-ended another, sending two carriages down an embankment.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-toledo.html
+
+**Is Running From Trump Enough to Save Republicans on Tuesday?**\
+`A look at candidates from President Trump’s party who are running on a platform of criticizing him.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-daily/collins-sununu-republican-midterms.html
+
+**Biden’s Antitrust Enforcers Are Starting an A.I. Legal Company**\
+`Jonathan Kanter and Doha Mekki, who led the Justice Department’s antitrust division under President Biden, have co-founded a start-up that makes an A.I. tool for litigators.`\
+https://www.nytimes.com/2026/10/28/business/dealbook/kanter-mekki-ai-startup-fluxcap.html
+
+**NYT Connections Answers for October 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/connections-companion-1236.html
+
+**Flávio Bolsonaro Flees Brazil for the U.S., and How ChatGPT Laid Out a Dangerous Medical Plan**\
+`Plus, robot-dog walkers wanted: $20 an hour.`\
+https://www.nytimes.com/2026/10/28/podcasts/the-headlines/bolsonaro-brazil-chatgpt-medical-plan.html
+
+**NYT Strands Hints for October 29, 2026.**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/strands-sidekick-970.html
+
+**Today’s Wordle Answers for October 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/28/crosswords/wordle-review-1958.html
+
 **New York City Marathon Weather Forecast: Warmer Temperatures Than Normal**\
 `Thousands of runners will take part in the New York City Marathon on Sunday. Temperatures are expected to be unusually warm for November.`\
 https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
