@@ -1,3 +1,11 @@
+**The High-Stakes Effort to Grasp the True Rate of Brain Disease in the N.F.L.**\
+`Using statistical techniques, a new study has arrived at a harrowing estimate: Three of four retired pro football players most likely had C.T.E. at death.`\
+https://www.nytimes.com/2026/10/28/science/brain-disease-cte-nfl-football.html
+
+**Democrats Eyeing 2028 Presidential Campaigns Begin Courting Donors and Operatives**\
+`As soon as the midterms are over, presidential contenders are going to need to raise millions, quickly.`\
+https://www.nytimes.com/2026/10/28/us/politics/2028-democrats.html
+
 **Weil Gotshal, a Legal Power Player, Is Fighting to Survive**\
 `The prominent law firm has been rocked by an exodus of high profile lawyers, a failed succession plan and a scuttled deal to merge with a rival firm.`\
 https://www.nytimes.com/2026/10/28/business/weil-gotshal-fighting-to-survive.html
