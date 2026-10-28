@@ -1,3 +1,7 @@
+**Flávio Bolsonaro Lands in Miami After Fleeing Brazil**\
+`Mr. Bolsonaro, who lost Sunday’s presidential election, fled Brazil for the United States via Argentina after the police canceled his passport in relation to an investigation.`\
+https://www.nytimes.com/2026/10/28/world/americas/flavio-bolsonaro-us-miami-brazil-trump.html
+
 **4 Takeaways From Israel’s Election**\
 `Votes are still being counted, and much is in flux. But as the stage was set for bitter talks over forming a government, nearly all sides could face disappointment.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-vote-results-takeaways.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/10/28/style/wedding-misbehavior-confrontation.html
 `The attacker, a minor, appeared to be a supporter of the Islamic State, the government said. Authorities have described it as a terrorist attack.`\
 https://www.nytimes.com/2026/10/28/world/europe/knife-wielding-attacker-fatally-shot-outside-israeli-embassy-in-serbia.html
 
-**Life Magazine, Chronicler of 20th Century America, Rises Again**\
+**Life Magazine, Chronicler of 20th-Century America, Rises Again**\
 `The iconic publication, acclaimed for its visual storytelling, will return as a print quarterly next month in a challenging business environment.`\
 https://www.nytimes.com/2026/10/28/business/media/life-magazine-karlie-kloss.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/28/realestate/idyllwild-calif-charlottesville-va
 **How Jim Morrison’s Unthinkable Loss Led Him to the Top of Mount Everest**\
 `Jim Morrison set a world record. Enduring love made it possible.`\
 https://www.nytimes.com/2026/10/28/podcasts/jim-morrison-mount-everest-family.html
-
-**Rare Wartime Dissent in Moscow Over Plans to Dismantle Russia’s ‘Eiffel Tower’**\
-`A state broadcaster says it cannot afford the restoration of a 1922 steel tower, prompting rare wartime dissent and a movement to save the Modernist masterpiece.`\
-https://www.nytimes.com/2026/10/28/world/europe/russia-shukhov-radio-tower.html
 
