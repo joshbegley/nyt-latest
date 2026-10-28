@@ -1,3 +1,7 @@
+**Dolores Huerta, Labor Leader, Dies at 96**\
+`Dolores Huerta, the civil rights activist who co-founded the United Farm Workers with Cesar Chavez, died on Wednesday at her home in Bakersfield, Calif. She was 96.`\
+https://www.nytimes.com/video/obituaries/100000011242438/dolores-huerta.html
+
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Make your life bigger, color stories and back-seat rock.`\
 https://www.nytimes.com/2026/10/28/briefing/the-good-list-houdini-colors.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/europe/tommy-robinson-harassment-verdic
 **Inside Democrats’ Secret Effort to Stack Alaska’s Midterm Ballot With Another Dan Sullivan**\
 `Operatives aligned with Mary Peltola, the Democratic nominee for Senate, spent months recruiting candidates to peel votes from Senator Dan Sullivan, the Republican.`\
 https://www.nytimes.com/2026/10/28/us/politics/alaska-dan-sullivan-conspiracy-peltola.html
-
-**Democrats Eyeing 2028 Presidential Campaigns Begin Courting Donors and Operatives**\
-`As soon as the midterms are over, presidential contenders are going to need to raise millions, quickly.`\
-https://www.nytimes.com/2026/10/28/us/politics/2028-democrats.html
 
 **Live Updates: In Tight Israeli Election, Leading Parties Face Tough Path to Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority. The close race sets the stage for weeks of negotiations over the next government.`\
