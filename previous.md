@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
+`Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-crosstabs.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
+`Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-crosstabs.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
+`Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-crosstabs.html
+
 **A.I. by the Numbers**\
 `Intro TK: minus “good morning”`\
 https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/28/opinion/nixon-watergate-vance-trump.html
 **Trump Administration Backs Down on an Opioid Ban After Kratom Industry Lobbying**\
 `Health officials will now allow some levels of a powerful substance to remain in products marketed as natural. The change could help a G.O.P. donor facing wrongful death lawsuits.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-opioid-kratom.html
-
-**The Special Ops Podcasts Changing the Narrative of the War on Terror**\
-`Veterans’ complaints about the rules of engagement have reached Pete Hegseth and a generation of new recruits.`\
-https://www.nytimes.com/2026/10/28/magazine/special-ops-podcasts-war-on-terror.html
-
-**Trump’s Beef Promise Backfires in Kansas**\
-`Why is President Trump campaigning in deep-red Kansas in the final stretch of the midterms? One reason is that voters here are angry that his promise to bring down the price of beef ended up costing Kansas cattle ranchers tens of thousands of dollars.`\
-https://www.nytimes.com/video/us/politics/100000011212387/trump-beef-kansas.html
-
-**How Audiences Scare Themselves at ‘Paranormal Activity’**\
-`Our chief theater critic, Helen Shaw, and our movie critic Alissa Wilkinson go to the set of “Paranormal Activity” to talk with an illusion designer about the fine art of scaring people.`\
-https://www.nytimes.com/video/theater/100000011211130/how-audiences-scare-themselves-at-paranormal-activity.html
 

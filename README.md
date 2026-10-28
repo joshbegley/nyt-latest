@@ -1,3 +1,15 @@
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
+`Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-toplines.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
+`Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-toplines.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
+`Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-toplines.html
+
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
 `Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
 https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-crosstabs.html
@@ -62,7 +74,7 @@ https://www.nytimes.com/2026/10/28/weather/nyc-marathon-weather-forecast.html
 `In Israel, supporters of Prime Minister Benjamin Netanyahu and Gadi Eisenkot stayed hopeful as exit polls suggested both sides were roughly even early Wednesday.`\
 https://www.nytimes.com/video/world/middleeast/100000011241500/israel-election-netanyahu-eisenkot.html
 
-**This ‘New Form of Casino’ Is Terrible for Teens**\
+**Is This the Gateway Drug for Gambling?**\
 `We actually can regulate prediction markets, and we should do it now.`\
 https://www.nytimes.com/2026/10/28/opinion/kalshi-teens-wager-sports.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/28/movies/closure-review.html
 **Book Review: ‘The Creativity Con,’ by Thomas Frank**\
 `In a new book, the culture critic Thomas Frank skewers pundits who promote novelty and ingenuity as a solution to our ills at the expense of working people.`\
 https://www.nytimes.com/2026/10/28/books/review/the-creativity-con-thomas-frank.html
-
-**One Race in Texas Has Become a Referendum on Bigotry in the G.O.P.**\
-`Bo French said the presence of Indian American students at a football game was a “problem.” His campaign for Railroad Commission tests whether these biased views are now mainstream.`\
-https://www.nytimes.com/2026/10/28/us/politics/bo-french-texas-railroad-commission-south-asian.html
-
-**The ‘Deep State’ Didn’t Take Nixon Down. Nixon Did.**\
-`We investigated Watergate. The former president and his henchmen got what they deserved.`\
-https://www.nytimes.com/2026/10/28/opinion/nixon-watergate-vance-trump.html
-
-**Trump Administration Backs Down on an Opioid Ban After Kratom Industry Lobbying**\
-`Health officials will now allow some levels of a powerful substance to remain in products marketed as natural. The change could help a G.O.P. donor facing wrongful death lawsuits.`\
-https://www.nytimes.com/2026/10/28/us/politics/trump-opioid-kratom.html
 

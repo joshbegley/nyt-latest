@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Florida**\
+`Results of a New York Times/Siena poll conducted among 813 voters from Oct. 19 to 25, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-fl-poll-crosstabs.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Minnesota**\
+`Results of a New York Times/Siena poll conducted among 752 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-mn-poll-crosstabs.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in South Carolina**\
+`Results of a New York Times/Siena poll conducted among 707 voters from Oct. 19 to 26, 2026.`\
+https://www.nytimes.com/interactive/2026/10/28/polls/times-siena-sc-poll-crosstabs.html
+
 **Russell Brand Tells Court Consent ‘Is More Important Than Sex’**\
 `The popular YouTuber is giving evidence in a London trial in which he has pleaded not guilty to seven charges of rape, sexual assault or attempted indecent assault.`\
 https://www.nytimes.com/2026/10/28/arts/russell-brand-trial-rape-sexual-assault.html
