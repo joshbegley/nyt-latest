@@ -1,3 +1,11 @@
+**A.I. by the Numbers**\
+`Plus, Israel’s election, Flávio Bolsonaro and a Gen Z cookbook.`\
+https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
+
+**Behind Italy’s Protests: Rising Prices and Sinking Hopes**\
+`Inspired in part by French demonstrations, protests in Italy by students in the north and truckers in the south could affect national elections next year.`\
+https://www.nytimes.com/2026/10/28/world/europe/italy-protests-students-truckers-meloni.html
+
 **U.S. Restricts Trade With Chinese Genomics Company**\
 `The move will block shipments from BGI, a major Chinese firm that U.S. officials allege is associated with forced labor and the abuse of minority groups.`\
 https://www.nytimes.com/2026/10/28/business/us-china-biotech-trade-ban.html
