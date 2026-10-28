@@ -1,3 +1,7 @@
+**Jimmy Kimmel Turns Trump Heckler’s Taunt Into a T-Shirt**\
+`Kimmel was inspired after the president’s “‘Tone-Deaf Comedy Jam’ got tripped up by a heckler.”`\
+https://www.nytimes.com/2026/10/28/arts/television/jimmy-kimmel-trump-heckler.html
+
 **Live Updates: No Clear Winner Yet in Israel’s Pivotal Election**\
 `Blocs led by Prime Minister Benjamin Netanyahu and his main challenger, Gadi Eisenkot, were roughly even as vote counting continued on Wednesday. It could take weeks to form the next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections

@@ -1,3 +1,7 @@
+**Jimmy Kimmel Turns Trump Heckler’s Taunt Into a T-Shirt**\
+`Kimmel was inspired after the president’s “‘Tone-Deaf Comedy Jam’ got tripped up by a heckler.”`\
+https://www.nytimes.com/2026/10/28/arts/television/jimmy-kimmel-trump-heckler.html
+
 **Live Updates: No Clear Winner Yet in Israel’s Pivotal Election**\
 `Blocs led by Prime Minister Benjamin Netanyahu and his main challenger, Gadi Eisenkot, were roughly even as vote counting continued on Wednesday. It could take weeks to form the next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/27/t-magazine/langers-deli-los-angeles.html
 **Justice Department Charges James Comey for the Third Time**\
 `Federal prosecutors have brought charges against James Comey, the former F.B.I. director, for the third time. He is accused of mishandling national security information in October 2016, according to court papers.`\
 https://www.nytimes.com/video/us/politics/100000011239350/james-comey-fbi-trump-indictment.html
-
-**European Leaders Split Over Phone Call to Putin**\
-`The diplomatic outreach was part of an effort to push talks to end the war in Ukraine, though it was not welcomed by all European leaders.`\
-https://www.nytimes.com/2026/10/27/world/europe/norway-finland-putin-call.html
 
 **Rivals in Israel Election Strike Tone of Triumph, but Outcome Is Far From Clear**\
 `Addressing supporters after midnight, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, who leads a bloc of opposition parties, both expressed confidence that they will lead Israel’s next government. Vote counting could take days.`\
