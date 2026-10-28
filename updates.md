@@ -1,3 +1,11 @@
+**Live Updates: At Least 30 Killed in Train Crash in Spain, Officials Say**\
+`One high-speed passenger train rear-ended another one near Toledo, months after a crash involving the same carriers killed dozens and stunned the country.`\
+https://www.nytimes.com/live/2026/10/28/world/spain-train-crash-toledo
+
+**Facing Waters ‘the Color of Chocolate,’ Mexico Declares War on Seaweed**\
+`To protect Mexico’s tourism-reliant economy, the Navy is fighting a massive sargassum bloom that dumps thousands of tons of seaweed onto Caribbean beaches daily.`\
+https://www.nytimes.com/2026/10/28/world/americas/mexico-seaweed-navy.html
+
 **A.I. by the Numbers**\
 `Intro TK: minus “good morning”`\
 https://www.nytimes.com/2026/10/28/briefing/ai-by-the-numbers.html
