@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
+`The state is the latest stop in President Trump’s breakneck campaign tour.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **Stacking Ballots**\
 `A tale of political intrigue from Alaska.`\
 https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.html
