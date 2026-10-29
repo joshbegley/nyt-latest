@@ -1,3 +1,11 @@
+**Hegseth Fires General He Accused of Leaking Information to the News Media**\
+`Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
+https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
+
+**Woman Charged With Hate Crimes in Stabbings of 2 Jewish Men in Manhattan**\
+`Anna Mochalova walked up to Jewish men in Midtown last week and attacked them with a needlelike object, according to federal prosecutors.`\
+https://www.nytimes.com/2026/10/29/nyregion/nyc-anti-semistism-midtown.html
+
 **The Choreographer Oona Doherty’s Haunted Belfast of Spirits and Dead Pigs**\
 `The Belfast choreographer Oona Doherty, who is interested in the kinetic effects of trauma, sets the story of an orphaned 10-year-old on Halloween.`\
 https://www.nytimes.com/2026/10/29/arts/dance/review-oona-doherty-specky-clark.html
