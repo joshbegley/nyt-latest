@@ -1,3 +1,7 @@
+**Europe Is on Edge, and It’s Not Going to End**\
+`The protests roiling the continent express feelings of generational futility.`\
+https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html
+
 **A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
 `A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
 https://www.nytimes.com/2026/10/29/world/europe/a-ukrainian-city-in-the-kill-zone-relishes-a-moment-of-peace.html
