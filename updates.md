@@ -1,3 +1,7 @@
+**Europe Is Aflame, and It’s Not Going to Stop**\
+`The protests roiling the continent express feelings of generational futility.`\
+https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html
+
 **India’s Media Giants Join Fight Against Upcoming Privacy Law**\
 `News organizations owned by two billionaires close to Prime Minister Narendra Modi say the legislation could make investigative reporting nearly impossible.`\
 https://www.nytimes.com/2026/10/29/world/asia/india-media-privacy-law.html
