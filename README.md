@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.h
 https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
 
 **Midterm Elections Live Updates: Calls for Investigation Ratchet Up Tension in Alaska Senate Race**\
-`Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces intense scrutiny after a New York Times report.`\
+`Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces scrutiny after a New York Times report.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 
 **Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
