@@ -1,3 +1,11 @@
+**Inflation Accelerated in October, PCE Index Shows**\
+`The Personal Consumption Expenditures index picked up in September, according to data released a day after the Federal Reserve’s decision to hold interest rates steady.`\
+https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
+
+**U.S. G.D.P. Increased in Third Quarter**\
+`Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter, federal data showed.`\
+https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
+
 **Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
 `Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
 https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
