@@ -1,3 +1,19 @@
+**Judge Orders Trump Officials to Outline Election Demands Sent to States**\
+`A federal judge gave the government until noon on Friday to share which states had received letters trying to enlist them in an effort to find evidence of voter fraud.`\
+https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
+
+**Americans Keep Spending**\
+`Also, Patrick Stewart dies at 86. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/29/briefing/us-gdp-patrick-stewart.html
+
+**Obama Doubles Down on ‘Cheesecake Factory’ Jab**\
+`Former President Barack Obama doubled down on his viral criticism of President Trump’s White House renovations. He used the moment to further critique the Trump administration’s priorities.`\
+https://www.nytimes.com/video/us/politics/100000011246519/obama-cheesecake-factory-trump.html
+
+**Patrick Stewart’s Many Roles, From ‘Star Trek’ to ‘Avengers: Doomsday’**\
+`The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
+https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
+
 **Court Blocks Strict New Rule for Medicaid Work Requirements**\
 `States had sued the Trump administration, arguing that a regulation would unlawfully cause very sick Americans to lose their coverage. A federal judge agreed.`\
 https://www.nytimes.com/2026/10/29/us/politics/medicaid-work-requirements-frailty.html
