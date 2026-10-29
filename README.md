@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/10/29/podcasts/the-daily/democrats-alaska-senate-mi
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
 https://www.nytimes.com/2026/10/29/crosswords/strands-sidekick-971.html
 
-**How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
+**How Netanyahu Used Fear, Again, to Win Votes in the Israel Elections**\
 `Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
 

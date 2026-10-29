@@ -1,3 +1,11 @@
+**The 2026 Holiday Gift Guide**\
+`From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
+https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
+
+**Poll Watch**\
+`In today’s Backstory, an election night dress rehearsal, surveillance towers at the border and A.I. in the newsroom.`\
+https://www.nytimes.com/2026/10/29/insider/backstory-polling-ai.html
+
 **Why Are We Having Less Sex? Ask a Pornographer.**\
 `Erika Lust wants to excite you.`\
 https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
