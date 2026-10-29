@@ -1,3 +1,7 @@
+**Trump Calls for Mary Peltola, Alaska Senate Candidate, to Be Prosecuted**\
+`The president lashed out at the former representative after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime was committed.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
+
 **Searching for Jobs, Gen Z Feels Like It’s Staring Into ‘the Void’**\
 `Hundreds of applications later, even being rejected by an actual human being counts as a victory.`\
 https://www.nytimes.com/interactive/2026/10/28/style/gen-z-job-market.html
