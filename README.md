@@ -1,3 +1,19 @@
+**Job Hunt Feelings**\
+`We look at how Gen Z feels about the job search.`\
+https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
+
+**Jacques Pépin’s Roast Chicken Recipe**\
+`It’s a classic method that yields excellent results.`\
+https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
+
+**‘Knicks in Five’ Feels Like a Long Time Ago**\
+`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
+https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
+
+**National Constitution Center Names New Leader**\
+`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
+https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
+
 **Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
 `Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
 https://www.nytimes.com/2026/10/29/technology/polymarket-kalshi-midterm-election-betting-wagers.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/29/pageoneplus/corrections-oct-29-2026.html
 **President Trump Was Briefed on a Chinese Spy Plot. He Took No Action.**\
 `Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
 https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
-
-**‘Sigma’ Is Only the Tip of an Inane Male-Hierarchy Iceberg**\
-`We can’t resist taxonomizing ourselves, can we?`\
-https://www.nytimes.com/2026/10/29/magazine/sigma-alpha-male-hierarchy.html
-
-**36 Hours in Buenos Aires: Things to Do and See**\
-`At once nostalgic and ever-changing, the Argentine capital remains unreservedly itself.`\
-https://www.nytimes.com/interactive/2026/10/29/travel/things-to-do-buenos-aires.html
-
-**In Marseille, Macron Confronts a Potent Mix of France’s Problems**\
-`France’s second city, five years into a presidential development plan, is grappling with the social strains that have fueled protests across the country.`\
-https://www.nytimes.com/2026/10/29/world/europe/france-marseille-macron-protests.html
-
-**A Clash Over Trans Women in Sports Erupts at a Pro Soccer Game**\
-`For protesters seeking a ban on transgender athletes in women’s sports, it made sense to protest near fans of the Portland Thorns, who are known for progressive politics.`\
-https://www.nytimes.com/2026/10/29/us/politics/portland-thorns-women-soccer-transgender.html
 

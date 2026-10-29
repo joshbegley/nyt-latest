@@ -1,3 +1,11 @@
+**Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
+`Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
+https://www.nytimes.com/2026/10/29/technology/polymarket-kalshi-midterm-election-betting-wagers.html
+
+**Midterm Elections Live Updates: Calls for Investigation Ratchet Up Tension in Alaska Senate Race**\
+`Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces intense scrutiny after a New York Times report.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **Search for Victims Continues After Train Crash in Spain**\
 `Rescuers in Spain on Thursday continued combing through the wreckage of a horrific train crash that killed at least 69 people when one high-speed train rear-ended another that was stopped on the same tracks.`\
 https://www.nytimes.com/video/world/europe/100000011244553/spain-train-crash.html

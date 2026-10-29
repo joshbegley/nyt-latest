@@ -1,3 +1,7 @@
+**Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
+`Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
+https://www.nytimes.com/2026/10/29/technology/polymarket-kalshi-midterm-election-betting-wagers.html
+
 **Search for Victims Continues After Train Crash in Spain**\
 `Rescuers in Spain on Thursday continued combing through the wreckage of a horrific train crash that killed at least 69 people when one high-speed train rear-ended another that was stopped on the same tracks.`\
 https://www.nytimes.com/video/world/europe/100000011244553/spain-train-crash.html
@@ -82,8 +86,8 @@ https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.h
 `John Lee, the city’s chief executive, said his housing secretary would step down, but he vehemently defended the government.`\
 https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
 
-**Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
-`The state is the latest stop in President Trump’s breakneck campaign tour.`\
+**Midterm Elections Live Updates: Calls for Investigation Ratchet Up Tension in Alaska Senate Race**\
+`Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces intense scrutiny after a New York Times report.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 
 **Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/world/europe/france-marseille-macron-protests
 **A Clash Over Trans Women in Sports Erupts at a Pro Soccer Game**\
 `For protesters seeking a ban on transgender athletes in women’s sports, it made sense to protest near fans of the Portland Thorns, who are known for progressive politics.`\
 https://www.nytimes.com/2026/10/29/us/politics/portland-thorns-women-soccer-transgender.html
-
-**Michigan Voters Split on Candidate Solutions to Data Center Proposals**\
-`In battleground Michigan, residents disagree on which candidate in a marquee House race has the better solution to a data center proposal.`\
-https://www.nytimes.com/2026/10/29/us/michigan-election-data-centers-voters.html
 
