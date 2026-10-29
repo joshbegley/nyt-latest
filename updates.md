@@ -1,3 +1,7 @@
+**See How Trump Is Putting His Mark on D.C., Shrugging Off Legal Challenges**\
+`This panorama of Washington shows the president’s growing imprint on the city.`\
+https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
+
 **Banana Splits, Party Omakase and More Ways to Stave Off the Winter Blues**\
 `Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
 https://www.nytimes.com/2026/10/29/dining/reader-questions.html

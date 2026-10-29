@@ -1,3 +1,7 @@
+**See How Trump Is Putting His Mark on D.C., Shrugging Off Legal Challenges**\
+`This panorama of Washington shows the president’s growing imprint on the city.`\
+https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
+
 **Trump Attacks Black and Jewish Supporters of El-Sayed as ‘Crazy’**\
 `The president’s attack line follows a similarly divisive campaign strategy from 2024, when Mr. Trump sought to drive a wedge between Jewish and Arab voters.`\
 https://www.nytimes.com/2026/10/29/us/elections/trump-jewish-arab-el-sayed-supporters.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/dining/bloody-beets-ghostly-cauliflower.html
 **Trump and His Aides Helped Bolsonaro Flee Brazil and Enter U.S.**\
 `President Trump ensured Flávio Bolsonaro, who lost a presidential election in Brazil and faces multiple criminal investigations there, could enter the United States, U.S. officials said.`\
 https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-us.html
-
-**Will Gov. Ned Lamont Win a Rare Third Term in Connecticut?**\
-`Ned Lamont, a Democrat, is seeking a third consecutive term, which would position him to become the state’s longest-serving governor.`\
-https://www.nytimes.com/2026/10/29/nyregion/ned-lamont-connecticut-governor-race.html
 
