@@ -1,3 +1,7 @@
+**Cruise Runs Out of Fuel Money, Stranding Passengers in Cambodia**\
+`A cruise ship called the Odyssey left 200 passengers stranded in Cambodia after it ran out money for fuel.`\
+https://www.nytimes.com/video/world/asia/100000011244082/villa-vie-odyssey-cruise-ship-cambodia.html
+
 **15-Minute Lesson Plan: Reporting on Teen Activism and A.I. Data Centers**\
 `Why are some Gen Z-ers organizing against them? How do Times reporters gather information about these activists?`\
 https://www.nytimes.com/2026/10/29/learning/15-minute-lesson-plan-reporting-on-teen-activism-and-ai-data-centers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/business/economy/fed-meetings-2027-interest-r
 **Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
 `Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
-
-**Spain Train Crash Kills at Least 68**\
-`The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
-https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
 
