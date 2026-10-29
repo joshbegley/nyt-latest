@@ -1,3 +1,7 @@
+**How Netanyahu Used Fear, Again, to Win Votes in the Israel Elections**\
+`Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
+
 **The 2026 Holiday Gift Guide**\
 `From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
 https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
