@@ -1,3 +1,7 @@
+**Five Takeaways From the New Hampshire Senate Debate**\
+`Representative Chris Pappas and former Senator John E. Sununu both stressed their willingness to buck their parties on occasion. Neither had kind words for President Trump.`\
+https://www.nytimes.com/2026/10/29/us/politics/pappas-sununu-new-hampshire-senate-debate.html
+
 **Europe Is on Edge, and It’s Not Going to End**\
 `The protests roiling the continent express feelings of generational futility.`\
 https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html

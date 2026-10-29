@@ -1,3 +1,7 @@
+**Five Takeaways From the New Hampshire Senate Debate**\
+`Representative Chris Pappas and former Senator John E. Sununu both stressed their willingness to buck their parties on occasion. Neither had kind words for President Trump.`\
+https://www.nytimes.com/2026/10/29/us/politics/pappas-sununu-new-hampshire-senate-debate.html
+
 **Europe Is on Edge, and It’s Not Going to End**\
 `The protests roiling the continent express feelings of generational futility.`\
 https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/28/business/economy/heres-the-latest.html
 **TikTok Is Making Politics a Little Better**\
 `Algorithms are making politicians focus more on positive messaging in short video.`\
 https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
-
-**Worried About A.I. Taking Your Job? This Is for You.**\
-`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
-https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
