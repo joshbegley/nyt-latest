@@ -1,3 +1,7 @@
+**A marathon runner’s hard lesson**\
+`Racing in Chicago showed your newsletter host firsthand how warming is disrupting the sport.`\
+https://www.nytimes.com/2026/10/29/climate/climate-marathon-running.html
+
 **State Dept. to Shift Millions in Contraception Funding to Cover Energy Costs**\
 `In a memo, the department told lawmakers it was redirecting up to $125 million in foreign aid, including nearly $49 million that Congress appropriated for family planning programs in low-income countries.`\
 https://www.nytimes.com/2026/10/29/us/politics/foreign-aid-divert-energy-contraceptives.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-vote
 **With No Clear Winner, How Could Israel Get a Prime Minister?**\
 `Deadlock is possible, as neither the bloc of Prime Minister Benjamin Netanyahu nor his main challenger appear likely to win a majority. But there are still paths to a new government.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html
-
-**After 28 Years Walking the Globe, Karl Bushby Is Almost Home**\
-`Karl Bushby has walked 31,000 miles, crossing some of the world’s harshest landscapes. He plans to reach his mother’s house in England next week.`\
-https://www.nytimes.com/2026/10/29/world/europe/karl-bushby-walking-globe-uk.html
 
