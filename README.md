@@ -1,3 +1,7 @@
+**Fire Breaks Out at South Carolina Nuclear Site**\
+`The fire at the Savannah River National Laboratory prompted officials to limit air traffic in the area. One person was hospitalized with minor injuries, officials said.`\
+https://www.nytimes.com/2026/10/28/us/nuclear-site-south-carolina-emergency.html
+
 **Vance Proposes Restarting Peace Talks in Outreach to Iranian Official**\
 `In his letter, the vice president suggested an immediate resumption of comprehensive talks, including about Iran’s nuclear program.`\
 https://www.nytimes.com/2026/10/28/us/politics/vance-peace-talks-letter-iran.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
 **Apple Unveils Its First Touch-Screen MacBook Pro**\
 `Steve Jobs and Tim Cook both dismissed the idea, but Apple’s new chief executive is reimagining some of the company’s most important products.`\
 https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.html
-
-**Spain Crash Survivor Describes a ‘Twisted Tangle of Metal’**\
-`Fernando Seco, 62, said he and others moved at least a dozen wounded passengers from the crash site, using parts of the wreckage as makeshift stretchers.`\
-https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
