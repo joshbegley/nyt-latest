@@ -1,3 +1,7 @@
+**Stacking Ballots**\
+`A tale of political intrigue from Alaska.`\
+https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.html
+
 **Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
 `John Lee, the city’s chief executive, said the city’s housing secretary would step down, but he vehemently defended the government.`\
 https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html

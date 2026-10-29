@@ -1,3 +1,7 @@
+**Stacking Ballots**\
+`A tale of political intrigue from Alaska.`\
+https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.html
+
 **Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
 `John Lee, the city’s chief executive, said the city’s housing secretary would step down, but he vehemently defended the government.`\
 https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/movies/apocalypse-z-new-world-review.html
 **Nvidia Chief, Jensen Huang, Is Seen as Target of Chinese Spy Plot**\
 `A Chinese businesswoman who had a close relationship with Jensen Huang was found to be passing intelligence to Beijing. President Trump was briefed and took no action.`\
 https://www.nytimes.com/2026/10/29/us/politics/nvidia-china-jensen-huang-trump.html
-
-**The Red States That Could Decide the Senate**\
-`Democrats need to flip four Republican-held Senate seats to regain the majority, but some of their targets are in states President Trump won by double digits in 2024. Our election data reporter Evan Reynolds explains just how difficult that might be.`\
-https://www.nytimes.com/video/us/elections/100000011223984/the-red-states-that-could-decide-the-senate.html
 
