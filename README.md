@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/10/29/dining/reader-questions.html
 `The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
 https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
 
-**Patrick Stewart, Captain Picard on ‘Star Trek: The Next Generation,’ Dies**\
+**Patrick Stewart, ‘Star Trek’ Captain and Professor X on ‘X-Men,’ Dies at 86**\
 `The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
 
