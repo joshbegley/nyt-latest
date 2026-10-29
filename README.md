@@ -1,5 +1,13 @@
+**Patrick Stewart Brought Elegance To ‘Star Trek’ as Jean-Luc Picard**\
+`Led by the Shakespearean veteran in his role as Jean-Luc Picard, “Star Trek: The Next Generation” gracefully went where the franchise had never gone before.`\
+https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-captain-picard-star-trek-the-next-generation.html
+
+**Oberlin College Professor and His Wife Are Murdered by His Son, Police Say**\
+`Pipo Nguyen-duy, 64, was the studio art chairman at the liberal arts college in Ohio and had been honored for his photography, including being named a Guggenheim fellow.`\
+https://www.nytimes.com/2026/10/29/us/oberlin-college-professor-murdered.html
+
 **Machado Says U.S. Plan for Venezuela Will Lead to Elections Next Year**\
-`On Thursday in Caracas, María Corina Machado, the Venezuelan opposition leader, gave her first news conference since returning to the country last week.`\
+`SUM: On Thursday in Caracas, María Corina Machado, the Venezuelan opposition leader, gave her first news conference since returning to the country on Sunday.`\
 https://www.nytimes.com/video/world/americas/100000011247322/maria-corina-machado-speech.html
 
 **Judge Orders Trump Officials to Outline Election Demands Sent to States**\
@@ -63,7 +71,7 @@ https://www.nytimes.com/2026/10/29/world/americas/machado-trump-venezuela-return
 https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
 
 **Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
-`Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
+`Amazon on Thursday became the latest tech company to to announce swelling investments in A.I. amid stumbling share prices.`\
 https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
 
 **Have Questions About the Midterm Elections? Ask Us Anything.**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/29/nyregion/ned-lamont-connecticut-governor-race
 **A Tale of Alaska, Peltola and the Two Dan Sullivans**\
 `Readers react to the Alaska controversy. Also: Punishing critics of President Trump; victories for democracy; help for farmers; a women’s health agenda.`\
 https://www.nytimes.com/2026/10/29/opinion/alaska-peltola-dan-sullivan.html
-
-**A Marathon Runner’s Hard Lesson**\
-`Racing in Chicago showed your newsletter host firsthand how warming is disrupting the sport.`\
-https://www.nytimes.com/2026/10/29/climate/climate-marathon-running.html
-
-**State Dept. to Shift Millions in Contraception Funding to Cover Energy Costs**\
-`In a memo, the department told lawmakers it was redirecting up to $125 million in foreign aid, including nearly $49 million that Congress appropriated for family planning programs in low-income countries.`\
-https://www.nytimes.com/2026/10/29/us/politics/foreign-aid-divert-energy-contraceptives.html
 
