@@ -1,3 +1,7 @@
+**Newly Freed American Describes His Years in Russian Prison**\
+`Stephen James Hubbard, the retired teacher arrested soon after Russia’s full-scale invasion of Ukraine in 2022, said he sometimes lost hope.`\
+https://www.nytimes.com/2026/10/29/world/europe/stephen-james-hubbard-russian-prison.html
+
 **Patrick Stewart: A Life in Pictures**\
 `The motley mix of roles that won the British actor acclaim include a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
 https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
 **U.S. and Cuban Officials Argue at United Nations**\
 `The Cuban delegation at the United Nations and Michael Waltz, the U.S. ambassador to the U.N., engaged in a shouting match.`\
 https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-argue-united-nations.html
-
-**California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
-`Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
-https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\

@@ -1,3 +1,11 @@
+**Patrick Stewart: A Life in Pictures**\
+`The motley mix of roles that won the British actor acclaim include a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
+https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
+
+**‘We’ve Seen This Movie’: Four Writers on What’s Next for Israel**\
+`A round table discussion decoding the election results.`\
+https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
+
 **What Israeli Election Results Reveal About the Electorate**\
 `Some groups stood by Prime Minister Benjamin Netanyahu’s party, but support fell off among others. Turnout was also a striking factor in the election.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/israel-voter-data-takeaways.html
