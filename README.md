@@ -1,3 +1,7 @@
+**Polymarket Is Investigating Suspicious Bets on Israeli Election**\
+`The company said it was looking into hundreds of new accounts that had placed wagers in two markets related to the election on Tuesday.`\
+https://www.nytimes.com/2026/10/29/business/polymarket-investigates-israeli-bets.html
+
 **Newly Freed American Describes His Years in Russian Prison**\
 `Stephen James Hubbard, the retired teacher arrested soon after Russia’s full-scale invasion of Ukraine in 2022, said he sometimes lost hope.`\
 https://www.nytimes.com/2026/10/29/world/europe/stephen-james-hubbard-russian-prison.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-s
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
-
-**U.S. and Cuban Officials Argue at United Nations**\
-`The Cuban delegation at the United Nations and Michael Waltz, the U.S. ambassador to the U.N., engaged in a shouting match.`\
-https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-argue-united-nations.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
