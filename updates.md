@@ -1,3 +1,23 @@
+**Trump and His Aides Helped Bolsonaro Flee Brazil and Enter U.S.**\
+`President Trump ensured Flávio Bolsonaro, who lost a presidential election in Brazil and faces multiple criminal investigations there, could enter the United States, U.S. officials said.`\
+https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-us.html
+
+**Will Gov. Ned Lamont Win a Rare Third Term in Connecticut?**\
+`Ned Lamont, a Democrat, is seeking a third consecutive term, which would position him to become the state’s longest-serving governor.`\
+https://www.nytimes.com/2026/10/29/nyregion/ned-lamont-connecticut-governor-race.html
+
+**A Tale of Alaska, Peltola and the Two Dan Sullivans**\
+`Readers react to the Alaska controversy. Also: Punishing critics of President Trump; victories for democracy; help for farmers; a women’s health agenda.`\
+https://www.nytimes.com/2026/10/29/opinion/alaska-peltola-dan-sullivan.html
+
+**A Marathon Runner’s Hard Lesson**\
+`Racing in Chicago showed your newsletter host firsthand how warming is disrupting the sport.`\
+https://www.nytimes.com/2026/10/29/climate/climate-marathon-running.html
+
+**2026 Midterm Election Ballot Measures: What Races We’re Watching**\
+`More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
+https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
+
 **A marathon runner’s hard lesson**\
 `Racing in Chicago showed your newsletter host firsthand how warming is disrupting the sport.`\
 https://www.nytimes.com/2026/10/29/climate/climate-marathon-running.html

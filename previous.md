@@ -1,4 +1,16 @@
-**A marathon runner’s hard lesson**\
+**Trump and His Aides Helped Bolsonaro Flee Brazil and Enter U.S.**\
+`President Trump ensured Flávio Bolsonaro, who lost a presidential election in Brazil and faces multiple criminal investigations there, could enter the United States, U.S. officials said.`\
+https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-us.html
+
+**Will Gov. Ned Lamont Win a Rare Third Term in Connecticut?**\
+`Ned Lamont, a Democrat, is seeking a third consecutive term, which would position him to become the state’s longest-serving governor.`\
+https://www.nytimes.com/2026/10/29/nyregion/ned-lamont-connecticut-governor-race.html
+
+**A Tale of Alaska, Peltola and the Two Dan Sullivans**\
+`Readers react to the Alaska controversy. Also: Punishing critics of President Trump; victories for democracy; help for farmers; a women’s health agenda.`\
+https://www.nytimes.com/2026/10/29/opinion/alaska-peltola-dan-sullivan.html
+
+**A Marathon Runner’s Hard Lesson**\
 `Racing in Chicago showed your newsletter host firsthand how warming is disrupting the sport.`\
 https://www.nytimes.com/2026/10/29/climate/climate-marathon-running.html
 
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/10/29/nyregion/bruce-blakeman-new-york-governor-rac
 `A Supreme Court decision and ethics opinions give judges room to speak their minds.`\
 https://www.nytimes.com/2026/10/29/us/politics/the-docket-trump-judges.html
 
-**From a Billionaires Tax to Abortion Rights, Voters Will Decide Policy**\
+**2026 Midterm Election Ballot Measures: What Races We’re Watching**\
 `More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
 https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
 
@@ -62,13 +74,13 @@ https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
 `It’s a classic method that yields excellent results.`\
 https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
 
-**‘Knicks in Five’ Feels Like a Long Time Ago**\
-`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
-https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
-
 **National Constitution Center Names New Leader**\
 `Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
 https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
+
+**‘Knicks in Five’ Feels Like a Long Time Ago**\
+`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
+https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
 
 **Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
 `Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/29/crosswords/wordle-review-1959.html
 **A Plan for Two Dans: How Democrats Manipulated Alaska’s Ballot**\
 `An investigation by The New York Times looked at how two people named Dan Sullivan ended up on the ballot for the Senate.`\
 https://www.nytimes.com/2026/10/29/podcasts/the-daily/democrats-alaska-senate-midterms-dan-sullivan.html
-
-**NYT Strands Hints for October 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
-https://www.nytimes.com/2026/10/29/crosswords/strands-sidekick-971.html
-
-**How Netanyahu Used Fear, Again, to Win Votes in the Israel Elections**\
-`Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
-https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
-
-**With No Clear Winner, How Could Israel Get a Prime Minister?**\
-`Deadlock is possible, as neither the bloc of Prime Minister Benjamin Netanyahu nor his main challenger appear likely to win a majority. But there are still paths to a new government.`\
-https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html
 
