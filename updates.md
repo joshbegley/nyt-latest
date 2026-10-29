@@ -1,3 +1,15 @@
+**Trump Erupted After Learning of Alina Habba’s $50 Million Deal**\
+`Angry about the scale of a contract signed by one of his former lawyers with the family of a wealthy pardon seeker, the president told allies he wanted some of the money to go to his future presidential library.`\
+https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.html
+
+**Court to Rule on Erin Patterson’s Appeal in Mushroom Murders Case**\
+`Erin Patterson was sentenced to life in prison for killing three people, including her in-laws, who fell ill and died after a lunch of beef Wellington in 2023.`\
+https://www.nytimes.com/2026/10/29/world/asia/mushroom-murder-case-sentencing-appeal-australia.html
+
+**Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
+`The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **See How Trump Is Putting His Mark on D.C., Shrugging Off Legal Challenges**\
 `This panorama of Washington shows the president’s growing imprint on the city.`\
 https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
