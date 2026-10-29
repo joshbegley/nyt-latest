@@ -1,3 +1,7 @@
+**In Her Final Months, Dolores Huerta Was Lauded for Revealing a Deep Secret**\
+`Ms. Huerta, a champion for workers and Latinos, revealed this year that she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
+https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
+
 **Judge Rejects Trump Officials’ Bid to Set Aside California Ballots**\
 `The judge ruled that no immediate action was necessary, dealing another setback to the administration as it moves to target voting by noncitizens.`\
 https://www.nytimes.com/2026/10/28/us/politics/california-noncitizen-voters-trump.html
