@@ -1,3 +1,7 @@
+**Intel’s Shares Plunge 20% as A.I. Hinders Some Parts of Its Business**\
+`The chipmaker, whose largest investor is the U.S. government, reported that the A.I. boom’s domino effect had hurt sales to personal computer makers.`\
+https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
+
 **Bostonians Compete to Be Their Airport’s New Voice**\
 `By Christmas, the winning voice will echo through Boston Logan International in recorded greetings and announcements that millions of travelers will hear.`\
 https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-
 **Szilveszter Makó Has Shot Every Magazine Cover You’ve Seen Lately**\
 `(Or at least that’s what it seems like.)`\
 https://www.nytimes.com/2026/10/29/style/szilveszter-mako-fashion-photography.html
-
-**The Rise of American Chenin Blanc**\
-`More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape. Here are 10 bottles to explore.`\
-https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
 
