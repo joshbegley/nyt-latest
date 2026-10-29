@@ -1,3 +1,11 @@
+**How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
+`Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
+
+**With No Clear Winner, How Could Israel Get a Prime Minister?**\
+`Deadlock is possible, as neither the bloc of Prime Minister Benjamin Netanyahu nor his main challenger appear likely to win a majority. But there are still paths to a new government.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html
+
 **After 28 Years Walking the Globe, Karl Bushby Is Almost Home**\
 `Karl Bushby has walked 31,000 miles, crossing some of the world’s harshest landscapes. He plans to reach his mother’s house in England next week.`\
 https://www.nytimes.com/2026/10/29/world/europe/karl-bushby-walking-globe-uk.html

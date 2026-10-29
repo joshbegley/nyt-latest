@@ -1,3 +1,11 @@
+**How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
+`Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
+
+**With No Clear Winner, How Could Israel Get a Prime Minister?**\
+`Deadlock is possible, as neither the bloc of Prime Minister Benjamin Netanyahu nor his main challenger appear likely to win a majority. But there are still paths to a new government.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html
+
 **After 28 Years Walking the Globe, Karl Bushby Is Almost Home**\
 `Karl Bushby has walked 31,000 miles, crossing some of the world’s harshest landscapes. He plans to reach his mother’s house in England next week.`\
 https://www.nytimes.com/2026/10/29/world/europe/karl-bushby-walking-globe-uk.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
 **A New Georgia O’Keeffe Exhibit Shows a World Beyond Flowers**\
 `A rare display of the artist’s architectural paintings from three distinct locations are on view at the Detroit Institute of Arts.`\
 https://www.nytimes.com/2026/10/29/arts/design/museums-georgia-okeeffe-architecture-detroit.html
-
-**Can Influencers Help Pass the Billionaire Tax?**\
-`Laurel Rosenhall, one of our California reporters, describes how proponents of a tax on billionaires are countering their opponents’ enormous TV ad spending by spending small amounts on influencers.`\
-https://www.nytimes.com/video/us/elections/100000011194403/can-influencers-help-pass-the-billionaire-tax.html
-
-**19 New Books to Read in November: Bob Woodward, LeVar Burton, Annie Proulx and More**\
-`Fiction by Annie Proulx and Solvej Balle; memoirs by Joe Biden, Dustin Hoffman and LeVar Burton; a long-buried Don DeLillo hockey romance; and more.`\
-https://www.nytimes.com/2026/10/29/books/new-books-november.html
 

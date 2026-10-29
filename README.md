@@ -1,3 +1,23 @@
+**NYT Connections Answers for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
+
+**At Least 68 Killed in Spain Train Crash, and Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+`Plus, the legacy of Dolores Huerta.`\
+https://www.nytimes.com/2026/10/29/podcasts/the-headlines/spain-train-crash-alaska-ballot.html
+
+**Today’s Wordle Hints for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/wordle-review-1959.html
+
+**A Plan for Two Dans: How Democrats Manipulated Alaska’s Ballot**\
+`An investigation by The New York Times looked at how two people named Dan Sullivan ended up on the ballot for the Senate.`\
+https://www.nytimes.com/2026/10/29/podcasts/the-daily/democrats-alaska-senate-midterms-dan-sullivan.html
+
+**NYT Strands Hints for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/strands-sidekick-971.html
+
 **How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
 `Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/10/29/us/elections/idaho-state-gun-referendum.html
 **Interior Designers Brace for Higher Prices as California Weighs Quartz Ban**\
 `Many designers won’t miss working with quartz, but they expect an adjustment period as the industry finds replacement materials.`\
 https://www.nytimes.com/2026/10/29/realestate/quartz-ban-interior-designer-reaction-prices.html
-
-**Ilhan Omar Investigation Involves New Scrutiny of Long-Disputed Marriage**\
-`Several current and former law enforcement officials said an Obama-era investigation found some evidence that Ms. Omar had entered into a sham marriage with a man who may have been her brother.`\
-https://www.nytimes.com/2026/10/29/us/immigration-fraud-claims-ilhan-omar.html
-
-**Gen Z Is Shouting Into the Job ‘Void’**\
-`A.I. has upended the job hunt to make it more impersonal and robotic than ever before. Our reporter Callie Holtermann explores how Gen Z is finding it rare to talk to a human.`\
-https://www.nytimes.com/video/style/100000011213997/gen-z-is-shouting-into-the-job-void.html
-
-**How IShowSpeed Became the Most Influential Streamer in the World**\
-`Livestreaming is unstoppably ascendant — and often boring. IShowSpeed became the king of the form by bringing his act into the real world.`\
-https://www.nytimes.com/2026/10/29/magazine/ishowspeed-america-tour-livestream.html
-
-**Mike Beigel, Whose Devices Shaped the Sound of the 70s, Has Died**\
-`Have a listen. He’s responsible for a funky texture in the 1970s that defined hit songs by Stevie Wonder, the Grateful Dead and many others.`\
-https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
-
-**A New Georgia O’Keeffe Exhibit Shows a World Beyond Flowers**\
-`A rare display of the artist’s architectural paintings from three distinct locations are on view at the Detroit Institute of Arts.`\
-https://www.nytimes.com/2026/10/29/arts/design/museums-georgia-okeeffe-architecture-detroit.html
 
