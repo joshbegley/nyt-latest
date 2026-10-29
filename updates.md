@@ -1,3 +1,7 @@
+**Court Blocks Strict New Rule for Medicaid Work Requirements**\
+`States had sued the Trump administration, arguing that a regulation would unlawfully cause very sick Americans to lose their coverage. A federal judge agreed.`\
+https://www.nytimes.com/2026/10/29/us/politics/medicaid-work-requirements-frailty.html
+
 **Trump Calls Black and Jewish El-Sayed Supporters ‘Crazy’**\
 `President Trump insulted Black and Jewish supporters of Michigan Senate candidate Dr. Abdul El-Sayed during a rally in South Carolina on Thursday.`\
 https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-supporters-crazy.html

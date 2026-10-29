@@ -1,3 +1,15 @@
+**Judge Orders Trump Officials to Outline Election Demands Sent to States**\
+`A federal judge gave the government until noon on Friday to share which states had received letters trying to enlist them in an effort to find evidence of voter fraud.`\
+https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
+
+**Americans Keep Spending**\
+`Also, Patrick Stewart dies at 86. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/10/29/briefing/us-gdp-patrick-stewart.html
+
+**Obama Doubles Down on ‘Cheesecake Factory’ Jab**\
+`Former President Barack Obama doubled down on his viral criticism of President Trump’s White House renovations. He used the moment to further critique the Trump administration’s priorities.`\
+https://www.nytimes.com/video/us/politics/100000011246519/obama-cheesecake-factory-trump.html
+
 **Court Blocks Strict New Rule for Medicaid Work Requirements**\
 `States had sued the Trump administration, arguing that a regulation would unlawfully cause very sick Americans to lose their coverage. A federal judge agreed.`\
 https://www.nytimes.com/2026/10/29/us/politics/medicaid-work-requirements-frailty.html
@@ -86,7 +98,7 @@ https://www.nytimes.com/2026/10/29/us/jimmy-gomez-polling-california-house.html
 `Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
 https://www.nytimes.com/2026/10/29/dining/reader-questions.html
 
-**7 Memorable Patrick Stewart Performances**\
+**Patrick Stewart’s Many Roles, From ‘Star Trek’ to ‘Avengers: Doomsday’**\
 `The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
 https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
 
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/29/us/politics/foreign-aid-divert-energy-contrac
 **A ‘Supergirl’ Actress Writes the Children’s Book She Wished for as a Kid**\
 `Azie Tesfai, the Eritrean and Ethiopian actor, was inspired by her childhood and her time on set to write “You’re a Superhero!”`\
 https://www.nytimes.com/2026/10/29/arts/television/azie-tesfai-supergirl-graphic-novel-superhero.html
-
-**What Teenagers Are Saying About the Creepiest Places They’ve Been**\
-`Students share stories of haunted homes, darkened woods and abandoned estates, and reflect on why we crave the rush of terror.`\
-https://www.nytimes.com/2026/10/29/learning/what-teenagers-are-saying-about-the-creepiest-places-theyve-been.html
-
-**Bruce Blakeman Wants to Save New York from ‘Rampant’ Crime. Will it Resonate with Voters?**\
-`Bruce Blakeman is good friends with President Trump, an ex-husband to a Beatle’s wife and a Republican power player on Long Island. Now he wants to be governor.`\
-https://www.nytimes.com/2026/10/29/nyregion/bruce-blakeman-new-york-governor-race.html
-
-**Trump Wants to Kick ‘Rogue Activist Judges’ Off Cases. Can He?**\
-`A Supreme Court decision and ethics opinions give judges room to speak their minds.`\
-https://www.nytimes.com/2026/10/29/us/politics/the-docket-trump-judges.html
 
