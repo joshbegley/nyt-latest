@@ -1,3 +1,11 @@
+**What Israeli Election Results Reveal About the Electorate**\
+`Some groups stood by Prime Minister Benjamin Netanyahu’s party, but support fell off among others. Turnout was also a striking factor in the election.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/israel-voter-data-takeaways.html
+
+**No Clear Winner in Israel Election, Final Results Show**\
+`Prime Minister Benjamin Netanyahu’s party and its allies won 53 seats in Parliament, falling short of the outright majority needed to form a government. The main opposition bloc, led by Gadi Eisenkot, won 48.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-results-netanyahu-eisenkot.html
+
 **Fallout in Alaska Senate Race Over Peltola’s Ballot Stacking Plot**\
 `Both sides have a long tradition of promoting spoiler candidates.`\
 https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-trump.html
