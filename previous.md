@@ -1,3 +1,7 @@
+**The Choreographer Oona Doherty’s Haunted Belfast of Spirits and Dead Pigs**\
+`The Belfast choreographer Oona Doherty, who is interested in the kinetic effects of trauma, sets the story of an orphaned 10-year-old on Halloween.`\
+https://www.nytimes.com/2026/10/29/arts/dance/review-oona-doherty-specky-clark.html
+
 **Bloody Beets, Ghostly Cauliflower**\
 `Another round of vegetables that our readers hated — and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/29/dining/bloody-beets-ghostly-cauliflower.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
 `It’s a classic method that yields excellent results.`\
 https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
 
-**National Constitution Center Names New Leader**\
-`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
-https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
-
 **‘Knicks in Five’ Feels Like a Long Time Ago**\
 `Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
 https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
+
+**National Constitution Center Names New Leader**\
+`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
+https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
 
 **Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
 `Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
 **At Least 68 Killed in Spain Train Crash, and Democrats’ Secret Effort to Stack Alaska’s Ballot**\
 `Plus, the legacy of Dolores Huerta.`\
 https://www.nytimes.com/2026/10/29/podcasts/the-headlines/spain-train-crash-alaska-ballot.html
-
-**Today’s Wordle Hints for October 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
-https://www.nytimes.com/2026/10/29/crosswords/wordle-review-1959.html
 

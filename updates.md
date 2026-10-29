@@ -1,3 +1,7 @@
+**The Choreographer Oona Doherty’s Haunted Belfast of Spirits and Dead Pigs**\
+`The Belfast choreographer Oona Doherty, who is interested in the kinetic effects of trauma, sets the story of an orphaned 10-year-old on Halloween.`\
+https://www.nytimes.com/2026/10/29/arts/dance/review-oona-doherty-specky-clark.html
+
 **Bloody Beets, Ghostly Cauliflower**\
 `Another round of vegetables that our readers hated — and the recipes that changed their minds.`\
 https://www.nytimes.com/2026/10/29/dining/bloody-beets-ghostly-cauliflower.html
