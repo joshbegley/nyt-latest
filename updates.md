@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 29, 2026**\
+`Let’s, uh, solve Sam Ezersky’s puzzle.`\
+https://www.nytimes.com/2026/10/28/crosswords/daily-puzzle-2026-10-29.html
+
+**‘The Lowdown’ Season 2 Episode 4 Recap: The Milk of Human Unkindness**\
+`This week Lee makes a new enemy and a bad dietary decision.`\
+https://www.nytimes.com/2026/10/28/arts/television/the-lowdown-season-2-episode-4-recap-the-milk-of-human-unkindness.html
+
 **In Her Final Months, Dolores Huerta Was Lauded for Revealing a Deep Secret**\
 `Ms. Huerta, a champion for workers and Latinos, revealed this year that she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html

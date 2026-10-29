@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Oct. 29, 2026**\
+`Let’s, uh, solve Sam Ezersky’s puzzle.`\
+https://www.nytimes.com/2026/10/28/crosswords/daily-puzzle-2026-10-29.html
+
+**‘The Lowdown’ Season 2 Episode 4 Recap: The Milk of Human Unkindness**\
+`This week Lee makes a new enemy and a bad dietary decision.`\
+https://www.nytimes.com/2026/10/28/arts/television/the-lowdown-season-2-episode-4-recap-the-milk-of-human-unkindness.html
+
 **Judge Rejects Trump Officials’ Bid to Set Aside California Ballots**\
 `The judge ruled that no immediate action was necessary, dealing another setback to the administration as it moves to target voting by noncitizens.`\
 https://www.nytimes.com/2026/10/28/us/politics/california-noncitizen-voters-trump.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
 **System to Report Campaign Donations Restored After a Hacking Attempt**\
 `A “bad actor” tried to breach the system, according to a Federal Election Commission email, disrupting political finance disclosures for two days during the final week of campaigning.`\
 https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
-
-**RFK Jr. to Allow Broad Use of Unapproved Peptide Injections**\
-`In a unilateral declaration by the health secretary, several injections promoted by online influencers will become widely available. The F.D.A. had advised against the move.`\
-https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
-
-**How to Create Fairer Election Districts**\
-`Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
-https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
