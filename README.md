@@ -1,3 +1,11 @@
+**Milwaukee Brewers Win First World Series in Franchise History**\
+`Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
+https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
+
+**China Is Not Happy About Fan-made A.I. Videos of Sun Wukong and Lin Daiyu**\
+`Mash-up videos of beloved characters from Chinese classics — some made with A.I. — have caught the attention of the authorities.`\
+https://www.nytimes.com/2026/10/29/world/asia/china-ai-videos-sun-wukong-lin-daiyu.html
+
 **A Rare Quiet Settles Over Kherson During Local Cease-Fire**\
 `A local cease-fire brought a rare moment of calm to the Ukrainian-controlled city of Kherson, where Russian drones have long terrorized civilians.`\
 https://www.nytimes.com/video/world/europe/100000011244234/ukraine-kherson-cease-fire.html
@@ -146,13 +154,13 @@ https://www.nytimes.com/2026/10/29/books/review/widow-van-gogh-joan-martelli.htm
 `An advisory referendum will give Idahoans a choice of six weapons to make their state gun, though none of them are exactly linked to their state.`\
 https://www.nytimes.com/2026/10/29/us/elections/idaho-state-gun-referendum.html
 
-**Ilhan Omar Investigation Involves New Scrutiny of Long-Disputed Marriage**\
-`Several current and former law enforcement officials said an Obama-era investigation found some evidence that Ms. Omar had entered into a sham marriage with a man who may have been her brother.`\
-https://www.nytimes.com/2026/10/29/us/immigration-fraud-claims-ilhan-omar.html
-
 **Interior Designers Brace for Higher Prices as California Weighs Quartz Ban**\
 `Many designers won’t miss working with quartz, but they expect an adjustment period as the industry finds replacement materials.`\
 https://www.nytimes.com/2026/10/29/realestate/quartz-ban-interior-designer-reaction-prices.html
+
+**Ilhan Omar Investigation Involves New Scrutiny of Long-Disputed Marriage**\
+`Several current and former law enforcement officials said an Obama-era investigation found some evidence that Ms. Omar had entered into a sham marriage with a man who may have been her brother.`\
+https://www.nytimes.com/2026/10/29/us/immigration-fraud-claims-ilhan-omar.html
 
 **Gen Z Is Shouting Into the Job ‘Void’**\
 `A.I. has upended the job hunt to make it more impersonal and robotic than ever before. Our reporter Callie Holtermann explores how Gen Z is finding it rare to talk to a human.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/learning/word-of-the-day-obviate.html
 **Three Stone Age Caves Reveal Continual Cannibalism**\
 `A tour of the three caves in southern Spain reveals that people in the area cannibalized one another as funerary practice over many generations.`\
 https://www.nytimes.com/2026/10/29/science/stone-age-cannibal-caves-of-spain.html
-
-**How to Land a $30 Million Viola? Find a Matchmaker With Deep Pockets.**\
-`Whether through open-ended loans or “musical mortgages,” philanthropists and investors are helping get the best instruments into talented musicians’ hands.`\
-https://www.nytimes.com/2026/10/29/arts/music/stretton-society-instruments-philanthropy.html
-
-**R.L. Stine Haunted My Childhood**\
-`An anxious middle-schooler moved next door to the man who wrote horror for kids. Were those ghosts floating from his chimney?`\
-https://www.nytimes.com/2026/10/29/style/goosebumps-author-rl-stine-neighbor.html
 
