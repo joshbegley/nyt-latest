@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-tru
 `Angry about the scale of a contract signed by one of his former lawyers with the family of a wealthy pardon seeker, the president told allies he wanted some of the money to go to his future presidential library.`\
 https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.html
 
-**See How Trump Is Putting His Mark on D.C., Shrugging Off Legal Challenges**\
+**A 360° Tour of Trump’s D.C. Makeover**\
 `This panorama of Washington shows the president’s growing imprint on the city.`\
 https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
 
