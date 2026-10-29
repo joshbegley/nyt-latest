@@ -15,7 +15,7 @@ https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
 https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
 
 **U.S. GDP Increased 3.4% in Third Quarter**\
-`Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter. The economy grew 3.4 percent, the fastest pace in a year.`\
+`The economy grew 3.4 percent in the third quarter, the fastest pace in a year, as consumers kept spending despite high prices.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 
 **Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
