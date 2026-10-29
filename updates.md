@@ -1,3 +1,7 @@
+**Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
+`After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
+https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
+
 **Christine Lagarde to Step Down as President of European Central Bank**\
 `Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
 https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html

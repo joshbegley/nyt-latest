@@ -1,3 +1,7 @@
+**Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
+`After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
+https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
+
 **Christine Lagarde to Step Down as President of European Central Bank**\
 `Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
 https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/books/review/levar-burton-take-my-word-for-it
 **Book Review: ‘The Widow van Gogh,’ by Joan Martelli**\
 `Were it not for the artist’s sister-in-law, Johanna van Gogh-Bonger, a new biography argues, the world might not have encountered his extraordinary work.`\
 https://www.nytimes.com/2026/10/29/books/review/widow-van-gogh-joan-martelli.html
-
-**Idaho Voters Will Pick Their State Gun on Tuesday**\
-`An advisory referendum will give Idahoans a choice of six weapons to make their state gun, though none of them are exactly linked to their state.`\
-https://www.nytimes.com/2026/10/29/us/elections/idaho-state-gun-referendum.html
 

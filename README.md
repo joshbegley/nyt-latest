@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-
 `Corrections that appeared in print on Thursday, Oct. 29, 2026.`\
 https://www.nytimes.com/2026/10/29/pageoneplus/corrections-oct-29-2026.html
 
-**President Trump was Briefed on a Chinese Spy Plot. He Took No Action.**\
+**President Trump Was Briefed on a Chinese Spy Plot. He Took No Action.**\
 `Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
 https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
 
