@@ -1,3 +1,7 @@
+**Search for Victims Continues After Train Crash in Spain**\
+`Rescuers in Spain on Thursday continued combing through the wreckage of a horrific train crash that killed at least 69 people when one high-speed train rear-ended another that was stopped on the same tracks.`\
+https://www.nytimes.com/video/world/europe/100000011244553/spain-train-crash.html
+
 **Broadway’s ‘A Few Good Men,’ Performed Live in the Office**\
 `Watch Bradley Whitford and three other actors from the Broadway revival of Aaron Sorkin’s classic courtroom drama argue in an office at the New York Times Building.`\
 https://www.nytimes.com/2026/10/29/t-magazine/a-few-good-men-broadway-live.html
