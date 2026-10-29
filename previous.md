@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Reporting on Teen Activism and A.I. Data Centers**\
+`Why are some Gen Z-ers organizing against them? How do Times reporters gather information about these activists?`\
+https://www.nytimes.com/2026/10/29/learning/15-minute-lesson-plan-reporting-on-teen-activism-and-ai-data-centers.html
+
 **At NYC Marathon, Cowbells Are a Signature Sound. But Why?**\
 `Screaming fans and clanging cowbells have become the soundtrack to the New York City Marathon and to sporting events around the world.`\
 https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-race-cowbell.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-
 **Spain Train Crash Kills at Least 68**\
 `The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
-
-**Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
-`Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
-https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
 

@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Reporting on Teen Activism and A.I. Data Centers**\
+`Why are some Gen Z-ers organizing against them? How do Times reporters gather information about these activists?`\
+https://www.nytimes.com/2026/10/29/learning/15-minute-lesson-plan-reporting-on-teen-activism-and-ai-data-centers.html
+
 **A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
 `A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
 https://www.nytimes.com/2026/10/29/world/europe/ukraine-kherson-respite.html
