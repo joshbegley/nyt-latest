@@ -1,3 +1,11 @@
+**U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
+`The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
+
+**Lucien Smith’s Last Paintings Reclaim His Dazzling First Act**\
+`The artist, who died at 37, had largely retreated from the art world after skyrocketing early success. A final body of work is an exorcism of sorts.`\
+https://www.nytimes.com/2026/10/29/arts/design/lucien-smith-final-paintings.html
+
 **Job Hunt Feelings**\
 `We look at how Gen Z feels about the job search.`\
 https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/upshot/midterm-elections-senate-house-scenari
 **Can Porn Ever Be Ethical?**\
 `Erika Lust wants to excite you.`\
 https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
-
-**Corrections: Oct. 29, 2026**\
-`Corrections that appeared in print on Thursday, Oct. 29, 2026.`\
-https://www.nytimes.com/2026/10/29/pageoneplus/corrections-oct-29-2026.html
-
-**President Trump Was Briefed on a Chinese Spy Plot. He Took No Action.**\
-`Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
-https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
 
