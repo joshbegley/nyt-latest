@@ -1,3 +1,7 @@
+**When Steve Kerr Met His Doppelgänger**\
+`Pablo unites the Warriors head coach with a look-alike on a Halloween edition of Share & Tell.`\
+https://www.nytimes.com/2026/10/29/podcasts/steve-kerr-warriors-head-coach-doppelganger.html
+
 **Milwaukee Brewers Win First World Series in Franchise History**\
 `Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
 https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/books/new-books-november.html
 **Word of the Day: obviate**\
 `This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/29/learning/word-of-the-day-obviate.html
-
-**Three Stone Age Caves Reveal Continual Cannibalism**\
-`A tour of the three caves in southern Spain reveals that people in the area cannibalized one another as funerary practice over many generations.`\
-https://www.nytimes.com/2026/10/29/science/stone-age-cannibal-caves-of-spain.html
 
