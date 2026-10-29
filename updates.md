@@ -1,4 +1,8 @@
 **U.S. GDP Increased 3.4% in Third Quarter**\
+`The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks that many voters are giving the economy.`\
+https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
+
+**U.S. GDP Increased 3.4% in Third Quarter**\
 `The economy grew 3.4 percent in the third quarter, the fastest pace in a year, as consumers kept spending despite high prices.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 
