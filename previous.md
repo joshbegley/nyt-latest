@@ -1,5 +1,5 @@
-**Christine Lagarde to Step Down as Chief of European Central Bank**\
-`Her departure, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
+**Christine Lagarde to Step Down as President of European Central Bank**\
+`Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
 https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
 
 **NYT Connections Answers for October 30, 2026**\
@@ -75,7 +75,7 @@ https://www.nytimes.com/interactive/2026/10/29/well/sugar-health-quiz-halloween-
 https://www.nytimes.com/2026/10/29/upshot/midterm-elections-senate-house-scenarios.html
 
 **Can Porn Ever Be Ethical?**\
-`A pornographer and conservative Catholic discuss sex and pleasure.`\
+`Erika Lust wants to excite you.`\
 https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
 
 **Corrections: Oct. 29, 2026**\

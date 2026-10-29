@@ -1,3 +1,11 @@
+**Christine Lagarde to Step Down as President of European Central Bank**\
+`Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
+https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
+
+**Can Porn Ever Be Ethical?**\
+`Erika Lust wants to excite you.`\
+https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
+
 **Christine Lagarde to Step Down as Chief of European Central Bank**\
 `Her departure, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
 https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
