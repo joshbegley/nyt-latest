@@ -1,3 +1,11 @@
+**Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
+`Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
+https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
+
+**Its Investors Say Kalshi Is Worth $40 Billion. Is an I.P.O. Next?**\
+`The prediction market raised $1 billion in a new funding round and landed a market value almost double that of rival Polymarket. But legal challenges to its business persist.`\
+https://www.nytimes.com/2026/10/29/business/dealbook/kalshi-fundraising-ipo.html
+
 **Is It Time to End Daylight Saving Time?**\
 `Do you look forward to falling back an hour every fall and springing forward an hour each spring?`\
 https://www.nytimes.com/2026/10/29/learning/is-it-time-to-end-daylight-saving-time.html
