@@ -1,3 +1,7 @@
+**A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
+`A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
+https://www.nytimes.com/2026/10/29/world/europe/ukraine-kherson-respite.html
+
 **Alaska Governor Orders Criminal Investigation Into Peltola Campaign**\
 `President Trump had lashed out at Mary Peltola after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime may have been committed.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
