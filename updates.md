@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
+
+**U.S. and Cuban Officials Argue at United Nations**\
+`The Cuban delegation at the United Nations and Mike Waltz, the U.S. ambassador to the U.N., engaged in a shouting match on the General Assembly floor.`\
+https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-argue-united-nations.html
+
 **California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
 `Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
 https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html

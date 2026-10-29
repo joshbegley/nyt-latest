@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
+
+**U.S. and Cuban Officials Argue at United Nations**\
+`The Cuban delegation at the United Nations and Mike Waltz, the U.S. ambassador to the U.N., engaged in a shouting match on the General Assembly floor.`\
+https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-argue-united-nations.html
+
 **California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
 `Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
 https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html
@@ -98,13 +106,13 @@ https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
 `It’s a classic method that yields excellent results.`\
 https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
 
-**‘Knicks in Five’ Feels Like a Long Time Ago**\
-`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
-https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
-
 **National Constitution Center Names New Leader**\
 `Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
 https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
+
+**‘Knicks in Five’ Feels Like a Long Time Ago**\
+`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
+https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
 
 **Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
 `Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/technology/doordash-instacart-acquisition-del
 **Stacking Ballots**\
 `A tale of political intrigue from Alaska.`\
 https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.html
-
-**Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
-`John Lee, the city’s chief executive, said his housing secretary would step down, but he vehemently defended the government.`\
-https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
-
-**Midterm Elections Live Updates: Calls for Investigation Ratchet Up Tension in Alaska Senate Race**\
-`Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces scrutiny after a New York Times report.`\
-https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 
