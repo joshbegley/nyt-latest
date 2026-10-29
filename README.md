@@ -1,3 +1,7 @@
+**From a Billionaires Tax to Abortion Rights, Voters Will Decide Policy**\
+`More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
+https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
+
 **Third-Party Spoilers, Long Fueled by Both Parties, Could Matter This Year**\
 `The other Dan Sullivan in Alaska has drawn the most attention, but both parties are quietly trying to use little-known candidates in other battlegrounds to siphon votes, too.`\
 https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-candidates.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011244234/ukraine-kherson-cease
 **Suddenly, Empathy Isn’t So Toxic**\
 `Deport immigrants? Oh yes. But not this guy.`\
 https://www.nytimes.com/2026/10/29/opinion/toxic-empathy-immigration-ice.html
-
-**The Midterms May End the Trump Era. Here Are 10 Takeaways.**\
-`It’s time to take stock. Here are 12 takeaways from the last 10 years.`\
-https://www.nytimes.com/2026/10/29/opinion/trump-midterms.html
 

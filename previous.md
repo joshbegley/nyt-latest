@@ -1,3 +1,11 @@
+**Third-Party Spoilers, Long Fueled by Both Parties, Could Matter This Year**\
+`The other Dan Sullivan in Alaska has drawn the most attention, but both parties are quietly trying to use little-known candidates in other battlegrounds to siphon votes, too.`\
+https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-candidates.html
+
+**Szilveszter Makó Has Shot Every Magazine Cover You’ve Seen Lately**\
+`(Or at least that’s what it seems like.)`\
+https://www.nytimes.com/2026/10/29/style/szilveszter-mako-fashion-photography.html
+
 **The Rise of American Chenin Blanc**\
 `More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape. Here are 10 bottles to explore.`\
 https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/opinion/toxic-empathy-immigration-ice.html
 **The Midterms May End the Trump Era. Here Are 10 Takeaways.**\
 `It’s time to take stock. Here are 12 takeaways from the last 10 years.`\
 https://www.nytimes.com/2026/10/29/opinion/trump-midterms.html
-
-**In Moving Gradually, Fed Risks Having to Play Catch-Up to Quell Inflation**\
-`Federal Reserve officials are expected to restart rate increases in December, but the cadence of additional moves will depend on the data.`\
-https://www.nytimes.com/2026/10/29/business/economy/federal-reserve-interest-rates.html
-
-**Is This the Final Unraveling?**\
-`What are the key differences between now and two years ago? Between now and 2016?`\
-https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.html
 
