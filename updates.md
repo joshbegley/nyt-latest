@@ -1,3 +1,7 @@
+**Bloody Beets, Ghostly Cauliflower**\
+`Another round of vegetables that our readers hated — and the recipes that changed their minds.`\
+https://www.nytimes.com/2026/10/29/dining/bloody-beets-ghostly-cauliflower.html
+
 **Trump and His Aides Helped Bolsonaro Flee Brazil and Enter U.S.**\
 `President Trump ensured Flávio Bolsonaro, who lost a presidential election in Brazil and faces multiple criminal investigations there, could enter the United States, U.S. officials said.`\
 https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-us.html
