@@ -1,3 +1,7 @@
+**With Votes Nearly Counted, Rival Israeli Blocs Must Now Wrangle for Power**\
+`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
+https://www.nytimes.com/live/2026/10/28/world/israel-elections
+
 **After Flying Past the Moon, an Artemis II Astronaut Lands in California**\
 `Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
 https://www.nytimes.com/2026/10/28/science/space/after-flying-past-the-moon-an-artemis-ii-astronaut-lands-in-california.html
