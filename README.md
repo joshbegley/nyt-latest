@@ -1,3 +1,7 @@
+**Court to Rule on Australian Woman’s Appeal in Mushroom Murders Case**\
+`Erin Patterson was sentenced to life in prison for killing three people, including her in-laws, who fell ill and died after a lunch of beef Wellington in 2023.`\
+https://www.nytimes.com/2026/10/29/world/asia/court-to-rule-on-australian-womans-appeal-in-mushroom-murders-case.html
+
 **What’s Going On in This Picture? | Nov. 2, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-picture-nov-2-2026.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-cali
 **The 2026 Holiday Gift Guide**\
 `From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
 https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
-
-**Poll Watch**\
-`In today’s Backstory, an election night dress rehearsal, surveillance towers at the border and A.I. in the newsroom.`\
-https://www.nytimes.com/2026/10/29/insider/backstory-polling-ai.html
 
