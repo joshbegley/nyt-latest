@@ -1,3 +1,7 @@
+**Vance Proposes Restarting Peace Talks in Outreach to Iranian Official**\
+`In his letter, the vice president suggested an immediate resumption of comprehensive talks, including about Iran’s nuclear program.`\
+https://www.nytimes.com/2026/10/28/us/politics/vance-peace-talks-letter-iran.html
+
 **NYT Crossword Answers for Oct. 29, 2026**\
 `Let’s, uh, solve Sam Ezersky’s puzzle.`\
 https://www.nytimes.com/2026/10/28/crosswords/daily-puzzle-2026-10-29.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.htm
 **Spain Crash Survivor Describes a ‘Twisted Tangle of Metal’**\
 `Fernando Seco, 62, said he and others moved at least a dozen wounded passengers from the crash site, using parts of the wreckage as makeshift stretchers.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-survivor.html
-
-**System to Report Campaign Donations Restored After a Hacking Attempt**\
-`A “bad actor” tried to breach the system, according to a Federal Election Commission email, disrupting political finance disclosures for two days during the final week of campaigning.`\
-https://www.nytimes.com/2026/10/28/us/fec-donations-reporting.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\

@@ -1,3 +1,7 @@
+**Vance Proposes Restarting Peace Talks in Outreach to Iranian Official**\
+`In his letter, the vice president suggested an immediate resumption of comprehensive talks, including about Iran’s nuclear program.`\
+https://www.nytimes.com/2026/10/28/us/politics/vance-peace-talks-letter-iran.html
+
 **NYT Crossword Answers for Oct. 29, 2026**\
 `Let’s, uh, solve Sam Ezersky’s puzzle.`\
 https://www.nytimes.com/2026/10/28/crosswords/daily-puzzle-2026-10-29.html
