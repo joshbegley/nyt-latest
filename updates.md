@@ -1,3 +1,7 @@
+**Fallout in Alaska Senate Race Over Peltola’s Ballot Stacking Plot**\
+`Both sides have a long tradition of promoting spoiler candidates.`\
+https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-trump.html
+
 **Trump Erupted After Learning of Alina Habba’s $50 Million Deal**\
 `Angry about the scale of a contract signed by one of his former lawyers with the family of a wealthy pardon seeker, the president told allies he wanted some of the money to go to his future presidential library.`\
 https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.html

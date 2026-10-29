@@ -1,3 +1,7 @@
+**No Clear Winner in Israel Election, Final Results Show**\
+`Prime Minister Benjamin Netanyahu’s party and its allies won 53 seats in Parliament, falling short of the outright majority needed to form a government. The main opposition bloc, led by Gadi Eisenkot, won 48.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-results-netanyahu-eisenkot.html
+
 **Fallout in Alaska Senate Race Over Peltola’s Ballot Stacking Plot**\
 `Both sides have a long tradition of promoting spoiler candidates.`\
 https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-trump.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribb
 **Hegseth Fires Top Army General He Accused of Leaking Information to Media**\
 `Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
 https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
-
-**Woman Charged With Hate Crimes in Stabbings of 2 Jewish Men in Manhattan**\
-`Anna Mochalova walked up to Jewish men in Midtown last week and attacked them with a needlelike object, according to federal prosecutors.`\
-https://www.nytimes.com/2026/10/29/nyregion/nyc-anti-semistism-midtown.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\

@@ -1,3 +1,7 @@
+**Fallout in Alaska Senate Race Over Peltola’s Ballot Stacking Plot**\
+`Both sides have a long tradition of promoting spoiler candidates.`\
+https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-trump.html
+
 **Trump Erupted After Learning of Alina Habba’s $50 Million Deal**\
 `Angry about the scale of a contract signed by one of his former lawyers with the family of a wealthy pardon seeker, the president told allies he wanted some of the money to go to his future presidential library.`\
 https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
 **Woman Charged With Hate Crimes in Stabbings of 2 Jewish Men in Manhattan**\
 `Anna Mochalova walked up to Jewish men in Midtown last week and attacked them with a needlelike object, according to federal prosecutors.`\
 https://www.nytimes.com/2026/10/29/nyregion/nyc-anti-semistism-midtown.html
-
-**The Choreographer Oona Doherty’s Haunted Belfast of Spirits and Dead Pigs**\
-`The Belfast choreographer Oona Doherty, who is interested in the kinetic effects of trauma, sets the story of an orphaned 10-year-old on Halloween.`\
-https://www.nytimes.com/2026/10/29/arts/dance/review-oona-doherty-specky-clark.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
