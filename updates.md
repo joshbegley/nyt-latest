@@ -1,3 +1,7 @@
+**The Five-Borough Route: The Beating Heart of the NYC Marathon**\
+`When the event’s five co-founders first proposed moving it out of Central Park, it seemed impossible. Much has changed in the sport and the city since that 1976 race.`\
+https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-route-five-boroughs-course-history.html
+
 **15-Minute Lesson Plan: Reporting on Teen Activism and A.I. Data Centers**\
 `Why are some Gen Z-ers organizing against them? How do Times reporters gather information about these activists?`\
 https://www.nytimes.com/2026/10/29/learning/15-minute-lesson-plan-reporting-on-teen-activism-and-ai-data-centers.html
