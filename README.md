@@ -1,3 +1,11 @@
+**7 Memorable Patrick Stewart Performances**\
+`The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
+https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
+
+**Patrick Stewart, Captain Picard on ‘Star Trek: The Next Generation,” Dies**\
+`The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
+https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
+
 **Why Miami Is a Destination for Latin America’s Political Exiles**\
 `The city’s Hispanic majority, news media reach and air links to Latin America have made it an ideal base for politicians escaping their home countries.`\
 https://www.nytimes.com/2026/10/29/us/flavio-bolsonaro-miami-exile.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/insider/questions-and-answers-about-midterm-e
 **Who Is Ahead in California's 4th Congressional District?**\
 `Track the latest polls in California's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-4-polls-2026.html
-
-**After Reinventing Mathematics, Can A.I. Eradicate Computer Bugs?**\
-`Using the same techniques that allowed A.I. technologies to crack a million-dollar math problem, researchers are building new systems that aim to solve the world’s cybersecurity crisis.`\
-https://www.nytimes.com/2026/10/29/science/ai-eradicate-computer-bugs.html
-
-**China Confirms Expulsion of 33 Officials, as Xi’s Purge Deepens**\
-`Xi Jinping has enforced loyalty as he prepares to claim a fourth term as leader. Among those removed was a prominent former diplomat, Liu Jianchao.`\
-https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
 
