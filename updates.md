@@ -1,3 +1,7 @@
+**Trump Attacks Black and Jewish Supporters of El-Sayed as ‘Crazy’**\
+`The president’s attack line follows a similarly divisive campaign strategy from 2024, when Mr. Trump sought to drive a wedge between Jewish and Arab voters.`\
+https://www.nytimes.com/2026/10/29/us/elections/trump-jewish-arab-el-sayed-supporters.html
+
 **Patrick Stewart Brought Elegance To ‘Star Trek’ as Jean-Luc Picard**\
 `Led by the Shakespearean veteran in his role as Jean-Luc Picard, “Star Trek: The Next Generation” gracefully went where the franchise had never gone before.`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-captain-picard-star-trek-the-next-generation.html

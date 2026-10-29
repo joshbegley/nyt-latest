@@ -1,3 +1,7 @@
+**Trump Attacks Black and Jewish Supporters of El-Sayed as ‘Crazy’**\
+`The president’s attack line follows a similarly divisive campaign strategy from 2024, when Mr. Trump sought to drive a wedge between Jewish and Arab voters.`\
+https://www.nytimes.com/2026/10/29/us/elections/trump-jewish-arab-el-sayed-supporters.html
+
 **Patrick Stewart Brought Elegance To ‘Star Trek’ as Jean-Luc Picard**\
 `Led by the Shakespearean veteran in his role as Jean-Luc Picard, “Star Trek: The Next Generation” gracefully went where the franchise had never gone before.`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-captain-picard-star-trek-the-next-generation.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-
 **Will Gov. Ned Lamont Win a Rare Third Term in Connecticut?**\
 `Ned Lamont, a Democrat, is seeking a third consecutive term, which would position him to become the state’s longest-serving governor.`\
 https://www.nytimes.com/2026/10/29/nyregion/ned-lamont-connecticut-governor-race.html
-
-**A Tale of Alaska, Peltola and the Two Dan Sullivans**\
-`Readers react to the Alaska controversy. Also: Punishing critics of President Trump; victories for democracy; help for farmers; a women’s health agenda.`\
-https://www.nytimes.com/2026/10/29/opinion/alaska-peltola-dan-sullivan.html
 
