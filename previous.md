@@ -1,3 +1,11 @@
+**Broadway’s ‘A Few Good Men,’ Performed Live in the Office**\
+`Watch Bradley Whitford and three other actors from the Broadway revival of Aaron Sorkin’s classic courtroom drama argue in an office at the New York Times Building.`\
+https://www.nytimes.com/2026/10/29/t-magazine/a-few-good-men-broadway-live.html
+
+**Live From the 10th Floor | ‘A Few Good Men’**\
+`The actors Bradley Whitford, Thom Sesma, John Zdrojeski and Miles Fowler perform a scene from the Broadway revival of Aaron Sorkin’s “A Few Good Men” at the New York Times office.`\
+https://www.nytimes.com/video/t-magazine/100000011240412/live-from-the-10th-floor-a-few-good-men.html
+
 **Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
 `The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
 https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/us/michigan-election-data-centers-voters.html
 **California Is Voting on the Wrong Wealth Tax**\
 `If you’re worked up about what billionaires pay, wait till you hear about the millionaires.`\
 https://www.nytimes.com/2026/10/29/opinion/california-wealth-tax-billionaires.html
-
-**Hit the Road This Season With These Useful New Map Features**\
-`The recent updates to Google Maps and Apple’s Maps use artificial (and human) intelligence for better navigation, planning and travel guides.`\
-https://www.nytimes.com/2026/10/29/technology/personaltech/apple-google-maps-features.html
-
-**They Pick Up Cash From Weed Stores. Up to $250,000 a Day.**\
-`A company hires retired law-enforcement officers to move cannabis proceeds from dispensaries to banks.`\
-https://www.nytimes.com/2026/10/29/nyregion/cannabis-dispensaries-cash-moving.html
 

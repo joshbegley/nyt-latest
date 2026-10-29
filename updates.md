@@ -1,3 +1,11 @@
+**Broadway’s ‘A Few Good Men,’ Performed Live in the Office**\
+`Watch Bradley Whitford and three other actors from the Broadway revival of Aaron Sorkin’s classic courtroom drama argue in an office at the New York Times Building.`\
+https://www.nytimes.com/2026/10/29/t-magazine/a-few-good-men-broadway-live.html
+
+**Live From the 10th Floor | ‘A Few Good Men’**\
+`The actors Bradley Whitford, Thom Sesma, John Zdrojeski and Miles Fowler perform a scene from the Broadway revival of Aaron Sorkin’s “A Few Good Men” at the New York Times office.`\
+https://www.nytimes.com/video/t-magazine/100000011240412/live-from-the-10th-floor-a-few-good-men.html
+
 **Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
 `The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
 https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
