@@ -1,3 +1,7 @@
+**A Sailor Jumped From the U.S.S. Lincoln. The Navy Punished Him.**\
+`The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
+https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
+
 **Intel’s Shares Plunge 20% as A.I. Hinders Some Parts of Its Business**\
 `The chipmaker, whose largest investor is the U.S. government, reported that the A.I. boom’s domino effect had hurt sales to personal computer makers.`\
 https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-electi
 **Third-Party Spoilers, Long Fueled by Both Parties, Could Matter This Year**\
 `The other Dan Sullivan in Alaska has drawn the most attention, but both parties are quietly trying to use little-known candidates in other battlegrounds to siphon votes, too.`\
 https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-candidates.html
-
-**Szilveszter Makó Has Shot Every Magazine Cover You’ve Seen Lately**\
-`(Or at least that’s what it seems like.)`\
-https://www.nytimes.com/2026/10/29/style/szilveszter-mako-fashion-photography.html
 
