@@ -1,3 +1,7 @@
+**In Michigan, El-Sayed Faces Heat From Former Primary Rival as Election Nears**\
+`Representative Haley Stevens has been less than enthusiastic about Dr. Abdul El-Sayed, injecting late intraparty tensions into a race that could decide Senate control.`\
+https://www.nytimes.com/2026/10/28/us/politics/stevens-el-sayed-senate-democrats-michigan.html
+
 **Is There a ‘Safest Seat’ in a Train Crash? Experts Say It’s Not So Simple.**\
 `After a high-speed collision near Toledo, Spain, killed at least 68 people, rail safety experts said the rough consensus that it is best to sit in the middle of a train has its limits.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rail-safety.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-
 **An Inconclusive Vote Leaves Israelis Pondering an Uncertain Future**\
 `A day after the election, supporters of Prime Minister Benjamin Netanyahu were relieved he still had a chance to stay in power, while his opponents worried the mixed results could lead to a political stalemate.`\
 https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-netanyahu-eisenkot-mood.html
-
-**Bronx Fire Caused by E-Bike Battery Kills Boy**\
-`Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
-https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
