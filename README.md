@@ -1,3 +1,11 @@
+**Inflation Accelerated in October, PCE Index Shows**\
+`The Personal Consumption Expenditures index picked up in September, according to data released a day after the Federal Reserve’s decision to hold interest rates steady.`\
+https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
+
+**U.S. G.D.P. Increased in Third Quarter**\
+`Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter, federal data showed.`\
+https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
+
 **Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
 `Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
 https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/us/politics/campaign-websites-artificial-inte
 **Book Review: ‘The Glass Box,’ by Calum Marsh**\
 `In “The Glass Box,” Calum Marsh chronicles the rise and fall of a fitness empire.`\
 https://www.nytimes.com/2026/10/29/books/review/calum-marsh-the-glass-box-.html
-
-**The Best Cities to Retire in 2026**\
-`A study compared data across 45 metrics to find the best cities for senior living.`\
-https://www.nytimes.com/2026/10/29/realestate/the-best-cities-to-retire-in-2026.html
-
-**‘Queen at Sea’ Review: An Impossible Situation**\
-`Juliette Binoche stars in a heart-wrenching drama about dementia that is harrowing to watch.`\
-https://www.nytimes.com/2026/10/29/movies/queen-at-sea-review.html
 
