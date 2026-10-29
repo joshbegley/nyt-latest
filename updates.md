@@ -1,3 +1,7 @@
+**China Confirms Expulsion of 33 Officials, as Xi’s Purge Deepens**\
+`Xi Jinping has enforced loyalty as he prepares to claim a fourth term as leader. Among those removed was a prominent former diplomat, Liu Jianchao.`\
+https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
+
 **U.S. G.D.P. Increased in Third Quarter**\
 `Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter. The economy grew 3.4 percent, the fastest pace in a year.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
