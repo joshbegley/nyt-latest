@@ -1,3 +1,7 @@
+**Banana Splits, Party Omakase and More Ways to Stave Off the Winter Blues**\
+`Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
+https://www.nytimes.com/2026/10/29/dining/reader-questions.html
+
 **Trump Attacks Black and Jewish Supporters of El-Sayed as ‘Crazy’**\
 `The president’s attack line follows a similarly divisive campaign strategy from 2024, when Mr. Trump sought to drive a wedge between Jewish and Arab voters.`\
 https://www.nytimes.com/2026/10/29/us/elections/trump-jewish-arab-el-sayed-supporters.html
