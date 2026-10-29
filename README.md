@@ -1,3 +1,11 @@
+**State Dept. to Shift Millions in Contraception Funding to Cover Energy Costs**\
+`In a memo, the department told lawmakers it was redirecting up to $125 million in foreign aid, including nearly $49 million that Congress appropriated for family planning programs in low-income countries.`\
+https://www.nytimes.com/2026/10/29/us/politics/foreign-aid-divert-energy-contraceptives.html
+
+**A ‘Supergirl’ Actress Writes the Children’s Book She Wished for as a Kid**\
+`Azie Tesfai, the Eritrean and Ethiopian actor, was inspired by her childhood and her time on set to write “You’re a Superhero!”`\
+https://www.nytimes.com/2026/10/29/arts/television/azie-tesfai-supergirl-graphic-novel-superhero.html
+
 **What Teenagers Are Saying About the Creepiest Places They’ve Been**\
 `Students share stories of haunted homes, darkened woods and abandoned estates, and reflect on why we crave the rush of terror.`\
 https://www.nytimes.com/2026/10/29/learning/what-teenagers-are-saying-about-the-creepiest-places-theyve-been.html
@@ -50,13 +58,13 @@ https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
 `It’s a classic method that yields excellent results.`\
 https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
 
-**National Constitution Center Names New Leader**\
-`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
-https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
-
 **‘Knicks in Five’ Feels Like a Long Time Ago**\
 `Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
 https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
+
+**National Constitution Center Names New Leader**\
+`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
+https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
 
 **Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
 `Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-sc
 **After 28 Years Walking the Globe, Karl Bushby Is Almost Home**\
 `Karl Bushby has walked 31,000 miles, crossing some of the world’s harshest landscapes. He plans to reach his mother’s house in England next week.`\
 https://www.nytimes.com/2026/10/29/world/europe/karl-bushby-walking-globe-uk.html
-
-**When Steve Kerr Met His Doppelgänger**\
-`Pablo unites the Warriors head coach with a look-alike on a Halloween edition of Share & Tell.`\
-https://www.nytimes.com/2026/10/29/podcasts/steve-kerr-warriors-head-coach-doppelganger.html
-
-**Milwaukee Brewers Win First World Series in Franchise History**\
-`Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
-https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
 
