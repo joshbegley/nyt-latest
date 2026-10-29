@@ -1,3 +1,7 @@
+**Bostonians Compete to Be Their Airport’s New Voice**\
+`By Christmas, the winning voice will echo through Boston Logan International in recorded greetings and announcements that millions of travelers will hear.`\
+https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.html
+
 **Court to Rule on Australian Woman’s Appeal in Mushroom Murders Case**\
 `Erin Patterson was sentenced to life in prison for killing three people, including her in-laws, who fell ill and died after a lunch of beef Wellington in 2023.`\
 https://www.nytimes.com/2026/10/29/world/asia/court-to-rule-on-australian-womans-appeal-in-mushroom-murders-case.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-picture-nov-2
 `They had set off last week for Ice Mountain, in the central part of the state. Search teams located their bodies on Wednesday after spotting a boot jutting out of the snow.`\
 https://www.nytimes.com/2026/10/29/us/hikers-found-dead-colorado.html
 
-**Justice Dept. Pressures California With Expanded Election Investigation**\
+**Trump Administration Pressures California With Expanded Voter Fraud Investigation**\
 `The department has issued grand jury subpoenas to local election officials as part of a widening effort to prove unsubstantiated claims about large numbers of illegal voters in the state.`\
 https://www.nytimes.com/2026/10/29/us/trump-doj-california-voter-rolls-midterms.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/style/szilveszter-mako-fashion-photography.ht
 **The Rise of American Chenin Blanc**\
 `More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape. Here are 10 bottles to explore.`\
 https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
-
-**The 2026 Holiday Gift Guide**\
-`From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
-https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
 

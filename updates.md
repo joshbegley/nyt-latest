@@ -1,3 +1,11 @@
+**Court to Rule on Australian Woman’s Appeal in Mushroom Murders Case**\
+`Erin Patterson was sentenced to life in prison for killing three people, including her in-laws, who fell ill and died after a lunch of beef Wellington in 2023.`\
+https://www.nytimes.com/2026/10/29/world/asia/court-to-rule-on-australian-womans-appeal-in-mushroom-murders-case.html
+
+**What’s Going On in This Picture? | Nov. 2, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-picture-nov-2-2026.html
+
 **2 College Students Are Found Dead on a Colorado Mountain**\
 `They had set off last week for Ice Mountain, in the central part of the state. Search teams located their bodies on Wednesday after spotting a boot jutting out of the snow.`\
 https://www.nytimes.com/2026/10/29/us/hikers-found-dead-colorado.html
