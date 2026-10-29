@@ -1,3 +1,11 @@
+**Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
+`John Lee, the city’s chief executive, said the city’s housing secretary would step down, but he vehemently defended the government.`\
+https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
+
+**Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
+`The state is the latest stop in President Trump’s breakneck campaign tour. Former President Bill Clinton will speak in Mississippi to support the Senate campaign of Scott Colom, a Democrat.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
 `After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
 https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
@@ -66,7 +74,7 @@ https://www.nytimes.com/2026/10/29/opinion/trump-midterms.html
 `Federal Reserve officials are expected to restart rate increases in December, but the cadence of additional moves will depend on the data.`\
 https://www.nytimes.com/2026/10/29/business/economy/federal-reserve-interest-rates.html
 
-**What Happens if Trump Doesn’t Own the Libs Anymore?**\
+**Is This the Final Unraveling?**\
 `What are the key differences between now and two years ago? Between now and 2016?`\
 https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/us/politics/nvidia-china-jensen-huang-trump.h
 **The Red States That Could Decide the Senate**\
 `Democrats need to flip four Republican-held Senate seats to regain the majority, but some of their targets are in states President Trump won by double digits in 2024. Our election data reporter Evan Reynolds explains just how difficult that might be.`\
 https://www.nytimes.com/video/us/elections/100000011223984/the-red-states-that-could-decide-the-senate.html
-
-**LeVar Burton on His Favorite Books and New Memoir**\
-`That genre “has always been a place where we can imagine a better future,” says the actor and longtime “Reading Rainbow” host, who has a new memoir.`\
-https://www.nytimes.com/2026/10/29/books/review/levar-burton-take-my-word-for-it.html
-
-**Book Review: ‘The Widow van Gogh,’ by Joan Martelli**\
-`Were it not for the artist’s sister-in-law, Johanna van Gogh-Bonger, a new biography argues, the world might not have encountered his extraordinary work.`\
-https://www.nytimes.com/2026/10/29/books/review/widow-van-gogh-joan-martelli.html
 

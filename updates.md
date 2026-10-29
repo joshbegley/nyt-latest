@@ -1,3 +1,15 @@
+**Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
+`John Lee, the city’s chief executive, said the city’s housing secretary would step down, but he vehemently defended the government.`\
+https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
+
+**Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
+`The state is the latest stop in President Trump’s breakneck campaign tour. Former President Bill Clinton will speak in Mississippi to support the Senate campaign of Scott Colom, a Democrat.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
+**Is This the Final Unraveling?**\
+`What are the key differences between now and two years ago? Between now and 2016?`\
+https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.html
+
 **President Trump Was Briefed on a Chinese Spy Plot. He Took No Action.**\
 `Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
 https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
