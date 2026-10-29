@@ -1,3 +1,7 @@
+**Who Is Ahead in California's 4th Congressional District?**\
+`Track the latest polls in California's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-4-polls-2026.html
+
 **After Reinventing Mathematics, Can A.I. Eradicate Computer Bugs?**\
 `Using the same techniques that allowed A.I. technologies to crack a million-dollar math problem, researchers are building new systems that aim to solve the world’s cybersecurity crisis.`\
 https://www.nytimes.com/2026/10/29/science/ai-eradicate-computer-bugs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/movies/the-mosquito-bowl-review.html
 **Billionaire Tax Campaign Pins Its Hopes on Influencers and Social Media**\
 `Supporters of a California wealth tax are short on cash and are relying on cheaper campaign methods to get their word out.`\
 https://www.nytimes.com/2026/10/29/us/california-billionaire-tax-influencers.html
-
-**Candidate Websites Are Filled With A.I.-Written Text, Analysis Shows**\
-`The use of A.I. chatbots to write candidate biographies and policy positions is another way the technology is entangled with elections.`\
-https://www.nytimes.com/2026/10/29/us/politics/campaign-websites-artificial-intelligence.html
 
