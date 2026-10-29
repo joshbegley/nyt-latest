@@ -1,3 +1,7 @@
+**India’s Media Giants Join Fight Against Upcoming Privacy Law**\
+`News organizations owned by two billionaires close to Prime Minister Narendra Modi say the legislation could make investigative reporting nearly impossible.`\
+https://www.nytimes.com/2026/10/29/world/asia/india-media-privacy-law.html
+
 **How Israel’s Election Could End**\
 `Neither Benjamin Netanyahu nor Gadi Eisenkot won a majority in Israel’s Parliament, leaving both with a chance to form a government. Our Jerusalem bureau chief, David M. Halbfinger, explains the possible coalitions and the obstacles to an opposition alliance that could include Arab parties.`\
 https://www.nytimes.com/video/world/middleeast/100000011242127/how-israels-election-could-end.html

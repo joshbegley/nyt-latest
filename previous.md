@@ -1,3 +1,7 @@
+**India’s Media Giants Join Fight Against Upcoming Privacy Law**\
+`News organizations owned by two billionaires close to Prime Minister Narendra Modi say the legislation could make investigative reporting nearly impossible.`\
+https://www.nytimes.com/2026/10/29/world/asia/india-media-privacy-law.html
+
 **How Israel’s Election Could End**\
 `Neither Benjamin Netanyahu nor Gadi Eisenkot won a majority in Israel’s Parliament, leaving both with a chance to form a government. Our Jerusalem bureau chief, David M. Halbfinger, explains the possible coalitions and the obstacles to an opposition alliance that could include Arab parties.`\
 https://www.nytimes.com/video/world/middleeast/100000011242127/how-israels-election-could-end.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/insider/100000011165116/how-we-prepare-for-electio
 **Tiny Love Stories: ‘Turn Off That Dirge!’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-dirge.html
-
-**Here’s the latest.**\
-`(No description)`\
-https://www.nytimes.com/2026/10/28/business/economy/heres-the-latest.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
