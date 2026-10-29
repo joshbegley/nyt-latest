@@ -1,3 +1,11 @@
+**The Democrats’ Secret Search for Alaska’s ‘Other’ Dan Sullivan**\
+`In Alaska’s Senate race, two candidates share the same name: Dan Sullivan. But that’s no coincidence. A New York Times investigation uncovered a secret plan by Democratic operatives to recruit candidates with the same name as the incumbent Republican senator, hoping to confuse voters and split the Republican vote. On “The Daily,” political reporter Kellen Browning tells host Michael Barbaro how the scheme unfolded and why Democrats went searching for another Dan Sullivan.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-secret-search-for-alaskas-other-dan-sullivan.html
+
+**Healthy Slow-Cooker Recipes That Make It Easy to Eat Well No Matter How Busy You Are**\
+`White chicken chili, chicken and rice and more wholesome dishes that require very little prep and cleanup.`\
+https://www.nytimes.com/2026/10/29/dining/healthy-slow-cooker-recipes.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
