@@ -1,3 +1,11 @@
+**Hegseth Fires General He Accused of Leaking Information to the News Media**\
+`Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
+https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
+
+**Woman Charged With Hate Crimes in Stabbings of 2 Jewish Men in Manhattan**\
+`Anna Mochalova walked up to Jewish men in Midtown last week and attacked them with a needlelike object, according to federal prosecutors.`\
+https://www.nytimes.com/2026/10/29/nyregion/nyc-anti-semistism-midtown.html
+
 **The Choreographer Oona Doherty’s Haunted Belfast of Spirits and Dead Pigs**\
 `The Belfast choreographer Oona Doherty, who is interested in the kinetic effects of trauma, sets the story of an orphaned 10-year-old on Halloween.`\
 https://www.nytimes.com/2026/10/29/arts/dance/review-oona-doherty-specky-clark.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
 **Christine Lagarde to Step Down as President of European Central Bank**\
 `Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
 https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
-
-**NYT Connections Answers for October 30, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
-https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
-
-**At Least 68 Killed in Spain Train Crash, and Democrats’ Secret Effort to Stack Alaska’s Ballot**\
-`Plus, the legacy of Dolores Huerta.`\
-https://www.nytimes.com/2026/10/29/podcasts/the-headlines/spain-train-crash-alaska-ballot.html
 
