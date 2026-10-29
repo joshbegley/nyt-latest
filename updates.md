@@ -1,3 +1,7 @@
+**After 28 Years Walking the Globe, Karl Bushby Is Almost Home**\
+`Karl Bushby has walked 31,000 miles, crossing some of the world’s harshest landscapes. He plans to reach his mother’s house in England next week.`\
+https://www.nytimes.com/2026/10/29/world/europe/karl-bushby-walking-globe-uk.html
+
 **When Steve Kerr Met His Doppelgänger**\
 `Pablo unites the Warriors head coach with a look-alike on a Halloween edition of Share & Tell.`\
 https://www.nytimes.com/2026/10/29/podcasts/steve-kerr-warriors-head-coach-doppelganger.html
