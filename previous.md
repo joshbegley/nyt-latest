@@ -1,3 +1,7 @@
+**Who Is Ahead in Minnesota's 8th Congressional District?**\
+`Track the latest polls in Minnesota's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-8-polls-2026.html
+
 **What’s Going On in This Graph? | Nov. 4, 2026**\
 `How would you improve schools?`\
 https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-graph-nov-4-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
 **Inflation Accelerated in October, PCE Index Shows**\
 `The Personal Consumption Expenditures index picked up in September, according to data released a day after the Federal Reserve’s decision to hold interest rates steady.`\
 https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
-
-**U.S. GDP Increased 3.4% in Third Quarter**\
-`The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks many voters are giving the economy.`\
-https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 

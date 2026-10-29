@@ -1,3 +1,7 @@
+**Who Is Ahead in Minnesota's 8th Congressional District?**\
+`Track the latest polls in Minnesota's 8th Congressional District.`\
+https://www.nytimes.com/interactive/polls/minnesota-us-house-8-polls-2026.html
+
 **What’s Going On in This Graph? | Nov. 4, 2026**\
 `How would you improve schools?`\
 https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-graph-nov-4-2026.html
