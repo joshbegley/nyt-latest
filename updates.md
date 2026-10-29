@@ -1,3 +1,11 @@
+**What’s Next for Israel? Four Writers Decode the Election Results.**\
+`A round table discussion on what the future holds for Israel and its government.`\
+https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
+
+**Patrick Stewart, ‘Star Trek’ Captain and Professor X on ‘X-Men,’ Dies at 86**\
+`The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
+https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
+
 **The New DNA Technology That Linked Ted Bundy to a 52-Year-Old Cold Case**\
 `Software known as STRmix was instrumental in identifying Mr. Bundy’s DNA in a decades-old sample.`\
 https://www.nytimes.com/2026/10/29/science/dna-ted-bundy-cold-case.html

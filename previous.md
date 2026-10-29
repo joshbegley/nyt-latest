@@ -1,3 +1,7 @@
+**What’s Next for Israel? Four Writers Decode the Election Results.**\
+`A round table discussion on what the future holds for Israel and its government.`\
+https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
+
 **The New DNA Technology That Linked Ted Bundy to a 52-Year-Old Cold Case**\
 `Software known as STRmix was instrumental in identifying Mr. Bundy’s DNA in a decades-old sample.`\
 https://www.nytimes.com/2026/10/29/science/dna-ted-bundy-cold-case.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/10/29/dining/reader-questions.html
 `The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
 https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
 
-**Patrick Stewart, Captain Picard on ‘Star Trek: The Next Generation,’ Dies**\
+**Patrick Stewart, ‘Star Trek’ Captain and Professor X on ‘X-Men,’ Dies at 86**\
 `The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/t-magazine/100000011240412/live-from-the-10th-floo
 **Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
 `The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
 https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
-
-**These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
-`F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
-https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
 
