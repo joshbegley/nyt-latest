@@ -1,3 +1,7 @@
+**Is There a ‘Safest Seat’ in a Train Crash? Experts Say It’s Not So Simple.**\
+`After a high-speed collision near Toledo, Spain, killed at least 68 people, rail safety experts said the rough consensus that it is best to sit in the middle of a train has its limits.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rail-safety.html
+
 **Fire Breaks Out at South Carolina Nuclear Site**\
 `The fire at the Savannah River National Laboratory prompted officials to limit air traffic in the area. One person was hospitalized with minor injuries, officials said.`\
 https://www.nytimes.com/2026/10/28/us/nuclear-site-south-carolina-emergency.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-election-results-neta
 **Bronx Fire Caused by E-Bike Battery Kills Boy**\
 `Four other people, including two teenagers, were hospitalized after a lithium-ion battery started a fire in an apartment overnight Wednesday.`\
 https://www.nytimes.com/2026/10/28/nyregion/fire-e-bike-battery-bronx.html
-
-**Apple Unveils Its First Touch-Screen MacBook Pro**\
-`Steve Jobs and Tim Cook both dismissed the idea, but Apple’s new chief executive is reimagining some of the company’s most important products.`\
-https://www.nytimes.com/2026/10/28/technology/apple-touch-screen-macbook-pro.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\

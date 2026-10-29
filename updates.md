@@ -1,3 +1,7 @@
+**Is There a ‘Safest Seat’ in a Train Crash? Experts Say It’s Not So Simple.**\
+`After a high-speed collision near Toledo, Spain, killed at least 68 people, rail safety experts said the rough consensus that it is best to sit in the middle of a train has its limits.`\
+https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rail-safety.html
+
 **Fire Breaks Out at South Carolina Nuclear Site**\
 `The fire at the Savannah River National Laboratory prompted officials to limit air traffic in the area. One person was hospitalized with minor injuries, officials said.`\
 https://www.nytimes.com/2026/10/28/us/nuclear-site-south-carolina-emergency.html
