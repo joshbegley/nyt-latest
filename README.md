@@ -1,3 +1,19 @@
+**A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
+`A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
+https://www.nytimes.com/2026/10/29/world/europe/a-ukrainian-city-in-the-kill-zone-relishes-a-moment-of-peace.html
+
+**Quote of the Day: In Afghanistan, She Feared for Her Safety. On Sunday, She’ll Run Free.**\
+`Quotation of the Day for Thursday, October 29, 2026.`\
+https://www.nytimes.com/2026/10/29/pageoneplus/quote-of-the-day-in-afghanistan-she-feared-for-her-safety-on-sunday-shell-run-free.html
+
+**From the Front Page: The Stock Market Crashes on Oct. 29, 1929**\
+`Black Tuesday descended on the New York Stock Exchange. Prices collapsed amid panic selling, and thousands of investors faced “gigantic losses” as the Great Depression began in America.`\
+https://www.nytimes.com/2026/10/29/learning/from-the-front-page-the-stock-market-crashes-on-oct-29-1929.html
+
+**Trump Administration Moves to Close East Potomac Park to Begin Golf Project**\
+`The government said in a court filing that it would meet the Nov. 15 deadline set by President Trump to close East Potomac Park to build a championship golf course there.`\
+https://www.nytimes.com/2026/10/28/us/politics/deadline-golf-course-closure.html
+
 **Cuauhtémoc Cárdenas, Who Helped End One-Party Rule in Mexico, Dies at 92**\
 `Mr. Cárdenas, the only son of a Mexican president, never won the office but became a leading figure in the country’s democratic transformation.`\
 https://www.nytimes.com/2026/10/28/world/americas/cuauhtemoc-cardenas-dead.html
@@ -178,23 +194,7 @@ https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francis
 `We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
 https://www.nytimes.com/video/opinion/100000011225057/you-cant-stop-ai-but-you-can-bargain-with-it.html
 
-**The Local: Inside look at shuttered opera**\
-`Plus, Anthony Edwards’s knee surgery and what it could mean for the Timberwolves.`\
-https://www.nytimes.com/2026/10/28/briefing/minnesota-opera-laila-starr.html
-
-**An ‘Endless’ Cruise Around the World Is Suspended, Leaving Passengers Stranded**\
-`The cruise promised a lifetime of sailing, for less than what it cost to live on land. But it was underfunded and couldn’t absorb the rising cost of fuel.`\
-https://www.nytimes.com/2026/10/28/travel/endless-cruise-suspended-villa-vie-passengers.html
-
-**Nigeria’s Ebola Patient Evacuated as Investigators Press for Answers**\
-`More than a week after the first case was reported in Africa’s most populous nation, pressing questions about the infection remain unanswered.`\
-https://www.nytimes.com/2026/10/28/world/africa/nigeria-ebola-patient-questions-uganda.html
-
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
-
-**With Votes Nearly Counted, Rival Israeli Blocs Must Now Wrangle for Power**\
-`Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
-https://www.nytimes.com/live/2026/10/28/world/israel-elections
 
