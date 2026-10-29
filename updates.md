@@ -1,3 +1,11 @@
+**A Sailor Jumped From the U.S.S. Lincoln. The Navy Punished Him.**\
+`The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
+https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
+
+**Intel’s Shares Plunge 20% as A.I. Hinders Some Parts of Its Business**\
+`The chipmaker, whose largest investor is the U.S. government, reported that the A.I. boom’s domino effect had hurt sales to personal computer makers.`\
+https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
+
 **Bostonians Compete to Be Their Airport’s New Voice**\
 `By Christmas, the winning voice will echo through Boston Logan International in recorded greetings and announcements that millions of travelers will hear.`\
 https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.html
