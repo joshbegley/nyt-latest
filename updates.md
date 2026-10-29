@@ -1,3 +1,23 @@
+**NYT Connections Answers for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
+
+**At Least 68 Killed in Spain Train Crash, and Democrats’ Secret Effort to Stack Alaska’s Ballot**\
+`Plus, the legacy of Dolores Huerta.`\
+https://www.nytimes.com/2026/10/29/podcasts/the-headlines/spain-train-crash-alaska-ballot.html
+
+**Today’s Wordle Hints for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/wordle-review-1959.html
+
+**A Plan for Two Dans: How Democrats Manipulated Alaska’s Ballot**\
+`An investigation by The New York Times looked at how two people named Dan Sullivan ended up on the ballot for the Senate.`\
+https://www.nytimes.com/2026/10/29/podcasts/the-daily/democrats-alaska-senate-midterms-dan-sullivan.html
+
+**NYT Strands Hints for October 30, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/29/crosswords/strands-sidekick-971.html
+
 **How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
 `Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
