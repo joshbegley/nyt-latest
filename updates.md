@@ -1,3 +1,15 @@
+**Searching for Jobs, Gen Z Feels Like It’s Staring Into ‘the Void’**\
+`Hundreds of applications later, even being rejected by an actual human being counts as a victory.`\
+https://www.nytimes.com/interactive/2026/10/28/style/gen-z-job-market.html
+
+**A Top Dartmouth Leader Steps Down Over Undisclosed A.I. Use in Writings**\
+`Santiago Schnell, who had been provost since last year, will leave after a review found that he had improperly used A.I. in published opinion articles.`\
+https://www.nytimes.com/2026/10/28/us/dartmouth-santiago-schnell-ai.html
+
+**After Flying Past the Moon, an Artemis II Astronaut Lands in California**\
+`Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
+https://www.nytimes.com/2026/10/28/science/space/reid-wiseman-artemis-ii-astronaut.html
+
 **She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
 `A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the debate over when parents act irresponsibly.`\
 https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
