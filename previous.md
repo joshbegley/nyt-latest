@@ -1,3 +1,7 @@
+**Christine Lagarde to Step Down as Chief of European Central Bank**\
+`Her departure, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
+https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
+
 **NYT Connections Answers for October 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
 https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/books/review/widow-van-gogh-joan-martelli.htm
 **Idaho Voters Will Pick Their State Gun on Tuesday**\
 `An advisory referendum will give Idahoans a choice of six weapons to make their state gun, though none of them are exactly linked to their state.`\
 https://www.nytimes.com/2026/10/29/us/elections/idaho-state-gun-referendum.html
-
-**Interior Designers Brace for Higher Prices as California Weighs Quartz Ban**\
-`Many designers won’t miss working with quartz, but they expect an adjustment period as the industry finds replacement materials.`\
-https://www.nytimes.com/2026/10/29/realestate/quartz-ban-interior-designer-reaction-prices.html
 

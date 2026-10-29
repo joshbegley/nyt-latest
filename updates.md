@@ -1,3 +1,7 @@
+**Christine Lagarde to Step Down as Chief of European Central Bank**\
+`Her departure, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
+https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
+
 **NYT Connections Answers for October 30, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Oct. 30, 2026.`\
 https://www.nytimes.com/2026/10/29/crosswords/connections-companion-1237.html
