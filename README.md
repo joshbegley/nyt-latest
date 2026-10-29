@@ -1,3 +1,11 @@
+**The 2026 Holiday Gift Guide**\
+`From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
+https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
+
+**Poll Watch**\
+`In today’s Backstory, an election night dress rehearsal, surveillance towers at the border and A.I. in the newsroom.`\
+https://www.nytimes.com/2026/10/29/insider/backstory-polling-ai.html
+
 **U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
 `The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.
 **Quiz: How Much Do You Know About Sugar?**\
 `This quiz is our treat.`\
 https://www.nytimes.com/interactive/2026/10/29/well/sugar-health-quiz-halloween-candy.html
-
-**Four Scenarios for How the Midterms Could Go**\
-`Expectations are cresting for Democrats, and some kind of wave seems likely, but so much will depend on a few close Senate races.`\
-https://www.nytimes.com/2026/10/29/upshot/midterm-elections-senate-house-scenarios.html
-
-**Why Are We Having Less Sex? Ask a Pornographer.**\
-`Erika Lust wants to excite you.`\
-https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
 
