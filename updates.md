@@ -1,3 +1,7 @@
+**From a Billionaires Tax to Abortion Rights, Voters Will Decide Policy**\
+`More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
+https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
+
 **Third-Party Spoilers, Long Fueled by Both Parties, Could Matter This Year**\
 `The other Dan Sullivan in Alaska has drawn the most attention, but both parties are quietly trying to use little-known candidates in other battlegrounds to siphon votes, too.`\
 https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-candidates.html
