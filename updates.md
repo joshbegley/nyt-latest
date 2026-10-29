@@ -1,3 +1,7 @@
+**When Steve Kerr Met His Doppelgänger**\
+`Pablo unites the Warriors head coach with a look-alike on a Halloween edition of Share & Tell.`\
+https://www.nytimes.com/2026/10/29/podcasts/steve-kerr-warriors-head-coach-doppelganger.html
+
 **Milwaukee Brewers Win First World Series in Franchise History**\
 `Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
 https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
