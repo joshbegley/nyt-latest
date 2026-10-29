@@ -194,7 +194,7 @@ https://www.nytimes.com/interactive/2026/10/29/well/sugar-health-quiz-halloween-
 `Expectations are cresting for Democrats, and some kind of wave seems likely, but so much will depend on a few close Senate races.`\
 https://www.nytimes.com/2026/10/29/upshot/midterm-elections-senate-house-scenarios.html
 
-**Can Porn Ever Be Ethical?**\
+**Why Are We Having Less Sex? Ask a Pornographer.**\
 `Erika Lust wants to excite you.`\
 https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
 

@@ -1,3 +1,7 @@
+**Why Are We Having Less Sex? Ask a Pornographer.**\
+`Erika Lust wants to excite you.`\
+https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
+
 **U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
 `The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
