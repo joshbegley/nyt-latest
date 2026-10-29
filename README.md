@@ -1,3 +1,7 @@
+**How Netanyahu Used Fear, Again, to Win More Votes Than Anyone Else**\
+`Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
+https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
+
 **With No Clear Winner, How Could Israel Get a Prime Minister?**\
 `Deadlock is possible, as neither the bloc of Prime Minister Benjamin Netanyahu nor his main challenger appear likely to win a majority. But there are still paths to a new government.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
 **A New Georgia O’Keeffe Exhibit Shows a World Beyond Flowers**\
 `A rare display of the artist’s architectural paintings from three distinct locations are on view at the Detroit Institute of Arts.`\
 https://www.nytimes.com/2026/10/29/arts/design/museums-georgia-okeeffe-architecture-detroit.html
-
-**Can Influencers Help Pass the Billionaire Tax?**\
-`Laurel Rosenhall, one of our California reporters, describes how proponents of a tax on billionaires are countering their opponents’ enormous TV ad spending by spending small amounts on influencers.`\
-https://www.nytimes.com/video/us/elections/100000011194403/can-influencers-help-pass-the-billionaire-tax.html
 
