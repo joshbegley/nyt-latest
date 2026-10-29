@@ -1,3 +1,7 @@
+**Cruise Runs Out of Fuel Money, Stranding Passengers in Cambodia**\
+`A cruise ship called the Odyssey left 200 passengers stranded in Cambodia after it ran out money for fuel.`\
+https://www.nytimes.com/video/world/asia/100000011244082/villa-vie-odyssey-cruise-ship-cambodia.html
+
 **The Five-Borough Route: The Beating Heart of the NYC Marathon**\
 `When the event’s five co-founders first proposed moving it out of Central Park, it seemed impossible. Much has changed in the sport and the city since that 1976 race.`\
 https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-route-five-boroughs-course-history.html
