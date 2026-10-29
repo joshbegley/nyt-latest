@@ -1,3 +1,11 @@
+**2 College Students Are Found Dead on a Colorado Mountain**\
+`They had set off last week for Ice Mountain, in the central part of the state. Search teams located their bodies on Wednesday after spotting a boot jutting out of the snow.`\
+https://www.nytimes.com/2026/10/29/us/hikers-found-dead-colorado.html
+
+**Justice Dept. Pressures California With Expanded Election Investigation**\
+`The department has issued grand jury subpoenas to local election officials as part of a widening effort to prove unsubstantiated claims about large numbers of illegal voters in the state.`\
+https://www.nytimes.com/2026/10/29/us/trump-doj-california-voter-rolls-midterms.html
+
 **Homeland Security Leak Exposes More Than 41,000 Employees**\
 `A nonprofit said it released the information to promote transparency about the Trump administration’s deportation campaign. Homeland security officials told workers they are reviewing the incident.`\
 https://www.nytimes.com/2026/10/29/us/politics/homeland-security-hack.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/2026/10/29/world/americas/machado-trump-venezuela-return
 https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
 
 **Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
-`Amazon on Thursday became the latest tech company to to announce swelling investments in A.I. amid stumbling share prices.`\
+`Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
 https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
 
 **Have Questions About the Midterm Elections? Ask Us Anything.**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/29/insider/backstory-polling-ai.html
 **U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
 `The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
 https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
-
-**Lucien Smith’s Last Paintings Reclaim His Dazzling First Act**\
-`The artist, who died at 37, had largely retreated from the art world after skyrocketing early success. A final body of work is an exorcism of sorts.`\
-https://www.nytimes.com/2026/10/29/arts/design/lucien-smith-final-paintings.html
-
-**Job Hunt Feelings**\
-`We look at how Gen Z feels about the job search.`\
-https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
 
