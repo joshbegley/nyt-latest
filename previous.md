@@ -1,3 +1,11 @@
+**U.S. Expels Cuban Diplomat After Fiery Showdown at United Nations**\
+`Tensions have risen between the United States and Cuba as the Trump administration tries to force the island’s Communist government to make drastic changes.`\
+https://www.nytimes.com/2026/10/29/us/politics/cuban-diplomat-expelled.html
+
+**As Midterm Ads Focus on Epstein, a Florida Senator Is the Latest Target**\
+`A new ad criticizes Senator Ashley Moody, a Republican, for voting against releasing files on Jeffrey Epstein, who was accused of sex crimes in Palm Beach.`\
+https://www.nytimes.com/2026/10/29/us/politics/epstein-victim-ashley-moody-ad.html
+
 **Taryn Simon Fills Guggenheim With Evidence in ‘Father Country I Do Love You’**\
 `The photographer Taryn Simon spent a decade channeling an F.B.I. agent’s life into pictures. Is it good art? Does it matter?`\
 https://www.nytimes.com/2026/10/29/arts/design/taryn-simon-guggenheim-father-country-i-do-love-you.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/10/29/dining/healthy-slow-cooker-recipes.html
 https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
 
 **U.S. and Cuban Officials Argue at United Nations**\
-`The Cuban delegation at the United Nations and Mike Waltz, the U.S. ambassador to the U.N., engaged in a shouting match on the General Assembly floor.`\
+`The Cuban delegation at the United Nations and Michael Waltz, the U.S. ambassador to the U.N., engaged in a shouting match.`\
 https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-argue-united-nations.html
 
 **California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 **Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
 `Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
 https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
-
-**Is It Time to End Daylight Saving Time?**\
-`Do you look forward to falling back an hour every fall and springing forward an hour each spring?`\
-https://www.nytimes.com/2026/10/29/learning/is-it-time-to-end-daylight-saving-time.html
-
-**Its Investors Say Kalshi Is Worth $40 Billion. Is an I.P.O. Next?**\
-`The prediction market raised $1 billion in a new funding round and landed a market value almost double that of rival Polymarket. But legal challenges to its business persist.`\
-https://www.nytimes.com/2026/10/29/business/dealbook/kalshi-fundraising-ipo.html
 
