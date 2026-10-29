@@ -1,3 +1,7 @@
+**Who Is Ahead in California's 4th Congressional District?**\
+`Track the latest polls in California's 4th Congressional District.`\
+https://www.nytimes.com/interactive/polls/california-us-house-4-polls-2026.html
+
 **After Reinventing Mathematics, Can A.I. Eradicate Computer Bugs?**\
 `Using the same techniques that allowed A.I. technologies to crack a million-dollar math problem, researchers are building new systems that aim to solve the world’s cybersecurity crisis.`\
 https://www.nytimes.com/2026/10/29/science/ai-eradicate-computer-bugs.html
