@@ -1,3 +1,15 @@
+**Taryn Simon Fills Guggenheim With Evidence in ‘Father Country I Do Love You’**\
+`The photographer Taryn Simon spent a decade channeling an F.B.I. agent’s life into pictures. Is it good art? Does it matter?`\
+https://www.nytimes.com/2026/10/29/arts/design/taryn-simon-guggenheim-father-country-i-do-love-you.html
+
+**The Democrats’ Secret Search for Alaska’s ‘Other’ Dan Sullivan**\
+`In Alaska’s Senate race, two candidates share the same name: Dan Sullivan. But that’s no coincidence. A New York Times investigation uncovered a secret plan by Democratic operatives to recruit candidates with the same name as the incumbent Republican senator, hoping to confuse voters and split the Republican vote.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-secret-search-for-alaskas-other-dan-sullivan.html
+
+**Broadway’s ‘A Few Good Men,’ Performed Live in the New York Times Office**\
+`Watch Bradley Whitford and three other actors from the Broadway revival of Aaron Sorkin’s classic courtroom drama argue in an office at the New York Times Building.`\
+https://www.nytimes.com/2026/10/29/t-magazine/a-few-good-men-broadway-live.html
+
 **The Democrats’ Secret Search for Alaska’s ‘Other’ Dan Sullivan**\
 `In Alaska’s Senate race, two candidates share the same name: Dan Sullivan. But that’s no coincidence. A New York Times investigation uncovered a secret plan by Democratic operatives to recruit candidates with the same name as the incumbent Republican senator, hoping to confuse voters and split the Republican vote. On “The Daily,” political reporter Kellen Browning tells host Michael Barbaro how the scheme unfolded and why Democrats went searching for another Dan Sullivan.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-secret-search-for-alaskas-other-dan-sullivan.html
