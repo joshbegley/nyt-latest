@@ -1,3 +1,7 @@
+**China Confirms Expulsion of 33 Officials, as Xi’s Purge Deepens**\
+`Xi Jinping has enforced loyalty as he prepares to claim a fourth term as leader. Among those removed was a prominent former diplomat, Liu Jianchao.`\
+https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
+
 **Inflation Accelerated in October, PCE Index Shows**\
 `The Personal Consumption Expenditures index picked up in September, according to data released a day after the Federal Reserve’s decision to hold interest rates steady.`\
 https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/us/california-billionaire-tax-influencers.htm
 **Candidate Websites Are Filled With A.I.-Written Text, Analysis Shows**\
 `The use of A.I. chatbots to write candidate biographies and policy positions is another way the technology is entangled with elections.`\
 https://www.nytimes.com/2026/10/29/us/politics/campaign-websites-artificial-intelligence.html
-
-**Book Review: ‘The Glass Box,’ by Calum Marsh**\
-`In “The Glass Box,” Calum Marsh chronicles the rise and fall of a fitness empire.`\
-https://www.nytimes.com/2026/10/29/books/review/calum-marsh-the-glass-box-.html
 

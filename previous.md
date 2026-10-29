@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
 
 **U.S. G.D.P. Increased in Third Quarter**\
-`Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter, federal data showed.`\
+`Spending by A.I. companies and consumers powered gross domestic product growth in the third quarter. The economy grew 3.4 percent, the fastest pace in a year.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 
 **Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
