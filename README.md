@@ -1,3 +1,7 @@
+**Can Porn Ever Be Ethical?**\
+`A pornographer and conservative Catholic discuss sex and pleasure.`\
+https://www.nytimes.com/video/opinion/100000011240853/can-porn-ever-be-ethical.html
+
 **Cruise Runs Out of Fuel Money, Stranding Passengers in Cambodia**\
 `A cruise ship called the Odyssey left 200 passengers stranded in Cambodia after it ran out money for fuel.`\
 https://www.nytimes.com/video/world/asia/100000011244082/villa-vie-odyssey-cruise-ship-cambodia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.ht
 **Fed Will Hold Fewer Rate-Setting Meetings Starting Next Year**\
 `Kevin M. Warsh, the Federal Reserve’s chairman, said the central bank would vote on interest rates seven times in 2027 and six in 2028. It has traditionally voted eight times per year.`\
 https://www.nytimes.com/2026/10/28/business/economy/fed-meetings-2027-interest-rates-warsh.html
-
-**Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
-`Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
 
