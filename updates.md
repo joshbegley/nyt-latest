@@ -1,3 +1,7 @@
+**Newly Freed American Describes His Years in Russian Prison**\
+`Stephen James Hubbard, the retired teacher arrested soon after Russia’s full-scale invasion of Ukraine in 2022, said he sometimes lost hope.`\
+https://www.nytimes.com/2026/10/29/world/europe/stephen-james-hubbard-russian-prison.html
+
 **Patrick Stewart: A Life in Pictures**\
 `The motley mix of roles that won the British actor acclaim include a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
 https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
