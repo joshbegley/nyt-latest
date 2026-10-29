@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-race-cowbell.html
 
 **The Five-Borough Route: The Beating Heart of the NYC Marathon**\
 `When the event’s five co-founders first proposed moving it out of Central Park, it seemed impossible. Much has changed in the sport and the city since that 1976 race.`\
-https://www.nytimes.com/2026/10/29/nyregion/the-five-borough-route-the-beating-heart-of-the-new-york-marathon.html
+https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-route-five-boroughs-course-history.html
 
 **NYT Spelling Bee Answers for October 29, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
