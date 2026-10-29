@@ -1,3 +1,7 @@
+**The Rise of American Chenin Blanc**\
+`More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape.`\
+https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
+
 **The 2026 Holiday Gift Guide**\
 `From luxe items that delight to unexpected — and inexpensive — gems, our experts have curated the best gifts to help you check everyone off your list.`\
 https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/business/economy/federal-reserve-interest-rat
 **Is This the Final Unraveling?**\
 `What are the key differences between now and two years ago? Between now and 2016?`\
 https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.html
-
-**Quiz: How Much Do You Know About Sugar?**\
-`This quiz is our treat.`\
-https://www.nytimes.com/interactive/2026/10/29/well/sugar-health-quiz-halloween-candy.html
 

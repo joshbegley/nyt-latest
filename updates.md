@@ -1,3 +1,7 @@
+**The Rise of American Chenin Blanc**\
+`More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape.`\
+https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
+
 **How Netanyahu Used Fear, Again, to Win Votes in the Israel Elections**\
 `Despite years of political baggage, the Israeli prime minister outperformed expectations, and his rivals, by playing on Jewish voters’ fears of Arab political power and potential security threats.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/netanyahu-fear-election-votes.html
