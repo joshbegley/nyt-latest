@@ -1,3 +1,7 @@
+**Europe Is on Edge, and It’s Not Going to End**\
+`The protests roiling the continent express feelings of generational futility.`\
+https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html
+
 **A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
 `A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
 https://www.nytimes.com/2026/10/29/world/europe/a-ukrainian-city-in-the-kill-zone-relishes-a-moment-of-peace.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescro
 **Worried About A.I. Taking Your Job? This Is for You.**\
 `We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
 https://www.nytimes.com/2026/10/28/opinion/ai-job-replacement-unions-san-francisco.html
-
-**You Can’t Stop A.I. But You Can Bargain With It.**\
-`We can learn a lot from a long-dead labor leader about how to reckon with technology that threatens our jobs.`\
-https://www.nytimes.com/video/opinion/100000011225057/you-cant-stop-ai-but-you-can-bargain-with-it.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
