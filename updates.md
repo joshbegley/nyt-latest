@@ -1,3 +1,15 @@
+**Cuba’s Foreign Minister: We’ll Outlast Trump**\
+`The Trump administration is carrying out the most intense pressure campaign on Cuba in decades. The Cuban government says its plan is simply to endure.`\
+https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
+
+**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
+`Amazon on Thursday became the latest tech company to to announce swelling investments in A.I. amid stumbling share prices.`\
+https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
+
+**Have Questions About the Midterm Elections? Ask Us Anything.**\
+`Patrick Healy, an assistant managing editor at The Times, will answer your questions on Monday at 11:15 a.m. Let us know what’s on your mind in the comments.`\
+https://www.nytimes.com/2026/10/29/insider/midterm-elections-coverage-questions.html
+
 **NYC Marathon: Hear What It’s Like to Run the Best and Worst Mile of the Race**\
 `After a brutal trek over the spectator-free Queensboro Bridge, runners are hit with the deafening roar of the Manhattan crowds.`\
 https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-running-audio.html

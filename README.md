@@ -1,3 +1,11 @@
+**Homeland Security Leak Exposes More Than 41,000 Employees**\
+`A nonprofit said it released the information to promote transparency about the Trump administration’s deportation campaign. Homeland security officials told workers they are reviewing the incident.`\
+https://www.nytimes.com/2026/10/29/us/politics/homeland-security-hack.html
+
+**Venezuelan Opposition Leader Thanks Trump But Marks Distance from Washington**\
+`Finally home in Caracas, María Corina Machado called for elections next year, and said her return was organized by her team, not any government.`\
+https://www.nytimes.com/2026/10/29/world/americas/machado-trump-venezuela-return.html
+
 **Cuba’s Foreign Minister: We’ll Outlast Trump**\
 `The Trump administration is carrying out the most intense pressure campaign on Cuba in decades. The Cuban government says its plan is simply to endure.`\
 https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/29/arts/design/lucien-smith-final-paintings.html
 **Job Hunt Feelings**\
 `We look at how Gen Z feels about the job search.`\
 https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
-
-**Jacques Pépin’s Roast Chicken Recipe**\
-`It’s a classic method that yields excellent results.`\
-https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.html
-
-**‘Knicks in Five’ Feels Like a Long Time Ago**\
-`Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
-https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
 
