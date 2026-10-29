@@ -1,3 +1,7 @@
+**Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
+`The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
+https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
+
 **These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
 `F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
 https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
