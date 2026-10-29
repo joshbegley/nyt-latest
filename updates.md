@@ -1,3 +1,7 @@
+**She Was Arrested After Leaving Her Kids for Days. It Sparked a Debate.**\
+`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go on a work trip, reigniting the debate over when parents act irresponsibly.`\
+https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
+
 **Trump Calls for Mary Peltola, Alaska Senate Candidate, to Be Prosecuted**\
 `The president lashed out at the former representative after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime was committed.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
