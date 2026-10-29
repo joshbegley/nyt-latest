@@ -1,3 +1,7 @@
+**Its Investors Say Kalshi Is Worth $40 Billion. Is an I.P.O. Next?**\
+`The prediction market raised $1 billion in a new funding round and landed a market value almost double that of rival Polymarket. But legal challenges to its business persist.`\
+https://www.nytimes.com/2026/10/29/business/dealbook/its-investors-say-kalshi-is-worth-40-billion-is-an-ipo-next.html
+
 **Russian Strike on Ukrainian Train Station Kills 13**\
 `A deadly strike was a grim reminder that despite a rare local cease-fire around the Russian-occupied town of Oleshky, other communities remained under fire.`\
 https://www.nytimes.com/2026/10/29/world/europe/ukraine-dnipro-train-russia.html
