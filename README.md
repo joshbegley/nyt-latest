@@ -1,3 +1,7 @@
+**California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
+`Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
+https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html
+
 **King Charles’s Caribbean Tour Met With Celebration and Demands**\
 `King Charles III joined a street parade in the Bahamas on the second day of his Caribbean tour. The trip comes against backdrop of increasing demand that Britain pay reparations for its role in the slave trade.`\
 https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribbean-reparations-bahamas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.ht
 **Midterm Elections Live Updates: Calls for Investigation Ratchet Up Tension in Alaska Senate Race**\
 `Republicans are trying to defend vulnerable seats in traditional strongholds including Alaska, where the Democrat’s campaign for Senate faces scrutiny after a New York Times report.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
-
-**Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
-`After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
-https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
 

@@ -1,3 +1,7 @@
+**King Charles’s Caribbean Tour Met With Celebration and Demands**\
+`King Charles III joined a street parade in the Bahamas on the second day of his Caribbean tour. The trip comes against backdrop of increasing demand that Britain pay reparations for its role in the slave trade.`\
+https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribbean-reparations-bahamas.html
+
 **Hegseth Fires General He Accused of Leaking Information to the News Media**\
 `Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
 https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
