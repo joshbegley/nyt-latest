@@ -1,4 +1,8 @@
 **The Rise of American Chenin Blanc**\
+`More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape. Here are 10 bottles to explore.`\
+https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
+
+**The Rise of American Chenin Blanc**\
 `More producers, especially in California, are making excellent wines as the audience gets to know this versatile white grape.`\
 https://www.nytimes.com/2026/10/29/dining/drinks/american-chenin-blanc-wine-california.html
 
