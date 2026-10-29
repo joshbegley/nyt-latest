@@ -1,3 +1,11 @@
+**State Dept. to Shift Millions in Contraception Funding to Cover Energy Costs**\
+`In a memo, the department told lawmakers it was redirecting up to $125 million in foreign aid, including nearly $49 million that Congress appropriated for family planning programs in low-income countries.`\
+https://www.nytimes.com/2026/10/29/us/politics/foreign-aid-divert-energy-contraceptives.html
+
+**A ‘Supergirl’ Actress Writes the Children’s Book She Wished for as a Kid**\
+`Azie Tesfai, the Eritrean and Ethiopian actor, was inspired by her childhood and her time on set to write “You’re a Superhero!”`\
+https://www.nytimes.com/2026/10/29/arts/television/azie-tesfai-supergirl-graphic-novel-superhero.html
+
 **What Teenagers Are Saying About the Creepiest Places They’ve Been**\
 `Students share stories of haunted homes, darkened woods and abandoned estates, and reflect on why we crave the rush of terror.`\
 https://www.nytimes.com/2026/10/29/learning/what-teenagers-are-saying-about-the-creepiest-places-theyve-been.html
