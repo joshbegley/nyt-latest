@@ -1,3 +1,19 @@
+**These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
+`F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
+https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
+
+**It’s Clear. Trump Is Siding With Russia.**\
+`Trump’s new diesel deal with Russia is a dark sign of his new American agenda, argues the Opinion columnist M. Gessen. The agreement, along with Ukraine’s accusation that the United States withheld military intelligence, points to a new story in this war: “If Vladimir Putin’s plan is to starve Ukraine into submission this winter, then Donald Trump is going to help Putin do that.”`\
+https://www.nytimes.com/video/opinion/100000011228188/its-clear-trump-is-siding-with-russia.html
+
+**Haiti Postpones Elections as Gang Violence Runs Rampant**\
+`Haiti is in the throes of debilitating gang violence, which has kept officials from organizing an election to pick a new president.`\
+https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html
+
+**Answers to Your Questions About New York Times Midterm Election Coverage**\
+`Readers had questions about our polls, our political reporters, our race calls and more. New York Times journalists answered.`\
+https://www.nytimes.com/2026/10/29/insider/questions-and-answers-about-midterm-election-coverage.html
+
 **U.S. GDP Increased 3.4% in Third Quarter**\
 `The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks many voters are giving the economy.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html

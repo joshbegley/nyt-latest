@@ -1,3 +1,7 @@
+**Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
+`The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
+https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
+
 **These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
 `F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
 https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/29/technology/personaltech/apple-google-maps-fea
 **They Pick Up Cash From Weed Stores. Up to $250,000 a Day.**\
 `A company hires retired law-enforcement officers to move cannabis proceeds from dispensaries to banks.`\
 https://www.nytimes.com/2026/10/29/nyregion/cannabis-dispensaries-cash-moving.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a three-bedroom house in Floral Park, N.Y., and a five-bedroom house in Leonia, N.J.`\
-https://www.nytimes.com/2026/10/29/realestate/housing-market-near-nyc.html
 
