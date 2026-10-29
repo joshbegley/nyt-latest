@@ -1,3 +1,15 @@
+**NYC Marathon: Hear What It’s Like to Run the Best and Worst Mile of the Race**\
+`After a brutal trek over the spectator-free Queensboro Bridge, runners are hit with the deafening roar of the Manhattan crowds.`\
+https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-running-audio.html
+
+**A.I. Avatars Are Coming for Comedy**\
+`Scantily-clad A.I.-generated avatars are stealing jokes from female comedians and retelling them to massive online audiences. The critic Jason Zinoman examines this new social media phenomenon, why female comics are particularly vulnerable and what it means for the state of stand-up comedy.`\
+https://www.nytimes.com/video/arts/100000011218664/sexy-ai-avatars-are-coming-for-comedy.html
+
+**The Perils of Glittering Skylines**\
+`Glass skyscrapers are transforming cities, but do they make sense in a world that’s getting hotter?`\
+https://www.nytimes.com/2026/10/29/world/glass-skyscrapers-climate-patrick-stewart.html
+
 **What’s Next for Israel? Four Writers Decode the Election Results.**\
 `A round table discussion on what the future holds for Israel and its government.`\
 https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/29/technology/polymarket-kalshi-midterm-election
 **Search for Victims Continues After Train Crash in Spain**\
 `Rescuers in Spain on Thursday continued combing through the wreckage of a horrific train crash that killed at least 69 people when one high-speed train rear-ended another that was stopped on the same tracks.`\
 https://www.nytimes.com/video/world/europe/100000011244553/spain-train-crash.html
-
-**Broadway’s ‘A Few Good Men,’ Performed Live in the New York Times Office**\
-`Watch Bradley Whitford and three other actors from the Broadway revival of Aaron Sorkin’s classic courtroom drama argue in an office at the New York Times Building.`\
-https://www.nytimes.com/2026/10/29/t-magazine/a-few-good-men-broadway-live.html
-
-**Live From the 10th Floor | ‘A Few Good Men’**\
-`The actors Bradley Whitford, Thom Sesma, John Zdrojeski and Miles Fowler perform a scene from the Broadway revival of Aaron Sorkin’s “A Few Good Men” at the New York Times office.`\
-https://www.nytimes.com/video/t-magazine/100000011240412/live-from-the-10th-floor-a-few-good-men.html
-
-**Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says**\
-`The suspect, identified only as Kévin T., admitted to planning the attacks near Paris last week, the prosecutor said. One person was killed and seven wounded.`\
-https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
 
