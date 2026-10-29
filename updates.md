@@ -1,4 +1,12 @@
 **U.S. GDP Increased 3.4% in Third Quarter**\
+`The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks many voters are giving the economy.`\
+https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
+
+**Russian Strike on Ukrainian Train Station Kills 14**\
+`A deadly strike was a grim reminder that despite a rare local cease-fire around the Russian-occupied town of Oleshky, other communities remained under fire.`\
+https://www.nytimes.com/2026/10/29/world/europe/ukraine-dnipro-train-russia.html
+
+**U.S. GDP Increased 3.4% in Third Quarter**\
 `The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks that many voters are giving the economy.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
 

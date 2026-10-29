@@ -1,3 +1,19 @@
+**These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
+`F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
+https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
+
+**It’s Clear. Trump Is Siding With Russia.**\
+`Trump’s new diesel deal with Russia is a dark sign of his new American agenda, argues the Opinion columnist M. Gessen. The agreement, along with Ukraine’s accusation that the United States withheld military intelligence, points to a new story in this war: “If Vladimir Putin’s plan is to starve Ukraine into submission this winter, then Donald Trump is going to help Putin do that.”`\
+https://www.nytimes.com/video/opinion/100000011228188/its-clear-trump-is-siding-with-russia.html
+
+**Haiti Postpones Elections as Gang Violence Runs Rampant**\
+`Haiti is in the throes of debilitating gang violence, which has kept officials from organizing an election to pick a new president.`\
+https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html
+
+**Answers to Your Questions About New York Times Midterm Election Coverage**\
+`Readers had questions about our polls, our political reporters, our race calls and more. New York Times journalists answered.`\
+https://www.nytimes.com/2026/10/29/insider/questions-and-answers-about-midterm-election-coverage.html
+
 **Who Is Ahead in California's 4th Congressional District?**\
 `Track the latest polls in California's 4th Congressional District.`\
 https://www.nytimes.com/interactive/polls/california-us-house-4-polls-2026.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/29/nyregion/cannabis-dispensaries-cash-moving.ht
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a three-bedroom house in Floral Park, N.Y., and a five-bedroom house in Leonia, N.J.`\
 https://www.nytimes.com/2026/10/29/realestate/housing-market-near-nyc.html
-
-**‘Manhood’ Review: Going to Great Lengths**\
-`Penis enlargement is the subject of this humanely-observed but unfocused documentary.`\
-https://www.nytimes.com/2026/10/29/movies/manhood-review.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in TriBeCa, on the Upper West Side and City Island.`\
-https://www.nytimes.com/2026/10/29/realestate/housing-market-nyc.html
-
-**‘The Mosquito Bowl’ Review: Blood Sport**\
-`Peter Berg’s bluntly drawn historical drama pairs two pillars of American identity, war and football, to uneasy effect.`\
-https://www.nytimes.com/2026/10/29/movies/the-mosquito-bowl-review.html
-
-**Billionaire Tax Campaign Pins Its Hopes on Influencers and Social Media**\
-`Supporters of a California wealth tax are short on cash and are relying on cheaper campaign methods to get their word out.`\
-https://www.nytimes.com/2026/10/29/us/california-billionaire-tax-influencers.html
 
