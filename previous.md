@@ -1,3 +1,7 @@
+**After Flying Past the Moon, an Artemis II Astronaut Lands in California**\
+`Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
+https://www.nytimes.com/2026/10/28/science/space/after-flying-past-the-moon-an-artemis-ii-astronaut-lands-in-california.html
+
 **She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
 `A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the cantankerous debate over when parents act irresponsibly.`\
 https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
 https://www.nytimes.com/live/2026/10/28/business/fed-meeting-warsh-interest-rates
-
-**Linda McMahon Spends $43,000 on Furniture as She Looks to Close Education Department**\
-`The education secretary says her old furniture “cannot be configurationally or aesthetically integrated” into new office space.`\
-https://www.nytimes.com/2026/10/28/us/politics/linda-mcmahon-education-department-furniture-trump.html
 
 **Israeli Election Live Updates: With Votes Nearly Counted, Rival Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\

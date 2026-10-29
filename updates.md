@@ -1,3 +1,7 @@
+**After Flying Past the Moon, an Artemis II Astronaut Lands in California**\
+`Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
+https://www.nytimes.com/2026/10/28/science/space/after-flying-past-the-moon-an-artemis-ii-astronaut-lands-in-california.html
+
 **She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
 `A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the cantankerous debate over when parents act irresponsibly.`\
 https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
