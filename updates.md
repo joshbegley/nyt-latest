@@ -1,3 +1,19 @@
+**A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
+`A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
+https://www.nytimes.com/2026/10/29/world/europe/a-ukrainian-city-in-the-kill-zone-relishes-a-moment-of-peace.html
+
+**Quote of the Day: In Afghanistan, She Feared for Her Safety. On Sunday, She’ll Run Free.**\
+`Quotation of the Day for Thursday, October 29, 2026.`\
+https://www.nytimes.com/2026/10/29/pageoneplus/quote-of-the-day-in-afghanistan-she-feared-for-her-safety-on-sunday-shell-run-free.html
+
+**From the Front Page: The Stock Market Crashes on Oct. 29, 1929**\
+`Black Tuesday descended on the New York Stock Exchange. Prices collapsed amid panic selling, and thousands of investors faced “gigantic losses” as the Great Depression began in America.`\
+https://www.nytimes.com/2026/10/29/learning/from-the-front-page-the-stock-market-crashes-on-oct-29-1929.html
+
+**Trump Administration Moves to Close East Potomac Park to Begin Golf Project**\
+`The government said in a court filing that it would meet the Nov. 15 deadline set by President Trump to close East Potomac Park to build a championship golf course there.`\
+https://www.nytimes.com/2026/10/28/us/politics/deadline-golf-course-closure.html
+
 **Cuauhtémoc Cárdenas, Who Helped End One-Party Rule in Mexico, Dies at 92**\
 `Mr. Cárdenas, the only son of a Mexican president, never won the office but became a leading figure in the country’s democratic transformation.`\
 https://www.nytimes.com/2026/10/28/world/americas/cuauhtemoc-cardenas-dead.html
