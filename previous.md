@@ -1,9 +1,17 @@
+**Volkswagen ‘Must Act Quickly’ After Largest Loss in Over a Decade**\
+`The German carmaker warned that it “must act quickly and decisively” to cut costs.`\
+https://www.nytimes.com/2026/10/29/business/volkswagen-loss-china.html
+
+**DoorDash to Buy Instacart for $17 Billion, Uniting 2 Delivery Giants**\
+`The deal combines the country’s largest restaurant delivery service with its biggest online grocery platform.`\
+https://www.nytimes.com/2026/10/29/technology/doordash-instacart-acquisition-delivery.html
+
 **Stacking Ballots**\
 `A tale of political intrigue from Alaska.`\
 https://www.nytimes.com/2026/10/29/briefing/alaska-midterms-cheesecake-factory.html
 
 **Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
-`John Lee, the city’s chief executive, said the city’s housing secretary would step down, but he vehemently defended the government.`\
+`John Lee, the city’s chief executive, said his housing secretary would step down, but he vehemently defended the government.`\
 https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
 
 **Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/29/movies/christmas-at-the-kringles-review.html
 **Bodacious A.I. Bots Are Stealing Jokes From Young Female Comedians**\
 `Swiping jokes word for word, these bodacious bots mainly lift from young female comedians. What’s so insidious is how they’re subtly changing us, the audience.`\
 https://www.nytimes.com/2026/10/29/arts/ai-bots-jokes-theft-comedians.html
-
-**‘Apocalypse Z: New World’ Review: Chomping Hordes, Continued**\
-`While efficient, this action sequel sticks closely to familiar zombie genre tropes.`\
-https://www.nytimes.com/2026/10/29/movies/apocalypse-z-new-world-review.html
-
-**Nvidia Chief, Jensen Huang, Is Seen as Target of Chinese Spy Plot**\
-`A Chinese businesswoman who had a close relationship with Jensen Huang was found to be passing intelligence to Beijing. President Trump was briefed and took no action.`\
-https://www.nytimes.com/2026/10/29/us/politics/nvidia-china-jensen-huang-trump.html
 

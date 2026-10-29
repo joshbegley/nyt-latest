@@ -1,3 +1,15 @@
+**Volkswagen ‘Must Act Quickly’ After Largest Loss in Over a Decade**\
+`The German carmaker warned that it “must act quickly and decisively” to cut costs.`\
+https://www.nytimes.com/2026/10/29/business/volkswagen-loss-china.html
+
+**DoorDash to Buy Instacart for $17 Billion, Uniting 2 Delivery Giants**\
+`The deal combines the country’s largest restaurant delivery service with its biggest online grocery platform.`\
+https://www.nytimes.com/2026/10/29/technology/doordash-instacart-acquisition-delivery.html
+
+**Hong Kong Leader Apologizes for Deadly Apartment Building Fire**\
+`John Lee, the city’s chief executive, said his housing secretary would step down, but he vehemently defended the government.`\
+https://www.nytimes.com/2026/10/29/world/asia/hong-kong-fire-john-lee-apology.html
+
 **Midterm Elections Live Updates: Trump Heads to South Carolina to Rally Republicans**\
 `The state is the latest stop in President Trump’s breakneck campaign tour.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
