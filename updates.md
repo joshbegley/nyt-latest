@@ -1,3 +1,7 @@
+**What’s Going On in This Graph? | Nov. 4, 2026**\
+`How would you improve schools?`\
+https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-graph-nov-4-2026.html
+
 **Hegseth Fires Top Army General He Accused of Leaking Information to Media**\
 `Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
 https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html

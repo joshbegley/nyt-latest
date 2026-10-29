@@ -1,3 +1,7 @@
+**What’s Going On in This Graph? | Nov. 4, 2026**\
+`How would you improve schools?`\
+https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-graph-nov-4-2026.html
+
 **U.S. Expels Cuban Diplomat After Fiery Showdown at United Nations**\
 `Tensions have risen between the United States and Cuba as the Trump administration tries to force the island’s Communist government to make drastic changes.`\
 https://www.nytimes.com/2026/10/29/us/politics/cuban-diplomat-expelled.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
 **U.S. GDP Increased 3.4% in Third Quarter**\
 `The economy grew 3.4 percent in the third quarter, the fastest pace in a year. Strong spending and growth contrast with the poor marks many voters are giving the economy.`\
 https://www.nytimes.com/2026/10/29/business/economy/us-economy-gdp.html
-
-**Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
-`Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
-https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
 
