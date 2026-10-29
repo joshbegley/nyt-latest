@@ -1,3 +1,7 @@
+**California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
+`Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
+https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html
+
 **King Charles’s Caribbean Tour Met With Celebration and Demands**\
 `King Charles III joined a street parade in the Bahamas on the second day of his Caribbean tour. The trip comes against backdrop of increasing demand that Britain pay reparations for its role in the slave trade.`\
 https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribbean-reparations-bahamas.html
