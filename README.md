@@ -1,3 +1,7 @@
+**Microsoft Up, Google Down. A Tale of Two Hyperscalers.**\
+`Investors are showing little patience for lavish spending and meager returns on companies’ artificial intelligence bets.`\
+https://www.nytimes.com/2026/10/29/business/dealbook/microsoft-google-ai-hyperscalers.html
+
 **Is It Time to End Daylight Saving Time?**\
 `Do you look forward to falling back an hour every fall and springing forward an hour each spring?`\
 https://www.nytimes.com/2026/10/29/learning/is-it-time-to-end-daylight-saving-time.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/realestate/the-best-cities-to-retire-in-2026.
 **‘Queen at Sea’ Review: An Impossible Situation**\
 `Juliette Binoche stars in a heart-wrenching drama about dementia that is harrowing to watch.`\
 https://www.nytimes.com/2026/10/29/movies/queen-at-sea-review.html
-
-**‘The Mongoose’ Review: Battle Scars and Muscle Cars**\
-`Liam Neeson plays a military veteran fleeing a murder rap in this silly, sentimental action movie.`\
-https://www.nytimes.com/2026/10/29/movies/the-mongoose-review.html
 
