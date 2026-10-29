@@ -1,8 +1,12 @@
+**Banana Splits, Party Omakase and More Ways To Stave Off The Winter Blues**\
+`Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
+https://www.nytimes.com/2026/10/29/dining/reader-questions.html
+
 **7 Memorable Patrick Stewart Performances**\
 `The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
 https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
 
-**Patrick Stewart, Captain Picard on ‘Star Trek: The Next Generation,” Dies**\
+**Patrick Stewart, Captain Picard on ‘Star Trek: The Next Generation,’ Dies**\
 `The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-viol
 **Answers to Your Questions About New York Times Midterm Election Coverage**\
 `Readers had questions about our polls, our political reporters, our race calls and more. New York Times journalists answered.`\
 https://www.nytimes.com/2026/10/29/insider/questions-and-answers-about-midterm-election-coverage.html
-
-**Who Is Ahead in California's 4th Congressional District?**\
-`Track the latest polls in California's 4th Congressional District.`\
-https://www.nytimes.com/interactive/polls/california-us-house-4-polls-2026.html
 

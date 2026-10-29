@@ -1,3 +1,7 @@
+**Jimmy Gomez at Risk of Losing Seat Amid Sexual Misconduct Inquiry**\
+`Representative Jimmy Gomez, who represents a safe Democratic district, is facing an intraparty challenge from a progressive candidate.`\
+https://www.nytimes.com/2026/10/29/us/jimmy-gomez-polling-california-house.html
+
 **Banana Splits, Party Omakase and More Ways To Stave Off The Winter Blues**\
 `Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
 https://www.nytimes.com/2026/10/29/dining/reader-questions.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/opinion/100000011228188/its-clear-trump-is-siding-
 **Haiti Postpones Elections as Gang Violence Runs Rampant**\
 `Haiti is in the throes of debilitating gang violence, which has kept officials from organizing an election to pick a new president.`\
 https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html
-
-**Answers to Your Questions About New York Times Midterm Election Coverage**\
-`Readers had questions about our polls, our political reporters, our race calls and more. New York Times journalists answered.`\
-https://www.nytimes.com/2026/10/29/insider/questions-and-answers-about-midterm-election-coverage.html
 
