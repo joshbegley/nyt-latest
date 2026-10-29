@@ -1,3 +1,7 @@
+**Hegseth Fires Top Army General He Accused of Leaking Information to Media**\
+`Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
+https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
+
 **U.S. Expels Cuban Diplomat After Fiery Showdown at United Nations**\
 `Tensions have risen between the United States and Cuba as the Trump administration tries to force the island’s Communist government to make drastic changes.`\
 https://www.nytimes.com/2026/10/29/us/politics/cuban-diplomat-expelled.html
