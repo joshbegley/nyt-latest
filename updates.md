@@ -1,3 +1,7 @@
+**President Trump Was Briefed on a Chinese Spy Plot. He Took No Action.**\
+`Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
+https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
+
 **Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
 `After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
 https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
