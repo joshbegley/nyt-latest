@@ -1,3 +1,15 @@
+**2 College Students Are Found Dead on a Colorado Mountain**\
+`They had set off last week for Ice Mountain, in the central part of the state. Search teams located their bodies on Wednesday after spotting a boot jutting out of the snow.`\
+https://www.nytimes.com/2026/10/29/us/hikers-found-dead-colorado.html
+
+**Justice Dept. Pressures California With Expanded Election Investigation**\
+`The department has issued grand jury subpoenas to local election officials as part of a widening effort to prove unsubstantiated claims about large numbers of illegal voters in the state.`\
+https://www.nytimes.com/2026/10/29/us/trump-doj-california-voter-rolls-midterms.html
+
+**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
+`Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
+https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
+
 **Homeland Security Leak Exposes More Than 41,000 Employees**\
 `A nonprofit said it released the information to promote transparency about the Trump administration’s deportation campaign. Homeland security officials told workers they are reviewing the incident.`\
 https://www.nytimes.com/2026/10/29/us/politics/homeland-security-hack.html

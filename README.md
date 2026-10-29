@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Nov. 2, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-picture-nov-2-2026.html
+
 **2 College Students Are Found Dead on a Colorado Mountain**\
 `They had set off last week for Ice Mountain, in the central part of the state. Search teams located their bodies on Wednesday after spotting a boot jutting out of the snow.`\
 https://www.nytimes.com/2026/10/29/us/hikers-found-dead-colorado.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/interactive/2026/us/wirecutter-holiday-gift-guide.html
 **Poll Watch**\
 `In today’s Backstory, an election night dress rehearsal, surveillance towers at the border and A.I. in the newsroom.`\
 https://www.nytimes.com/2026/10/29/insider/backstory-polling-ai.html
-
-**U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
-`The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
 
