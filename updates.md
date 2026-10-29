@@ -1,3 +1,7 @@
+**Machado Says U.S. Plan for Venezuela Will Lead to Elections Next Year**\
+`On Thursday in Caracas, María Corina Machado, the Venezuelan opposition leader, gave her first news conference since returning to the country last week.`\
+https://www.nytimes.com/video/world/americas/100000011247322/maria-corina-machado-speech.html
+
 **Judge Orders Trump Officials to Outline Election Demands Sent to States**\
 `A federal judge gave the government until noon on Friday to share which states had received letters trying to enlist them in an effort to find evidence of voter fraud.`\
 https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
