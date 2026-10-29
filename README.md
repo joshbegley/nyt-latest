@@ -1,3 +1,7 @@
+**How Israel’s Election Could End**\
+`Neither Benjamin Netanyahu nor Gadi Eisenkot won a majority in Israel’s Parliament, leaving both with a chance to form a government. Our Jerusalem bureau chief, David M. Halbfinger, explains the possible coalitions and the obstacles to an opposition alliance that could include Arab parties.`\
+https://www.nytimes.com/video/world/middleeast/100000011242127/how-israels-election-could-end.html
+
 **Five Takeaways From the New Hampshire Senate Debate**\
 `Representative Chris Pappas and former Senator John E. Sununu both stressed their willingness to buck their parties on occasion. Neither had kind words for President Trump.`\
 https://www.nytimes.com/2026/10/29/us/politics/pappas-sununu-new-hampshire-senate-debate.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-
 **Here’s the latest.**\
 `(No description)`\
 https://www.nytimes.com/2026/10/28/business/economy/heres-the-latest.html
-
-**TikTok Is Making Politics a Little Better**\
-`Algorithms are making politicians focus more on positive messaging in short video.`\
-https://www.nytimes.com/2026/10/28/opinion/tiktok-politics-social-media-hopescroll.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
