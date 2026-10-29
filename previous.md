@@ -1,3 +1,7 @@
+**Trump Calls Black and Jewish El-Sayed Supporters ‘Crazy’**\
+`President Trump insulted Black and Jewish supporters of Michigan Senate candidate Dr. Abdul El-Sayed during a rally in South Carolina on Thursday.`\
+https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-supporters-crazy.html
+
 **A Sailor Jumped From the U.S.S. Lincoln. The Navy Punished Him.**\
 `The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
 https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/10/29/us/politics/the-docket-trump-judges.html
 **2026 Midterm Election Ballot Measures: What Races We’re Watching**\
 `More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
 https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
-
-**Third-Party Spoilers, Long Fueled by Both Parties, Could Matter This Year**\
-`The other Dan Sullivan in Alaska has drawn the most attention, but both parties are quietly trying to use little-known candidates in other battlegrounds to siphon votes, too.`\
-https://www.nytimes.com/2026/10/29/us/politics/midterms-third-party-independent-candidates.html
 
