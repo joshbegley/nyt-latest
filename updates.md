@@ -1,3 +1,11 @@
+**U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’**\
+`The Treasury Department accused Rwanda of undermining a U.S.-brokered peace agreement by supporting a rebel group in the eastern Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html
+
+**Lucien Smith’s Last Paintings Reclaim His Dazzling First Act**\
+`The artist, who died at 37, had largely retreated from the art world after skyrocketing early success. A final body of work is an exorcism of sorts.`\
+https://www.nytimes.com/2026/10/29/arts/design/lucien-smith-final-paintings.html
+
 **Job Hunt Feelings**\
 `We look at how Gen Z feels about the job search.`\
 https://www.nytimes.com/2026/10/29/briefing/job-hunt-feelings.html
