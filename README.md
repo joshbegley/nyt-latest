@@ -1,3 +1,7 @@
+**Patrick Stewart: A Life in Pictures**\
+`The motley mix of roles that won the British actor acclaim include a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
+https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
+
 **What Israeli Election Results Reveal About the Electorate**\
 `Some groups stood by Prime Minister Benjamin Netanyahu’s party, but support fell off among others. Turnout was also a striking factor in the election.`\
 https://www.nytimes.com/2026/10/29/world/middleeast/israel-voter-data-takeaways.html
@@ -114,8 +118,8 @@ https://www.nytimes.com/video/arts/100000011218664/sexy-ai-avatars-are-coming-fo
 `Glass skyscrapers are transforming cities, but do they make sense in a world that’s getting hotter?`\
 https://www.nytimes.com/2026/10/29/world/glass-skyscrapers-climate-patrick-stewart.html
 
-**What’s Next for Israel? Four Writers Decode the Election Results.**\
-`A round table discussion on what the future holds for Israel and its government.`\
+**‘We’ve Seen This Movie’: Four Writers on What’s Next for Israel**\
+`A round table discussion decoding the election results.`\
 https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
 
 **The New DNA Technology That Linked Ted Bundy to a 52-Year-Old Cold Case**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/americas/100000011244132/us-cuba-officials-a
 **California’s High-Speed Rail Chief Quits Amid Questions About Spending**\
 `Ian Choudri, the chief executive of the California High-Speed Rail Authority, stepped down weeks after state investigators questioned the spending of $600,000 by the agency.`\
 https://www.nytimes.com/2026/10/29/us/choudri-resign-california-high-speed-rail.html
-
-**King Charles’s Caribbean Tour Met With Celebration and Demands**\
-`King Charles III joined a street parade in the Bahamas on the second day of his Caribbean tour. The trip comes against backdrop of increasing demand that Britain pay reparations for its role in the slave trade.`\
-https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribbean-reparations-bahamas.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
