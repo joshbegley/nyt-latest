@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/10/28/arts/television/the-lowdown-season-2-episode-
 `The judge ruled that no immediate action was necessary, dealing another setback to the administration as it moves to target voting by noncitizens.`\
 https://www.nytimes.com/2026/10/28/us/politics/california-noncitizen-voters-trump.html
 
-**Trump Calls for Mary Peltola, Alaska Senate Candidate, to Be Prosecuted**\
-`The president lashed out at the former representative after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime was committed.`\
+**Alaska Governor Orders Criminal Investigation Into Peltola Campaign**\
+`President Trump had lashed out at Mary Peltola after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime may have been committed.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
 
 **Searching for Jobs, Gen Z Feels Like It’s Staring Into ‘the Void’**\

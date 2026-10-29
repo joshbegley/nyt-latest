@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html
 
 **A Ukrainian City in the Kill Zone Relishes a Moment of Peace**\
 `A rare localized peace deal announced by the first lady, Melania Trump, offered a brief respite for Kherson, where Russian drones and artillery have long terrorized civilians.`\
-https://www.nytimes.com/2026/10/29/world/europe/a-ukrainian-city-in-the-kill-zone-relishes-a-moment-of-peace.html
+https://www.nytimes.com/2026/10/29/world/europe/ukraine-kherson-respite.html
 
 **Quote of the Day: In Afghanistan, She Feared for Her Safety. On Sunday, She’ll Run Free.**\
 `Quotation of the Day for Thursday, October 29, 2026.`\

@@ -1,3 +1,7 @@
+**Alaska Governor Orders Criminal Investigation Into Peltola Campaign**\
+`President Trump had lashed out at Mary Peltola after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime may have been committed.`\
+https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
+
 **At NYC Marathon, Cowbells Are a Signature Sound. But Why?**\
 `Screaming fans and clanging cowbells have become the soundtrack to the New York City Marathon and to sporting events around the world.`\
 https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-race-cowbell.html
