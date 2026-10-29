@@ -1,3 +1,11 @@
+**The New DNA Technology That Linked Ted Bundy to a 52-Year-Old Cold Case**\
+`Software known as STRmix was instrumental in identifying Mr. Bundy’s DNA in a decades-old sample.`\
+https://www.nytimes.com/2026/10/29/science/dna-ted-bundy-cold-case.html
+
+**Urgent Funding Sought to Retrieve U.S. ‘Art Olympics’ Sculptures**\
+`The commissioner of the U.S. Pavilion at the Venice Biennale said donations were badly needed to ship the artworks home from Italy. Her nonprofit group is facing a $1 million shortfall to cover the costs.`\
+https://www.nytimes.com/2026/10/29/arts/design/us-pavilion-venice-biennale.html
+
 **Jimmy Gomez at Risk of Losing Seat Amid Sexual Misconduct Inquiry**\
 `Representative Jimmy Gomez, who represents a safe Democratic district, is facing an intraparty challenge from a progressive candidate.`\
 https://www.nytimes.com/2026/10/29/us/jimmy-gomez-polling-california-house.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html
 **These Patients Struggle With Runaway Bones. Finally There’s Hope.**\
 `F.O.P., a rare genetic condition, causes uncontrolled explosions of bone. A new drug may slow or halt the process.`\
 https://www.nytimes.com/2026/10/29/science/fop-bones-drugs.html
-
-**It’s Clear. Trump Is Siding With Russia.**\
-`Trump’s new diesel deal with Russia is a dark sign of his new American agenda, argues the Opinion columnist M. Gessen. The agreement, along with Ukraine’s accusation that the United States withheld military intelligence, points to a new story in this war: “If Vladimir Putin’s plan is to starve Ukraine into submission this winter, then Donald Trump is going to help Putin do that.”`\
-https://www.nytimes.com/video/opinion/100000011228188/its-clear-trump-is-siding-with-russia.html
-
-**Haiti Postpones Elections as Gang Violence Runs Rampant**\
-`Haiti is in the throes of debilitating gang violence, which has kept officials from organizing an election to pick a new president.`\
-https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html
 
