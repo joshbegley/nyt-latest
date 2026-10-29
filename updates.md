@@ -1,3 +1,23 @@
+**At NYC Marathon, Cowbells Are a Signature Sound. But Why?**\
+`Screaming fans and clanging cowbells have become the soundtrack to the New York City Marathon and to sporting events around the world.`\
+https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-race-cowbell.html
+
+**The Five-Borough Route: The Beating Heart of the NYC Marathon**\
+`When the event’s five co-founders first proposed moving it out of Central Park, it seemed impossible. Much has changed in the sport and the city since that 1976 race.`\
+https://www.nytimes.com/2026/10/29/nyregion/the-five-borough-route-the-beating-heart-of-the-new-york-marathon.html
+
+**NYT Spelling Bee Answers for October 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/29/crosswords/spelling-bee-forum.html
+
+**The Fall Pilgrimage of These Graveyard Sheep Is Coming to an End**\
+`Since 2013, the Basilica of St. Patrick’s Old Cathedral has invited farm animals to graze in the cemetery. But renovations will mean they can roam no more.`\
+https://www.nytimes.com/2026/10/29/nyregion/sheep-cemetery-church-nyc.html
+
+**Late Night Teases Trump Over His Invite to Mar-a-Lago**\
+`“Why are you telling these people who gathered to see you in their Chinese-made, American-flag, Hawaiian shirts that they can’t afford to eat at your house?” Jimmy Kimmel asked.`\
+https://www.nytimes.com/2026/10/29/arts/television/late-night-trump-mar-a-lago.html
+
 **Europe Is Aflame, and It’s Not Going to Stop**\
 `The protests roiling the continent express feelings of generational futility.`\
 https://www.nytimes.com/2026/10/29/opinion/europe-protests-youth-france.html

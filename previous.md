@@ -1,3 +1,23 @@
+**At NYC Marathon, Cowbells Are a Signature Sound. But Why?**\
+`Screaming fans and clanging cowbells have become the soundtrack to the New York City Marathon and to sporting events around the world.`\
+https://www.nytimes.com/2026/10/29/nyregion/nyc-marathon-race-cowbell.html
+
+**The Five-Borough Route: The Beating Heart of the NYC Marathon**\
+`When the event’s five co-founders first proposed moving it out of Central Park, it seemed impossible. Much has changed in the sport and the city since that 1976 race.`\
+https://www.nytimes.com/2026/10/29/nyregion/the-five-borough-route-the-beating-heart-of-the-new-york-marathon.html
+
+**NYT Spelling Bee Answers for October 29, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/29/crosswords/spelling-bee-forum.html
+
+**The Fall Pilgrimage of These Graveyard Sheep Is Coming to an End**\
+`Since 2013, the Basilica of St. Patrick’s Old Cathedral has invited farm animals to graze in the cemetery. But renovations will mean they can roam no more.`\
+https://www.nytimes.com/2026/10/29/nyregion/sheep-cemetery-church-nyc.html
+
+**Late Night Teases Trump Over His Invite to Mar-a-Lago**\
+`“Why are you telling these people who gathered to see you in their Chinese-made, American-flag, Hawaiian shirts that they can’t afford to eat at your house?” Jimmy Kimmel asked.`\
+https://www.nytimes.com/2026/10/29/arts/television/late-night-trump-mar-a-lago.html
+
 **India’s Media Giants Join Fight Against Upcoming Privacy Law**\
 `News organizations owned by two billionaires close to Prime Minister Narendra Modi say the legislation could make investigative reporting nearly impossible.`\
 https://www.nytimes.com/2026/10/29/world/asia/india-media-privacy-law.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-
 **Spain Train Crash Kills at Least 68**\
 `The accident, the second in less than a year on the same busy rail line, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rescue-victims.html
-
-**Barbara Barrie, Oscar Nominee Known for Mom Roles and More, Has Died**\
-`She was nominated for “Breaking Away,” appeared in the original Broadway cast of “Company” and was seen on “Barney Miller.” She was 95.`\
-https://www.nytimes.com/2026/10/28/theater/barbara-barrie-dead.html
-
-**Dolores Huerta, Labor Leader, Dies at 96**\
-`Dolores Huerta, the civil rights activist who co-founded the United Farm Workers with Cesar Chavez, died on Wednesday at her home in Bakersfield, Calif. She was 96.`\
-https://www.nytimes.com/video/obituaries/100000011242438/dolores-huerta.html
-
-**The Good List: 6 Things to Add Delight to Your Day**\
-`Make your life bigger, color stories and back-seat rock.`\
-https://www.nytimes.com/2026/10/28/briefing/the-good-list-houdini-colors.html
-
-**How We Prepare for Election Night**\
-`At The New York Times, we test every part of our election night process and workflow, including the technology, the communication and the space in the newsroom. Go behind the scenes of a full dress rehearsal before the big day.`\
-https://www.nytimes.com/video/insider/100000011165116/how-we-prepare-for-election-night.html
-
-**Tiny Love Stories: ‘Turn Off That Dirge!’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/10/28/style/tiny-modern-love-stories-turn-off-that-dirge.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
