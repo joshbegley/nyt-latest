@@ -1,3 +1,71 @@
+**Mike Beigel, Whose Devices Shaped the Sound of the 70s, Has Died**\
+`Have a listen. He’s responsible for a funky texture in the 1970s that defined hit songs by Stevie Wonder, the Grateful Dead and many others.`\
+https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
+
+**A New Georgia O’Keeffe Exhibit Shows a World Beyond Flowers**\
+`A rare display of the artist’s architectural paintings from three distinct locations are on view at the Detroit Institute of Arts.`\
+https://www.nytimes.com/2026/10/29/arts/design/museums-georgia-okeeffe-architecture-detroit.html
+
+**Can Influencers Help Pass the Billionaire Tax?**\
+`Laurel Rosenhall, one of our California reporters, describes how proponents of a tax on billionaires are countering their opponents’ enormous TV ad spending by spending small amounts on influencers.`\
+https://www.nytimes.com/video/us/elections/100000011194403/can-influencers-help-pass-the-billionaire-tax.html
+
+**19 New Books to Read in November: Bob Woodward, LeVar Burton, Annie Proulx and More**\
+`Fiction by Annie Proulx and Solvej Balle; memoirs by Joe Biden, Dustin Hoffman and LeVar Burton; a long-buried Don DeLillo hockey romance; and more.`\
+https://www.nytimes.com/2026/10/29/books/new-books-november.html
+
+**Word of the Day: obviate**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/29/learning/word-of-the-day-obviate.html
+
+**Three Stone Age Caves Reveal Continual Cannibalism**\
+`A tour of the three caves in southern Spain reveals that people in the area cannibalized one another as funerary practice over many generations.`\
+https://www.nytimes.com/2026/10/29/science/stone-age-cannibal-caves-of-spain.html
+
+**How to Land a $30 Million Viola? Find a Matchmaker With Deep Pockets.**\
+`Whether through open-ended loans or “musical mortgages,” philanthropists and investors are helping get the best instruments into talented musicians’ hands.`\
+https://www.nytimes.com/2026/10/29/arts/music/stretton-society-instruments-philanthropy.html
+
+**R.L. Stine Haunted My Childhood**\
+`An anxious middle-schooler moved next door to the man who wrote horror for kids. Were those ghosts floating from his chimney?`\
+https://www.nytimes.com/2026/10/29/style/goosebumps-author-rl-stine-neighbor.html
+
+**New Batteries That Store Blistering Heat Are Taking Off**\
+`Large batteries that store electricity have revolutionized power grids and car markets. Now some start-ups are betting that “heat batteries” could be just as transformative.`\
+https://www.nytimes.com/2026/10/29/climate/heat-battery-thermal-energy-storage.html
+
+**How ICE Arrests Disrupted a Poultry Work Force**\
+`An ICE arrest of a Haitian poultry plant worker in Virginia spread fear among its immigrant work force. Now, agricultural groups are warning that enforcement operations threaten the nation’s food production and grocery prices.`\
+https://www.nytimes.com/video/us/100000011119715/ice-haiti-virginia-food-plant-workers.html
+
+**A Large-Scale Manga Exhibit at the Brooklyn Museum**\
+`The Japanese comic book medium has become hugely popular among audiences globally. A new exhibition should have something for both fans and newcomers.`\
+https://www.nytimes.com/2026/10/29/arts/design/manga-exhibition-brooklyn-museum.html
+
+**Local Artists Speak to Baltimore’s Long and Complex History**\
+`Across three fall shows, the Baltimore Museum of Art showcases the multifaceted region through photography, paintings, poetry and weavings.`\
+https://www.nytimes.com/2026/10/29/arts/design/artists-baltimore-history.html
+
+**A Museum Just for Latin American and Latino Art Celebrates 30 Years**\
+`The Museum of Latin American Art in California is the only U.S. museum solely focused on modern and contemporary Latin American and Latino art.`\
+https://www.nytimes.com/2026/10/29/arts/design/latin-art-long-beach.html
+
+**How a Self-Described ‘Junkie’ Rode Synthetic Drugs to Oblivion — and Fame**\
+`An Estonian addict could barely keep pace with the new drugs flooding the market. His terrifying accounts of the cruel toll they took on his body held his country in its grip.`\
+https://www.nytimes.com/2026/10/29/world/europe/synthetic-opioids-estonia.html
+
+**I Can Finally Hear You Now**\
+`The world can be tough to navigate with one ear. Turns out, even having two comes with challenges.`\
+https://www.nytimes.com/2026/10/29/us/single-sided-deafness-hearing-aids.html
+
+**A Manhattan Landing Spot for a College Student and Family**\
+`Jessica Jensen and her stepson, Riley, had up to $1 million for an apartment to serve as dorm room and vacation lodging.`\
+https://www.nytimes.com/quiz/2026/10/29/realestate/homes-for-sale-manhattan.html
+
+**Can Porn Ever Be Ethical?**\
+`A pornographer and conservative Catholic discuss sex and pleasure.`\
+https://www.nytimes.com/video/opinion/100000011240853/can-porn-ever-be-ethical.html
+
 **Cruise Runs Out of Fuel Money, Stranding Passengers in Cambodia**\
 `A cruise ship called the Odyssey left 200 passengers stranded in Cambodia after it ran out money for fuel.`\
 https://www.nytimes.com/video/world/asia/100000011244082/villa-vie-odyssey-cruise-ship-cambodia.html
@@ -129,72 +197,4 @@ https://www.nytimes.com/2026/10/28/us/politics/trump-midterms-white-house-mood.h
 **In Her Final Months, Dolores Huerta Was Lauded for Revealing a Deep Secret**\
 `Ms. Huerta, a champion for workers and Latinos, revealed this year that she had been sexually assaulted by Cesar Chavez. But some women said she rebuffed their own complaints about abuse within the movement.`\
 https://www.nytimes.com/2026/10/28/us/dolores-huerta-california-legacy.html
-
-**Atlanta’s Mayor Walked Away After Covid Chaos. Will Voters Make Her Georgia’s Governor?**\
-`Keisha Lance Bottoms, in her bid for Georgia governor, has faced pointed criticism of her leadership in Atlanta and disappointment in her decision to leave after one term.`\
-https://www.nytimes.com/2026/10/28/us/politics/keisha-lance-bottoms-atlanta-mayor.html
-
-**Can John Sununu, a Senator Before Trump, Reclaim His New Hampshire Seat?**\
-`Plus, ballot-stacking in Alaska and a polling surprise in South Carolina.`\
-https://www.nytimes.com/2026/10/28/us/politics/sununu-new-hampshire-senate.html
-
-**Cornell Faculty Senate Moves Ahead With No-Confidence Vote Over Handling of Rape Case**\
-`After fierce debate, faculty members will begin voting Thursday on a resolution to condemn the administration’s handling of campus sexual assault.`\
-https://www.nytimes.com/2026/10/28/nyregion/cornell-faculty-no-confidence-vote.html
-
-**A Ballot-Stacking Effort in Alaska**\
-`Also, Life magazine rises again. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/10/28/briefing/alaska-ballot-stacking-horror-bookshops.html
-
-**Watch Repair Specialist Often Works on Pieces Worth Millions**\
-`Daniele Del Vecchio regularly disassembles, inspects and repairs watches costing millions from his shop in Connecticut.`\
-https://www.nytimes.com/2026/10/28/fashion/watches-repairs-daniele-del-vecchio-connecticut.html
-
-**Officials Back Trump’s Claim That Triumphal Arch Is Needed for National Security**\
-`Defense Secretary Pete Hegseth and Markwayne Mullin, the homeland security secretary, submitted sworn statements to a federal court regarding the construction project.`\
-https://www.nytimes.com/2026/10/28/us/politics/trump-arch-national-security.html
-
-**Justice Dept. Turns Civil Rights Group’s Informant Against It**\
-`Lawyers for the Southern Poverty Law Center say that federal prosecutors capitalized on the informant’s money problems and exposure to indictment to persuade him to assist the government.`\
-https://www.nytimes.com/2026/10/28/us/politics/justice-dept-splc-informant.html
-
-**Former Head of ‘Star Wars’ Studio to Lead L.A. Olympic Ceremonies**\
-`Kathleen Kennedy, who led Lucasfilm for nearly 14 years, will orchestrate the opening and closing ceremonies of the 2028 summer Olympics.`\
-https://www.nytimes.com/2026/10/28/arts/television/kathleen-kennedy-la-olympic-ceremonies.html
-
-**Alphabet’s Revenue Rises 25% as Profit Falls**\
-`The company has been spending relentlessly to build A.I. and said it would increase those investments next year. Profit dropped because of changes to the value of its investments.`\
-https://www.nytimes.com/2026/10/28/technology/alphabet-earnings-google-ai.html
-
-**CNN, MS Now and Politico Update Lawsuit Against Trump Over White House Access**\
-`The news outlets argued in an updated lawsuit that they should be granted access to the White House reporting pools.`\
-https://www.nytimes.com/2026/10/28/business/media/cnn-ms-now-politico-white-house-lawsuit.html
-
-**What to Make of Israel’s Ambiguous Election**\
-`Neither Benjamin Netanyahu nor his rivals won a majority, leaving Arab lawmakers as potential kingmakers in the new Parliament.`\
-https://www.nytimes.com/2026/10/28/world/israel-election-results-spain-train.html
-
-**Microsoft’s Profit Jumps 32% Despite Big Increase in Spending**\
-`The company’s free cash flow stayed positive in the last quarter even as it spent $45.2 billion on capital expenses like data centers and offered to pay workers to leave.`\
-https://www.nytimes.com/2026/10/28/technology/microsoft-earnings-ai.html
-
-**Passengers Recount Spain’s Deadly High-Speed Train Collision**\
-`Passengers recalled the moments before a high-speed passenger train rear-ended another in Spain on Wednesday.`\
-https://www.nytimes.com/video/world/europe/100000011242069/passengers-spain-deadly-train-collision.html
-
-**How André Janones Helped Turbocharge Lula’s Comeback in Brazil’s Election**\
-`With street talk and tactics from the far-right’s playbook, André Janones used a WhatsApp channel to help organize millions of Brazilians online.`\
-https://www.nytimes.com/2026/10/28/world/americas/andre-janones-whatsapp-lula-brazil-election.html
-
-**Text Message Referencing a ‘Hijack’ Forces United Flight to Return to Vegas**\
-`Now charged with a felony, the passenger who sent the text said that he had been drinking, and that the message was poorly worded banter between co-workers.`\
-https://www.nytimes.com/2026/10/28/travel/united-flight-hijack-text-las-vegas.html
-
-**Fed Will Hold Fewer Rate-Setting Meetings Starting Next Year**\
-`Kevin M. Warsh, the Federal Reserve’s chairman, said the central bank would vote on interest rates seven times in 2027 and six in 2028. It has traditionally voted eight times per year.`\
-https://www.nytimes.com/2026/10/28/business/economy/fed-meetings-2027-interest-rates-warsh.html
-
-**Israel’s Parties Gird for Wrangling to Form a Government, With No Clear Path**\
-`Votes are still being counted, but it appears that neither Prime Minister Benjamin Netanyahu’s right-wing coalition nor the opposition alliance headed by Gadi Eisenkot will have a majority.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/israel-government-formation-negotiation.html
 

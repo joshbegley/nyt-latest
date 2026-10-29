@@ -1,3 +1,71 @@
+**Mike Beigel, Whose Devices Shaped the Sound of the 70s, Has Died**\
+`Have a listen. He’s responsible for a funky texture in the 1970s that defined hit songs by Stevie Wonder, the Grateful Dead and many others.`\
+https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
+
+**A New Georgia O’Keeffe Exhibit Shows a World Beyond Flowers**\
+`A rare display of the artist’s architectural paintings from three distinct locations are on view at the Detroit Institute of Arts.`\
+https://www.nytimes.com/2026/10/29/arts/design/museums-georgia-okeeffe-architecture-detroit.html
+
+**Can Influencers Help Pass the Billionaire Tax?**\
+`Laurel Rosenhall, one of our California reporters, describes how proponents of a tax on billionaires are countering their opponents’ enormous TV ad spending by spending small amounts on influencers.`\
+https://www.nytimes.com/video/us/elections/100000011194403/can-influencers-help-pass-the-billionaire-tax.html
+
+**19 New Books to Read in November: Bob Woodward, LeVar Burton, Annie Proulx and More**\
+`Fiction by Annie Proulx and Solvej Balle; memoirs by Joe Biden, Dustin Hoffman and LeVar Burton; a long-buried Don DeLillo hockey romance; and more.`\
+https://www.nytimes.com/2026/10/29/books/new-books-november.html
+
+**Word of the Day: obviate**\
+`This word has appeared in 29 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/29/learning/word-of-the-day-obviate.html
+
+**Three Stone Age Caves Reveal Continual Cannibalism**\
+`A tour of the three caves in southern Spain reveals that people in the area cannibalized one another as funerary practice over many generations.`\
+https://www.nytimes.com/2026/10/29/science/stone-age-cannibal-caves-of-spain.html
+
+**How to Land a $30 Million Viola? Find a Matchmaker With Deep Pockets.**\
+`Whether through open-ended loans or “musical mortgages,” philanthropists and investors are helping get the best instruments into talented musicians’ hands.`\
+https://www.nytimes.com/2026/10/29/arts/music/stretton-society-instruments-philanthropy.html
+
+**R.L. Stine Haunted My Childhood**\
+`An anxious middle-schooler moved next door to the man who wrote horror for kids. Were those ghosts floating from his chimney?`\
+https://www.nytimes.com/2026/10/29/style/goosebumps-author-rl-stine-neighbor.html
+
+**New Batteries That Store Blistering Heat Are Taking Off**\
+`Large batteries that store electricity have revolutionized power grids and car markets. Now some start-ups are betting that “heat batteries” could be just as transformative.`\
+https://www.nytimes.com/2026/10/29/climate/heat-battery-thermal-energy-storage.html
+
+**How ICE Arrests Disrupted a Poultry Work Force**\
+`An ICE arrest of a Haitian poultry plant worker in Virginia spread fear among its immigrant work force. Now, agricultural groups are warning that enforcement operations threaten the nation’s food production and grocery prices.`\
+https://www.nytimes.com/video/us/100000011119715/ice-haiti-virginia-food-plant-workers.html
+
+**A Large-Scale Manga Exhibit at the Brooklyn Museum**\
+`The Japanese comic book medium has become hugely popular among audiences globally. A new exhibition should have something for both fans and newcomers.`\
+https://www.nytimes.com/2026/10/29/arts/design/manga-exhibition-brooklyn-museum.html
+
+**Local Artists Speak to Baltimore’s Long and Complex History**\
+`Across three fall shows, the Baltimore Museum of Art showcases the multifaceted region through photography, paintings, poetry and weavings.`\
+https://www.nytimes.com/2026/10/29/arts/design/artists-baltimore-history.html
+
+**A Museum Just for Latin American and Latino Art Celebrates 30 Years**\
+`The Museum of Latin American Art in California is the only U.S. museum solely focused on modern and contemporary Latin American and Latino art.`\
+https://www.nytimes.com/2026/10/29/arts/design/latin-art-long-beach.html
+
+**How a Self-Described ‘Junkie’ Rode Synthetic Drugs to Oblivion — and Fame**\
+`An Estonian addict could barely keep pace with the new drugs flooding the market. His terrifying accounts of the cruel toll they took on his body held his country in its grip.`\
+https://www.nytimes.com/2026/10/29/world/europe/synthetic-opioids-estonia.html
+
+**I Can Finally Hear You Now**\
+`The world can be tough to navigate with one ear. Turns out, even having two comes with challenges.`\
+https://www.nytimes.com/2026/10/29/us/single-sided-deafness-hearing-aids.html
+
+**A Manhattan Landing Spot for a College Student and Family**\
+`Jessica Jensen and her stepson, Riley, had up to $1 million for an apartment to serve as dorm room and vacation lodging.`\
+https://www.nytimes.com/quiz/2026/10/29/realestate/homes-for-sale-manhattan.html
+
+**Can Porn Ever Be Ethical?**\
+`A pornographer and conservative Catholic discuss sex and pleasure.`\
+https://www.nytimes.com/video/opinion/100000011240853/can-porn-ever-be-ethical.html
+
 **Cruise Runs Out of Fuel Money, Stranding Passengers in Cambodia**\
 `A cruise ship called the Odyssey left 200 passengers stranded in Cambodia after it ran out money for fuel.`\
 https://www.nytimes.com/video/world/asia/100000011244082/villa-vie-odyssey-cruise-ship-cambodia.html
