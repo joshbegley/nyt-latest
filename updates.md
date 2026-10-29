@@ -1,3 +1,15 @@
+**What Teenagers Are Saying About the Creepiest Places They’ve Been**\
+`Students share stories of haunted homes, darkened woods and abandoned estates, and reflect on why we crave the rush of terror.`\
+https://www.nytimes.com/2026/10/29/learning/what-teenagers-are-saying-about-the-creepiest-places-theyve-been.html
+
+**Bruce Blakeman Wants to Save New York from ‘Rampant’ Crime. Will it Resonate with Voters?**\
+`Bruce Blakeman is good friends with President Trump, an ex-husband to a Beatle’s wife and a Republican power player on Long Island. Now he wants to be governor.`\
+https://www.nytimes.com/2026/10/29/nyregion/bruce-blakeman-new-york-governor-race.html
+
+**Trump Wants to Kick ‘Rogue Activist Judges’ Off Cases. Can He?**\
+`A Supreme Court decision and ethics opinions give judges room to speak their minds.`\
+https://www.nytimes.com/2026/10/29/us/politics/the-docket-trump-judges.html
+
 **From a Billionaires Tax to Abortion Rights, Voters Will Decide Policy**\
 `More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
 https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html

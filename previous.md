@@ -1,3 +1,15 @@
+**What Teenagers Are Saying About the Creepiest Places They’ve Been**\
+`Students share stories of haunted homes, darkened woods and abandoned estates, and reflect on why we crave the rush of terror.`\
+https://www.nytimes.com/2026/10/29/learning/what-teenagers-are-saying-about-the-creepiest-places-theyve-been.html
+
+**Bruce Blakeman Wants to Save New York from ‘Rampant’ Crime. Will it Resonate with Voters?**\
+`Bruce Blakeman is good friends with President Trump, an ex-husband to a Beatle’s wife and a Republican power player on Long Island. Now he wants to be governor.`\
+https://www.nytimes.com/2026/10/29/nyregion/bruce-blakeman-new-york-governor-race.html
+
+**Trump Wants to Kick ‘Rogue Activist Judges’ Off Cases. Can He?**\
+`A Supreme Court decision and ethics opinions give judges room to speak their minds.`\
+https://www.nytimes.com/2026/10/29/us/politics/the-docket-trump-judges.html
+
 **From a Billionaires Tax to Abortion Rights, Voters Will Decide Policy**\
 `More than 140 statewide ballot measures will go before voters during the midterms. Here are the races we’re watching.`\
 https://www.nytimes.com/2026/10/29/us/elections/ballot-questions-midterms-election.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/29/podcasts/steve-kerr-warriors-head-coach-doppe
 **Milwaukee Brewers Win First World Series in Franchise History**\
 `Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
 https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
-
-**China Is Not Happy About Fan-made A.I. Videos of Sun Wukong and Lin Daiyu**\
-`Mash-up videos of beloved characters from Chinese classics — some made with A.I. — have caught the attention of the authorities.`\
-https://www.nytimes.com/2026/10/29/world/asia/china-ai-videos-sun-wukong-lin-daiyu.html
-
-**A Rare Quiet Settles Over Kherson During Local Cease-Fire**\
-`A local cease-fire brought a rare moment of calm to the Ukrainian-controlled city of Kherson, where Russian drones have long terrorized civilians.`\
-https://www.nytimes.com/video/world/europe/100000011244234/ukraine-kherson-cease-fire.html
-
-**Suddenly, Empathy Isn’t So Toxic**\
-`Deport immigrants? Oh yes. But not this guy.`\
-https://www.nytimes.com/2026/10/29/opinion/toxic-empathy-immigration-ice.html
 
