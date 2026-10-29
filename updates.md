@@ -1,3 +1,11 @@
+**Cuauhtémoc Cárdenas, Who Helped End One-Party Rule in Mexico, Dies at 92**\
+`Mr. Cárdenas, the only son of a Mexican president, never won the office but became a leading figure in the country’s democratic transformation.`\
+https://www.nytimes.com/2026/10/28/world/americas/cuauhtemoc-cardenas-dead.html
+
+**In Michigan, El-Sayed Faces Heat From Former Primary Rival as Election Nears**\
+`Representative Haley Stevens has been less than enthusiastic about Dr. Abdul El-Sayed, injecting late intraparty tensions into a race that could decide Senate control.`\
+https://www.nytimes.com/2026/10/28/us/politics/stevens-el-sayed-senate-democrats-michigan.html
+
 **Is There a ‘Safest Seat’ in a Train Crash? Experts Say It’s Not So Simple.**\
 `After a high-speed collision near Toledo, Spain, killed at least 68 people, rail safety experts said the rough consensus that it is best to sit in the middle of a train has its limits.`\
 https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-rail-safety.html
