@@ -1,3 +1,15 @@
+**NYC Marathon: Hear What It’s Like to Run the Best and Worst Mile of the Race**\
+`After a brutal trek over the spectator-free Queensboro Bridge, runners are hit with the deafening roar of the Manhattan crowds.`\
+https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-running-audio.html
+
+**A.I. Avatars Are Coming for Comedy**\
+`Scantily-clad A.I.-generated avatars are stealing jokes from female comedians and retelling them to massive online audiences. The critic Jason Zinoman examines this new social media phenomenon, why female comics are particularly vulnerable and what it means for the state of stand-up comedy.`\
+https://www.nytimes.com/video/arts/100000011218664/sexy-ai-avatars-are-coming-for-comedy.html
+
+**The Perils of Glittering Skylines**\
+`Glass skyscrapers are transforming cities, but do they make sense in a world that’s getting hotter?`\
+https://www.nytimes.com/2026/10/29/world/glass-skyscrapers-climate-patrick-stewart.html
+
 **What’s Next for Israel? Four Writers Decode the Election Results.**\
 `A round table discussion on what the future holds for Israel and its government.`\
 https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html

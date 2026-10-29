@@ -1,3 +1,15 @@
+**Cuba’s Foreign Minister: We’ll Outlast Trump**\
+`The Trump administration is carrying out the most intense pressure campaign on Cuba in decades. The Cuban government says its plan is simply to endure.`\
+https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
+
+**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
+`Amazon on Thursday became the latest tech company to to announce swelling investments in A.I. amid stumbling share prices.`\
+https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
+
+**Have Questions About the Midterm Elections? Ask Us Anything.**\
+`Patrick Healy, an assistant managing editor at The Times, will answer your questions on Monday at 11:15 a.m. Let us know what’s on your mind in the comments.`\
+https://www.nytimes.com/2026/10/29/insider/midterm-elections-coverage-questions.html
+
 **NYC Marathon: Hear What It’s Like to Run the Best and Worst Mile of the Race**\
 `After a brutal trek over the spectator-free Queensboro Bridge, runners are hit with the deafening roar of the Manhattan crowds.`\
 https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-running-audio.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/10/29/dining/jacques-pepins-roast-chicken-recipe.ht
 **‘Knicks in Five’ Feels Like a Long Time Ago**\
 `Remember the infectious joy of the Knicks’s championship? As a new season begins, the team’s owner seems intent on souring that celebration.`\
 https://www.nytimes.com/2026/10/29/opinion/new-york-knicks-nba-championship.html
-
-**National Constitution Center Names New Leader**\
-`Hiram E. Chodosh, a former president of Claremont McKenna, will take the reins of the center charged by Congress to promote the Constitution and its principles.`\
-https://www.nytimes.com/2026/10/29/arts/design/national-constitution-center-hiram-chodosh.html
-
-**Polymarket and Kalshi Turn Midterm Elections Into a Multimillion Dollar Market**\
-`Betting markets like Polymarket and Kalshi have transformed America’s democracy into a new kind of casino.`\
-https://www.nytimes.com/2026/10/29/technology/polymarket-kalshi-midterm-election-betting-wagers.html
-
-**Search for Victims Continues After Train Crash in Spain**\
-`Rescuers in Spain on Thursday continued combing through the wreckage of a horrific train crash that killed at least 69 people when one high-speed train rear-ended another that was stopped on the same tracks.`\
-https://www.nytimes.com/video/world/europe/100000011244553/spain-train-crash.html
 
