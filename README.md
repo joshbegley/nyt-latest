@@ -1,3 +1,7 @@
+**Judge Rejects Trump Officials’ Bid to Set Aside California Ballots**\
+`The judge ruled that no immediate action was necessary, dealing another setback to the administration as it moves to target voting by noncitizens.`\
+https://www.nytimes.com/2026/10/28/us/politics/california-noncitizen-voters-trump.html
+
 **Trump Calls for Mary Peltola, Alaska Senate Candidate, to Be Prosecuted**\
 `The president lashed out at the former representative after The New York Times reported that her campaign and national Democrats helped recruit spoiler candidates to the race. He offered no explanation of what crime was committed.`\
 https://www.nytimes.com/2026/10/28/us/politics/trump-peltola-sullivan-alaska-senate.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/10/28/health/peptides-kennedy-fda.html
 **How to Create Fairer Election Districts**\
 `Readers discuss an editorial about ending gerrymandering. Also: Africa’s progress; A.I. mirrors humans.`\
 https://www.nytimes.com/2026/10/28/opinion/gerrymandering-elections.html
-
-**Angry Anderson Has Died. He Rocked Hard and Played a Villain in ‘Mad Max.’**\
-`The diminutive Australian fronted the group Rose Tattoo and stole scenes as a glutton for punishment in “Mad Max Beyond Thunderdome.”`\
-https://www.nytimes.com/2026/10/28/obituaries/gary-angry-anderson-mad-max-dead.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
