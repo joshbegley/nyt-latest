@@ -1,3 +1,175 @@
+**Milwaukee Brewers Win First World Series in Franchise History**\
+`Milwaukee shut down Tampa Bay 4-1 on Wednesday to clinch the title.`\
+https://www.nytimes.com/2026/10/29/podcasts/milwaukee-brewers-win-mlb-world-series-beat-tampa-bay.html
+
+**China Is Not Happy About Fan-made A.I. Videos of Sun Wukong and Lin Daiyu**\
+`Mash-up videos of beloved characters from Chinese classics — some made with A.I. — have caught the attention of the authorities.`\
+https://www.nytimes.com/2026/10/29/world/asia/china-ai-videos-sun-wukong-lin-daiyu.html
+
+**A Rare Quiet Settles Over Kherson During Local Cease-Fire**\
+`A local cease-fire brought a rare moment of calm to the Ukrainian-controlled city of Kherson, where Russian drones have long terrorized civilians.`\
+https://www.nytimes.com/video/world/europe/100000011244234/ukraine-kherson-cease-fire.html
+
+**Suddenly, Empathy Isn’t So Toxic**\
+`Deport immigrants? Oh yes. But not this guy.`\
+https://www.nytimes.com/2026/10/29/opinion/toxic-empathy-immigration-ice.html
+
+**The Midterms May End the Trump Era. Here Are 10 Takeaways.**\
+`It’s time to take stock. Here are 12 takeaways from the last 10 years.`\
+https://www.nytimes.com/2026/10/29/opinion/trump-midterms.html
+
+**In Moving Gradually, Fed Risks Having to Play Catch-Up to Quell Inflation**\
+`Federal Reserve officials are expected to restart rate increases in December, but the cadence of additional moves will depend on the data.`\
+https://www.nytimes.com/2026/10/29/business/economy/federal-reserve-interest-rates.html
+
+**What Happens if Trump Doesn’t Own the Libs Anymore?**\
+`What are the key differences between now and two years ago? Between now and 2016?`\
+https://www.nytimes.com/2026/10/29/opinion/midterms-trump-democrats-republicans.html
+
+**Quiz: How Much Do You Know About Sugar?**\
+`This quiz is our treat.`\
+https://www.nytimes.com/interactive/2026/10/29/well/sugar-health-quiz-halloween-candy.html
+
+**Four Scenarios for How the Midterms Could Go**\
+`Expectations are cresting for Democrats, and some kind of wave seems likely, but so much will depend on a few close Senate races.`\
+https://www.nytimes.com/2026/10/29/upshot/midterm-elections-senate-house-scenarios.html
+
+**Can Porn Ever Be Ethical?**\
+`A pornographer and conservative Catholic discuss sex and pleasure.`\
+https://www.nytimes.com/2026/10/29/opinion/interesting-times-podcast-julia-yost-erika-lust.html
+
+**Corrections: Oct. 29, 2026**\
+`Corrections that appeared in print on Thursday, Oct. 29, 2026.`\
+https://www.nytimes.com/2026/10/29/pageoneplus/corrections-oct-29-2026.html
+
+**President Trump was Briefed on a Chinese Spy Plot. He Took No Action.**\
+`Our trade and international economics reporter, Ana Swanson, unravels how a tech executive in Singapore aided in steering banned Nvidia advanced A.I. chips to China and provided information to the Chinese government. When President Trump was briefed on this, and the knowledge that this executive was in close contact with the Nvidia chief executive, Jensen Huang, he did nothing about it.`\
+https://www.nytimes.com/video/admin/100000011239966/president-trump-was-briefed-on-a-chinese-spy-plot-he-took-no-action.html
+
+**‘Sigma’ Is Only the Tip of an Inane Male-Hierarchy Iceberg**\
+`We can’t resist taxonomizing ourselves, can we?`\
+https://www.nytimes.com/2026/10/29/magazine/sigma-alpha-male-hierarchy.html
+
+**36 Hours in Buenos Aires: Things to Do and See**\
+`At once nostalgic and ever-changing, the Argentine capital remains unreservedly itself.`\
+https://www.nytimes.com/interactive/2026/10/29/travel/things-to-do-buenos-aires.html
+
+**In Marseille, Macron Confronts a Potent Mix of France’s Problems**\
+`France’s second city, five years into a presidential development plan, is grappling with the social strains that have fueled protests across the country.`\
+https://www.nytimes.com/2026/10/29/world/europe/france-marseille-macron-protests.html
+
+**A Clash Over Trans Women in Sports Erupts at a Pro Soccer Game**\
+`For protesters seeking a ban on transgender athletes in women’s sports, it made sense to protest near fans of the Portland Thorns, who are known for progressive politics.`\
+https://www.nytimes.com/2026/10/29/us/politics/portland-thorns-women-soccer-transgender.html
+
+**Michigan Voters Split on Candidate Solutions to Data Center Proposals**\
+`In battleground Michigan, residents disagree on which candidate in a marquee House race has the better solution to a data center proposal.`\
+https://www.nytimes.com/2026/10/29/us/michigan-election-data-centers-voters.html
+
+**California Is Voting on the Wrong Wealth Tax**\
+`If you’re worked up about what billionaires pay, wait till you hear about the millionaires.`\
+https://www.nytimes.com/2026/10/29/opinion/california-wealth-tax-billionaires.html
+
+**Hit the Road This Season With These Useful New Map Features**\
+`The recent updates to Google Maps and Apple’s Maps use artificial (and human) intelligence for better navigation, planning and travel guides.`\
+https://www.nytimes.com/2026/10/29/technology/personaltech/apple-google-maps-features.html
+
+**They Pick Up Cash From Weed Stores. Up to $250,000 a Day.**\
+`A company hires retired law-enforcement officers to move cannabis proceeds from dispensaries to banks.`\
+https://www.nytimes.com/2026/10/29/nyregion/cannabis-dispensaries-cash-moving.html
+
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a three-bedroom house in Floral Park, N.Y., and a five-bedroom house in Leonia, N.J.`\
+https://www.nytimes.com/2026/10/29/realestate/housing-market-near-nyc.html
+
+**‘Manhood’ Review: Going to Great Lengths**\
+`Penis enlargement is the subject of this humanely-observed but unfocused documentary.`\
+https://www.nytimes.com/2026/10/29/movies/manhood-review.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in TriBeCa, on the Upper West Side and City Island.`\
+https://www.nytimes.com/2026/10/29/realestate/housing-market-nyc.html
+
+**‘The Mosquito Bowl’ Review: Blood Sport**\
+`Peter Berg’s bluntly drawn historical drama pairs two pillars of American identity, war and football, to uneasy effect.`\
+https://www.nytimes.com/2026/10/29/movies/the-mosquito-bowl-review.html
+
+**Billionaire Tax Campaign Pins Its Hopes on Influencers and Social Media**\
+`Supporters of a California wealth tax are short on cash and are relying on cheaper campaign methods to get their word out.`\
+https://www.nytimes.com/2026/10/29/us/california-billionaire-tax-influencers.html
+
+**Candidate Websites Are Filled With A.I.-Written Text, Analysis Shows**\
+`The use of A.I. chatbots to write candidate biographies and policy positions is another way the technology is entangled with elections.`\
+https://www.nytimes.com/2026/10/29/us/politics/campaign-websites-artificial-intelligence.html
+
+**Book Review: ‘The Glass Box,’ by Calum Marsh**\
+`In “The Glass Box,” Calum Marsh chronicles the rise and fall of a fitness empire.`\
+https://www.nytimes.com/2026/10/29/books/review/calum-marsh-the-glass-box-.html
+
+**The Best Cities to Retire in 2026**\
+`A study compared data across 45 metrics to find the best cities for senior living.`\
+https://www.nytimes.com/2026/10/29/realestate/the-best-cities-to-retire-in-2026.html
+
+**‘Queen at Sea’ Review: An Impossible Situation**\
+`Juliette Binoche stars in a heart-wrenching drama about dementia that is harrowing to watch.`\
+https://www.nytimes.com/2026/10/29/movies/queen-at-sea-review.html
+
+**‘The Mongoose’ Review: Battle Scars and Muscle Cars**\
+`Liam Neeson plays a military veteran fleeing a murder rap in this silly, sentimental action movie.`\
+https://www.nytimes.com/2026/10/29/movies/the-mongoose-review.html
+
+**‘Everest: The Other Side’ Review: Chancing Death**\
+`In their latest documentary, the directors of “Free Solo” track some adventurers trying to ascend the hazardous north side of Mount Everest.`\
+https://www.nytimes.com/2026/10/29/movies/everest-the-other-side-review-chancing-death.html
+
+**‘Christmas at the Kringles’ Review: They Really Like the Holidays. And Bloodshed.**\
+`Ron Livingston and Rachel Bilson move next door to a family that celebrates Christmas all year long and gets a little tetchy if you don’t join them.`\
+https://www.nytimes.com/2026/10/29/movies/christmas-at-the-kringles-review.html
+
+**Bodacious A.I. Bots Are Stealing Jokes From Young Female Comedians**\
+`Swiping jokes word for word, these bodacious bots mainly lift from young female comedians. What’s so insidious is how they’re subtly changing us, the audience.`\
+https://www.nytimes.com/2026/10/29/arts/ai-bots-jokes-theft-comedians.html
+
+**‘Apocalypse Z: New World’ Review: Chomping Hordes, Continued**\
+`While efficient, this action sequel sticks closely to familiar zombie genre tropes.`\
+https://www.nytimes.com/2026/10/29/movies/apocalypse-z-new-world-review.html
+
+**Nvidia Chief, Jensen Huang, Is Seen as Target of Chinese Spy Plot**\
+`A Chinese businesswoman who had a close relationship with Jensen Huang was found to be passing intelligence to Beijing. President Trump was briefed and took no action.`\
+https://www.nytimes.com/2026/10/29/us/politics/nvidia-china-jensen-huang-trump.html
+
+**The Red States That Could Decide the Senate**\
+`Democrats need to flip four Republican-held Senate seats to regain the majority, but some of their targets are in states President Trump won by double digits in 2024. Our election data reporter Evan Reynolds explains just how difficult that might be.`\
+https://www.nytimes.com/video/us/elections/100000011223984/the-red-states-that-could-decide-the-senate.html
+
+**LeVar Burton on His Favorite Books and New Memoir**\
+`That genre “has always been a place where we can imagine a better future,” says the actor and longtime “Reading Rainbow” host, who has a new memoir.`\
+https://www.nytimes.com/2026/10/29/books/review/levar-burton-take-my-word-for-it.html
+
+**Book Review: ‘The Widow van Gogh,’ by Joan Martelli**\
+`Were it not for the artist’s sister-in-law, Johanna van Gogh-Bonger, a new biography argues, the world might not have encountered his extraordinary work.`\
+https://www.nytimes.com/2026/10/29/books/review/widow-van-gogh-joan-martelli.html
+
+**Idaho Voters Will Pick Their State Gun on Tuesday**\
+`An advisory referendum will give Idahoans a choice of six weapons to make their state gun, though none of them are exactly linked to their state.`\
+https://www.nytimes.com/2026/10/29/us/elections/idaho-state-gun-referendum.html
+
+**Interior Designers Brace for Higher Prices as California Weighs Quartz Ban**\
+`Many designers won’t miss working with quartz, but they expect an adjustment period as the industry finds replacement materials.`\
+https://www.nytimes.com/2026/10/29/realestate/quartz-ban-interior-designer-reaction-prices.html
+
+**Ilhan Omar Investigation Involves New Scrutiny of Long-Disputed Marriage**\
+`Several current and former law enforcement officials said an Obama-era investigation found some evidence that Ms. Omar had entered into a sham marriage with a man who may have been her brother.`\
+https://www.nytimes.com/2026/10/29/us/immigration-fraud-claims-ilhan-omar.html
+
+**Gen Z Is Shouting Into the Job ‘Void’**\
+`A.I. has upended the job hunt to make it more impersonal and robotic than ever before. Our reporter Callie Holtermann explores how Gen Z is finding it rare to talk to a human.`\
+https://www.nytimes.com/video/style/100000011213997/gen-z-is-shouting-into-the-job-void.html
+
+**How IShowSpeed Became the Most Influential Streamer in the World**\
+`Livestreaming is unstoppably ascendant — and often boring. IShowSpeed became the king of the form by bringing his act into the real world.`\
+https://www.nytimes.com/2026/10/29/magazine/ishowspeed-america-tour-livestream.html
+
 **Mike Beigel, Whose Devices Shaped the Sound of the 70s, Has Died**\
 `Have a listen. He’s responsible for a funky texture in the 1970s that defined hit songs by Stevie Wonder, the Grateful Dead and many others.`\
 https://www.nytimes.com/2026/10/29/arts/music/mike-beigel-dead.html
