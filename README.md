@@ -1,3 +1,7 @@
+**Its Investors Say Kalshi Is Worth $40 Billion. Is an I.P.O. Next?**\
+`The prediction market raised $1 billion in a new funding round and landed a market value almost double that of rival Polymarket. But legal challenges to its business persist.`\
+https://www.nytimes.com/2026/10/29/business/dealbook/its-investors-say-kalshi-is-worth-40-billion-is-an-ipo-next.html
+
 **Russian Strike on Ukrainian Train Station Kills 13**\
 `A deadly strike was a grim reminder that despite a rare local cease-fire around the Russian-occupied town of Oleshky, other communities remained under fire.`\
 https://www.nytimes.com/2026/10/29/world/europe/ukraine-dnipro-train-russia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/movies/the-mongoose-review.html
 **‘Everest: The Other Side’ Review: Chancing Death**\
 `In their latest documentary, the directors of “Free Solo” track some adventurers trying to ascend the hazardous north side of Mount Everest.`\
 https://www.nytimes.com/2026/10/29/movies/everest-the-other-side-review-chancing-death.html
-
-**‘Christmas at the Kringles’ Review: They Really Like the Holidays. And Bloodshed.**\
-`Ron Livingston and Rachel Bilson move next door to a family that celebrates Christmas all year long and gets a little tetchy if you don’t join them.`\
-https://www.nytimes.com/2026/10/29/movies/christmas-at-the-kringles-review.html
 

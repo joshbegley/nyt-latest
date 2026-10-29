@@ -1,3 +1,7 @@
+**Russian Strike on Ukrainian Train Station Kills 13**\
+`A deadly strike was a grim reminder that despite a rare local cease-fire around the Russian-occupied town of Oleshky, other communities remained under fire.`\
+https://www.nytimes.com/2026/10/29/world/europe/ukraine-dnipro-train-russia.html
+
 **Volkswagen ‘Must Act Quickly’ After Largest Loss in Over a Decade**\
 `The German carmaker warned that it “must act quickly and decisively” to cut costs.`\
 https://www.nytimes.com/2026/10/29/business/volkswagen-loss-china.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/movies/everest-the-other-side-review-chancing
 **‘Christmas at the Kringles’ Review: They Really Like the Holidays. And Bloodshed.**\
 `Ron Livingston and Rachel Bilson move next door to a family that celebrates Christmas all year long and gets a little tetchy if you don’t join them.`\
 https://www.nytimes.com/2026/10/29/movies/christmas-at-the-kringles-review.html
-
-**Bodacious A.I. Bots Are Stealing Jokes From Young Female Comedians**\
-`Swiping jokes word for word, these bodacious bots mainly lift from young female comedians. What’s so insidious is how they’re subtly changing us, the audience.`\
-https://www.nytimes.com/2026/10/29/arts/ai-bots-jokes-theft-comedians.html
 

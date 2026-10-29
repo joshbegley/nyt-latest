@@ -1,3 +1,7 @@
+**Russian Strike on Ukrainian Train Station Kills 13**\
+`A deadly strike was a grim reminder that despite a rare local cease-fire around the Russian-occupied town of Oleshky, other communities remained under fire.`\
+https://www.nytimes.com/2026/10/29/world/europe/ukraine-dnipro-train-russia.html
+
 **Volkswagen ‘Must Act Quickly’ After Largest Loss in Over a Decade**\
 `The German carmaker warned that it “must act quickly and decisively” to cut costs.`\
 https://www.nytimes.com/2026/10/29/business/volkswagen-loss-china.html
