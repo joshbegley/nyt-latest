@@ -1,3 +1,7 @@
+**She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
+`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the debate over when parents act irresponsibly.`\
+https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
+
 **With Votes Nearly Counted, Rival Israeli Blocs Must Now Wrangle for Power**\
 `Neither Prime Minister Benjamin Netanyahu nor his main challenger, Gadi Eisenkot, were projected to gain a parliamentary majority, setting the stage for negotiations to form the next government.`\
 https://www.nytimes.com/live/2026/10/28/world/israel-elections

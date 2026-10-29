@@ -1,6 +1,14 @@
+**Searching for Jobs, Gen Z Feels Like It’s Staring Into ‘the Void’**\
+`Hundreds of applications later, even being rejected by an actual human being counts as a victory.`\
+https://www.nytimes.com/interactive/2026/10/28/style/gen-z-job-market.html
+
+**A Top Dartmouth Leader Steps Down Over Undisclosed A.I. Use in Writings**\
+`Santiago Schnell, who had been provost since last year, will leave after a review found that he had improperly used A.I. in published opinion articles.`\
+https://www.nytimes.com/2026/10/28/us/dartmouth-santiago-schnell-ai.html
+
 **After Flying Past the Moon, an Artemis II Astronaut Lands in California**\
 `Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
-https://www.nytimes.com/2026/10/28/science/space/after-flying-past-the-moon-an-artemis-ii-astronaut-lands-in-california.html
+https://www.nytimes.com/2026/10/28/science/space/reid-wiseman-artemis-ii-astronaut.html
 
 **She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
 `A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the debate over when parents act irresponsibly.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/10/28/obituaries/gary-angry-anderson-mad-max-dead.h
 **What We Know About the Deadly Train Crash in Spain**\
 `A train accident near Toledo, Spain, which killed at least 68 people, was one of the deadliest in the country’s history.`\
 https://www.nytimes.com/2026/10/28/world/europe/train-crash-spain.html
-
-**Netanyahu Didn’t Win Israel’s Election. But He’s Far From Out.**\
-`Prime Minister Benjamin Netanyahu lost some support from voters, but preliminary results suggest he has multiple ways to remain in power given the country’s fractured politics.`\
-https://www.nytimes.com/2026/10/28/world/middleeast/netanyahu-israel-election.html
-
-**Spain’s Transportation Minister Said Incorrect Instructions Led to Train Crash**\
-`An “inexplicable” decision by traffic control operators sent a train on its way toward another stopped miles in front of it, the minister said.`\
-https://www.nytimes.com/2026/10/28/world/europe/spain-train-crash-cause.html
 
 **Fed Holds Rates Steady Despite ‘Elevated’ Inflation**\
 `Kevin Warsh, the Federal Reserve chairman, gave an upbeat assessment of the economy but stressed that inflation was too high. He said the Fed would hold fewer rate-setting votes starting next year.`\
