@@ -1,3 +1,7 @@
+**Why Miami Is a Destination for Latin America’s Political Exiles**\
+`The city’s Hispanic majority, news media reach and air links to Latin America have made it an ideal base for politicians escaping their home countries.`\
+https://www.nytimes.com/2026/10/29/us/flavio-bolsonaro-miami-exile.html
+
 **Who Is Ahead in Minnesota's 8th Congressional District?**\
 `Track the latest polls in Minnesota's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/minnesota-us-house-8-polls-2026.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/29/science/ai-eradicate-computer-bugs.html
 **China Confirms Expulsion of 33 Officials, as Xi’s Purge Deepens**\
 `Xi Jinping has enforced loyalty as he prepares to claim a fourth term as leader. Among those removed was a prominent former diplomat, Liu Jianchao.`\
 https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html
-
-**Inflation Accelerated in October, PCE Index Shows**\
-`The Personal Consumption Expenditures index picked up in September, according to data released a day after the Federal Reserve’s decision to hold interest rates steady.`\
-https://www.nytimes.com/2026/10/29/business/economy/pce-inflation-economy.html
 

@@ -1,3 +1,7 @@
+**Why Miami Is a Destination for Latin America’s Political Exiles**\
+`The city’s Hispanic majority, news media reach and air links to Latin America have made it an ideal base for politicians escaping their home countries.`\
+https://www.nytimes.com/2026/10/29/us/flavio-bolsonaro-miami-exile.html
+
 **Who Is Ahead in Minnesota's 8th Congressional District?**\
 `Track the latest polls in Minnesota's 8th Congressional District.`\
 https://www.nytimes.com/interactive/polls/minnesota-us-house-8-polls-2026.html
