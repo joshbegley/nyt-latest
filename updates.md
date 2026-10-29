@@ -1,3 +1,7 @@
+**Judge Rejects Trump Officials’ Bid to Set Aside California Ballots**\
+`The judge ruled that no immediate action was necessary, dealing another setback to the administration as it moves to target voting by noncitizens.`\
+https://www.nytimes.com/2026/10/28/us/politics/california-noncitizen-voters-trump.html
+
 **She Was Arrested After Leaving Her Kids for Days. It Sparked a Debate.**\
 `A Florida sheriff’s office arrested a mother who had left her children home alone for days to go on a work trip, reigniting the debate over when parents act irresponsibly.`\
 https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
