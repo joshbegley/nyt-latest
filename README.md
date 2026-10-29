@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/10/28/us/dartmouth-santiago-schnell-ai.html
 `Reid Wiseman, now a retired emeritus astronaut, will become deputy director of the Jet Propulsion Laboratory, NASA’s premier center for deep-space robotic missions.`\
 https://www.nytimes.com/2026/10/28/science/space/reid-wiseman-artemis-ii-astronaut.html
 
-**She Was Arrested After Leaving Her Kids for Days. Parents Are Debating.**\
-`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go a work trip, reigniting the debate over when parents act irresponsibly.`\
+**She Was Arrested After Leaving Her Kids for Days. It Sparked a Debate.**\
+`A Florida sheriff’s office arrested a mother who had left her children home alone for days to go on a work trip, reigniting the debate over when parents act irresponsibly.`\
 https://www.nytimes.com/2026/10/28/us/florida-mother-las-vegas.html
 
 **Cabinet Officials on the Campaign Trail? Ethics Experts Say Some Are Breaking the Law.**\
