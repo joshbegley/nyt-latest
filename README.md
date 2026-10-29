@@ -1,3 +1,7 @@
+**King Charles’s Caribbean Tour Met With Celebration and Demands**\
+`King Charles III joined a street parade in the Bahamas on the second day of his Caribbean tour. The trip comes against backdrop of increasing demand that Britain pay reparations for its role in the slave trade.`\
+https://www.nytimes.com/video/world/americas/100000011244529/king-charles-caribbean-reparations-bahamas.html
+
 **Hegseth Fires General He Accused of Leaking Information to the News Media**\
 `Lt. Gen. Brett Sylvia was fired as part of a broad and highly unusual campaign to find and punish senior military officers who speak to reporters.`\
 https://www.nytimes.com/2026/10/29/us/hegseth-army-general-sylvia-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 **Spain Crash Investigators Focus on Train Traffic Controllers’ Role**\
 `After the country’s second major rail disaster in a year, Spaniards were confronting questions about the safety of their once-vaunted rail system.`\
 https://www.nytimes.com/2026/10/29/world/europe/spain-train-crash-renfe.html
-
-**Christine Lagarde to Step Down as President of European Central Bank**\
-`Her plan to depart in February, months before the end of an eight-year term, sets in motion a selection process among European leaders for a new central bank president.`\
-https://www.nytimes.com/2026/10/29/business/christine-lagarde-resigns-ecb.html
 
