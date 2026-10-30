@@ -1,3 +1,11 @@
+**U.S. Oil Industry Earned Over $130 Billion in Profit During Iran War**\
+`That was almost three times as much as what businesses producing and refining oil in the United States made in the same period in 2025.`\
+https://www.nytimes.com/2026/10/30/business/energy-environment/exxon-chevron-oil-profits-iran-war.html
+
+**A.I. Stocks Wobble, but Broader Market Is Holding On**\
+`The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the tech stocks that led the index to repeated new highs.`\
+https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
+
 **Are We in an A.I. Bubble? We’re About to Find Out.**\
 `“This is the first pure-play L.L.M. company to go public, to open its books so we can actually look at the underlying business of this A.I. boom.”`\
 https://www.nytimes.com/2026/10/30/podcasts/hardfork-anthropic-ipo.html
