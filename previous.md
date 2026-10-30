@@ -1,3 +1,35 @@
+**Are We in an A.I. Bubble? We’re About to Find Out.**\
+`“This is the first pure-play L.L.M. company to go public, to open its books so we can actually look at the underlying business of this A.I. boom.”`\
+https://www.nytimes.com/2026/10/30/podcasts/hardfork-anthropic-ipo.html
+
+**Are the Jets Crashing Again?**\
+`Plus, why free agents and fans are passing on Caitlin Clark and the Indiana Fever.`\
+https://www.nytimes.com/2026/10/30/podcasts/new-york-jets-crashing-again.html
+
+**The Art of the Pardon: How Trump Turned Clemency Into a Business**\
+`An inmate paid lobbyists and lawyers with ties to the president’s team and walked free. Others are following his blueprint.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-daily/trump-pardons-clemency.html
+
+**NYT Connections Answers for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/connections-companion-1238.html
+
+**Trump Administration Steps Up Midterm Interventions, and Israeli Elections Have No Clear Winner**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-headlines/trump-interventions-midterms-israeli-election.html
+
+**Today’s Wordle Hints for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/wordle-review-1960.html
+
+**I Covered the Tiananmen Square Massacre. It Still Weighs on Me.**\
+`The day that changed modern China also taught me how to recognize true courage.`\
+https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
+
+**NYT Strands Hints for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
+
 **Midterm Elections Live Updates: Justice Dept. Subpoenas Democrats Over Allegations of Ballot Stacking in Alaska**\
 `As Republican anger grew over the plan, Mary Peltola, the Democratic candidate for Senate, denied knowledge of any effort aimed at “tricking voters.”`\
 https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/30/business/electric-ferries-chargers.html
 **15-Minute Lesson Plan: Grief and Healing**\
 `What do your students think happened after a woman posted on Facebook looking for strangers to attend baseball games with her? Why?`\
 https://www.nytimes.com/2026/10/30/learning/15-minute-lesson-plan-grief-and-healing.html
-
-**Two New Picture Books About Healing Our Polarized World**\
-`Two new picture books use kid-friendly art to help young readers explore the idea of bridging the divide.`\
-https://www.nytimes.com/2026/10/30/books/review/duel-shawn-harris-one-person-wee-hae-june.html
-
-**Hellraiser’s Gory Eroticism and 4 More Terrifying Games for Halloween**\
-`Fight carnival bears bent on hugging you to death. Flee Scottish monsters. And view the frightening Antarctic through penguin eyes.`\
-https://www.nytimes.com/2026/10/30/arts/halloween-scary-video-games.html
-
-**How Ukrainian Soldiers Are Moving Underground**\
-`Ukrainian soldiers are traveling underground through abandoned gas pipes to reach positions near the front. Our correspondent Maria Varenikova joins them on the journey through the kill zone and into positions where troops can spend weeks at a time.`\
-https://www.nytimes.com/video/world/europe/100000011210889/how-ukrainian-soldiers-are-moving-underground.html
-
-**My Kids Love the Creepy Carrots Books. What Should They Read Next?**\
-`Nine recommendations for big kids in training who like scary books.`\
-https://www.nytimes.com/2026/10/30/books/review/books-like-creepy-carrots.html
-
-**Rosalind Ashford Has Died. She Wanted to Be a Stewardess but Became a Motown Star.**\
-`A founding member of Martha and the Vandellas, she was the crystalline soprano on 1960s hits like “Nowhere to Run” and “Jimmy Mack.” She has died at 83.`\
-https://www.nytimes.com/2026/10/30/arts/music/rosalind-ashford-dead.html
-
-**Keira Knightley Knows What Spying Feels Like. Now She’s Putting It to Use.**\
-`Once the victim of paparazzi stalking and tabloid phone hacks, the actress is starring in two projects that deal explicitly with surveillance`\
-https://www.nytimes.com/2026/10/30/arts/television/keira-knightley-black-doves.html
-
-**If Trump Gets Another Supreme Court Pick, MAGA Wants a Loyalist**\
-`For years, Supreme Court aspirants have avoided talking about how they might rule. Trump’s frustrations with his first-term picks could change that.`\
-https://www.nytimes.com/2026/10/30/us/politics/trump-supreme-court-judge-ho.html
-
-**Colombia’s ‘Narcoterrorist’ Crackdown Raises Questions Over Killings**\
-`Military-involved deaths have roiled a country with an iron-fisted new president — and a history of extrajudicial killings.`\
-https://www.nytimes.com/2026/10/30/world/americas/colombia-crackdown-army-killings-de-la-espriella.html
 

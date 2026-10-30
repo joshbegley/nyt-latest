@@ -1,3 +1,35 @@
+**Are We in an A.I. Bubble? We’re About to Find Out.**\
+`“This is the first pure-play L.L.M. company to go public, to open its books so we can actually look at the underlying business of this A.I. boom.”`\
+https://www.nytimes.com/2026/10/30/podcasts/hardfork-anthropic-ipo.html
+
+**Are the Jets Crashing Again?**\
+`Plus, why free agents and fans are passing on Caitlin Clark and the Indiana Fever.`\
+https://www.nytimes.com/2026/10/30/podcasts/new-york-jets-crashing-again.html
+
+**The Art of the Pardon: How Trump Turned Clemency Into a Business**\
+`An inmate paid lobbyists and lawyers with ties to the president’s team and walked free. Others are following his blueprint.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-daily/trump-pardons-clemency.html
+
+**NYT Connections Answers for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/connections-companion-1238.html
+
+**Trump Administration Steps Up Midterm Interventions, and Israeli Elections Have No Clear Winner**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-headlines/trump-interventions-midterms-israeli-election.html
+
+**Today’s Wordle Hints for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/wordle-review-1960.html
+
+**I Covered the Tiananmen Square Massacre. It Still Weighs on Me.**\
+`The day that changed modern China also taught me how to recognize true courage.`\
+https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
+
+**NYT Strands Hints for October 31, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
+
 **Midterm Elections Live Updates: Justice Dept. Subpoenas Democrats Over Allegations of Ballot Stacking in Alaska**\
 `As Republican anger grew over the plan, Mary Peltola, the Democratic candidate for Senate, denied knowledge of any effort aimed at “tricking voters.”`\
 https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
