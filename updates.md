@@ -1,3 +1,15 @@
+**Tom Kean Jr. is Fighting for Political Survival**\
+`Representative Tom Kean Jr. inherited a name and a family legacy that helped carry him to Washington. It might not be enough to keep him there.`\
+https://www.nytimes.com/2026/10/30/nyregion/tom-kean-jr-new-jersey-house-election.html
+
+**Scary Ghost Stories From New York Times Archives**\
+`From haunted zoo cages to ghostly bar owners, here are five stories from our archives that will make you shiver, or maybe chuckle.`\
+https://www.nytimes.com/2026/10/30/insider/ghost-stories-new-york-times.html
+
+**NYT Spelling Bee Answers for October 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/30/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Cheers ‘Stand-Up Obama’ for Riling Republicans**\
 `“He’s working on material for his next special, ‘Hussein in the Membrane,’” Meyers said after the former president ruffled feathers with jokes about the Cheesecake Factory.`\
 https://www.nytimes.com/2026/10/30/arts/television/seth-meyers-obama-trump-comedy.html
