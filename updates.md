@@ -1,3 +1,19 @@
+**El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
+`Representative Haley Stevens plans to campaign with Dr. Abdul El-Sayed in a pivotal race. But she also wants him to apologize for comments about Israel and disavow an ad she sees as antisemitic.`\
+https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
+
+**Democratic Senate Candidate Denies Knowledge of Alaska Ballot Stacking**\
+`Mary Peltola, the Democratic candidate for the Senate in Alaska, said she was unaware of Democrats’ secret effort to stack the midterm ballot with a candidate with the same name as the Republican incumbent.`\
+https://www.nytimes.com/video/us/politics/100000011248503/mary-peltola-denial-alaska-senate.html
+
+**Patrick Stewart Embraced His Baldness and Became an Icon**\
+`It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
+https://www.nytimes.com/2026/10/30/style/patrick-stewart-bald-hereditary-alopecia.html
+
+**Binance Was Hacked. What Protections Exist for Crypto Customers?**\
+`After a $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
+https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
+
 **Patrick Stewart Embraced His Baldness and Became an Icon**\
 `It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
 https://www.nytimes.com/2026/10/30/style/patrick-stewart-embraced-his-baldness.html
