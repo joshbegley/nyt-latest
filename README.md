@@ -1,3 +1,7 @@
+**Protesters Call on Israel’s Opposition to Partner With Arab Parties**\
+`As Arab voter turnout hit a record high in Israel’s election, protesters urged Gadi Eisenkot, a leader of the opposition bloc, to include Arab-led parties in a coalition to govern.`\
+https://www.nytimes.com/video/world/middleeast/100000011248317/israel-election-protest-arab-parties.html
+
 **Fans Pay Tribute to Patrick Stewart**\
 `Fans of Patrick Stewart paid tribute to the actor, who died on Wednesday, and recalled some of his best performances.`\
 https://www.nytimes.com/video/obituaries/archives/100000011248218/patrick-stewart-fan-tributes.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-captain-picar
 **Oberlin College Professor and His Wife Are Murdered by His Son, Police Say**\
 `Pipo Nguyen-duy, 64, was the studio art chairman at the liberal arts college in Ohio and had been honored for his photography, including being named a Guggenheim fellow.`\
 https://www.nytimes.com/2026/10/29/us/oberlin-college-professor-murdered.html
-
-**Machado Says U.S. Plan for Venezuela Will Lead to Elections Next Year**\
-`SUM: On Thursday in Caracas, María Corina Machado, the Venezuelan opposition leader, gave her first news conference since returning to the country on Sunday.`\
-https://www.nytimes.com/video/world/americas/100000011247322/maria-corina-machado-speech.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
