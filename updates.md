@@ -1,3 +1,7 @@
+**Binance’s $6.3 Billion Hack Is Just the Start of a Risky New Era**\
+`The largest cyber heist in history came as attackers increasingly use artificial intelligence and other advanced techniques to steal crypto and quickly launder the funds.`\
+https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
+
 **Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
 `The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
 https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html

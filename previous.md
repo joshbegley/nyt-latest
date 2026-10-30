@@ -1,3 +1,7 @@
+**Binance’s $6.3 Billion Hack Is Just the Start of a Risky New Era**\
+`The largest cyber heist in history came as attackers increasingly use artificial intelligence and other advanced techniques to steal crypto and quickly launder the funds.`\
+https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
+
 **Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
 `The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
 https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/new-york-jets-crashing-again.html
 **The Art of the Pardon: How Trump Turned Clemency Into a Business**\
 `An inmate paid lobbyists and lawyers with ties to the president’s team and walked free. Others are following his blueprint.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-daily/trump-pardons-clemency.html
-
-**NYT Connections Answers for October 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
-https://www.nytimes.com/2026/10/30/crosswords/connections-companion-1238.html
 

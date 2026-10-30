@@ -1,3 +1,7 @@
+**How Patrick Stewart Brought Shakespeare to ‘Star Trek’ Fans**\
+`On “Star Trek” and elsewhere, Stewart gave millions a theatrical master class, often delivering richly spoken classical language to express cosmic hope or grief.`\
+https://www.nytimes.com/2026/10/30/theater/patrick-stewart-shakespeare-star-trek-next-generation.html
+
 **Binance’s $6.3 Billion Hack Is Just the Start of a Risky New Era**\
 `The largest cyber heist in history came as attackers increasingly use artificial intelligence and other advanced techniques to steal crypto and quickly launder the funds.`\
 https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-stocks-bitcoin.h
 `The German actress was 23 when she arrived in Hollywood, where she starred in movies with Peter Sellers, Paul Newman and Bob Hope.`\
 https://www.nytimes.com/2026/10/30/movies/elke-sommer-dead.html
 
-**Novaya Gazeta, Fiercely Independent Russian News Outlet, Says It Will Shut Down**\
-`Journalists at Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise: “They killed us.”`\
+**Russian News Outlet That Defied Kremlin Will Shut Down: ‘They Killed Us’**\
+`Journalists at the fiercely independent Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise.`\
 https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html
 
 **The Justice Department’s Unusual Election-Year Activity**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/hardfork-anthropic-ipo.html
 **Are the Jets Crashing Again?**\
 `Plus, why free agents and fans are passing on Caitlin Clark and the Indiana Fever.`\
 https://www.nytimes.com/2026/10/30/podcasts/new-york-jets-crashing-again.html
-
-**The Art of the Pardon: How Trump Turned Clemency Into a Business**\
-`An inmate paid lobbyists and lawyers with ties to the president’s team and walked free. Others are following his blueprint.`\
-https://www.nytimes.com/2026/10/30/podcasts/the-daily/trump-pardons-clemency.html
 
