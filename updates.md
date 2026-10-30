@@ -1,3 +1,11 @@
+**The Unforced Errors of Vivek Ramaswamy**\
+`Fact-checking a tumultuous campaign with the independent journalist who broke the story of a shocking ad.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswamy.html
+
+**Here’s Where Rain Could Dampen Your Spirits This Halloween**\
+`Use our tool to see your trick-or-treat forecast.`\
+https://www.nytimes.com/2026/10/30/weather/halloween-rain-forecast.html
+
 **4 Ways to Feel More Hopeful**\
 `Start by picking up some trash and pruning your social media feeds.`\
 https://www.nytimes.com/2026/10/30/well/hope-hopeful-inspiration-caitlin-moran-book.html
