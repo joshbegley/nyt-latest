@@ -1,3 +1,7 @@
+**How the Japanese Spy Drama ‘Vivant’ Became The Target of China’s Anger**\
+`“Vivant,” a Japanese thriller that features Chinese spies, has drawn intense criticism from Beijing. Its creators defend the show, saying it is “completely fictional.”`\
+https://www.nytimes.com/2026/10/30/world/asia/japan-vivant-spy-show-china.html
+
 **Oldest Recording of Louisiana’s Vanishing Creole Language Is Published**\
 `The rediscovery of a forgotten recording from 1935 sheds light on a language rooted in the state’s history of slavery and French colonialism.`\
 https://www.nytimes.com/2026/10/30/us/louisiana-creole-recording-lorenzo-dow-turner.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-suppor
 **A Sailor Jumped From the U.S.S. Lincoln. The Navy Punished Him.**\
 `The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
 https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
-
-**Intel’s Shares Plunge 20% as A.I. Hinders Some Parts of Its Business**\
-`The chipmaker, whose largest investor is the U.S. government, reported that the A.I. boom’s domino effect had hurt sales to personal computer makers.`\
-https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
