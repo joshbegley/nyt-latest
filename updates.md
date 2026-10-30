@@ -1,3 +1,7 @@
+**Trump Will Go to Kansas and Iowa Before Election Day**\
+`Also, a rare rescue begins in Ukraine. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/30/briefing/trump-campaign-plans-crypto-hack.html
+
 **A Meteorite Found in the Sahara Is a 4.1-Billion-Year-Old Piece of Mars**\
 `Minerals in the space rock provide hints about the early history of the red planet, when water was flowing on the surface.`\
 https://www.nytimes.com/2026/10/30/science/space/mars-meteorite-teghaza.html
