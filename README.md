@@ -1,5 +1,5 @@
 **Halloween Costume Inspiration From the Fashion Runways**\
-`The spring fashion shows included an outsize number of looks that felt Halloween-ready.`\
+`Halloween costume inspiration from the latest fashion runways.`\
 https://www.nytimes.com/2026/10/30/t-magazine/halloween-costume-inspiration-spring-fashion-runways.html
 
 **A Century-Old Queens Costumer Says Goodbye**\
