@@ -1,3 +1,7 @@
+**‘My Body Hurts’: Christa Pike Describes Pain and Isolation After Botched Execution**\
+`Convicted of a 1995 murder, Ms. Pike released her first statement since the failed attempt to execute her last month.`\
+https://www.nytimes.com/2026/10/30/us/christa-pike-statement.html
+
 **Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
 `Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
 https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
