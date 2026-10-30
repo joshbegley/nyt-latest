@@ -1,3 +1,19 @@
+**A Long, Long Walk**\
+`We look at one man’s journey across the world.`\
+https://www.nytimes.com/2026/10/30/briefing/a-long-long-walk.html
+
+**This Chicken Coconut Curry Gets Better in the Fridge**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/30/dining/this-chicken-coconut-curry-gets-better-in-the-fridge.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a barbaric cannibal, wars and battles, and a postapocalyptic tale.`\
+https://www.nytimes.com/2026/10/30/movies/action-movies-streaming.html
+
+**I Loved Performing at the Kennedy Center. I May Never Do It Again.**\
+`Unless you — and your audience — are avowedly and solidly Trump-supporting, it seems to make no sense to play the venue.`\
+https://www.nytimes.com/2026/10/30/opinion/kennedy-center-trump.html
+
 **3 Arrested in Connection With Deadly Blast in Central Athens**\
 `The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
 https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/30/us/darline-graham-annie-andrews-south-carolin
 **I’m in ‘You Can See Everything.’ Here’s My Side of the Story.**\
 `I’m in ‘You Can See Everything.’ Here’s my side of the story.`\
 https://www.nytimes.com/2026/10/30/opinion/you-can-see-everything-elizabeth-holmes-nathan-fielder.html
-
-**Housing Issues Are on the Ballot. Here’s What to Know.**\
-`This election cycle, voters across the country will be asked to weigh in on proposals to shrink lot sizes, slash property taxes and more.`\
-https://www.nytimes.com/2026/10/30/realestate/elections-ballot-measures-housing-issues.html
-
-**What Anthropic’s I.P.O. Filing Says About the Future of A.I.**\
-`Anthropic’s I.P.O. is about more than just one company raising boatloads of cash.`\
-https://www.nytimes.com/2026/10/30/opinion/anthropic-ipo-ai.html
-
-**Taking the Saga of a Criminal Gang From Page to Screen to Opera Stage**\
-`Italians can’t get enough of “Romanzo Criminale,” a best-selling novel that has been made into a hit film, a bigger hit TV show and now, an opera.`\
-https://www.nytimes.com/2026/10/30/world/europe/italy-romanzo-criminale-opera.html
-
-**You Never Forget the Password to Your DVD Player**\
-`I like that our DVD player is neither smart nor intelligent. You put in the disc, and the movie appears.`\
-https://www.nytimes.com/2026/10/30/opinion/technology-dvd-players-streaming-movies.html
 
