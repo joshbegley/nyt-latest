@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Justice Dept. Subpoenas Democrats Over Allegations of Ballot Stacking in Alaska**\
+`As Republican anger grew over the plan, Mary Peltola, the Democratic candidate for Senate, denied knowledge of any effort aimed at “tricking voters.”`\
+https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
+
 **Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
 `I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
 https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/us/politics/trump-supreme-court-judge-ho.html
 **Colombia’s ‘Narcoterrorist’ Crackdown Raises Questions Over Killings**\
 `Military-involved deaths have roiled a country with an iron-fisted new president — and a history of extrajudicial killings.`\
 https://www.nytimes.com/2026/10/30/world/americas/colombia-crackdown-army-killings-de-la-espriella.html
-
-**Word of the Day: acumen**\
-`This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/10/30/learning/word-of-the-day-acumen.html
 

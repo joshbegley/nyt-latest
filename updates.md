@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Justice Dept. Subpoenas Democrats Over Allegations of Ballot Stacking in Alaska**\
+`As Republican anger grew over the plan, Mary Peltola, the Democratic candidate for Senate, denied knowledge of any effort aimed at “tricking voters.”`\
+https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
+
 **Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
 `I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
 https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
