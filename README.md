@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
 `The city’s Hispanic majority, news media reach and air links to Latin America have made it an ideal base for politicians escaping their home countries.`\
 https://www.nytimes.com/2026/10/29/us/flavio-bolsonaro-miami-exile.html
 
-**Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
-`The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
+**Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
+`The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 

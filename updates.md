@@ -1,3 +1,11 @@
+**Republicans Ramp Up Investigation Into Democratic Plan to Pack Alaska’s Ballot**\
+`The Justice Department issued subpoenas, a House oversight committee sought interviews and the state opened its own inquiry into a Democratic plan to recruit a spoiler into a Senate race.`\
+https://www.nytimes.com/2026/10/29/us/politics/alaska-dan-sullivan-peltola-ballot-investigation-trump.html
+
+**Trump Cancels Rallies in Kansas and Iowa This Weekend**\
+`President Trump has been holding hours-long rallies for G.O.P. candidates nearly every day for weeks.`\
+https://www.nytimes.com/2026/10/29/us/elections/trump-rally-canceled-kansas-iowa.html
+
 **Lil Baby Almost Quit Rap – ‘Dead Fresh’ Revitalized Him**\
 `Watch the full conversation with Lil Baby. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011238227/lil-baby-almost-quit-rap-dead-fresh-revitalized-him.html
