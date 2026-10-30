@@ -1,3 +1,11 @@
+**Anthropic’s I.P.O.: Why the Stakes Are So High**\
+`This week on “Hard Fork,” the A.I. company Anthropic is getting ready to go public. As more and more investment dollars and the economy at large are wrapped up in these large A.I. companies, what’s at stake with this I.P.O.?`\
+https://www.nytimes.com/video/technology/100000011250815/anthropics-ipo-why-the-stakes-are-so-high.html
+
+**How Healthy Is Anthropic’s Business?**\
+`This week on “Hard Fork,” Max Read, guest host, and Erin Griffith, a tech reporter for The New York Times, discuss how Anthropic’s upcoming I.P.O. is a rare chance to see the financials of a major A.I. company.`\
+https://www.nytimes.com/video/technology/100000011250776/how-healthy-is-anthropics-business.html
+
 **El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
 `Dr. Abdul El-Sayed and Representative Haley Stevens traded sharply critical comments Friday, escalating intraparty tensions in Michigan’s pivotal Senate race.`\
 https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html

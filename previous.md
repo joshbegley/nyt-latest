@@ -1,3 +1,11 @@
+**Anthropic’s I.P.O.: Why the Stakes Are So High**\
+`This week on “Hard Fork,” the A.I. company Anthropic is getting ready to go public. As more and more investment dollars and the economy at large are wrapped up in these large A.I. companies, what’s at stake with this I.P.O.?`\
+https://www.nytimes.com/video/technology/100000011250815/anthropics-ipo-why-the-stakes-are-so-high.html
+
+**How Healthy Is Anthropic’s Business?**\
+`This week on “Hard Fork,” Max Read, guest host, and Erin Griffith, a tech reporter for The New York Times, discuss how Anthropic’s upcoming I.P.O. is a rare chance to see the financials of a major A.I. company.`\
+https://www.nytimes.com/video/technology/100000011250776/how-healthy-is-anthropics-business.html
+
 **Minnesota Declined to Buy a Prison for $75 Million. D.H.S. Paid $495 Million.**\
 `The recent purchase of the prison to hold immigrants is among the acquisitions facing scrutiny in the Trump administration’s mass deportation push.`\
 https://www.nytimes.com/2026/10/30/us/minnesota-prison-homeland-security.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
 **Lil Baby Thought About Quitting Rap While ‘Depressed’**\
 `The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
 https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
-
-**At ABT, New Ballets Fade Beside Ashton and Balanchine**\
-`At American Ballet Theater, the fall season is a chance to steer the company away from full-length works. With one exception, the classics came out on top.`\
-https://www.nytimes.com/2026/10/30/arts/dance/american-ballet-theater-fall-season-brady-farrar.html
-
-**It’s Us Against the Chatbots. Here’s How to Win.**\
-`Readers vent their frustrations and offer suggestions. Also: A public health scandal; giving in to Vladimir Putin.`\
-https://www.nytimes.com/2026/10/30/opinion/chatbots-customer-service.html
 
