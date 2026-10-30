@@ -1,3 +1,7 @@
+**Former Patient Files Class-Action Lawsuit Against Senator Marshall**\
+`The Republican sued more than 700 patients during his former career as a physician. The suit accuses him of charging illegally high interest rates.`\
+https://www.nytimes.com/2026/10/30/us/elections/senator-marshall-patient-lawsuit.html
+
 **Tell Us Your Twin Cities Secrets**\
 `Hidden gems? Stars in the making? A commute you actually enjoy? Our Twin Cities newsletter wants to hear from you.`\
 https://www.nytimes.com/2026/10/30/briefing/twin-cities-secrets.html

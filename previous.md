@@ -1,3 +1,7 @@
+**Former Patient Files Class-Action Lawsuit Against Senator Marshall**\
+`The Republican sued more than 700 patients during his former career as a physician. The suit accuses him of charging illegally high interest rates.`\
+https://www.nytimes.com/2026/10/30/us/elections/senator-marshall-patient-lawsuit.html
+
 **Tell Us Your Twin Cities Secrets**\
 `Hidden gems? Stars in the making? A commute you actually enjoy? Our Twin Cities newsletter wants to hear from you.`\
 https://www.nytimes.com/2026/10/30/briefing/twin-cities-secrets.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/wirecutters-all-time-favorite-slippe
 **Corrections: Oct. 30, 2026**\
 `Corrections that appeared in print on Friday, Oct. 30, 2026.`\
 https://www.nytimes.com/2026/10/30/pageoneplus/corrections-oct-30-2026.html
-
-**Israel’s Election Is Unlikely to Change Its Policies and Global Isolation**\
-`The leading contenders, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, aren’t substantially different in their approach to Israel’s security or in their opposition to a Palestinian state.`\
-https://www.nytimes.com/2026/10/30/world/europe/israel-election-netanyahu-eisenkot.html
 
