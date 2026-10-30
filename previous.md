@@ -1,3 +1,7 @@
+**At ABT, New Ballets Fade Beside Ashton and Balanchine**\
+`At American Ballet Theater, the fall season is a chance to steer the company away from full-length works. With one exception, the classics came out on top.`\
+https://www.nytimes.com/2026/10/30/arts/dance/american-ballet-theater-fall-season-brady-farrar.html
+
 **It’s Us Against the Chatbots. Here’s How to Win.**\
 `Readers vent their frustrations and offer suggestions. Also: A public health scandal; giving in to Vladimir Putin.`\
 https://www.nytimes.com/2026/10/30/opinion/chatbots-customer-service.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/crosswords/wordle-review-1960.html
 **I Covered the Tiananmen Square Massacre. It Still Weighs on Me.**\
 `The day that changed modern China also taught me how to recognize true courage.`\
 https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
-
-**NYT Strands Hints for October 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
-https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
 
