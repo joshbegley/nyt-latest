@@ -1,3 +1,11 @@
+**It’s Us Against the Chatbots. Here’s How to Win.**\
+`Readers vent their frustrations and offer suggestions. Also: A public health scandal; giving in to Vladimir Putin.`\
+https://www.nytimes.com/2026/10/30/opinion/chatbots-customer-service.html
+
+**U.S. to Send Dozens Back to Afghanistan, Despite Risk of Persecution**\
+`The Trump administration plans to fly the Afghan immigrants from Louisiana to Pakistan, where they are expected to be expelled over the border to Afghanistan.`\
+https://www.nytimes.com/2026/10/30/world/asia/afghan-refugees-deported-flight-pakistan.html
+
 **Female Student Sues for Gender Discrimination After Losing Male Lead Role in Play**\
 `Texas officials feared the casting in “Little Shop of Horrors” violated a state law limiting diversity efforts. The student has sued for gender discrimination.`\
 https://www.nytimes.com/2026/10/30/theater/little-shop-of-horrors-texas-lawsuit-title-ix.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
 **NYT Strands Hints for October 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
-
-**Midterm Elections Live Updates: Trump Reverses Course and Will Rally in Kansas and Iowa**\
-`President Trump had canceled plans just a day earlier to travel to the two reliably Republican states, where polls indicate close Senate races.`\
-https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
-
-**Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
-`I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
-https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
 
