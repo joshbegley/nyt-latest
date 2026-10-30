@@ -1,5 +1,9 @@
+**Patrick Stewart Embraced His Baldness and Became an Icon**\
+`It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
+https://www.nytimes.com/2026/10/30/style/patrick-stewart-embraced-his-baldness.html
+
 **Binance was Hacked. What Protections Exist for Crypto Customers?**\
-`After the $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
+`After a $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
 https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
 
 **Could Lil Baby Get More Vulnerable in His Rapping?**\
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
 **Pelosi Splits With Mamdani and El-Sayed on Israel**\
-`In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
+`In a podcast interview, she asserted that criticism of Israel from some prominent Democrats did not reflect the view of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 
 **A Long, Long Walk**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/t-magazine/books-to-squint-at.html
 **Floridians Weigh Cutting Property Taxes — And Local Public Services**\
 `At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
 https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html
-
-**Melania Trump’s Halloween Coat Was Its Own Kind of Costume**\
-`The first lady continues to let her coats do the talking.`\
-https://www.nytimes.com/2026/10/30/style/melania-trump-halloween-coat-white-house.html
 

@@ -1,5 +1,5 @@
 **Binance was Hacked. What Protections Exist for Crypto Customers?**\
-`The company said it was going to reimburse customers who have losses from the theft.`\
+`After the $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
 https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
 
 **Could Lil Baby Get More Vulnerable in His Rapping?**\
