@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/10/30/weather/halloween-rain-forecast.html
 `Start by picking up some trash and pruning your social media feeds.`\
 https://www.nytimes.com/2026/10/30/well/hope-hopeful-inspiration-caitlin-moran-book.html
 
-**A.I. Stocks Wobble, but Broader Market Is Holding On**\
-`The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the tech stocks that led the index to repeated new highs.`\
+**Tech Stocks Tumble, but Broader Market Is Holding On**\
+`The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the A.I. stocks that exert a heavy influence on the index.`\
 https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
 
 **Another Toll of the Violent Unrest in France: The Political Center**\
