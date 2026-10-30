@@ -1,3 +1,7 @@
+**Trump Will Go to Kansas and Iowa Before Election Day**\
+`Also, a rare rescue begins in Ukraine. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/10/30/briefing/trump-campaign-plans-crypto-hack.html
+
 **A Meteorite Found in the Sahara Is a 4.1-Billion-Year-Old Piece of Mars**\
 `Minerals in the space rock provide hints about the early history of the red planet, when water was flowing on the surface.`\
 https://www.nytimes.com/2026/10/30/science/space/mars-meteorite-teghaza.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/t-magazine/taipei-taiwan-hotel-night-market.h
 **Put a Flower on It**\
 `An accessory from the early aughts is having a new moment.`\
 https://www.nytimes.com/2026/10/30/style/the-fashions-fake-flower-accessory.html
-
-**Meta Settles Social Media Addiction Case, Avoiding Trial**\
-`The case, brought by an 18-year-old Mississippi woman and set for trial next week, was the fourth of nine bellwether personal injury lawsuits.`\
-https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit.html
 
