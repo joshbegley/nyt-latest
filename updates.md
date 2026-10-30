@@ -1,3 +1,7 @@
+**Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
+`Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
+https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
+
 **Democratic Candidate Mary Peltola Denies Involvement in Alaska Ballot Stacking**\
 `Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
 https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
