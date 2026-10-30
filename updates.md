@@ -1,3 +1,11 @@
+**Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
+`The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
+https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
+
+**Flashback: Your Weekly History Quiz, Oct. 31, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
+
 **Lil Baby Thought About Quitting Rap While ‘Depressed’**\
 `The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
 https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
