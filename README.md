@@ -1,3 +1,7 @@
+**‘My Body Hurts’: Christa Pike Describes Pain and Isolation After Botched Execution**\
+`Convicted of a 1995 murder, Ms. Pike released her first statement since the failed attempt to execute her last month.`\
+https://www.nytimes.com/2026/10/30/us/christa-pike-statement.html
+
 **Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
 `Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
 https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/realestate/east-village-peace-house-is-for-sa
 **Where Is All the Art About War?**\
 `At a time of global conflict, institutions are shying away from the topic — and artists are struggling to show their work.`\
 https://www.nytimes.com/2026/10/30/t-magazine/war-contemporary-art.html
-
-**Who Killed Alex Odeh?’ Asks Good Questions About a Terrible Death**\
-`The film by Jason Osder and William Lafi Youmans examines the 1985 pipe-bombing of a Palestinian activist in California, tracing the case to suspects in Israel.`\
-https://www.nytimes.com/2026/10/30/movies/who-killed-alex-odeh-review.html
 
