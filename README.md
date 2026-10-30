@@ -1,3 +1,7 @@
+**Houston Grand Jury Indicts ICE Agent on Charges of Ramming Man in Chase**\
+`The agent is facing charges of aggravated assault with a deadly weapon, officials said Friday.`\
+https://www.nytimes.com/2026/10/30/us/houston-ice-agent-charged-ramming.html
+
 **Former Patient Files Class-Action Lawsuit Against Senator Marshall**\
 `The Republican sued more than 700 patients during his former career as a physician. The suit accuses him of charging illegally high interest rates.`\
 https://www.nytimes.com/2026/10/30/us/elections/senator-marshall-patient-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/world/europe/france-unrest-political-center.h
 **Wirecutter’s All-Time Favorite Slippers**\
 `How to get a pair that delivers lasting comfort.`\
 https://www.nytimes.com/2026/10/30/podcasts/wirecutters-all-time-favorite-slippers.html
-
-**Corrections: Oct. 30, 2026**\
-`Corrections that appeared in print on Friday, Oct. 30, 2026.`\
-https://www.nytimes.com/2026/10/30/pageoneplus/corrections-oct-30-2026.html
 
