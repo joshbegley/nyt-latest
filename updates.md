@@ -1,3 +1,11 @@
+**The Justice Department’s Unusual Election-Year Activity**\
+`Federal prosecutors have targeted President Trump’s political opponents and sued states over election administration just before the midterms. Devlin Barrett, a reporter for The New York Times, explains how this activity is compared with the Justice Department’s usual election-year behavior.`\
+https://www.nytimes.com/video/us/elections/100000011240630/the-justice-departments-unusual-election-year-activity.html
+
+**Midterm Elections Live Updates: Trump Reverses Course and Will Rally in Kansas and Iowa**\
+`President Trump had canceled plans just a day earlier to travel to the two reliably Republican states, where polls indicate close Senate races.`\
+https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
+
 **Is Porn Ruining Sex?**\
 `Connecting to other people is hard. Watching porn might be easier. We asked a pornographer whether porn is to blame for the sex recession on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011247211/is-porn-ruining-sex.html
