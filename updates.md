@@ -1,3 +1,11 @@
+**Mosquito Lasers**\
+`China has come up with an innovative way to kill the insects.`\
+https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
+
+**Questions for a Pollster: What Are Your ‘Fears’ for the Midterms?**\
+`Answers to readers’ queries about the reasons a survey could misfire.`\
+https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
+
 **U.S. Oil Industry Earned Over $130 Billion in Profit During Iran War**\
 `That was almost three times as much as what businesses producing and refining oil in the United States made in the same period in 2025.`\
 https://www.nytimes.com/2026/10/30/business/energy-environment/exxon-chevron-oil-profits-iran-war.html

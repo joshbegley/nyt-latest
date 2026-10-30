@@ -1,3 +1,7 @@
+**Mosquito Lasers**\
+`China has come up with an innovative way to kill the insects.`\
+https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
+
 **U.S. Oil Industry Earned Over $130 Billion in Profit During Iran War**\
 `That was almost three times as much as what businesses producing and refining oil in the United States made in the same period in 2025.`\
 https://www.nytimes.com/2026/10/30/business/energy-environment/exxon-chevron-oil-profits-iran-war.html
@@ -159,7 +163,7 @@ https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
 https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rifampin.html
 
 **Questions for a Pollster: What Are Your ‘Fears’ for the Midterms?**\
-`Answers to readers’ queries about the possible reasons a survey could misfire.`\
+`Answers to readers’ queries about the reasons a survey could misfire.`\
 https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
 
 **Why Trump Is Losing Young Men**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/science/headless-skeletons-stone-age.html
 **What Has Helped You Get Through a Difficult Time?**\
 `It can be challenging to heal and move on from grief, heartbreak or serious disappointment. What can we learn from the story of a woman who reached out to strangers in the midst of a loss?`\
 https://www.nytimes.com/2026/10/30/learning/what-has-helped-you-get-through-a-difficult-time.html
-
-**New York Bought an Electric Ferry. The City Can’t Charge It.**\
-`Locations across the country want to launch electric ferries to cut carbon emissions, but there are challenges to the rollout.`\
-https://www.nytimes.com/2026/10/30/business/electric-ferries-chargers.html
 
