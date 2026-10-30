@@ -1,3 +1,7 @@
+**Who Measures the Marathon?**\
+`It takes patience, focus — and a willingness to ride a bike the wrong way on New York City streets.`\
+https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-jobs-workers.html
+
 **In Reversal, Former Primary Rival Will Campaign With El-Sayed**\
 `Representative Haley Stevens of Michigan, who was defeated by Dr. Abdul El-Sayed in August’s Democratic Senate primary, said she would appear with the candidate this weekend.`\
 https://www.nytimes.com/2026/10/29/us/elections/el-sayed-stevens-campaign-event.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/dining/reader-questions.html
 **Patrick Stewart’s Many Roles, From ‘Star Trek’ to ‘Avengers: Doomsday’**\
 `The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
 https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
-
-**Patrick Stewart, ‘Star Trek’ Captain and Professor X on ‘X-Men,’ Dies at 86**\
-`The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
-https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\

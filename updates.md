@@ -1,3 +1,7 @@
+**Who Measures the Marathon?**\
+`It takes patience, focus — and a willingness to ride a bike the wrong way on New York City streets.`\
+https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-jobs-workers.html
+
 **In Reversal, Former Primary Rival Will Campaign With El-Sayed**\
 `Representative Haley Stevens of Michigan, who was defeated by Dr. Abdul El-Sayed in August’s Democratic Senate primary, said she would appear with the candidate this weekend.`\
 https://www.nytimes.com/2026/10/29/us/elections/el-sayed-stevens-campaign-event.html
