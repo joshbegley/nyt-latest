@@ -1,3 +1,11 @@
+**Lil Baby Almost Quit Rap – ‘Dead Fresh’ Revitalized Him**\
+`Watch the full conversation with Lil Baby. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011238227/lil-baby-almost-quit-rap-dead-fresh-revitalized-him.html
+
+**8 Accused of Stealing Millions in Food Stamp Benefits From New Yorkers**\
+`A group was able to use stolen information linked to Supplemental Nutrition Assistance Program benefits to create clones of E.B.T. cards.`\
+https://www.nytimes.com/2026/10/29/nyregion/ebt-scam-snap-food-stamps.html
+
 **Trump Cancels Rallies in Kansas and Iowa This Weekend**\
 `President Trump has been holding hours-long rallies for GOP candidates nearly every day for weeks.`\
 https://www.nytimes.com/2026/10/29/us/elections/trump-rally-canceled-kansas-iowa.html
