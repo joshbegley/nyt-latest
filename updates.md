@@ -1,3 +1,7 @@
+**Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
+`I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
+https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
+
 **The Unforced Errors of Vivek Ramaswamy**\
 `Fact-checking a tumultuous campaign with the independent journalist who broke the story of a shocking ad.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswamy.html
