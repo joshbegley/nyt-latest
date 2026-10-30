@@ -1,3 +1,11 @@
+**Is Porn Ruining Sex?**\
+`Connecting to other people is hard. Watching porn might be easier. We asked a pornographer whether porn is to blame for the sex recession on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011247211/is-porn-ruining-sex.html
+
+**The Risky Business of Sexual Fantasy**\
+`A lack of sex education is a bigger problem than pornography, according to the adult filmmaker Erika Lust. She argues on “Interesting Times” that a healthy outlook on sex begins by talking about it at an early age.`\
+https://www.nytimes.com/video/opinion/100000011240875/the-risky-business-of-sexual-fantasy.html
+
 **The Transactional World of Trump’s Pardons**\
 `What is different about the way that President Trump has approached pardons? Kenneth P. Vogel, a New York Times investigative reporter, joined Natalie Kitroeff, a host of “The Daily,” to talk about how connections and shared grudges against the justice system are now driving clemency decisions.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011247627/the-transactional-world-of-trumps-pardons.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/30/books/review/new-fantasy-books.html
 **Halloween. The Marathon. Daylight Saving. What a Weekend.**\
 `There’s a lot going on in New York City in the next few days, including early voting and the end of daylight saving time.`\
 https://www.nytimes.com/2026/10/30/nyregion/marathon-daylight-saving-halloween-nyc.html
-
-**Nithya Raman’s Husband Brings Her Hollywood Connections**\
-`As Ms. Raman runs for mayor of Los Angeles, the work of her husband, Vali Chandrasekaran, has brought her closer to the city’s signature industry.`\
-https://www.nytimes.com/2026/10/30/us/raman-nithya-husband-vali-chandrasekaran-hollywood.html
-
-**Lil Baby Interview: The Atlanta Rapper Takes On New Challenges**\
-`The Atlanta superstar rapper is back with a new hit and more expansive sound but, he says, the same hunger to dominate.`\
-https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
 

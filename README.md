@@ -1,3 +1,7 @@
+**The Justice Department’s Unusual Election-Year Activity**\
+`Federal prosecutors have targeted President Trump’s political opponents and sued states over election administration just before the midterms. Devlin Barrett, a reporter for The New York Times, explains how this activity is compared with the Justice Department’s usual election-year behavior.`\
+https://www.nytimes.com/video/us/elections/100000011240630/the-justice-departments-unusual-election-year-activity.html
+
 **Is Porn Ruining Sex?**\
 `Connecting to other people is hard. Watching porn might be easier. We asked a pornographer whether porn is to blame for the sex recession on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011247211/is-porn-ruining-sex.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
 
-**Midterm Elections Live Updates: Peltola Says She Didn’t Know About Alaska Ballot Stacking Plan**\
-`As Republican anger grew over the plot, Mary Peltola, the Democratic candidate for Senate, said she had no knowledge of any effort aimed at “tricking voters.”`\
+**Midterm Elections Live Updates: Trump Reverses Course and Will Rally in Kansas and Iowa**\
+`President Trump had canceled plans just a day earlier to travel to the two reliably Republican states, where polls indicate close Senate races.`\
 https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
 
 **Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/books/review/the-calamity-club-kathryn-stocke
 **Spellbinding New Fantasy Novels**\
 `Our columnist reviews Leigh Bardugo’s “Dead Beat” and other recent releases.`\
 https://www.nytimes.com/2026/10/30/books/review/new-fantasy-books.html
-
-**Halloween. The Marathon. Daylight Saving. What a Weekend.**\
-`There’s a lot going on in New York City in the next few days, including early voting and the end of daylight saving time.`\
-https://www.nytimes.com/2026/10/30/nyregion/marathon-daylight-saving-halloween-nyc.html
 
