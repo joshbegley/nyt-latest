@@ -1,3 +1,7 @@
+**Appeals Court Again Rejects Trump Effort to Impound California Ballots**\
+`In a 2-to-1 vote, an appeals court panel declined to order the state to set aside more than 20,000 mail-in ballots, calling the notion plainly unconstitutional.`\
+https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.html
+
 **A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
 `Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
 https://www.nytimes.com/2026/10/30/us/politics/new-progressives-could-reshape-a-democratic-congress.html
