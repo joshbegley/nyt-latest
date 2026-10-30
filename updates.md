@@ -1,3 +1,7 @@
+**Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
+`The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
+https://www.nytimes.com/2026/10/29/technology/binance-hack-crypto.html
+
 **Fans Pay Tribute to Patrick Stewart**\
 `Fans of Patrick Stewart paid tribute to the actor, who died on Wednesday, and recalled some of his best performances.`\
 https://www.nytimes.com/video/obituaries/archives/100000011248218/patrick-stewart-fan-tributes.html

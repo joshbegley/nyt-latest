@@ -92,7 +92,7 @@ https://www.nytimes.com/interactive/2026/10/29/realestate/halloween-trick-or-tre
 
 **Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
 `The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
-https://www.nytimes.com/2026/10/29/technology/binance-grapples-with-security-incident-that-may-cause-6-3-billion-in-losses.html
+https://www.nytimes.com/2026/10/29/technology/binance-hack-crypto.html
 
 **Review: ‘A Few Good Men,’ With Bradley Whitford and Tom Blyth, Gives Up the Fight**\
 `Bradley Whitford, Tom Blyth and Krysta Rodriguez star in a revival of Aaron Sorkin’s 1989 breakthrough that lacks tactical cohesion.`\
