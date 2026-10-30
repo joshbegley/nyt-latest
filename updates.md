@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Oct. 30, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
+
 **Mosquito Lasers**\
 `China has come up with an innovative way to kill the insects.`\
 https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
