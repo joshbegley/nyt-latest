@@ -1,3 +1,7 @@
+**A Meteorite Found in the Sahara Is a 4.1-Billion-Year-Old Piece of Mars**\
+`Minerals in the space rock provide hints about the early history of the red planet, when water was flowing on the surface.`\
+https://www.nytimes.com/2026/10/30/science/space/mars-meteorite-teghaza.html
+
 **Halloween Costume Inspiration From the Fashion Runways**\
 `Halloween costume inspiration from the latest fashion runways.`\
 https://www.nytimes.com/2026/10/30/t-magazine/halloween-costume-inspiration-spring-fashion-runways.html
