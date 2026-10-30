@@ -1,3 +1,11 @@
+**The Unforced Errors of Vivek Ramaswamy**\
+`Fact-checking a tumultuous campaign with the independent journalist who broke the story of a shocking ad.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswamy.html
+
+**Here’s Where Rain Could Dampen Your Spirits This Halloween**\
+`Use our tool to see your trick-or-treat forecast.`\
+https://www.nytimes.com/2026/10/30/weather/halloween-rain-forecast.html
+
 **4 Ways to Feel More Hopeful**\
 `Start by picking up some trash and pruning your social media feeds.`\
 https://www.nytimes.com/2026/10/30/well/hope-hopeful-inspiration-caitlin-moran-book.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/30/learning/word-of-the-day-acumen.html
 **Cancer Takes Center Stage in the Competitive Race for Governor of Iowa**\
 `High cancer rates have exposed a fault line in Iowa politics between public health and the interests of the powerful agriculture industry.`\
 https://www.nytimes.com/2026/10/30/us/iowa-governor-election-cancer-rates.html
-
-**What’s New at the Museum? Stargazing, Escape Rooms, Bachelorette Parties and More**\
-`Museums are pitching themselves as date-night destinations — and finding a generation of takers.`\
-https://www.nytimes.com/2026/10/30/arts/design/late-night-museums-young-people.html
-
-**At the Metropolitan Museum of Art, Visitors Enjoy the Music**\
-`The program “Met Live Arts” aims to create immersive experiences with notable performers in surprising museum locations.`\
-https://www.nytimes.com/2026/10/30/arts/design/museum-met-live-performances.html
 
