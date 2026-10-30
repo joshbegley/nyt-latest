@@ -1,3 +1,7 @@
+**The Tech Tumult Rocks Wall Street**\
+`Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
+https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
+
 **Tech Stocks Tumble, but Broader Market Is Holding On**\
 `The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the A.I. stocks that exert a heavy influence on the index.`\
 https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
