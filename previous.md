@@ -1,3 +1,7 @@
+**Distaste for Lavrov Forces U.S. to Cancel G20 Photo Session in Atlanta**\
+`Some European foreign ministers had refused to pose alongside Russia’s top diplomat, Sergey Lavrov, at a Group of 20 gathering hosted by the United States.`\
+https://www.nytimes.com/2026/10/30/us/politics/lavrov-russia-photo-rubio.html
+
 **Oleshky Evacuations Start After Melania Trump Announces Deal**\
 `Residents of Oleshky, a southern Ukrainian city that has been under Russian occupation since 2022, were evacuated on Friday during a rare localized cease-fire deal announced by the U.S. First Lady Melania Trump.`\
 https://www.nytimes.com/video/world/europe/100000011248961/ukraine-oleshky-ceasefire-russia-war.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
 **Binance Hack Sends Crypto Stocks Tumbling**\
 `The rout hit publicly traded crypto exchanges and fintech companies, as well as cryptocurrencies like Bitcoin.`\
 https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-stocks-bitcoin.html
-
-**Elke Sommer, Star of 1960s Comedies and Spy Films, Dies at 85**\
-`The German actress was 23 when she arrived in Hollywood, where she starred in movies with Peter Sellers, Paul Newman and Bob Hope.`\
-https://www.nytimes.com/2026/10/30/movies/elke-sommer-dead.html
 
