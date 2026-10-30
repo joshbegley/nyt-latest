@@ -1,3 +1,11 @@
+**Halloween Costume Inspiration From the Fashion Runways**\
+`The spring fashion shows included an outsize number of looks that felt Halloween-ready.`\
+https://www.nytimes.com/2026/10/30/t-magazine/halloween-costume-inspiration-spring-fashion-runways.html
+
+**A Century-Old Queens Costumer Says Goodbye**\
+`Robert Stivanello is the third-generation owner of his family’s costume company. But handmade costumes aren’t so popular anymore.`\
+https://www.nytimes.com/2026/10/30/nyregion/stivanello-costume-company-closing.html
+
 **They Bought Harry Houdini’s House. It Came With a Gaggle of Magic Fans.**\
 `When a family of four moved into the famed escape artist’s former Harlem brownstone, they had no idea how much attention would come with the address.`\
 https://www.nytimes.com/2026/10/30/nyregion/houdini-harlem-brownstone.html

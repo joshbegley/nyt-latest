@@ -1,3 +1,11 @@
+**Halloween Costume Inspiration From the Fashion Runways**\
+`The spring fashion shows included an outsize number of looks that felt Halloween-ready.`\
+https://www.nytimes.com/2026/10/30/t-magazine/halloween-costume-inspiration-spring-fashion-runways.html
+
+**A Century-Old Queens Costumer Says Goodbye**\
+`Robert Stivanello is the third-generation owner of his family’s costume company. But handmade costumes aren’t so popular anymore.`\
+https://www.nytimes.com/2026/10/30/nyregion/stivanello-costume-company-closing.html
+
 **They Bought Harry Houdini’s House. It Came With a Gaggle of Magic Fans.**\
 `When a family of four moved into the famed escape artist’s former Harlem brownstone, they had no idea how much attention would come with the address.`\
 https://www.nytimes.com/2026/10/30/nyregion/houdini-harlem-brownstone.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit
 **Pope Leo Votes by Mail, From the Vatican, in Illinois Midterm Election**\
 `Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
 https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
-
-**As Picard on ‘Star Trek’, Patrick Stewart Influenced Generations of Scientists**\
-`Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
-https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
-
-**Houston Grand Jury Indicts ICE Agent on Charges of Ramming Man in Chase**\
-`The agent is facing charges of aggravated assault with a deadly weapon. The immigrant who was struck is recovering from severe leg injuries.`\
-https://www.nytimes.com/2026/10/30/us/houston-ice-agent-charged-ramming.html
 
