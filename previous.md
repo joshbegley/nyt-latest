@@ -1,3 +1,7 @@
+**Traffic Control Errors Most Likely Caused Spain Train Wreck, Says Official**\
+`Óscar Puente, Spain’s transportation minister, said traffic controllers gave the green light to a train racing at about 100 miles per hour toward a stopped train this week, precipitating a crash that killed at least 69 people.`\
+https://www.nytimes.com/video/world/europe/100000011250770/spain-train-crash-cause-traffic-control.html
+
 **ICE Agent Indicted After Hitting Immigrant With Car**\
 `An ICE agent is facing state charges of aggravated assault with a deadly weapon after hitting an undocumented Mexican immigrant with his car in Houston earlier this month.`\
 https://www.nytimes.com/video/us/100000011250843/ice-agent-indicted-hitting-immigrant-car.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/10/30/arts/ao3-fan-fiction-site-down.html
 `Turhan Mildon, who married Alina Habba this summer, presents himself as a 29-year-old billionaire with ties to global leaders. His story has inconsistencies.`\
 https://www.nytimes.com/2026/10/30/us/politics/alina-habba-turhan-mildon-trump-congo-venezuela.html
 
-**Boo! Trump’s Flyover Treat Is a Trick for Some Startled D.C. Residents**\
+**Trump’s Plane Flyover Is a Halloween Trick for Startled D.C. Residents**\
 `A White House social media account said the surprise Air Force One flight was part of a Halloween event hosted by the president and the first lady.`\
 https://www.nytimes.com/2026/10/30/us/politics/air-force-flyover.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/theater/patrick-stewart-shakespeare-star-trek
 **Binance’s $6.3 Billion Hack Is Just the Start of a Risky New Era**\
 `The largest cyber heist in history came as attackers increasingly use artificial intelligence and other advanced techniques to steal crypto and quickly launder the funds.`\
 https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
-
-**Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
-`The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
-https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
 
