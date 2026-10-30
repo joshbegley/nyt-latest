@@ -1,3 +1,15 @@
+**Patrick Stewart Embraced His Baldness and Became an Icon**\
+`It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
+https://www.nytimes.com/2026/10/30/style/patrick-stewart-embraced-his-baldness.html
+
+**Binance was Hacked. What Protections Exist for Crypto Customers?**\
+`After a $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
+https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
+
+**Pelosi Splits With Mamdani and El-Sayed on Israel**\
+`In a podcast interview, she asserted that criticism of Israel from some prominent Democrats did not reflect the view of the party itself.`\
+https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
+
 **Binance was Hacked. What Protections Exist for Crypto Customers?**\
 `After the $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
 https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html

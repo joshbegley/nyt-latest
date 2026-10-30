@@ -1,6 +1,10 @@
+**Democratic Senate Candidate Denies Knowledge of Alaska Ballot Stacking**\
+`Mary Peltola, the Democratic candidate for the Senate in Alaska, said she was unaware of Democrats’ secret effort to stack the midterm ballot with a candidate with the same name as the Republican incumbent.`\
+https://www.nytimes.com/video/us/politics/100000011248503/mary-peltola-denial-alaska-senate.html
+
 **Patrick Stewart Embraced His Baldness and Became an Icon**\
 `It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
-https://www.nytimes.com/2026/10/30/style/patrick-stewart-embraced-his-baldness.html
+https://www.nytimes.com/2026/10/30/style/patrick-stewart-bald-hereditary-alopecia.html
 
 **Binance was Hacked. What Protections Exist for Crypto Customers?**\
 `After a $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011247627/the-transaction
 **Veronica Ditting’s Collection of Tiny Books, Plus More From the T List**\
 `Plus: Peruvian stone boxes, holiday party-ready necklaces and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/30/t-magazine/books-to-squint-at.html
-
-**Floridians Weigh Cutting Property Taxes — And Local Public Services**\
-`At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
-https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html
 
