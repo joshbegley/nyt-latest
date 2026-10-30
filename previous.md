@@ -1,3 +1,7 @@
+**Boo! Trump’s Flyover Treat Is a Trick for Some Startled D.C. Residents**\
+`A White House social media account said the surprise Air Force One flight was part of a Halloween event hosted by the president and the first lady.`\
+https://www.nytimes.com/2026/10/30/us/politics/air-force-flyover.html
+
 **Trump Will Go to Kansas and Iowa Before Election Day**\
 `Also, a rare rescue begins in Ukraine. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/30/briefing/trump-campaign-plans-crypto-hack.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/theater/little-shop-of-horrors-texas-lawsuit-
 **Where to Eat, Sleep and Shop in Taipei, Taiwan**\
 `Plus, experts share the Taiwanese city’s best boutique hotels, tea shops and local mountain hikes.`\
 https://www.nytimes.com/2026/10/30/t-magazine/taipei-taiwan-hotel-night-market.html
-
-**Put a Flower on It**\
-`An accessory from the early aughts is having a new moment.`\
-https://www.nytimes.com/2026/10/30/style/the-fashions-fake-flower-accessory.html
 

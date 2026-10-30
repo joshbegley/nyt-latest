@@ -1,3 +1,7 @@
+**Boo! Trump’s Flyover Treat Is a Trick for Some Startled D.C. Residents**\
+`A White House social media account said the surprise Air Force One flight was part of a Halloween event hosted by the president and the first lady.`\
+https://www.nytimes.com/2026/10/30/us/politics/air-force-flyover.html
+
 **Trump Will Go to Kansas and Iowa Before Election Day**\
 `Also, a rare rescue begins in Ukraine. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/10/30/briefing/trump-campaign-plans-crypto-hack.html
