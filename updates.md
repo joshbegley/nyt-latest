@@ -1,3 +1,11 @@
+**Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
+`The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
+https://www.nytimes.com/2026/10/29/technology/binance-grapples-with-security-incident-that-may-cause-6-3-billion-in-losses.html
+
+**Review: ‘A Few Good Men,’ With Bradley Whitford and Tom Blyth, Gives Up the Fight**\
+`Bradley Whitford, Tom Blyth and Krysta Rodriguez star in a revival of Aaron Sorkin’s 1989 breakthrough that lacks tactical cohesion.`\
+https://www.nytimes.com/2026/10/29/theater/few-good-men-review-whitford-blyth-sorkin.html
+
 **NYT Crossword Answers for Oct. 30, 2026**\
 `Robyn Weintraub and Rafael Musa join forces to open our solving weekend.`\
 https://www.nytimes.com/2026/10/29/crosswords/daily-puzzle-2026-10-30.html
