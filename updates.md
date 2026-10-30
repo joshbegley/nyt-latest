@@ -1,3 +1,7 @@
+**In Reversal, Former Primary Rival Will Campaign With El-Sayed**\
+`Representative Haley Stevens of Michigan, who was defeated by Dr. Abdul El-Sayed in August’s Democratic Senate primary, said she would appear with the candidate this weekend.`\
+https://www.nytimes.com/2026/10/29/us/elections/el-sayed-stevens-campaign-event.html
+
 **Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall St.**\
 `Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
 https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
