@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 `After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
-**Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
+**Pelosi Splits With Mamdani and El-Sayed on Israel**\
 `In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 

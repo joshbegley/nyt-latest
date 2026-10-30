@@ -1,3 +1,7 @@
+**Steve Hilton Tries Anything as a G.O.P. Long Shot in California**\
+`Steve Hilton is attempting to become governor in a state that hasn’t elected a Republican to the top job in 20 years.`\
+https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
+
 **Book Club: Let’s Talk About ‘Switzy’**\
 `Emma Cline’s latest novel is about a man with dementia who has decided to end his life on his own terms.`\
 https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
@@ -62,7 +66,7 @@ https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit
 `Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
 https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
 
-**As Picard on ‘Star Trek’, Patrick Stewart Impacted Generations of Scientists**\
+**As Picard on ‘Star Trek’, Patrick Stewart Influenced Generations of Scientists**\
 `Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
 https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
 
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
 **Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
-`In a podcast interview, she suggested that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
+`In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 
 **A Long, Long Walk**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.
 **‘The Headlines’ News Quiz: Oct. 30, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
-
-**Mosquito Lasers**\
-`China has come up with an innovative way to kill the insects.`\
-https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
 
