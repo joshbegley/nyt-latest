@@ -1,3 +1,11 @@
+**Oldest Recording of Louisiana’s Vanishing Creole Language Is Published**\
+`The rediscovery of a forgotten recording from 1935 sheds light on a language rooted in the state’s history of slavery and French colonialism.`\
+https://www.nytimes.com/2026/10/30/us/louisiana-creole-recording-lorenzo-dow-turner.html
+
+**How to Get Rich in Trump’s America**\
+`American capitalism may never be the same again.`\
+https://www.nytimes.com/2026/10/30/opinion/trump-america-capitalism-rich-politics.html
+
 **2 Helicopters Collide Midair in Oregon, Killing All 3 Aboard**\
 `A student pilot and a flight instructor were killed, along with the person in the second helicopter, officials said. The cause has not been determined.`\
 https://www.nytimes.com/2026/10/30/us/helicopters-crash-oregon.html
