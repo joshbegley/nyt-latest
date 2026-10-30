@@ -1,3 +1,7 @@
+**Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
+`The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
+https://www.nytimes.com/2026/10/29/technology/binance-grapples-with-security-incident-that-may-cause-6-3-billion-in-losses.html
+
 **Review: ‘A Few Good Men,’ With Bradley Whitford and Tom Blyth, Gives Up the Fight**\
 `Bradley Whitford, Tom Blyth and Krysta Rodriguez star in a revival of Aaron Sorkin’s 1989 breakthrough that lacks tactical cohesion.`\
 https://www.nytimes.com/2026/10/29/theater/few-good-men-review-whitford-blyth-sorkin.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/science/dna-ted-bundy-cold-case.html
 **Urgent Funding Sought to Retrieve U.S. ‘Art Olympics’ Sculptures**\
 `The commissioner of the U.S. Pavilion at the Venice Biennale said donations were badly needed to ship the artworks home from Italy. Her nonprofit group is facing a $1 million shortfall to cover the costs.`\
 https://www.nytimes.com/2026/10/29/arts/design/us-pavilion-venice-biennale.html
-
-**Jimmy Gomez at Risk of Losing Seat Amid Sexual Misconduct Inquiry**\
-`Representative Jimmy Gomez, who represents a safe Democratic district, is facing an intraparty challenge from a progressive candidate.`\
-https://www.nytimes.com/2026/10/29/us/jimmy-gomez-polling-california-house.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
