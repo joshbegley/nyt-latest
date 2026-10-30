@@ -1,3 +1,11 @@
+**They Bought Harry Houdini’s House. It Came With a Gaggle of Magic Fans.**\
+`When a family of four moved into the famed escape artist’s former Harlem brownstone, they had no idea how much attention would come with the address.`\
+https://www.nytimes.com/2026/10/30/nyregion/houdini-harlem-brownstone.html
+
+**Daniel Singer Has Died. He Shrank Shakespeare and Made Disney Models.**\
+`He helped turn the Bard’s canon into a three-man, 97-minute comedy, then worked as a Disney Imagineer. He was 66.`\
+https://www.nytimes.com/2026/10/30/obituaries/daniel-singer-dead.html
+
 **The Story Behind Musk’s ‘Woke Mind Virus’ Theory**\
 `Elon Musk is obsessed with the “woke mind virus.” On “The Ezra Klein Show,” Quinn Slobodian, a co-author of “Muskism,” explains the roots of this meme and how it has influenced Musk’s politics.`\
 https://www.nytimes.com/video/opinion/100000011243962/the-story-behind-musks-woke-mind-virus-theory.html
