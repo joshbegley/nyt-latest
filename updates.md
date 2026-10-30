@@ -1,3 +1,15 @@
+**Photo Quiz: Guess the Year**\
+`We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
+https://www.nytimes.com/interactive/2026/10/30/arts/photo-quiz-game-175.html
+
+**‘Election Pornography’ Is Making Voters Anxious**\
+`“Both sides have raised the anxiety level,” around the midterm election, the law expert Rick Pildes said on “Interesting Times” earlier this fall. Pildes argued that what he calls “election pornography” has shaped a narrative that our elections are more vulnerable to fraud than they actually are.`\
+https://www.nytimes.com/video/opinion/100000011240920/election-pornography-is-making-voters-anxious.html
+
+**Obamacare Policies Hit Again With Steep Premium Increases for 2027**\
+`Premiums will increase an average 13 percent next year for millions of Americans, on top of an earlier steep increase. It adds to the problems facing the program, which the Trump administration has weakened.`\
+https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
+
 **Traffic Control Errors Most Likely Caused Spain Train Wreck, Says Official**\
 `Óscar Puente, Spain’s transportation minister, said traffic controllers gave the green light to a train racing at about 100 miles per hour toward a stopped train this week, precipitating a crash that killed at least 69 people.`\
 https://www.nytimes.com/video/world/europe/100000011250770/spain-train-crash-cause-traffic-control.html
