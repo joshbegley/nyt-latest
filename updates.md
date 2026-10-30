@@ -1,3 +1,7 @@
+**Veronica Ditting’s Collection of Tiny Books, Plus More From the T List**\
+`Plus: Peruvian stone boxes, holiday party-ready necklaces and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/10/30/t-magazine/books-to-squint-at.html
+
 **Floridians Weigh Cutting Property Taxes — And Local Public Services**\
 `At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
 https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html

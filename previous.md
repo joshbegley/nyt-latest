@@ -1,3 +1,7 @@
+**Veronica Ditting’s Collection of Tiny Books, Plus More From the T List**\
+`Plus: Peruvian stone boxes, holiday party-ready necklaces and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/10/30/t-magazine/books-to-squint-at.html
+
 **Floridians Weigh Cutting Property Taxes — And Local Public Services**\
 `At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
 https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
 **She Was Racked With Anxiety and Crushed by Insomnia. Finally She Understood Why.**\
 `The woman’s symptoms were common, but the cause was not.`\
 https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rifampin.html
-
-**Are Trump Voters Refusing to Take Polls? And Other Polling Risks.**\
-`Answers to readers’ queries about the reasons a survey could misfire.`\
-https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
 
