@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
 `The woman’s symptoms were common, but the cause was not.`\
 https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rifampin.html
 
-**Questions for a Pollster: What Are Your ‘Fears’ for the Midterms?**\
+**What’s Keeping Us Up at Night (or Not) About the Polls**\
 `Answers to readers’ queries about the reasons a survey could misfire.`\
 https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
 

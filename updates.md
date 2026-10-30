@@ -1,3 +1,7 @@
+**What’s Keeping Us Up at Night (or Not) About the Polls**\
+`Answers to readers’ queries about the reasons a survey could misfire.`\
+https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
+
 **The Tech Tumult Rocks Wall Street**\
 `Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
 https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
