@@ -1,3 +1,11 @@
+**Trump Cancels Rallies in Kansas and Iowa This Weekend**\
+`President Trump has been holding hours-long rallies for GOP candidates nearly every day for weeks.`\
+https://www.nytimes.com/2026/10/29/us/elections/trump-rally-canceled-kansas-iowa.html
+
+**8 Accused of Stealing Millions in Food Stamp Benefits From New Yorkers**\
+`A group was able to use stolen information linked to Supplemental Nutrition Assistance Program benefits to create clones of E.B.T. cards.`\
+https://www.nytimes.com/2026/10/29/nyregion/8-accused-of-stealing-millions-in-food-stamp-benefits-from-new-yorkers.html
+
 **Patrick Stewart, ‘Star Trek’ Star, Dies at 86**\
 `Patrick Stewart, who rose from Britain’s coal-mining country to find acclaim as a Shakespearean actor and later achieved stardom as Capt. Jean-Luc Picard in TV’s “Star Trek: The Next Generation,” has died at the age of 86.`\
 https://www.nytimes.com/video/obituaries/100000011244527/patrick-stewart-death-star-trek.html

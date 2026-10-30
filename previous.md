@@ -1,3 +1,11 @@
+**Trump Cancels Rallies in Kansas and Iowa This Weekend**\
+`President Trump has been holding hours-long rallies for GOP candidates nearly every day for weeks.`\
+https://www.nytimes.com/2026/10/29/us/elections/trump-rally-canceled-kansas-iowa.html
+
+**8 Accused of Stealing Millions in Food Stamp Benefits From New Yorkers**\
+`A group was able to use stolen information linked to Supplemental Nutrition Assistance Program benefits to create clones of E.B.T. cards.`\
+https://www.nytimes.com/2026/10/29/nyregion/8-accused-of-stealing-millions-in-food-stamp-benefits-from-new-yorkers.html
+
 **Patrick Stewart, ‘Star Trek’ Star, Dies at 86**\
 `Patrick Stewart, who rose from Britain’s coal-mining country to find acclaim as a Shakespearean actor and later achieved stardom as Capt. Jean-Luc Picard in TV’s “Star Trek: The Next Generation,” has died at the age of 86.`\
 https://www.nytimes.com/video/obituaries/100000011244527/patrick-stewart-death-star-trek.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/polls/minnesota-us-house-8-polls-2026.html
 **What’s Going On in This Graph? | Nov. 4, 2026**\
 `How would you improve schools?`\
 https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-graph-nov-4-2026.html
-
-**U.S. Expels Cuban Diplomat After Fiery Showdown at United Nations**\
-`Tensions have risen between the United States and Cuba as the Trump administration tries to force the island’s Communist government to make drastic changes.`\
-https://www.nytimes.com/2026/10/29/us/politics/cuban-diplomat-expelled.html
-
-**As Midterm Ads Focus on Epstein, a Florida Senator Is the Latest Target**\
-`A new ad criticizes Senator Ashley Moody, a Republican, for voting against releasing files on Jeffrey Epstein, who was accused of sex crimes in Palm Beach.`\
-https://www.nytimes.com/2026/10/29/us/politics/epstein-victim-ashley-moody-ad.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
