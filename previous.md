@@ -2,7 +2,7 @@
 `The rediscovery of a forgotten recording from 1935 sheds light on a language rooted in the state’s history of slavery and French colonialism.`\
 https://www.nytimes.com/2026/10/30/us/louisiana-creole-recording-lorenzo-dow-turner.html
 
-**How to Get Rich in Trump’s America**\
+**Is This the End for Trump’s Princelings? Or Just the Start?**\
 `American capitalism may never be the same again.`\
 https://www.nytimes.com/2026/10/30/opinion/trump-america-capitalism-rich-politics.html
 
