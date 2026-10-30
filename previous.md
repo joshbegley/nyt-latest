@@ -1,3 +1,7 @@
+**Marvin Shanken, Publisher of Wine Spectator and Cigar Aficionado, Has Died**\
+`He bought a struggling industry newsletter called Wine Spectator in 1979 and turned it into one of America’s leading tastemakers. He was 83.`\
+https://www.nytimes.com/2026/10/30/dining/drinks/marvin-shanken-wine-dead.html
+
 **Appeals Court Again Rejects Trump Effort to Impound California Ballots**\
 `In a 2-to-1 vote, an appeals court panel declined to order the state to set aside more than 20,000 mail-in ballots, calling the notion plainly unconstitutional.`\
 https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 **Democrats and Republicans Share Dueling Health Care Messages in Final Midterms Push**\
 `After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
-
-**Pelosi Splits With Mamdani and El-Sayed on Israel**\
-`In a podcast interview, she asserted that criticism of Israel from some prominent Democrats did not reflect the view of the party itself.`\
-https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 

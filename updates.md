@@ -1,3 +1,7 @@
+**Marvin Shanken, Publisher of Wine Spectator and Cigar Aficionado, Has Died**\
+`He bought a struggling industry newsletter called Wine Spectator in 1979 and turned it into one of America’s leading tastemakers. He was 83.`\
+https://www.nytimes.com/2026/10/30/dining/drinks/marvin-shanken-wine-dead.html
+
 **Appeals Court Again Rejects Trump Effort to Impound California Ballots**\
 `In a 2-to-1 vote, an appeals court panel declined to order the state to set aside more than 20,000 mail-in ballots, calling the notion plainly unconstitutional.`\
 https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.html
