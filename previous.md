@@ -1,3 +1,7 @@
+**Hack Could Leave AO3, a Popular Fan Fiction Site, Offline for Weeks**\
+`AO3, which hosts 18 million stories spun off from the likes of “Harry Potter” and “Heated Rivalry,” was taken offline after “an intrusion,” one of its founders said.`\
+https://www.nytimes.com/2026/10/30/arts/ao3-fan-fiction-site-down.html
+
 **Alina Habba’s Husband Ignited Drama in Trump’s Circle. Now He’s Under Scrutiny.**\
 `Turhan Mildon, who married Alina Habba this summer, presents himself as a 29-year-old billionaire with ties to global leaders. His story has inconsistencies.`\
 https://www.nytimes.com/2026/10/30/us/politics/alina-habba-turhan-mildon-trump-congo-venezuela.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/opinion/chatbots-customer-service.html
 **U.S. to Send Dozens Back to Afghanistan, Despite Risk of Persecution**\
 `The Trump administration plans to fly the Afghan immigrants from Louisiana to Pakistan, where they are expected to be expelled over the border to Afghanistan.`\
 https://www.nytimes.com/2026/10/30/world/asia/afghan-refugees-deported-flight-pakistan.html
-
-**Female Student Sues for Gender Discrimination After Losing Male Lead Role in Play**\
-`Texas officials feared the casting in “Little Shop of Horrors” violated a state law limiting diversity efforts. The student has sued for gender discrimination.`\
-https://www.nytimes.com/2026/10/30/theater/little-shop-of-horrors-texas-lawsuit-title-ix.html
 

@@ -1,3 +1,7 @@
+**Minnesota Declined to Buy a Prison for $75 Million. D.H.S. Paid $495 Million.**\
+`The recent purchase of the prison to hold immigrants is among the acquisitions facing scrutiny in the Trump administration’s mass deportation push.`\
+https://www.nytimes.com/2026/10/30/us/minnesota-prison-homeland-security.html
+
 **Hack Could Leave AO3, a Popular Fan Fiction Site, Offline for Weeks**\
 `AO3, which hosts 18 million stories spun off from the likes of “Harry Potter” and “Heated Rivalry,” was taken offline after “an intrusion,” one of its founders said.`\
 https://www.nytimes.com/2026/10/30/arts/ao3-fan-fiction-site-down.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/arts/dance/american-ballet-theater-fall-seaso
 **It’s Us Against the Chatbots. Here’s How to Win.**\
 `Readers vent their frustrations and offer suggestions. Also: A public health scandal; giving in to Vladimir Putin.`\
 https://www.nytimes.com/2026/10/30/opinion/chatbots-customer-service.html
-
-**U.S. to Send Dozens Back to Afghanistan, Despite Risk of Persecution**\
-`The Trump administration plans to fly the Afghan immigrants from Louisiana to Pakistan, where they are expected to be expelled over the border to Afghanistan.`\
-https://www.nytimes.com/2026/10/30/world/asia/afghan-refugees-deported-flight-pakistan.html
 
