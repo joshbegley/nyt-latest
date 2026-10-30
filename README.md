@@ -1,3 +1,15 @@
+**Tom Kean Jr. is Fighting for Political Survival**\
+`Representative Tom Kean Jr. inherited a name and a family legacy that helped carry him to Washington. It might not be enough to keep him there.`\
+https://www.nytimes.com/2026/10/30/nyregion/tom-kean-jr-new-jersey-house-election.html
+
+**Scary Ghost Stories From New York Times Archives**\
+`From haunted zoo cages to ghostly bar owners, here are five stories from our archives that will make you shiver, or maybe chuckle.`\
+https://www.nytimes.com/2026/10/30/insider/ghost-stories-new-york-times.html
+
+**NYT Spelling Bee Answers for October 30, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/30/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Cheers ‘Stand-Up Obama’ for Riling Republicans**\
 `“He’s working on material for his next special, ‘Hussein in the Membrane,’” Meyers said after the former president ruffled feathers with jokes about the Cheesecake Factory.`\
 https://www.nytimes.com/2026/10/30/arts/television/seth-meyers-obama-trump-comedy.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
 **Americans Keep Spending**\
 `Also, Patrick Stewart dies at 86. Here’s the latest at the end of Thursday.`\
 https://www.nytimes.com/2026/10/29/briefing/us-gdp-patrick-stewart.html
-
-**Obama Doubles Down on ‘Cheesecake Factory’ Jab**\
-`Former President Barack Obama doubled down on his viral criticism of President Trump’s White House renovations. He used the moment to further critique the Trump administration’s priorities.`\
-https://www.nytimes.com/video/us/politics/100000011246519/obama-cheesecake-factory-trump.html
-
-**Court Blocks Strict New Rule for Medicaid Work Requirements**\
-`States had sued the Trump administration, arguing that a regulation would unlawfully cause very sick Americans to lose their coverage. A federal judge agreed.`\
-https://www.nytimes.com/2026/10/29/us/politics/medicaid-work-requirements-frailty.html
-
-**Trump Calls Black and Jewish El-Sayed Supporters ‘Crazy’**\
-`President Trump insulted Black and Jewish supporters of Michigan Senate candidate Dr. Abdul El-Sayed during a rally in South Carolina on Thursday.`\
-https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-supporters-crazy.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
