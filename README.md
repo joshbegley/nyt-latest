@@ -1,3 +1,7 @@
+**ICE Agent Indicted After Hitting Immigrant With Car**\
+`An ICE agent is facing state charges of aggravated assault with a deadly weapon after hitting an undocumented Mexican immigrant with his car in Houston earlier this month.`\
+https://www.nytimes.com/video/us/100000011250843/ice-agent-indicted-hitting-immigrant-car.html
+
 **Why Running for the U.S. Senate Is a Rich Person’s Game**\
 `Your Senate candidates are probably richer than you.`\
 https://www.nytimes.com/2026/10/30/us/politics/us-senate-races-millionaires-wealth.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
 **Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
 `The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
 https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
-
-**Flashback: Your Weekly History Quiz, Oct. 31, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
 
