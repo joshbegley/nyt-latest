@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 30, 2026**\
+`Robyn Weintraub and Rafael Musa join forces to open our solving weekend.`\
+https://www.nytimes.com/2026/10/29/crosswords/daily-puzzle-2026-10-30.html
+
 **Who Measures the Marathon?**\
 `It takes patience, focus — and a willingness to ride a bike the wrong way on New York City streets.`\
 https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-jobs-workers.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/jimmy-gomez-polling-california-house.html
 **Banana Splits, Party Omakase and More Ways to Stave Off the Winter Blues**\
 `Becky Hughes is back to answer our readers’ highly specific restaurant questions.`\
 https://www.nytimes.com/2026/10/29/dining/reader-questions.html
-
-**Patrick Stewart’s Many Roles, From ‘Star Trek’ to ‘Avengers: Doomsday’**\
-`The actor’s long and varied career included Shakespearean roles, “Star Trek: The Next Generation,” comedy and a stint in the Marvel Universe.`\
-https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
