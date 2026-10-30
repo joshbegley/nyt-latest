@@ -1,3 +1,11 @@
+**‘The Heart’ Review: A Bracing New Musical Pulses With Life**\
+`The show’s electronic dance-influenced music perfectly suits its story about a young man’s death and the rush to carry out a heart transplant.`\
+https://www.nytimes.com/2026/10/29/theater/the-heart-review-organ-transplant.html
+
+**Court Rejects Erin Patterson’s Appeal in Mushroom Murders Case**\
+`Judges took away the possibility of parole for an Australian woman, Erin Patterson, and rejected a bid to overturn her conviction over deadly beef Wellington lunch.`\
+https://www.nytimes.com/2026/10/29/world/asia/mushroom-murder-case-sentencing-appeal-australia.html
+
 **Polymarket Is Investigating Suspicious Bets on Israeli Election**\
 `The company said it was looking into hundreds of new accounts that had placed wagers in two markets related to the election on Tuesday.`\
 https://www.nytimes.com/2026/10/29/business/polymarket-investigates-israeli-bets.html

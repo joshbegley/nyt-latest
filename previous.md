@@ -1,3 +1,7 @@
+**‘The Heart’ Review: A Bracing New Musical Pulses With Life**\
+`The show’s electronic dance-influenced music perfectly suits its story about a young man’s death and the rush to carry out a heart transplant.`\
+https://www.nytimes.com/2026/10/29/theater/the-heart-review-organ-transplant.html
+
 **Polymarket Is Investigating Suspicious Bets on Israeli Election**\
 `The company said it was looking into hundreds of new accounts that had placed wagers in two markets related to the election on Tuesday.`\
 https://www.nytimes.com/2026/10/29/business/polymarket-investigates-israeli-bets.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
 `By Christmas, the winning voice will echo through Boston Logan International in recorded greetings and announcements that millions of travelers will hear.`\
 https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.html
 
-**Court to Rule on Erin Patterson’s Appeal in Mushroom Murders Case**\
-`Erin Patterson was sentenced to life in prison for killing three people, including her in-laws, who fell ill and died after a lunch of beef Wellington in 2023.`\
+**Court Rejects Erin Patterson’s Appeal in Mushroom Murders Case**\
+`Judges took away the possibility of parole for an Australian woman, Erin Patterson, and rejected a bid to overturn her conviction over deadly beef Wellington lunch.`\
 https://www.nytimes.com/2026/10/29/world/asia/mushroom-murder-case-sentencing-appeal-australia.html
 
 **What’s Going On in This Picture? | Nov. 2, 2026**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/10/29/arts/design/taryn-simon-guggenheim-father-cou
 **The Democrats’ Secret Search for Alaska’s ‘Other’ Dan Sullivan**\
 `In Alaska’s Senate race, two candidates share the same name: Dan Sullivan. But that’s no coincidence. A New York Times investigation uncovered a secret plan by Democratic operatives to recruit candidates with the same name as the incumbent Republican senator, hoping to confuse voters and split the Republican vote.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-secret-search-for-alaskas-other-dan-sullivan.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/10/29/books/review/new-recommended-books.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
