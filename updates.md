@@ -1,3 +1,19 @@
+**Musk Predicts End of Democracy if Elections Favor Democrats**\
+`The billionaire megadonor urged voters to ensure that Republicans hold the Senate.`\
+https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
+
+**Binance Hack Sends Crypto Stocks Tumbling**\
+`The rout hit publicly traded crypto exchanges and fintech companies, as well as cryptocurrencies like Bitcoin.`\
+https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-stocks-bitcoin.html
+
+**Elke Sommer, Star of 1960s Comedies and Spy Films, Dies at 85**\
+`The German actress was 23 when she arrived in Hollywood, where she starred in movies with Peter Sellers, Paul Newman and Bob Hope.`\
+https://www.nytimes.com/2026/10/30/movies/elke-sommer-dead.html
+
+**The Trouble With This Popular Progressive Idea**\
+`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
+https://www.nytimes.com/2026/10/30/opinion/billionaire-wealth-tax-california.html
+
 **Novaya Gazeta, Fiercely Independent Russian News Outlet, Says It Will Shut Down**\
 `Journalists at Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise: “They killed us.”`\
 https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html

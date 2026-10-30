@@ -1,3 +1,15 @@
+**Musk Predicts End of Democracy if Elections Favor Democrats**\
+`The billionaire megadonor urged voters to ensure that Republicans hold the Senate.`\
+https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
+
+**Binance Hack Sends Crypto Stocks Tumbling**\
+`The rout hit publicly traded crypto exchanges and fintech companies, as well as cryptocurrencies like Bitcoin.`\
+https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-stocks-bitcoin.html
+
+**Elke Sommer, Star of 1960s Comedies and Spy Films, Dies at 85**\
+`The German actress was 23 when she arrived in Hollywood, where she starred in movies with Peter Sellers, Paul Newman and Bob Hope.`\
+https://www.nytimes.com/2026/10/30/movies/elke-sommer-dead.html
+
 **Novaya Gazeta, Fiercely Independent Russian News Outlet, Says It Will Shut Down**\
 `Journalists at Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise: “They killed us.”`\
 https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/10/30/world/europe/italy-romanzo-criminale-opera.ht
 `I like that our DVD player is neither smart nor intelligent. You put in the disc, and the movie appears.`\
 https://www.nytimes.com/2026/10/30/opinion/technology-dvd-players-streaming-movies.html
 
-**Tax the Rich? Easier Said Than Done.**\
+**The Trouble With This Popular Progressive Idea**\
 `Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
 https://www.nytimes.com/2026/10/30/opinion/billionaire-wealth-tax-california.html
-
-**6 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/10/30/movies/new-movies-this-week-critics.html
-
-**Why the Markets Don’t Care About the Midterms**\
-`Factors like inflation, interest rates, A.I. and the war with Iran are far more important, our columnist says.`\
-https://www.nytimes.com/2026/10/30/business/midterms-stock-bond-markets.html
-
-**Book Club: Read ‘The Calamity Club,’ by Kathryn Stockett, With the Book Review**\
-`In November, the Book Review Book Club will read and discuss Stockett’s latest, about two outcasts in Mississippi working to change their fate.`\
-https://www.nytimes.com/2026/10/30/books/review/the-calamity-club-kathryn-stockett-book-club.html
 
