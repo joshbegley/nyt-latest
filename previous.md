@@ -1,8 +1,36 @@
+**Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
+`Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
+https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html
+
+**In Dueling Health Messages, Democrats Focus on Cost and Republicans on Fraud**\
+`After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
+https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
+
+**Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
+`She criticized Zohran Mamdani, the New York mayor, and Dr. Abdul El-Sayed, the Democrat in the Michigan Senate race, over their refusal to endorse a Jewish state.`\
+https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
+
+**A Long, Long Walk**\
+`We look at one man’s journey across the world.`\
+https://www.nytimes.com/2026/10/30/briefing/a-long-long-walk.html
+
+**This Chicken Coconut Curry Gets Better in the Fridge**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/10/30/dining/this-chicken-coconut-curry-gets-better-in-the-fridge.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a barbaric cannibal, wars and battles, and a postapocalyptic tale.`\
+https://www.nytimes.com/2026/10/30/movies/action-movies-streaming.html
+
+**I Loved Performing at the Kennedy Center. I May Never Do It Again.**\
+`Unless you — and your audience — are avowedly and solidly Trump-supporting, it seems to make no sense to play the venue.`\
+https://www.nytimes.com/2026/10/30/opinion/kennedy-center-trump.html
+
 **3 Arrested in Connection With Deadly Blast in Central Athens**\
 `The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
 https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
 
-**Musk Predicts End of Democracy if Elections Favor Democrats**\
+**Elon Musk Predicts End of Democracy if Midterm Elections Favor Democrats**\
 `Mr. Musk’s rhetoric, heated as it is, partly explains why he has spent nearly $475 million to back Republicans in the midterms.`\
 https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
 
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/30/dining/how-i-upgraded-my-moms-roast-chicken-w
 **Conservation Efforts for Caucasian Leopards Show Promise**\
 `In Armenia, a three-legged Caucasian leopard’s astonishing hike signals that conservation efforts for the endangered animal may be working.`\
 https://www.nytimes.com/2026/10/30/climate/injured-leopards-200-mile-trek-suggests-hope-for-a-species.html
-
-**High Prices Haunt Trump and the GOP on Eve of the Midterms**\
-`A backlash over high prices helped Republicans capture a majority in 2024. Now, it may be the source of the party’s own undoing.`\
-https://www.nytimes.com/2026/10/30/business/trump-inflation-election.html
-
-**Darline Graham Is ‘a Little Nervous.’ Can She Keep South Carolina’s Senate Seat Red?**\
-`Polls show the sister of the late Senator Lindsey Graham in a virtual tie with her Democratic opponent, Dr. Annie Andrews. An upset was unthinkable just a few months ago.`\
-https://www.nytimes.com/2026/10/30/us/darline-graham-annie-andrews-south-carolina-senate.html
-
-**I’m in ‘You Can See Everything.’ Here’s My Side of the Story.**\
-`I’m in ‘You Can See Everything.’ Here’s my side of the story.`\
-https://www.nytimes.com/2026/10/30/opinion/you-can-see-everything-elizabeth-holmes-nathan-fielder.html
-
-**Housing Issues Are on the Ballot. Here’s What to Know.**\
-`This election cycle, voters across the country will be asked to weigh in on proposals to shrink lot sizes, slash property taxes and more.`\
-https://www.nytimes.com/2026/10/30/realestate/elections-ballot-measures-housing-issues.html
-
-**What Anthropic’s I.P.O. Filing Says About the Future of A.I.**\
-`Anthropic’s I.P.O. is about more than just one company raising boatloads of cash.`\
-https://www.nytimes.com/2026/10/30/opinion/anthropic-ipo-ai.html
-
-**Taking the Saga of a Criminal Gang From Page to Screen to Opera Stage**\
-`Italians can’t get enough of “Romanzo Criminale,” a best-selling novel that has been made into a hit film, a bigger hit TV show and now, an opera.`\
-https://www.nytimes.com/2026/10/30/world/europe/italy-romanzo-criminale-opera.html
-
-**You Never Forget the Password to Your DVD Player**\
-`I like that our DVD player is neither smart nor intelligent. You put in the disc, and the movie appears.`\
-https://www.nytimes.com/2026/10/30/opinion/technology-dvd-players-streaming-movies.html
 
