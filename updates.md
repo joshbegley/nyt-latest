@@ -1,3 +1,7 @@
+**New Jersey Governor Mikie Sherrill Lists Home for $3.5 Million**\
+`Before it was the New Jersey governor’s house, the Victorian was a fixture of the society pages.`\
+https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montclair.html
+
 **Pelosi Splits With Mamdani and El-Sayed on Israel**\
 `In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html

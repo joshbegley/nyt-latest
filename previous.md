@@ -1,3 +1,7 @@
+**New Jersey Governor Mikie Sherrill Lists Home for $3.5 Million**\
+`Before it was the New Jersey governor’s house, the Victorian was a fixture of the society pages.`\
+https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montclair.html
+
 **Steve Hilton Tries Anything as a G.O.P. Long Shot in California**\
 `Steve Hilton is attempting to become governor in a state that hasn’t elected a Republican to the top job in 20 years.`\
 https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-i
 **Democratic Candidate Mary Peltola Says She Didn’t Know About Alaska Ballot Stacking**\
 `Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
 https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
-
-**The Tech Tumult Rocks Wall Street**\
-`Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
-https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
 
