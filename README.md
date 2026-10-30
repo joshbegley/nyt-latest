@@ -1,3 +1,11 @@
+**Oldest Recording of Louisiana’s Vanishing Creole Language Is Published**\
+`The rediscovery of a forgotten recording from 1935 sheds light on a language rooted in the state’s history of slavery and French colonialism.`\
+https://www.nytimes.com/2026/10/30/us/louisiana-creole-recording-lorenzo-dow-turner.html
+
+**How to Get Rich in Trump’s America**\
+`American capitalism may never be the same again.`\
+https://www.nytimes.com/2026/10/30/opinion/trump-america-capitalism-rich-politics.html
+
 **2 Helicopters Collide Midair in Oregon, Killing All 3 Aboard**\
 `A student pilot and a flight instructor were killed, along with the person in the second helicopter, officials said. The cause has not been determined.`\
 https://www.nytimes.com/2026/10/30/us/helicopters-crash-oregon.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-
 **Intel’s Shares Plunge 20% as A.I. Hinders Some Parts of Its Business**\
 `The chipmaker, whose largest investor is the U.S. government, reported that the A.I. boom’s domino effect had hurt sales to personal computer makers.`\
 https://www.nytimes.com/2026/10/29/technology/intel-earnings.html
-
-**Bostonians Compete to Be Their Airport’s New Voice**\
-`By Christmas, the winning voice will echo through Boston Logan International in recorded greetings and announcements that millions of travelers will hear.`\
-https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.html
-
-**Court Rejects Erin Patterson’s Appeal in Mushroom Murders Case**\
-`Judges took away the possibility of parole for an Australian woman, Erin Patterson, and rejected a bid to overturn her conviction over deadly beef Wellington lunch.`\
-https://www.nytimes.com/2026/10/29/world/asia/mushroom-murder-case-sentencing-appeal-australia.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
