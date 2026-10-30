@@ -1,3 +1,7 @@
+**Moody Makes Appeal to a South Florida Audience Leery of the Left**\
+`Senator Ashley Moody, Republican of Florida, campaigned in Miami-Dade County, an area with a large Cuban population that the G.O.P. is hoping to keep red.`\
+https://www.nytimes.com/2026/10/29/us/elections/ashley-moody-florida-senate-race.html
+
 **Georgia Republican Donor Gets 15 Years in $76 Million Ponzi Scheme**\
 `Federal prosecutors said Edwin Brant Frost IV lured investors with promises of high returns, but used new money to pay earlier investors and fund personal expenses.`\
 https://www.nytimes.com/2026/10/29/us/politics/edwin-frost-georgia-ponzi-scheme-sentencing.html
