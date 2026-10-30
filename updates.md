@@ -1,3 +1,11 @@
+**Lil Baby Thought About Quitting Rap While ‘Depressed’**\
+`The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
+https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
+
+**As Picard on ‘Star Trek’, Patrick Stewart Impacted Generations of Scientists**\
+`Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
+https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
+
 **At ABT, New Ballets Fade Beside Ashton and Balanchine**\
 `At American Ballet Theater, the fall season is a chance to steer the company away from full-length works. With one exception, the classics came out on top.`\
 https://www.nytimes.com/2026/10/30/arts/dance/american-ballet-theater-fall-season-brady-farrar.html

@@ -1,3 +1,7 @@
+**Lil Baby Thought About Quitting Rap While ‘Depressed’**\
+`The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
+https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
+
 **At ABT, New Ballets Fade Beside Ashton and Balanchine**\
 `At American Ballet Theater, the fall season is a chance to steer the company away from full-length works. With one exception, the classics came out on top.`\
 https://www.nytimes.com/2026/10/30/arts/dance/american-ballet-theater-fall-season-brady-farrar.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit
 `Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
 https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
 
-**As Picard, Patrick Stewart Had ‘Life-Changing’ Effects on Generations of Scientists**\
+**As Picard on ‘Star Trek’, Patrick Stewart Impacted Generations of Scientists**\
 `Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
 https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/the-headlines/trump-interventions-mi
 **Today’s Wordle Hints for October 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/30/crosswords/wordle-review-1960.html
-
-**I Covered the Tiananmen Square Massacre. It Still Weighs on Me.**\
-`The day that changed modern China also taught me how to recognize true courage.`\
-https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
 

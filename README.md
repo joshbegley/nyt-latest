@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 31, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
+
 **Lil Baby Thought About Quitting Rap While ‘Depressed’**\
 `The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
 https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/crosswords/connections-companion-1238.html
 **Trump Administration Steps Up Midterm Interventions, and Israeli Elections Have No Clear Winner**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-headlines/trump-interventions-midterms-israeli-election.html
-
-**Today’s Wordle Hints for October 31, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
-https://www.nytimes.com/2026/10/30/crosswords/wordle-review-1960.html
 
