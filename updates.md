@@ -1,3 +1,7 @@
+**Judge Appoints Special Master to Determine if Trump Officials Lied in Golf Course Suit**\
+`Judge Ana C. Reyes said an outside investigator would help determine whether parks officials or Justice Department lawyers withheld plans for Washington’s East Potomac Park.`\
+https://www.nytimes.com/2026/10/30/us/politics/special-master-reyes-trump-golf.html
+
 **Distaste for Lavrov Forces U.S. to Cancel G20 Photo Session in Atlanta**\
 `Some European foreign ministers had refused to pose alongside Russia’s top diplomat, Sergey Lavrov, at a Group of 20 gathering hosted by the United States.`\
 https://www.nytimes.com/2026/10/30/us/politics/lavrov-russia-photo-rubio.html
