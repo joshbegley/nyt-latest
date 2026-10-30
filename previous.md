@@ -1,12 +1,16 @@
-**‘My Body Hurts’: Christa Pike Describes Pain and Isolation After Botched Execution**\
+**The Result of Dissatisfaction Is Endless Political Deadlock**\
+`From France to Brazil, voters are railing against the status quo, even as the politics of disenchantment make lasting change nearly impossible.`\
+https://www.nytimes.com/2026/10/30/magazine/political-deadlock-france-brazil.html
+
+**Christa Pike Describes Pain and Isolation After Botched Execution**\
 `Convicted of a 1995 murder, Ms. Pike released her first statement since the failed attempt to execute her last month.`\
-https://www.nytimes.com/2026/10/30/us/christa-pike-statement.html
+https://www.nytimes.com/2026/10/30/us/christa-pike-botched-execution-statement.html
 
 **Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
 `Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
 https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
 
-**Democratic Candidate Mary Peltola Denies Involvement in Alaska Ballot Stacking**\
+**Democratic Candidate Mary Peltola Says She Didn’t Know About Alaska Ballot Stacking**\
 `Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
 https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
 
@@ -58,8 +62,8 @@ https://www.nytimes.com/2026/10/30/world/asia/china-tiananmen-kristof.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/30/crosswords/strands-sidekick-972.html
 
-**Midterm Elections Live Updates: Justice Dept. Subpoenas Democrats Over Allegations of Ballot Stacking in Alaska**\
-`As Republican anger grew over the plan, Mary Peltola, the Democratic candidate for Senate, denied knowledge of any effort aimed at “tricking voters.”`\
+**Midterm Elections Live Updates: Peltola Says She Didn’t Know About Alaska Ballot Stacking Plan**\
+`As Republican anger grew over the plot, Mary Peltola, the Democratic candidate for Senate, said she had no knowledge of any effort aimed at “tricking voters.”`\
 https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
 
 **Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011230123/trump-young-men-voter
 **East Village ‘Peace House’ Is for Sale**\
 `The home and studio of Anton van Dalen is listed for almost $7 million, two years after the artist’s death`\
 https://www.nytimes.com/2026/10/30/realestate/east-village-peace-house-is-for-sale.html
-
-**Where Is All the Art About War?**\
-`At a time of global conflict, institutions are shying away from the topic — and artists are struggling to show their work.`\
-https://www.nytimes.com/2026/10/30/t-magazine/war-contemporary-art.html
 
