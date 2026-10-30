@@ -1,3 +1,7 @@
+**Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
+`The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **Republicans Ramp Up Investigation Into Democratic Plan to Pack Alaska’s Ballot**\
 `The Justice Department issued subpoenas, a House oversight committee sought interviews and the state opened its own inquiry into a Democratic plan to recruit a spoiler into a Senate race.`\
 https://www.nytimes.com/2026/10/29/us/politics/alaska-dan-sullivan-peltola-ballot-investigation-trump.html
