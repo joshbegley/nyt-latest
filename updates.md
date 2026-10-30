@@ -1,3 +1,19 @@
+**Book Club: Let’s Talk About ‘Switzy’**\
+`Emma Cline’s latest novel is about a man with dementia who has decided to end his life on his own terms.`\
+https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
+
+**Democrats, Hopeful All Over the Senate Map, Remain Jittery About Iowa**\
+`In the final days of the race, Josh Turek, the Democratic Senate nominee, appears to be in a dead heat against his Republican rival, Representative Ashley Hinson.`\
+https://www.nytimes.com/2026/10/30/us/politics/iowa-senate-race-josh-turek.html
+
+**You Can See Everything That Billy Evans Watched on 2x Speed**\
+`What was Elizabeth Holmes’s partner watching in the new Nathan Fielder documentary? We found the videos (and the scientists in them).`\
+https://www.nytimes.com/2026/10/30/upshot/billy-evans-you-can-see-everything.html
+
+**Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
+`In a podcast interview, she suggested that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
+https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
+
 **How Patrick Stewart Brought Shakespeare to ‘Star Trek’ Fans**\
 `On “Star Trek” and elsewhere, Stewart gave millions a theatrical master class, often delivering richly spoken classical language to express cosmic hope or grief.`\
 https://www.nytimes.com/2026/10/30/theater/patrick-stewart-shakespeare-star-trek-next-generation.html

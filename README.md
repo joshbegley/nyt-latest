@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit
 `Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
 https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
 
-**As Picard on ‘Star Trek’, Patrick Stewart Impacted Generations of Scientists**\
+**As Picard on ‘Star Trek’, Patrick Stewart Influenced Generations of Scientists**\
 `Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
 https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
 
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
 **Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
-`In a podcast interview, she suggested that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
+`In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 
 **A Long, Long Walk**\
