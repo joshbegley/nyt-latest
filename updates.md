@@ -1,3 +1,7 @@
+**Minnesota Declined to Buy a Prison for $75 Million. D.H.S. Paid $495 Million.**\
+`The recent purchase of the prison to hold immigrants is among the acquisitions facing scrutiny in the Trump administration’s mass deportation push.`\
+https://www.nytimes.com/2026/10/30/us/minnesota-prison-homeland-security.html
+
 **Hack Could Leave AO3, a Popular Fan Fiction Site, Offline for Weeks**\
 `AO3, which hosts 18 million stories spun off from the likes of “Harry Potter” and “Heated Rivalry,” was taken offline after “an intrusion,” one of its founders said.`\
 https://www.nytimes.com/2026/10/30/arts/ao3-fan-fiction-site-down.html
