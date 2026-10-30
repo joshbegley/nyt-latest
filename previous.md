@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 `After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
-**Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
+**Pelosi Splits With Mamdani and El-Sayed on Israel**\
 `In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-s
 **The Tech Tumult Rocks Wall Street**\
 `Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
 https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
-
-**‘The Headlines’ News Quiz: Oct. 30, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
 

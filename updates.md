@@ -1,3 +1,7 @@
+**Pelosi Splits With Mamdani and El-Sayed on Israel**\
+`In a podcast interview, she asserted that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
+https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
+
 **Steve Hilton Tries Anything as a G.O.P. Long Shot in California**\
 `Steve Hilton is attempting to become governor in a state that hasn’t elected a Republican to the top job in 20 years.`\
 https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
