@@ -1,3 +1,23 @@
+**Patrick Stewart Was Regal, Stately and Quite Hilarious**\
+`The actor used his booming voice and Shakespearean pedigree in the service of absurd (and often lewd) comedy.`\
+https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.html
+
+**Binance Lost Over $6 Billion in Crypto Hack. Here’s What to Know.**\
+`Hackers made off with around $6 billion in digital currency in what could be the biggest crypto heist in history. Binance said it will cover the losses.`\
+https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-price-what.html
+
+**Trump Adds Midterm Rallies in Kansas and Iowa After Initially Canceling Events**\
+`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas Mr. Trump won handily in 2024.`\
+https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midterms.html
+
+**Unions Sue Justice Department Over Attempt to Intervene in California’s Vote**\
+`The complaint was filed a day after the Trump administration issued a flurry of threats and subpoenas to local officials, claiming it was part of an effort to stop voting by undocumented immigrants.`\
+https://www.nytimes.com/2026/10/30/us/elections/california-unions-lawsuit-justice-department-election-immigrants.html
+
+**Democrats and Republicans Share Dueling Health Care Messages in Final Midterms Push**\
+`After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
+https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
+
 **Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
 `Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
 https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html

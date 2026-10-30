@@ -1,8 +1,24 @@
+**Patrick Stewart Was Regal, Stately and Quite Hilarious**\
+`The actor used his booming voice and Shakespearean pedigree in the service of absurd (and often lewd) comedy.`\
+https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.html
+
+**Binance Lost Over $6 Billion in Crypto Hack. Here’s What to Know.**\
+`Hackers made off with around $6 billion in digital currency in what could be the biggest crypto heist in history. Binance said it will cover the losses.`\
+https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-price-what.html
+
+**Trump Adds Midterm Rallies in Kansas and Iowa After Initially Canceling Events**\
+`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas Mr. Trump won handily in 2024.`\
+https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midterms.html
+
+**Unions Sue Justice Department Over Attempt to Intervene in California’s Vote**\
+`The complaint was filed a day after the Trump administration issued a flurry of threats and subpoenas to local officials, claiming it was part of an effort to stop voting by undocumented immigrants.`\
+https://www.nytimes.com/2026/10/30/us/elections/california-unions-lawsuit-justice-department-election-immigrants.html
+
 **Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
 `Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
 https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html
 
-**In Dueling Health Messages, Democrats Focus on Cost and Republicans on Fraud**\
+**Democrats and Republicans Share Dueling Health Care Messages in Final Midterms Push**\
 `After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/30/world/europe/israel-election-netanyahu-eisenk
 **As Voters Worry About Prices, Many Senate Candidates Are Millionaires**\
 `The wealthy are well represented in the ranks of major candidates for the chamber, according to a New York Times review of financial disclosure forms.`\
 https://www.nytimes.com/2026/10/30/us/politics/senate-candidates-net-worth.html
-
-**Musk, Trump and the ‘Ayn Randian Superman’**\
-`Elon Musk and Donald Trump both embody the “Ayn Randian superman” trope in American politics, argues the Opinion columnist Ezra Klein. On “The Ezra Klein Show,” Quinn Slobodian, a co-author of “Muskism,” complicates this image of Musk and asks, “How can you dethrone Musk?”`\
-https://www.nytimes.com/video/opinion/100000011243960/musk-trump-and-the-ayn-randian-superman.html
-
-**What’s Driving Elon Musk?**\
-`What does the world’s richest man believe in?`\
-https://www.nytimes.com/2026/10/30/opinion/ezra-klein-podcast-quinn-slobodian.html
-
-**How I Upgraded My Mom’s Roast Chicken (With Fewer Dishes)**\
-`Putting everything on a sheet pan makes the chicken legs, carrots and onions caramelized and sweet.`\
-https://www.nytimes.com/2026/10/30/dining/how-i-upgraded-my-moms-roast-chicken-with-fewer-dishes.html
-
-**Conservation Efforts for Caucasian Leopards Show Promise**\
-`In Armenia, a three-legged Caucasian leopard’s astonishing hike signals that conservation efforts for the endangered animal may be working.`\
-https://www.nytimes.com/2026/10/30/climate/injured-leopards-200-mile-trek-suggests-hope-for-a-species.html
 
