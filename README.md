@@ -1,5 +1,9 @@
+**3 Arrested in Connection With Deadly Blast in Central Athens**\
+`The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
+https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
+
 **Musk Predicts End of Democracy if Elections Favor Democrats**\
-`The billionaire megadonor urged voters to ensure that Republicans hold the Senate.`\
+`Mr. Musk’s rhetoric, heated as it is, partly explains why he has spent nearly $475 million to back Republicans in the midterms.`\
 https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
 
 **Binance Hack Sends Crypto Stocks Tumbling**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/world/europe/italy-romanzo-criminale-opera.ht
 **You Never Forget the Password to Your DVD Player**\
 `I like that our DVD player is neither smart nor intelligent. You put in the disc, and the movie appears.`\
 https://www.nytimes.com/2026/10/30/opinion/technology-dvd-players-streaming-movies.html
-
-**The Trouble With This Popular Progressive Idea**\
-`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
-https://www.nytimes.com/2026/10/30/opinion/billionaire-wealth-tax-california.html
 
