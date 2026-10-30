@@ -1,3 +1,11 @@
+**ICE Agent Indicted After Hitting Immigrant With Car**\
+`An ICE agent is facing state charges of aggravated assault with a deadly weapon after hitting an undocumented Mexican immigrant with his car in Houston earlier this month.`\
+https://www.nytimes.com/video/us/100000011250843/ice-agent-indicted-hitting-immigrant-car.html
+
+**Why Running for the U.S. Senate Is a Rich Person’s Game**\
+`Your Senate candidates are probably richer than you.`\
+https://www.nytimes.com/2026/10/30/us/politics/us-senate-races-millionaires-wealth.html
+
 **Anthropic’s I.P.O.: Why the Stakes Are So High**\
 `This week on “Hard Fork,” the A.I. company Anthropic is getting ready to go public. As more and more investment dollars and the economy at large are wrapped up in these large A.I. companies, what’s at stake with this I.P.O.?`\
 https://www.nytimes.com/video/technology/100000011250815/anthropics-ipo-why-the-stakes-are-so-high.html
@@ -62,8 +70,8 @@ https://www.nytimes.com/2026/10/30/world/canada/carney-canada-european-union.htm
 `In a court filing, top Democrats on the Judiciary Committee indicated their support for publishers in a lawsuit led by The New York Times.`\
 https://www.nytimes.com/2026/10/30/technology/house-democrats-openai-copyright-lawsuit.html
 
-**Obamacare Dealt Yet Another Blow as Premiums Rise Again**\
-`Premiums will jump by 13 percent for next year, though much of the price increase will be offset by subsidies. But customers who earn over $64,000 will pay more, on top of this year’s huge increases.`\
+**Obamacare Dealt Yet Another Blow as Premiums Jump Again**\
+`Premiums will increase an average 13 percent next year for millions of Americans, on top of an earlier steep increase. It adds to the problems facing the program, which the Trump administration has weakened.`\
 https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
 
 **Lawsuit Accuses Education Dept. of Throttling Debt Cancellation Through PSLF Program**\
@@ -126,7 +134,7 @@ https://www.nytimes.com/2026/10/30/business/kalshi-onion-futures-act-1958.html
 `Republicans need the support of both longtime stalwarts and newly minted supporters to have any chance of holding onto the Senate.`\
 https://www.nytimes.com/interactive/2026/10/30/us/elections/midterms-senate-seats-republican.html
 
-**El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
+**El-Sayed Clashes With Former Primary Rival Who Demanded His Apology**\
 `Dr. Abdul El-Sayed and Representative Haley Stevens traded sharply critical comments Friday, escalating intraparty tensions in Michigan’s pivotal Senate race.`\
 https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/30/technology/binance-hack-ai-north-korea.html
 **Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
 `The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
 https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
-
-**Flashback: Your Weekly History Quiz, Oct. 31, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
-
-**Lil Baby Thought About Quitting Rap While ‘Depressed’**\
-`The Atlanta rapper Lil Baby opens up about his depression and how he bounced back after considering walking away from music.`\
-https://www.nytimes.com/video/podcasts/100000011238237/lil-baby-thought-about-quitting-rap-while-depressed.html
 
