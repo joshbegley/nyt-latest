@@ -1,3 +1,7 @@
+**The Transactional World of Trump’s Pardons**\
+`What is different about the way that President Trump has approached pardons? Kenneth P. Vogel, a New York Times investigative reporter, joined Natalie Kitroeff, a host of “The Daily,” to talk about how connections and shared grudges against the justice system are now driving clemency decisions.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011247627/the-transactional-world-of-trumps-pardons.html
+
 **Veronica Ditting’s Collection of Tiny Books, Plus More From the T List**\
 `Plus: Peruvian stone boxes, holiday party-ready necklaces and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/10/30/t-magazine/books-to-squint-at.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/us/raman-nithya-husband-vali-chandrasekaran-h
 **Lil Baby Interview: The Atlanta Rapper Takes On New Challenges**\
 `The Atlanta superstar rapper is back with a new hit and more expansive sound but, he says, the same hunger to dominate.`\
 https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
-
-**She Was Racked With Anxiety and Crushed by Insomnia. Finally She Understood Why.**\
-`The woman’s symptoms were common, but the cause was not.`\
-https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rifampin.html
 
