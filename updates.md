@@ -1,3 +1,7 @@
+**El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
+`Dr. Abdul El-Sayed and Representative Haley Stevens traded sharply critical comments Friday, escalating intraparty tensions in Michigan’s pivotal Senate race.`\
+https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
+
 **Minnesota Declined to Buy a Prison for $75 Million. D.H.S. Paid $495 Million.**\
 `The recent purchase of the prison to hold immigrants is among the acquisitions facing scrutiny in the Trump administration’s mass deportation push.`\
 https://www.nytimes.com/2026/10/30/us/minnesota-prison-homeland-security.html

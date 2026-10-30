@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/10/30/business/kalshi-onion-futures-act-1958.html
 https://www.nytimes.com/interactive/2026/10/30/us/elections/midterms-senate-seats-republican.html
 
 **El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
-`Representative Haley Stevens plans to campaign with Dr. Abdul El-Sayed in a pivotal race. But she also wants him to apologize for comments about Israel and disavow an ad she sees as antisemitic.`\
+`Dr. Abdul El-Sayed and Representative Haley Stevens traded sharply critical comments Friday, escalating intraparty tensions in Michigan’s pivotal Senate race.`\
 https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
 
 **Democratic Senate Candidate Denies Knowledge of Alaska Ballot Stacking**\
