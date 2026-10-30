@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Oct. 30, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
+
 **Mosquito Lasers**\
 `China has come up with an innovative way to kill the insects.`\
 https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011224072/beware-of-election-ni
 **Dozens of Headless Skeletons Pose a Macabre Mystery**\
 `Mass graves found at a Stone Age farming settlement in Slovakia have researchers baffled about the details — including the location of the missing skulls.`\
 https://www.nytimes.com/2026/10/30/science/headless-skeletons-stone-age.html
-
-**What Has Helped You Get Through a Difficult Time?**\
-`It can be challenging to heal and move on from grief, heartbreak or serious disappointment. What can we learn from the story of a woman who reached out to strangers in the midst of a loss?`\
-https://www.nytimes.com/2026/10/30/learning/what-has-helped-you-get-through-a-difficult-time.html
 
