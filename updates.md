@@ -1,3 +1,7 @@
+**A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
+`Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
+https://www.nytimes.com/2026/10/30/us/politics/progressive-democrats-congress-2026.html
+
 **Lawsuit Accuses Education Department of Throttling Student Debt Cancellation**\
 `Public servants on the brink of student debt forgiveness are facing setbacks and extensive delays. The American Federation of Teachers sued to help them.`\
 https://www.nytimes.com/2026/10/30/business/education-dept-is-accused-in-lawsuit-of-throttling-student-debt-cancellation.html

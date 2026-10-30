@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.
 
 **A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
 `Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
-https://www.nytimes.com/2026/10/30/us/politics/new-progressives-could-reshape-a-democratic-congress.html
+https://www.nytimes.com/2026/10/30/us/politics/progressive-democrats-congress-2026.html
 
 **Prosecutors Suggest They May Seek Additional Comey Charges**\
 `At a hearing in federal court, prosecutors defended an unusual, 11th-hour criminal case accusing the former F.B.I. director of leaking classified information a decade ago.`\
