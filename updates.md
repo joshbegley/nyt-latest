@@ -1,3 +1,7 @@
+**Novaya Gazeta, Fiercely Independent Russian News Outlet, Says It Will Shut Down**\
+`Journalists at Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise: “They killed us.”`\
+https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html
+
 **The Justice Department’s Unusual Election-Year Activity**\
 `Federal prosecutors have targeted President Trump’s political opponents and sued states over election administration just before the midterms. Devlin Barrett, a reporter for The New York Times, explains how this activity is compared with the Justice Department’s usual election-year behavior.`\
 https://www.nytimes.com/video/us/elections/100000011240630/the-justice-departments-unusual-election-year-activity.html
