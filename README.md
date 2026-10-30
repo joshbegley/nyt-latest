@@ -1,3 +1,7 @@
+**“Call of Duty” Draws Fire for Using Footage of Crowd Crush**\
+`“Call of Duty: Modern Warfare 4” uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
+https://www.nytimes.com/2026/10/30/world/asia/call-of-duty-seoul-itaweon-crowd-crush.html
+
 **Tom Kean Jr. is Fighting for Political Survival**\
 `Representative Tom Kean Jr. inherited a name and a family legacy that helped carry him to Washington. It might not be enough to keep him there.`\
 https://www.nytimes.com/2026/10/30/nyregion/tom-kean-jr-new-jersey-house-election.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/world/americas/100000011247322/maria-corina-machad
 **Judge Orders Trump Officials to Outline Election Demands Sent to States**\
 `A federal judge gave the government until noon on Friday to share which states had received letters trying to enlist them in an effort to find evidence of voter fraud.`\
 https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
-
-**Americans Keep Spending**\
-`Also, Patrick Stewart dies at 86. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/10/29/briefing/us-gdp-patrick-stewart.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
