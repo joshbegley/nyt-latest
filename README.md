@@ -1,3 +1,67 @@
+**My Kids Love the Creepy Carrots Books. What Should They Read Next?**\
+`Nine recommendations for big kids in training who like scary books.`\
+https://www.nytimes.com/2026/10/30/books/review/books-like-creepy-carrots.html
+
+**Rosalind Ashford Has Died. She Wanted to Be a Stewardess but Became a Motown Star.**\
+`A founding member of Martha and the Vandellas, she was the crystalline soprano on 1960s hits like “Nowhere to Run” and “Jimmy Mack.” She has died at 83.`\
+https://www.nytimes.com/2026/10/30/arts/music/rosalind-ashford-dead.html
+
+**Keira Knightley Knows What Spying Feels Like. Now She’s Putting It to Use.**\
+`Once the victim of paparazzi stalking and tabloid phone hacks, the actress is starring in two projects that deal explicitly with surveillance`\
+https://www.nytimes.com/2026/10/30/arts/television/keira-knightley-black-doves.html
+
+**If Trump Gets Another Supreme Court Pick, MAGA Wants a Loyalist**\
+`For years, Supreme Court aspirants have avoided talking about how they might rule. Trump’s frustrations with his first-term picks could change that.`\
+https://www.nytimes.com/2026/10/30/us/politics/trump-supreme-court-judge-ho.html
+
+**Colombia’s ‘Narcoterrorist’ Crackdown Raises Questions Over Killings**\
+`Military-involved deaths have roiled a country with an iron-fisted new president — and a history of extrajudicial killings.`\
+https://www.nytimes.com/2026/10/30/world/americas/colombia-crackdown-army-killings-de-la-espriella.html
+
+**Word of the Day: acumen**\
+`This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/30/learning/word-of-the-day-acumen.html
+
+**Cancer Takes Center Stage in the Competitive Race for Governor of Iowa**\
+`High cancer rates have exposed a fault line in Iowa politics between public health and the interests of the powerful agriculture industry.`\
+https://www.nytimes.com/2026/10/30/us/iowa-governor-election-cancer-rates.html
+
+**What’s New at the Museum? Stargazing, Escape Rooms, Bachelorette Parties and More**\
+`Museums are pitching themselves as date-night destinations — and finding a generation of takers.`\
+https://www.nytimes.com/2026/10/30/arts/design/late-night-museums-young-people.html
+
+**At the Metropolitan Museum of Art, Visitors Enjoy the Music**\
+`The program “Met Live Arts” aims to create immersive experiences with notable performers in surprising museum locations.`\
+https://www.nytimes.com/2026/10/30/arts/design/museum-met-live-performances.html
+
+**Short of Space, the Hispanic Society Museum Plans an Outpost in Spain**\
+`The new museum, in Valencia, will focus on works by that city’s native son, Joaquín Sorolla, and, it is hoped, benefit the Manhattan institution.`\
+https://www.nytimes.com/2026/10/30/arts/design/hispanic-society-joaquin-sorolla-spain.html
+
+**The Stars of This Philadelphia Exhibition? Squirrels.**\
+`After a squirrel invaded his home, Wilmer Wilson IV decided to research everything about the creature. The result is a solo show titled “SKIRL!”`\
+https://www.nytimes.com/2026/10/30/arts/design/wilmer-wilson-iv-squirrels-philadelphia.html
+
+**A Guide to U.S. Museum and Gallery Openings This Fall**\
+`On display are Yoshitomo Nara’s alluring childlike figures in New York, works by Salvador Dalí alongside his predecessors’ in Florida and Raven Halfmoon’s towering sculptures in Oklahoma.`\
+https://www.nytimes.com/2026/10/30/arts/design/american-museums-fall-guide.html
+
+**Transylvania, Where Meadows Ripple and Dracula Legends Fade**\
+`On a three-day hike in Romania, a writer sidesteps the usual Bram Stoker draws and instead discovers medieval villages, ancient forests and rich living history.`\
+https://www.nytimes.com/2026/10/30/travel/via-transilvanica-romania-hike.html
+
+**Why Is Every Book ‘Gothic’ Now?**\
+`Candlelit corridors, eerie old portraits and other tropes aren’t exclusive to horror and romance this year — they’re everywhere.`\
+https://www.nytimes.com/2026/10/30/books/why-is-every-book-gothic-now.html
+
+**The New York Times News Quiz, October 30, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/30/briefing/weekly-news-quiz.html
+
+**Is New England a State?**\
+`A ruling on a geography debate.`\
+https://www.nytimes.com/quiz/2026/10/30/magazine/new-england-state-hodgman-quiz.html
+
 **What’s Driving Elon Musk?**\
 `What does the world’s richest man believe in?`\
 https://www.nytimes.com/video/opinion/100000011243958/whats-driving-elon-musk.html
@@ -133,68 +197,4 @@ https://www.nytimes.com/2026/10/29/us/politics/alaska-dan-sullivan-peltola-ballo
 **Lil Baby Almost Quit Rap – ‘Dead Fresh’ Revitalized Him**\
 `Watch the full conversation with Lil Baby. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011238227/lil-baby-almost-quit-rap-dead-fresh-revitalized-him.html
-
-**Trump Cancels Rallies in Kansas and Iowa This Weekend**\
-`President Trump has been holding hours-long rallies for G.O.P. candidates nearly every day for weeks.`\
-https://www.nytimes.com/2026/10/29/us/elections/trump-rally-canceled-kansas-iowa.html
-
-**8 Accused of Stealing Millions in Food Stamp Benefits From New Yorkers**\
-`A group was able to use stolen information linked to Supplemental Nutrition Assistance Program benefits to create clones of E.B.T. cards.`\
-https://www.nytimes.com/2026/10/29/nyregion/ebt-scam-snap-food-stamps.html
-
-**Patrick Stewart, ‘Star Trek’ Star, Dies at 86**\
-`Patrick Stewart, who rose from Britain’s coal-mining country to find acclaim as a Shakespearean actor and later achieved stardom as Capt. Jean-Luc Picard in TV’s “Star Trek: The Next Generation,” has died at the age of 86.`\
-https://www.nytimes.com/video/obituaries/100000011244527/patrick-stewart-death-star-trek.html
-
-**Moody Makes Appeal to a South Florida Audience Leery of the Left**\
-`Senator Ashley Moody, Republican of Florida, campaigned in Miami-Dade County, an area with a large Cuban population that the G.O.P. is hoping to keep red.`\
-https://www.nytimes.com/2026/10/29/us/elections/ashley-moody-florida-senate-race.html
-
-**Georgia Republican Donor Gets 15 Years in $76 Million Ponzi Scheme**\
-`Federal prosecutors said Edwin Brant Frost IV lured investors with promises of high returns, but used new money to pay earlier investors and fund personal expenses.`\
-https://www.nytimes.com/2026/10/29/us/politics/edwin-frost-georgia-ponzi-scheme-sentencing.html
-
-**How Common Is Ballot Stacking? What to Know as Conflict Roils Alaska Senate Race.**\
-`As a conflict over candidates roils the Alaskan Senate race, here’s a look back at the political practice over the years.`\
-https://www.nytimes.com/2026/10/29/us/elections/ballot-stacking-alaska.html
-
-**‘The Heart’ Review: A Bracing New Musical Pulses With Life**\
-`The show’s electronic dance-influenced music perfectly suits its story about a young man’s death and the rush to carry out a heart transplant.`\
-https://www.nytimes.com/2026/10/29/theater/the-heart-review-organ-transplant.html
-
-**Polymarket Is Investigating Suspicious Bets on Israeli Election**\
-`The company said it was looking into hundreds of new accounts that had placed wagers in two markets related to the election on Tuesday.`\
-https://www.nytimes.com/2026/10/29/business/polymarket-investigates-israeli-bets.html
-
-**Newly Freed American Describes His Years in Russian Prison**\
-`Stephen James Hubbard, the retired teacher arrested soon after Russia’s full-scale invasion of Ukraine in 2022, said he sometimes lost hope.`\
-https://www.nytimes.com/2026/10/29/world/europe/stephen-james-hubbard-russian-prison.html
-
-**Patrick Stewart: A Life in Pictures**\
-`The motley mix of roles that won the British actor acclaim includes a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
-https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
-
-**What Israeli Election Results Reveal About the Electorate**\
-`Some groups stood by Prime Minister Benjamin Netanyahu’s party, but support fell off among others. Turnout was also a striking factor in the election.`\
-https://www.nytimes.com/2026/10/29/world/middleeast/israel-voter-data-takeaways.html
-
-**No Clear Winner in Israel Election, Final Results Show**\
-`Prime Minister Benjamin Netanyahu’s party and its allies won 53 seats in Parliament, falling short of the outright majority needed to form a government. The main opposition bloc, led by Gadi Eisenkot, won 48.`\
-https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-results-netanyahu-eisenkot.html
-
-**Fallout in Alaska Senate Race Over Peltola’s Ballot Stacking Plot**\
-`Both sides have a long tradition of promoting spoiler candidates.`\
-https://www.nytimes.com/2026/10/29/us/politics/alaska-senate-ballots-peltola-trump.html
-
-**Trump Erupted After Learning of Alina Habba’s $50 Million Deal**\
-`Angry about the scale of a contract signed by one of his former lawyers with the family of a wealthy pardon seeker, the president told allies he wanted some of the money to go to his future presidential library.`\
-https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.html
-
-**A 360° Tour of Trump’s D.C. Makeover**\
-`This panorama of Washington shows the president’s growing imprint on the city.`\
-https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
-
-**Trump Cancels Rallies in Kansas and Iowa**\
-`The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
-https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 

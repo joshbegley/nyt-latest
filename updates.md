@@ -1,3 +1,11 @@
+**What’s Driving Elon Musk?**\
+`What does the world’s richest man believe in?`\
+https://www.nytimes.com/video/opinion/100000011243958/whats-driving-elon-musk.html
+
+**Tax the Rich? Easier Said Than Done.**\
+`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
+https://www.nytimes.com/video/opinion/100000011237986/tax-the-rich-easier-said-than-done.html
+
 **We’re About to Find Out If We’re in an A.I. Bubble**\
 `Erin Griffith joins us to unpack Anthropic’s S-1 filing, which offers the clearest view yet into the business side of the A.I. boom and sets up what could be the largest I.P.O. in history, and then Mike Isaac and Jasmine Sun break down the rest of the week’s tech news.`\
 https://www.nytimes.com/video/podcasts/100000011247824/were-about-to-find-out-if-were-in-an-ai-bubble.html
