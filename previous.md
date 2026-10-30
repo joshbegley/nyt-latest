@@ -1,5 +1,5 @@
-**“Call of Duty” Draws Fire for Using Footage of Crowd Crush**\
-`“Call of Duty: Modern Warfare 4” uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
+**New ‘Call of Duty’ Game Draws Criticism for Using Footage of Deadly Seoul Crowd Crush**\
+`Call of Duty: Modern Warfare 4 uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
 https://www.nytimes.com/2026/10/30/world/asia/call-of-duty-seoul-itaweon-crowd-crush.html
 
 **Tom Kean Jr. is Fighting for Political Survival**\
