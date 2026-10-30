@@ -1,3 +1,7 @@
+**Jordan Firstman’s ‘Club Kid’ Takes Over Downtown Manhattan**\
+`Cast members including Cara Delevingne celebrated the A24 film on the Lower East Side.`\
+https://www.nytimes.com/2026/10/30/style/jordan-firstman-club-kids-a24-party.html
+
 **Judge Appoints Special Master to Determine if Trump Officials Lied in Golf Course Suit**\
 `Judge Ana C. Reyes said an outside investigator would help determine whether parks officials or Justice Department lawyers withheld plans for Washington’s East Potomac Park.`\
 https://www.nytimes.com/2026/10/30/us/politics/special-master-reyes-trump-golf.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/opinion/kennedy-center-trump.html
 **3 Arrested in Connection With Deadly Blast in Central Athens**\
 `The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
 https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
-
-**Elon Musk Predicts End of Democracy if Midterm Elections Favor Democrats**\
-`Mr. Musk’s rhetoric, heated as it is, partly explains why he has spent nearly $475 million to back Republicans in the midterms.`\
-https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
 
