@@ -1,3 +1,7 @@
+**Tech Stocks Tumble, but Broader Market Is Holding On**\
+`The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the A.I. stocks that exert a heavy influence on the index.`\
+https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
+
 **‘The Headlines’ News Quiz: Oct. 30, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
