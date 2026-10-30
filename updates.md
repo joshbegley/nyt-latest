@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 30, 2026**\
+`Robyn Weintraub and Rafael Musa join forces to open our solving weekend.`\
+https://www.nytimes.com/2026/10/29/crosswords/daily-puzzle-2026-10-30.html
+
 **Who Measures the Marathon?**\
 `It takes patience, focus — and a willingness to ride a bike the wrong way on New York City streets.`\
 https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-jobs-workers.html
