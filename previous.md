@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/10/29/world/americas/machado-trump-venezuela-return
 `The Trump administration is carrying out the most intense pressure campaign on Cuba in decades. The Cuban government says its plan is simply to endure.`\
 https://www.nytimes.com/2026/10/29/world/americas/cuba-foreign-minister-trump.html
 
-**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall Street**\
-`Amazon on Thursday became the latest tech company to to announce swelling investments in A.I. amid stumbling share prices.`\
+**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall St.**\
+`Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
 https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
 
 **Have Questions About the Midterm Elections? Ask Us Anything.**\

@@ -1,3 +1,7 @@
+**Big Tech’s Data Center Blitz Is Burning Through Cash and Scaring Wall St.**\
+`Amazon on Thursday became the latest tech company to announce swelling investments in A.I. amid stumbling share prices.`\
+https://www.nytimes.com/2026/10/29/technology/amazon-earnings-tech-spending.html
+
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
