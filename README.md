@@ -1,3 +1,15 @@
+**Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
+`Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
+https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html
+
+**In Dueling Health Messages, Democrats Focus on Cost and Republicans on Fraud**\
+`After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
+https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
+
+**Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
+`She criticized Zohran Mamdani, the New York mayor, and Dr. Abdul El-Sayed, the Democrat in the Michigan Senate race, over their refusal to endorse a Jewish state.`\
+https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
+
 **A Long, Long Walk**\
 `We look at one man’s journey across the world.`\
 https://www.nytimes.com/2026/10/30/briefing/a-long-long-walk.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/2026/10/30/opinion/kennedy-center-trump.html
 `The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
 https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
 
-**Musk Predicts End of Democracy if Elections Favor Democrats**\
+**Elon Musk Predicts End of Democracy if Midterm Elections Favor Democrats**\
 `Mr. Musk’s rhetoric, heated as it is, partly explains why he has spent nearly $475 million to back Republicans in the midterms.`\
 https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/30/dining/how-i-upgraded-my-moms-roast-chicken-w
 **Conservation Efforts for Caucasian Leopards Show Promise**\
 `In Armenia, a three-legged Caucasian leopard’s astonishing hike signals that conservation efforts for the endangered animal may be working.`\
 https://www.nytimes.com/2026/10/30/climate/injured-leopards-200-mile-trek-suggests-hope-for-a-species.html
-
-**High Prices Haunt Trump and the GOP on Eve of the Midterms**\
-`A backlash over high prices helped Republicans capture a majority in 2024. Now, it may be the source of the party’s own undoing.`\
-https://www.nytimes.com/2026/10/30/business/trump-inflation-election.html
-
-**Darline Graham Is ‘a Little Nervous.’ Can She Keep South Carolina’s Senate Seat Red?**\
-`Polls show the sister of the late Senator Lindsey Graham in a virtual tie with her Democratic opponent, Dr. Annie Andrews. An upset was unthinkable just a few months ago.`\
-https://www.nytimes.com/2026/10/30/us/darline-graham-annie-andrews-south-carolina-senate.html
-
-**I’m in ‘You Can See Everything.’ Here’s My Side of the Story.**\
-`I’m in ‘You Can See Everything.’ Here’s my side of the story.`\
-https://www.nytimes.com/2026/10/30/opinion/you-can-see-everything-elizabeth-holmes-nathan-fielder.html
 
