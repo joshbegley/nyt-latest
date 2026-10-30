@@ -1,3 +1,7 @@
+**Trump Cancels Rallies in Kansas and Iowa**\
+`The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
+https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
+
 **How the Japanese Spy Drama ‘Vivant’ Became The Target of China’s Anger**\
 `“Vivant,” a Japanese thriller that features Chinese spies, has drawn intense criticism from Beijing. Its creators defend the show, saying it is “completely fictional.”`\
 https://www.nytimes.com/2026/10/30/world/asia/japan-vivant-spy-show-china.html
