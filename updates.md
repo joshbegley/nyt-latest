@@ -1,3 +1,7 @@
+**Seth Meyers Cheers ‘Stand-Up Obama’ for Riling Republicans**\
+`“He’s working on material for his next special, ‘Hussein in the Membrane,’” Meyers said after the former president ruffled feathers with jokes about the Cheesecake Factory.`\
+https://www.nytimes.com/2026/10/30/arts/television/seth-meyers-obama-trump-comedy.html
+
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump

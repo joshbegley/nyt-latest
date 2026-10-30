@@ -1,3 +1,7 @@
+**Seth Meyers Cheers ‘Stand-Up Obama’ for Riling Republicans**\
+`“He’s working on material for his next special, ‘Hussein in the Membrane,’” Meyers said after the former president ruffled feathers with jokes about the Cheesecake Factory.`\
+https://www.nytimes.com/2026/10/30/arts/television/seth-meyers-obama-trump-comedy.html
+
 **How the Japanese Spy Drama ‘Vivant’ Became The Target of China’s Anger**\
 `“Vivant,” a Japanese thriller that features Chinese spies, has drawn intense criticism from Beijing. Its creators defend the show, saying it is “completely fictional.”`\
 https://www.nytimes.com/2026/10/30/world/asia/japan-vivant-spy-show-china.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/medicaid-work-requirements-frailt
 **Trump Calls Black and Jewish El-Sayed Supporters ‘Crazy’**\
 `President Trump insulted Black and Jewish supporters of Michigan Senate candidate Dr. Abdul El-Sayed during a rally in South Carolina on Thursday.`\
 https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-supporters-crazy.html
-
-**A Sailor Jumped From the U.S.S. Lincoln. The Navy Punished Him.**\
-`The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
-https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
