@@ -1,3 +1,7 @@
+**Floridians Weigh Cutting Property Taxes — And Local Public Services**\
+`At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
+https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html
+
 **Melania Trump’s Halloween Coat Was Its Own Kind of Costume**\
 `The first lady continues to let her coats do the talking.`\
 https://www.nytimes.com/2026/10/30/style/melania-trump-halloween-coat-white-house.html
