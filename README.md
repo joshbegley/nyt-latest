@@ -1,3 +1,7 @@
+**Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says**\
+`The transport minister said a judge would investigate controllers’ actions, including authorizing a train to proceed at high speed though another was stalled in front of it.`\
+https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html
+
 **Flashback: Your Weekly History Quiz, Oct. 31, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/10/30/upshot/flashback.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/the-daily/trump-pardons-clemency.htm
 **NYT Connections Answers for October 31, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/30/crosswords/connections-companion-1238.html
-
-**Trump Administration Steps Up Midterm Interventions, and Israeli Elections Have No Clear Winner**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/10/30/podcasts/the-headlines/trump-interventions-midterms-israeli-election.html
 
