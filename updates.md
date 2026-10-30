@@ -1,3 +1,15 @@
+**Binance was Hacked. What Protections Exist for Crypto Customers?**\
+`The company said it was going to reimburse customers who have losses from the theft.`\
+https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
+
+**Could Lil Baby Get More Vulnerable in His Rapping?**\
+`The Atlanta rapper Lil Baby discusses why he’s hesitant to be more vulnerable in his music.`\
+https://www.nytimes.com/video/podcasts/100000011238259/could-lil-baby-get-more-vulnerable-in-his-rapping.html
+
+**Houston Grand Jury Indicts ICE Agent on Charges of Ramming Man in Chase**\
+`The agent is facing charges of aggravated assault with a deadly weapon. The immigrant who was struck is recovering from severe leg injuries.`\
+https://www.nytimes.com/2026/10/30/us/houston-ice-agent-charged-ramming.html
+
 **Curry Barker Narrates a Scene From ‘Obsession’**\
 `Barker, the film’s writer and director, explains how lingering shots heighten the tension and awkwardness in a party scene.`\
 https://www.nytimes.com/2026/10/30/movies/curry-barker-obsession-scene.html
