@@ -1,3 +1,7 @@
+**Alina Habba’s Husband Ignited Drama in Trump’s Circle. Now He’s Under Scrutiny.**\
+`Turhan Mildon, who married Alina Habba this summer, presents himself as a 29-year-old billionaire with ties to global leaders. His story has inconsistencies.`\
+https://www.nytimes.com/2026/10/30/us/politics/alina-habba-turhan-mildon-trump-congo-venezuela.html
+
 **Boo! Trump’s Flyover Treat Is a Trick for Some Startled D.C. Residents**\
 `A White House social media account said the surprise Air Force One flight was part of a Halloween event hosted by the president and the first lady.`\
 https://www.nytimes.com/2026/10/30/us/politics/air-force-flyover.html
