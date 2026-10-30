@@ -1,3 +1,7 @@
+**Floridians Weigh Cutting Property Taxes — And Local Public Services**\
+`At the polls on Tuesday, Florida voters will decide whether or not to reduce property taxes — and funding to local governments.`\
+https://www.nytimes.com/2026/10/30/realestate/florida-property-tax-vote-midterms.html
+
 **Melania Trump’s Halloween Coat Was Its Own Kind of Costume**\
 `The first lady continues to let her coats do the talking.`\
 https://www.nytimes.com/2026/10/30/style/melania-trump-halloween-coat-white-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rif
 **Are Trump Voters Refusing to Take Polls? And Other Polling Risks.**\
 `Answers to readers’ queries about the reasons a survey could misfire.`\
 https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
-
-**Why Trump Is Losing Young Men**\
-`Young men swung to Donald Trump in 2024. Polling shows they are now moving away — but to what? Sabrina Tavernise, a reporter for The New York Times, went to Michigan to find out.`\
-https://www.nytimes.com/video/us/elections/100000011230123/trump-young-men-voters-michigan.html
 
