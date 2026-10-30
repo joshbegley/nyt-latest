@@ -1,3 +1,15 @@
+**Book Club: Let’s Talk About ‘Switzy’**\
+`Emma Cline’s latest novel is about a man with dementia who has decided to end his life on his own terms.`\
+https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
+
+**Democrats, Hopeful All Over the Senate Map, Remain Jittery About Iowa**\
+`In the final days of the race, Josh Turek, the Democratic Senate nominee, appears to be in a dead heat against his Republican rival, Representative Ashley Hinson.`\
+https://www.nytimes.com/2026/10/30/us/politics/iowa-senate-race-josh-turek.html
+
+**You Can See Everything That Billy Evans Watched on 2x Speed**\
+`What was Elizabeth Holmes’s partner watching in the new Nathan Fielder documentary? We found the videos (and the scientists in them).`\
+https://www.nytimes.com/2026/10/30/upshot/billy-evans-you-can-see-everything.html
+
 **How Patrick Stewart Brought Shakespeare to ‘Star Trek’ Fans**\
 `On “Star Trek” and elsewhere, Stewart gave millions a theatrical master class, often delivering richly spoken classical language to express cosmic hope or grief.`\
 https://www.nytimes.com/2026/10/30/theater/patrick-stewart-shakespeare-star-trek-next-generation.html
@@ -91,7 +103,7 @@ https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-election
 https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
 **Pelosi Calls Mamdani’s and El-Sayed’s Stances on Israel ‘Wrong’**\
-`She criticized Zohran Mamdani, the New York mayor, and Dr. Abdul El-Sayed, the Democrat in the Michigan Senate race, over their refusal to endorse a Jewish state.`\
+`In a podcast interview, she suggested that hostility to Israel from some prominent Democrats did not reflect the views of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
 
 **A Long, Long Walk**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-qui
 **Mosquito Lasers**\
 `China has come up with an innovative way to kill the insects.`\
 https://www.nytimes.com/2026/10/30/briefing/mosquito-lasers.html
-
-**U.S. Oil Industry Earned Over $130 Billion in Profit During Iran War**\
-`That was almost three times as much as what businesses producing and refining oil in the United States made in the same period in 2025.`\
-https://www.nytimes.com/2026/10/30/business/energy-environment/exxon-chevron-oil-profits-iran-war.html
-
-**Are We in an A.I. Bubble? We’re About to Find Out.**\
-`“This is the first pure-play L.L.M. company to go public, to open its books so we can actually look at the underlying business of this A.I. boom.”`\
-https://www.nytimes.com/2026/10/30/podcasts/hardfork-anthropic-ipo.html
-
-**Are the Jets Crashing Again?**\
-`Plus, why free agents and fans are passing on Caitlin Clark and the Indiana Fever.`\
-https://www.nytimes.com/2026/10/30/podcasts/new-york-jets-crashing-again.html
 
