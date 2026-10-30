@@ -1,3 +1,67 @@
+**My Kids Love the Creepy Carrots Books. What Should They Read Next?**\
+`Nine recommendations for big kids in training who like scary books.`\
+https://www.nytimes.com/2026/10/30/books/review/books-like-creepy-carrots.html
+
+**Rosalind Ashford Has Died. She Wanted to Be a Stewardess but Became a Motown Star.**\
+`A founding member of Martha and the Vandellas, she was the crystalline soprano on 1960s hits like “Nowhere to Run” and “Jimmy Mack.” She has died at 83.`\
+https://www.nytimes.com/2026/10/30/arts/music/rosalind-ashford-dead.html
+
+**Keira Knightley Knows What Spying Feels Like. Now She’s Putting It to Use.**\
+`Once the victim of paparazzi stalking and tabloid phone hacks, the actress is starring in two projects that deal explicitly with surveillance`\
+https://www.nytimes.com/2026/10/30/arts/television/keira-knightley-black-doves.html
+
+**If Trump Gets Another Supreme Court Pick, MAGA Wants a Loyalist**\
+`For years, Supreme Court aspirants have avoided talking about how they might rule. Trump’s frustrations with his first-term picks could change that.`\
+https://www.nytimes.com/2026/10/30/us/politics/trump-supreme-court-judge-ho.html
+
+**Colombia’s ‘Narcoterrorist’ Crackdown Raises Questions Over Killings**\
+`Military-involved deaths have roiled a country with an iron-fisted new president — and a history of extrajudicial killings.`\
+https://www.nytimes.com/2026/10/30/world/americas/colombia-crackdown-army-killings-de-la-espriella.html
+
+**Word of the Day: acumen**\
+`This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/10/30/learning/word-of-the-day-acumen.html
+
+**Cancer Takes Center Stage in the Competitive Race for Governor of Iowa**\
+`High cancer rates have exposed a fault line in Iowa politics between public health and the interests of the powerful agriculture industry.`\
+https://www.nytimes.com/2026/10/30/us/iowa-governor-election-cancer-rates.html
+
+**What’s New at the Museum? Stargazing, Escape Rooms, Bachelorette Parties and More**\
+`Museums are pitching themselves as date-night destinations — and finding a generation of takers.`\
+https://www.nytimes.com/2026/10/30/arts/design/late-night-museums-young-people.html
+
+**At the Metropolitan Museum of Art, Visitors Enjoy the Music**\
+`The program “Met Live Arts” aims to create immersive experiences with notable performers in surprising museum locations.`\
+https://www.nytimes.com/2026/10/30/arts/design/museum-met-live-performances.html
+
+**Short of Space, the Hispanic Society Museum Plans an Outpost in Spain**\
+`The new museum, in Valencia, will focus on works by that city’s native son, Joaquín Sorolla, and, it is hoped, benefit the Manhattan institution.`\
+https://www.nytimes.com/2026/10/30/arts/design/hispanic-society-joaquin-sorolla-spain.html
+
+**The Stars of This Philadelphia Exhibition? Squirrels.**\
+`After a squirrel invaded his home, Wilmer Wilson IV decided to research everything about the creature. The result is a solo show titled “SKIRL!”`\
+https://www.nytimes.com/2026/10/30/arts/design/wilmer-wilson-iv-squirrels-philadelphia.html
+
+**A Guide to U.S. Museum and Gallery Openings This Fall**\
+`On display are Yoshitomo Nara’s alluring childlike figures in New York, works by Salvador Dalí alongside his predecessors’ in Florida and Raven Halfmoon’s towering sculptures in Oklahoma.`\
+https://www.nytimes.com/2026/10/30/arts/design/american-museums-fall-guide.html
+
+**Transylvania, Where Meadows Ripple and Dracula Legends Fade**\
+`On a three-day hike in Romania, a writer sidesteps the usual Bram Stoker draws and instead discovers medieval villages, ancient forests and rich living history.`\
+https://www.nytimes.com/2026/10/30/travel/via-transilvanica-romania-hike.html
+
+**Why Is Every Book ‘Gothic’ Now?**\
+`Candlelit corridors, eerie old portraits and other tropes aren’t exclusive to horror and romance this year — they’re everywhere.`\
+https://www.nytimes.com/2026/10/30/books/why-is-every-book-gothic-now.html
+
+**The New York Times News Quiz, October 30, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/10/30/briefing/weekly-news-quiz.html
+
+**Is New England a State?**\
+`A ruling on a geography debate.`\
+https://www.nytimes.com/quiz/2026/10/30/magazine/new-england-state-hodgman-quiz.html
+
 **What’s Driving Elon Musk?**\
 `What does the world’s richest man believe in?`\
 https://www.nytimes.com/video/opinion/100000011243958/whats-driving-elon-musk.html
