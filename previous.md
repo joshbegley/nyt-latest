@@ -1,3 +1,7 @@
+**The Best Trick-or-Treating Happens in Apartment Buildings**\
+`We asked readers to share their Halloween tales of going door to door in New York City.`\
+https://www.nytimes.com/interactive/2026/10/29/realestate/halloween-trick-or-treat-new-york-memories.html
+
 **Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
 `The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
 https://www.nytimes.com/2026/10/29/technology/binance-grapples-with-security-incident-that-may-cause-6-3-billion-in-losses.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/opinion/israel-elections-arab-parties.html
 **The New DNA Technology That Linked Ted Bundy to a 52-Year-Old Cold Case**\
 `Software known as STRmix was instrumental in identifying Mr. Bundy’s DNA in a decades-old sample.`\
 https://www.nytimes.com/2026/10/29/science/dna-ted-bundy-cold-case.html
-
-**Urgent Funding Sought to Retrieve U.S. ‘Art Olympics’ Sculptures**\
-`The commissioner of the U.S. Pavilion at the Venice Biennale said donations were badly needed to ship the artworks home from Italy. Her nonprofit group is facing a $1 million shortfall to cover the costs.`\
-https://www.nytimes.com/2026/10/29/arts/design/us-pavilion-venice-biennale.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\

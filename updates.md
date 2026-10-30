@@ -1,3 +1,7 @@
+**The Best Trick-or-Treating Happens in Apartment Buildings**\
+`We asked readers to share their Halloween tales of going door to door in New York City.`\
+https://www.nytimes.com/interactive/2026/10/29/realestate/halloween-trick-or-treat-new-york-memories.html
+
 **Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
 `The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
 https://www.nytimes.com/2026/10/29/technology/binance-grapples-with-security-incident-that-may-cause-6-3-billion-in-losses.html
