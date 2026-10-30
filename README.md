@@ -1,3 +1,7 @@
+**Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
+`I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
+https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
+
 **The Unforced Errors of Vivek Ramaswamy**\
 `Fact-checking a tumultuous campaign with the independent journalist who broke the story of a shocking ad.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswamy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/world/americas/colombia-crackdown-army-killin
 **Word of the Day: acumen**\
 `This word has appeared in 70 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/10/30/learning/word-of-the-day-acumen.html
-
-**Cancer Takes Center Stage in the Competitive Race for Governor of Iowa**\
-`High cancer rates have exposed a fault line in Iowa politics between public health and the interests of the powerful agriculture industry.`\
-https://www.nytimes.com/2026/10/30/us/iowa-governor-election-cancer-rates.html
 
