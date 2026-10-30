@@ -1,3 +1,7 @@
+**How the Japanese Spy Drama ‘Vivant’ Became The Target of China’s Anger**\
+`“Vivant,” a Japanese thriller that features Chinese spies, has drawn intense criticism from Beijing. Its creators defend the show, saying it is “completely fictional.”`\
+https://www.nytimes.com/2026/10/30/world/asia/japan-vivant-spy-show-china.html
+
 **Is This the End for Trump’s Princelings? Or Just the Start?**\
 `American capitalism may never be the same again.`\
 https://www.nytimes.com/2026/10/30/opinion/trump-america-capitalism-rich-politics.html
