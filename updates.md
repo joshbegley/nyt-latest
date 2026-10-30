@@ -1,3 +1,7 @@
+**Protesters Call on Israel’s Opposition to Partner With Arab Parties**\
+`As Arab voter turnout hit a record high in Israel’s election, protesters urged Gadi Eisenkot, a leader of the opposition bloc, to include Arab-led parties in a coalition to govern.`\
+https://www.nytimes.com/video/world/middleeast/100000011248317/israel-election-protest-arab-parties.html
+
 **Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
 `The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
 https://www.nytimes.com/2026/10/29/technology/binance-hack-crypto.html
