@@ -1,3 +1,7 @@
+**Tell Us Your Twin Cities Secrets**\
+`Hidden gems? Stars in the making? A commute you actually enjoy? Our Twin Cities newsletter wants to hear from you.`\
+https://www.nytimes.com/2026/10/30/briefing/twin-cities-secrets.html
+
 **Patrick Stewart Was Regal, Stately and Quite Hilarious**\
 `The actor used his booming voice and Shakespearean pedigree in the service of absurd (and often lewd) comedy.`\
 https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.html

@@ -1,3 +1,7 @@
+**Tell Us Your Twin Cities Secrets**\
+`Hidden gems? Stars in the making? A commute you actually enjoy? Our Twin Cities newsletter wants to hear from you.`\
+https://www.nytimes.com/2026/10/30/briefing/twin-cities-secrets.html
+
 **Patrick Stewart Was Regal, Stately and Quite Hilarious**\
 `The actor used his booming voice and Shakespearean pedigree in the service of absurd (and often lewd) comedy.`\
 https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/pageoneplus/corrections-oct-30-2026.html
 **Israel’s Election Is Unlikely to Change Its Policies and Global Isolation**\
 `The leading contenders, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, aren’t substantially different in their approach to Israel’s security or in their opposition to a Palestinian state.`\
 https://www.nytimes.com/2026/10/30/world/europe/israel-election-netanyahu-eisenkot.html
-
-**As Voters Worry About Prices, Many Senate Candidates Are Millionaires**\
-`The wealthy are well represented in the ranks of major candidates for the chamber, according to a New York Times review of financial disclosure forms.`\
-https://www.nytimes.com/2026/10/30/us/politics/senate-candidates-net-worth.html
 
