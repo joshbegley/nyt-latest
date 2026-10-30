@@ -1,3 +1,167 @@
+**4 Ways to Feel More Hopeful**\
+`Start by picking up some trash and pruning your social media feeds.`\
+https://www.nytimes.com/2026/10/30/well/hope-hopeful-inspiration-caitlin-moran-book.html
+
+**A.I. Stocks Wobble, but Broader Market Is Holding On**\
+`The S&P 500 is set for a small gain for the month, despite a slide in some of the tech stocks that led the index to repeated new highs.`\
+https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
+
+**Another Toll of the Violent Unrest in France: The Political Center**\
+`Support for Édouard Philippe, the leading candidate from the centrist bloc, has eroded, while his far-right and far-left rivals benefit.`\
+https://www.nytimes.com/2026/10/30/world/europe/france-unrest-political-center.html
+
+**Wirecutter’s All-Time Favorite Slippers**\
+`How to get a pair that delivers lasting comfort.`\
+https://www.nytimes.com/2026/10/30/podcasts/wirecutters-all-time-favorite-slippers.html
+
+**Corrections: Oct. 30, 2026**\
+`Corrections that appeared in print on Friday, Oct. 30, 2026.`\
+https://www.nytimes.com/2026/10/30/pageoneplus/corrections-oct-30-2026.html
+
+**Israel’s Election Is Unlikely to Change Its Policies and Global Isolation**\
+`The leading contenders, Prime Minister Benjamin Netanyahu and Gadi Eisenkot, aren’t substantially different in their approach to Israel’s security or in their opposition to a Palestinian state.`\
+https://www.nytimes.com/2026/10/30/world/europe/israel-election-netanyahu-eisenkot.html
+
+**As Voters Worry About Prices, Many Senate Candidates Are Millionaires**\
+`The wealthy are well represented in the ranks of major candidates for the chamber, according to a New York Times review of financial disclosure forms.`\
+https://www.nytimes.com/2026/10/30/us/politics/senate-candidates-net-worth.html
+
+**Musk, Trump and the ‘Ayn Randian Superman’**\
+`Elon Musk and Donald Trump both embody the “Ayn Randian superman” trope in American politics, argues the Opinion columnist Ezra Klein. On “The Ezra Klein Show,” Quinn Slobodian, a co-author of “Muskism,” complicates this image of Musk and asks, “How can you dethrone Musk?”`\
+https://www.nytimes.com/video/opinion/100000011243960/musk-trump-and-the-ayn-randian-superman.html
+
+**What’s Driving Elon Musk?**\
+`What does the world’s richest man believe in?`\
+https://www.nytimes.com/2026/10/30/opinion/ezra-klein-podcast-quinn-slobodian.html
+
+**How I Upgraded My Mom’s Roast Chicken (With Fewer Dishes)**\
+`Putting everything on a sheet pan makes the chicken legs, carrots and onions caramelized and sweet.`\
+https://www.nytimes.com/2026/10/30/dining/how-i-upgraded-my-moms-roast-chicken-with-fewer-dishes.html
+
+**Conservation Efforts for Caucasian Leopards Show Promise**\
+`In Armenia, a three-legged Caucasian leopard’s astonishing hike signals that conservation efforts for the endangered animal may be working.`\
+https://www.nytimes.com/2026/10/30/climate/injured-leopards-200-mile-trek-suggests-hope-for-a-species.html
+
+**High Prices Haunt Trump and the GOP on Eve of the Midterms**\
+`A backlash over high prices helped Republicans capture a majority in 2024. Now, it may be the source of the party’s own undoing.`\
+https://www.nytimes.com/2026/10/30/business/trump-inflation-election.html
+
+**Darline Graham Is ‘a Little Nervous.’ Can She Keep South Carolina’s Senate Seat Red?**\
+`Polls show the sister of the late Senator Lindsey Graham in a virtual tie with her Democratic opponent, Dr. Annie Andrews. An upset was unthinkable just a few months ago.`\
+https://www.nytimes.com/2026/10/30/us/darline-graham-annie-andrews-south-carolina-senate.html
+
+**I’m in ‘You Can See Everything.’ Here’s My Side of the Story.**\
+`I’m in ‘You Can See Everything.’ Here’s my side of the story.`\
+https://www.nytimes.com/2026/10/30/opinion/you-can-see-everything-elizabeth-holmes-nathan-fielder.html
+
+**Housing Issues Are on the Ballot. Here’s What to Know.**\
+`This election cycle, voters across the country will be asked to weigh in on proposals to shrink lot sizes, slash property taxes and more.`\
+https://www.nytimes.com/2026/10/30/realestate/elections-ballot-measures-housing-issues.html
+
+**What Anthropic’s I.P.O. Filing Says About the Future of A.I.**\
+`Anthropic’s I.P.O. is about more than just one company raising boatloads of cash.`\
+https://www.nytimes.com/2026/10/30/opinion/anthropic-ipo-ai.html
+
+**Taking the Saga of a Criminal Gang From Page to Screen to Opera Stage**\
+`Italians can’t get enough of “Romanzo Criminale,” a best-selling novel that has been made into a hit film, a bigger hit TV show and now, an opera.`\
+https://www.nytimes.com/2026/10/30/world/europe/italy-romanzo-criminale-opera.html
+
+**You Never Forget the Password to Your DVD Player**\
+`I like that our DVD player is neither smart nor intelligent. You put in the disc, and the movie appears.`\
+https://www.nytimes.com/2026/10/30/opinion/technology-dvd-players-streaming-movies.html
+
+**Tax the Rich? Easier Said Than Done.**\
+`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
+https://www.nytimes.com/2026/10/30/opinion/billionaire-wealth-tax-california.html
+
+**6 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/10/30/movies/new-movies-this-week-critics.html
+
+**Why the Markets Don’t Care About the Midterms**\
+`Factors like inflation, interest rates, A.I. and the war with Iran are far more important, our columnist says.`\
+https://www.nytimes.com/2026/10/30/business/midterms-stock-bond-markets.html
+
+**Book Club: Read ‘The Calamity Club,’ by Kathryn Stockett, With the Book Review**\
+`In November, the Book Review Book Club will read and discuss Stockett’s latest, about two outcasts in Mississippi working to change their fate.`\
+https://www.nytimes.com/2026/10/30/books/review/the-calamity-club-kathryn-stockett-book-club.html
+
+**Spellbinding New Fantasy Novels**\
+`Our columnist reviews Leigh Bardugo’s “Dead Beat” and other recent releases.`\
+https://www.nytimes.com/2026/10/30/books/review/new-fantasy-books.html
+
+**Halloween. The Marathon. Daylight Saving. What a Weekend.**\
+`There’s a lot going on in New York City in the next few days, including early voting and the end of daylight saving time.`\
+https://www.nytimes.com/2026/10/30/nyregion/marathon-daylight-saving-halloween-nyc.html
+
+**Nithya Raman’s Husband Brings Her Hollywood Connections**\
+`As Ms. Raman runs for mayor of Los Angeles, the work of her husband, Vali Chandrasekaran, has brought her closer to the city’s signature industry.`\
+https://www.nytimes.com/2026/10/30/us/raman-nithya-husband-vali-chandrasekaran-hollywood.html
+
+**Lil Baby Interview: The Atlanta Rapper Takes On New Challenges**\
+`The Atlanta superstar rapper is back with a new hit and more expansive sound but, he says, the same hunger to dominate.`\
+https://www.nytimes.com/2026/10/30/arts/music/lil-baby-popcast-interview.html
+
+**She Was Racked With Anxiety and Crushed by Insomnia. Finally She Understood Why.**\
+`The woman’s symptoms were common, but the cause was not.`\
+https://www.nytimes.com/2026/10/30/well/rififi-anxiety-insomnia-tb-treatment-rifampin.html
+
+**Questions for a Pollster: What Are Your ‘Fears’ for the Midterms?**\
+`Answers to readers’ queries about the possible reasons a survey could misfire.`\
+https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
+
+**Why Trump Is Losing Young Men**\
+`Young men swung to Donald Trump in 2024. Polling shows they are now moving away — but to what? Sabrina Tavernise, a reporter for The New York Times, went to Michigan to find out.`\
+https://www.nytimes.com/video/us/elections/100000011230123/trump-young-men-voters-michigan.html
+
+**East Village ‘Peace House’ Is for Sale**\
+`The home and studio of Anton van Dalen is listed for almost $7 million, two years after the artist’s death`\
+https://www.nytimes.com/2026/10/30/realestate/east-village-peace-house-is-for-sale.html
+
+**Where Is All the Art About War?**\
+`At a time of global conflict, institutions are shying away from the topic — and artists are struggling to show their work.`\
+https://www.nytimes.com/2026/10/30/t-magazine/war-contemporary-art.html
+
+**Who Killed Alex Odeh?’ Asks Good Questions About a Terrible Death**\
+`The film by Jason Osder and William Lafi Youmans examines the 1985 pipe-bombing of a Palestinian activist in California, tracing the case to suspects in Israel.`\
+https://www.nytimes.com/2026/10/30/movies/who-killed-alex-odeh-review.html
+
+**How Michigan’s Midterm Senate Race Could Influence the 2028 Democratic Presidential Primary**\
+`The fate of Dr. Abdul El-Sayed, the progressive candidate in the race, will serve as a litmus test for the left’s potency heading into the next presidential contest.`\
+https://www.nytimes.com/2026/10/30/us/politics/michigan-senate-democratic-presidential-primary.html
+
+**Beware of Election Night Mirages**\
+`Early race counts on election night can sometimes differ sharply from the final outcome. Christine Zhang, our election data reporter, explains the reasons behind red and blue “mirages.”`\
+https://www.nytimes.com/video/us/elections/100000011224072/beware-of-election-night-mirages.html
+
+**Dozens of Headless Skeletons Pose a Macabre Mystery**\
+`Mass graves found at a Stone Age farming settlement in Slovakia have researchers baffled about the details — including the location of the missing skulls.`\
+https://www.nytimes.com/2026/10/30/science/headless-skeletons-stone-age.html
+
+**What Has Helped You Get Through a Difficult Time?**\
+`It can be challenging to heal and move on from grief, heartbreak or serious disappointment. What can we learn from the story of a woman who reached out to strangers in the midst of a loss?`\
+https://www.nytimes.com/2026/10/30/learning/what-has-helped-you-get-through-a-difficult-time.html
+
+**New York Bought an Electric Ferry. The City Can’t Charge It.**\
+`Locations across the country want to launch electric ferries to cut carbon emissions, but there are challenges to the rollout.`\
+https://www.nytimes.com/2026/10/30/business/electric-ferries-chargers.html
+
+**15-Minute Lesson Plan: Grief and Healing**\
+`What do your students think happened after a woman posted on Facebook looking for strangers to attend baseball games with her? Why?`\
+https://www.nytimes.com/2026/10/30/learning/15-minute-lesson-plan-grief-and-healing.html
+
+**Two New Picture Books About Healing Our Polarized World**\
+`Two new picture books use kid-friendly art to help young readers explore the idea of bridging the divide.`\
+https://www.nytimes.com/2026/10/30/books/review/duel-shawn-harris-one-person-wee-hae-june.html
+
+**Hellraiser’s Gory Eroticism and 4 More Terrifying Games for Halloween**\
+`Fight carnival bears bent on hugging you to death. Flee Scottish monsters. And view the frightening Antarctic through penguin eyes.`\
+https://www.nytimes.com/2026/10/30/arts/halloween-scary-video-games.html
+
+**How Ukrainian Soldiers Are Moving Underground**\
+`Ukrainian soldiers are traveling underground through abandoned gas pipes to reach positions near the front. Our correspondent Maria Varenikova joins them on the journey through the kill zone and into positions where troops can spend weeks at a time.`\
+https://www.nytimes.com/video/world/europe/100000011210889/how-ukrainian-soldiers-are-moving-underground.html
+
 **My Kids Love the Creepy Carrots Books. What Should They Read Next?**\
 `Nine recommendations for big kids in training who like scary books.`\
 https://www.nytimes.com/2026/10/30/books/review/books-like-creepy-carrots.html
@@ -33,168 +197,4 @@ https://www.nytimes.com/2026/10/30/arts/design/late-night-museums-young-people.h
 **At the Metropolitan Museum of Art, Visitors Enjoy the Music**\
 `The program “Met Live Arts” aims to create immersive experiences with notable performers in surprising museum locations.`\
 https://www.nytimes.com/2026/10/30/arts/design/museum-met-live-performances.html
-
-**Short of Space, the Hispanic Society Museum Plans an Outpost in Spain**\
-`The new museum, in Valencia, will focus on works by that city’s native son, Joaquín Sorolla, and, it is hoped, benefit the Manhattan institution.`\
-https://www.nytimes.com/2026/10/30/arts/design/hispanic-society-joaquin-sorolla-spain.html
-
-**The Stars of This Philadelphia Exhibition? Squirrels.**\
-`After a squirrel invaded his home, Wilmer Wilson IV decided to research everything about the creature. The result is a solo show titled “SKIRL!”`\
-https://www.nytimes.com/2026/10/30/arts/design/wilmer-wilson-iv-squirrels-philadelphia.html
-
-**A Guide to U.S. Museum and Gallery Openings This Fall**\
-`On display are Yoshitomo Nara’s alluring childlike figures in New York, works by Salvador Dalí alongside his predecessors’ in Florida and Raven Halfmoon’s towering sculptures in Oklahoma.`\
-https://www.nytimes.com/2026/10/30/arts/design/american-museums-fall-guide.html
-
-**Transylvania, Where Meadows Ripple and Dracula Legends Fade**\
-`On a three-day hike in Romania, a writer sidesteps the usual Bram Stoker draws and instead discovers medieval villages, ancient forests and rich living history.`\
-https://www.nytimes.com/2026/10/30/travel/via-transilvanica-romania-hike.html
-
-**Why Is Every Book ‘Gothic’ Now?**\
-`Candlelit corridors, eerie old portraits and other tropes aren’t exclusive to horror and romance this year — they’re everywhere.`\
-https://www.nytimes.com/2026/10/30/books/why-is-every-book-gothic-now.html
-
-**The New York Times News Quiz, October 30, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/10/30/briefing/weekly-news-quiz.html
-
-**Is New England a State?**\
-`A ruling on a geography debate.`\
-https://www.nytimes.com/quiz/2026/10/30/magazine/new-england-state-hodgman-quiz.html
-
-**What’s Driving Elon Musk?**\
-`What does the world’s richest man believe in?`\
-https://www.nytimes.com/video/opinion/100000011243958/whats-driving-elon-musk.html
-
-**Tax the Rich? Easier Said Than Done.**\
-`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
-https://www.nytimes.com/video/opinion/100000011237986/tax-the-rich-easier-said-than-done.html
-
-**We’re About to Find Out If We’re in an A.I. Bubble**\
-`Erin Griffith joins us to unpack Anthropic’s S-1 filing, which offers the clearest view yet into the business side of the A.I. boom and sets up what could be the largest I.P.O. in history, and then Mike Isaac and Jasmine Sun break down the rest of the week’s tech news.`\
-https://www.nytimes.com/video/podcasts/100000011247824/were-about-to-find-out-if-were-in-an-ai-bubble.html
-
-**Protesters Call on Israel’s Opposition to Partner With Arab Parties**\
-`As Arab voter turnout hit a record high in Israel’s election, protesters urged Gadi Eisenkot, a leader of the opposition bloc, to include Arab-led parties in a coalition to govern.`\
-https://www.nytimes.com/video/world/middleeast/100000011248317/israel-election-protest-arab-parties.html
-
-**Fans Pay Tribute to Patrick Stewart**\
-`Fans of Patrick Stewart paid tribute to the actor, who died on Wednesday, and recalled some of his best performances.`\
-https://www.nytimes.com/video/obituaries/archives/100000011248218/patrick-stewart-fan-tributes.html
-
-**New ‘Call of Duty’ Game Draws Criticism for Using Footage of Deadly Seoul Crowd Crush**\
-`Call of Duty: Modern Warfare 4 uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
-https://www.nytimes.com/2026/10/30/world/asia/call-of-duty-seoul-itaweon-crowd-crush.html
-
-**Tom Kean Jr. is Fighting for Political Survival**\
-`Representative Tom Kean Jr. inherited a name and a family legacy that helped carry him to Washington. It might not be enough to keep him there.`\
-https://www.nytimes.com/2026/10/30/nyregion/tom-kean-jr-new-jersey-house-election.html
-
-**Scary Ghost Stories From New York Times Archives**\
-`From haunted zoo cages to ghostly bar owners, here are five stories from our archives that will make you shiver, or maybe chuckle.`\
-https://www.nytimes.com/2026/10/30/insider/ghost-stories-new-york-times.html
-
-**NYT Spelling Bee Answers for October 30, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/30/crosswords/spelling-bee-forum.html
-
-**Seth Meyers Cheers ‘Stand-Up Obama’ for Riling Republicans**\
-`“He’s working on material for his next special, ‘Hussein in the Membrane,’” Meyers said after the former president ruffled feathers with jokes about the Cheesecake Factory.`\
-https://www.nytimes.com/2026/10/30/arts/television/seth-meyers-obama-trump-comedy.html
-
-**How the Japanese Spy Drama ‘Vivant’ Became The Target of China’s Anger**\
-`“Vivant,” a Japanese thriller that features Chinese spies, has drawn intense criticism from Beijing. Its creators defend the show, saying it is “completely fictional.”`\
-https://www.nytimes.com/2026/10/30/world/asia/japan-vivant-spy-show-china.html
-
-**Oldest Recording of Louisiana’s Vanishing Creole Language Is Published**\
-`The rediscovery of a forgotten recording from 1935 sheds light on a language rooted in the state’s history of slavery and French colonialism.`\
-https://www.nytimes.com/2026/10/30/us/louisiana-creole-recording-lorenzo-dow-turner.html
-
-**Is This the End for Trump’s Princelings? Or Just the Start?**\
-`American capitalism may never be the same again.`\
-https://www.nytimes.com/2026/10/30/opinion/trump-america-capitalism-rich-politics.html
-
-**2 Helicopters Collide Midair in Oregon, Killing All 3 Aboard**\
-`A student pilot and a flight instructor were killed, along with the person in the second helicopter, officials said. The cause has not been determined.`\
-https://www.nytimes.com/2026/10/30/us/helicopters-crash-oregon.html
-
-**An Arab Town in Israel Celebrates the Election but Wonders What Will Change**\
-`Gains for Arab-led parties have electrified Taibe, in central Israel, even as voters elsewhere in Israel say they have no place in any future government.`\
-https://www.nytimes.com/2026/10/30/world/middleeast/arab-voters-israel-election-taibe.html
-
-**Quote of the Day: In France’s 2nd Most Populous City, Tensions, Rioting and Progress**\
-`Quotation of the Day for Friday, October 30, 2026.`\
-https://www.nytimes.com/2026/10/30/pageoneplus/quote-of-the-day-in-frances-2nd-most-populous-city-tensions-rioting-and-progress.html
-
-**How One Country Became the Unlikely Crossroads of the Global A.I. Boom**\
-`In Malaysia, U.S. and Chinese tech giants are pouring billions into vast data centers, straining local resources and testing the limits of Washington’s restrictions on advanced chips.`\
-https://www.nytimes.com/2026/10/30/business/malaysia-data-center-china.html
-
-**In China, the War on Mosquitoes Has Entered the A.I. Era**\
-`Using sensors developed for self-driving cars, a Chinese start-up claims it can track and destroy tiny flying targets while avoiding people, pets and reflective surfaces.`\
-https://www.nytimes.com/2026/10/30/business/mosquito-laser-ai.html
-
-**This Device Uses A.I. and Lasers to Kill Mosquitoes**\
-`A Chinese start-up has developed a device that uses artificial intelligence and lasers to kill mosquitoes. But there are safety concerns for people and other creatures nearby when the device is in action.`\
-https://www.nytimes.com/video/technology/100000011221955/ai-lasers-mosquitoes.html
-
-**‘I Miss Him So Much, but I’m Glad He’s With You’**\
-`At 20, I made a choice that shaped my baby’s entire life — and mine.`\
-https://www.nytimes.com/2026/10/30/style/modern-love-open-adoption-miss-him-but-glad-hes-with-you.html
-
-**She Gave Dates 30 Minutes. This One Clicked in the 27th.**\
-`Erin Lee Carr, the daughter of the former Times reporter David Carr, “can’t do small talk” — and didn’t on her first date with Michelle Bruton.`\
-https://www.nytimes.com/2026/10/30/style/erin-lee-carr-michelle-bruton-wedding.html
-
-**They Started Dating in High School and Never Stopped**\
-`When Hayden Field and Cody Clegg first met, they realized that they had a lot in common — including being born at the same Atlanta hospital one day apart.`\
-https://www.nytimes.com/2026/10/30/style/hayden-field-cody-clegg-wedding.html
-
-**A Call of the Wild, and to Each Other**\
-`Gus Sigel was enamored with Josie Arnold before they took off as seasonal wranglers and horse packers in Wyoming’s Teton Wilderness.`\
-https://www.nytimes.com/2026/10/30/style/josie-arnold-gus-sigel-wedding.html
-
-**Given a Future She Didn’t Expect**\
-`When a new drug was developed for Huntington’s disease, it helped Katie Moser feel optimistic — and marry Jaclyn Conklin.`\
-https://www.nytimes.com/2026/10/30/style/jaclyn-conklin-katie-moser-wedding.html
-
-**“Hacks” Star Mark Indelicato Marries David Watson in Los Angeles**\
-`On their first date, Mark Indelicato, who played Damien on “Hacks,” tapped into David Watson’s love of a project.`\
-https://www.nytimes.com/2026/10/30/style/david-watson-mark-indelicato-wedding.html
-
-**From the Front Page: Muhammad Ali Knocks Out George Foreman on Oct. 30, 1974**\
-`In the eighth round of the “Rumble in the Jungle” boxing match, Ali knocked out Foreman to regain the world heavyweight title. The event took place in Kinshasa, in what is now the Democratic Republic of Congo.`\
-https://www.nytimes.com/2026/10/30/learning/from-the-front-page-muhammad-ali-knocks-out-george-foreman-on-oct-30-1974.html
-
-**The Best Trick-or-Treating Happens in Apartment Buildings**\
-`We asked readers to share their Halloween tales of going door to door in New York City.`\
-https://www.nytimes.com/interactive/2026/10/29/realestate/halloween-trick-or-treat-new-york-memories.html
-
-**Binance Grapples With ‘Security Incident’ That May Cause $6.3 Billion in Losses**\
-`The world’s largest crypto exchange suspended deposits and withdrawals after an apparent hack.`\
-https://www.nytimes.com/2026/10/29/technology/binance-hack-crypto.html
-
-**Review: ‘A Few Good Men,’ With Bradley Whitford and Tom Blyth, Gives Up the Fight**\
-`Bradley Whitford, Tom Blyth and Krysta Rodriguez star in a revival of Aaron Sorkin’s 1989 breakthrough that lacks tactical cohesion.`\
-https://www.nytimes.com/2026/10/29/theater/few-good-men-review-whitford-blyth-sorkin.html
-
-**NYT Crossword Answers for Oct. 30, 2026**\
-`Robyn Weintraub and Rafael Musa join forces to open our solving weekend.`\
-https://www.nytimes.com/2026/10/29/crosswords/daily-puzzle-2026-10-30.html
-
-**Who Measures the Marathon?**\
-`It takes patience, focus — and a willingness to ride a bike the wrong way on New York City streets.`\
-https://www.nytimes.com/interactive/2026/10/29/nyregion/nyc-marathon-jobs-workers.html
-
-**In Reversal, Former Primary Rival Will Campaign With El-Sayed**\
-`Representative Haley Stevens of Michigan, who was defeated by Dr. Abdul El-Sayed in August’s Democratic Senate primary, said she would appear with the candidate this weekend.`\
-https://www.nytimes.com/2026/10/29/us/elections/el-sayed-stevens-campaign-event.html
-
-**Republicans Ramp Up Investigation Into Democratic Plan to Pack Alaska’s Ballot**\
-`The Justice Department issued subpoenas, a House oversight committee sought interviews and the state opened its own inquiry into a Democratic plan to recruit a spoiler into a Senate race.`\
-https://www.nytimes.com/2026/10/29/us/politics/alaska-dan-sullivan-peltola-ballot-investigation-trump.html
-
-**Lil Baby Almost Quit Rap – ‘Dead Fresh’ Revitalized Him**\
-`Watch the full conversation with Lil Baby. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011238227/lil-baby-almost-quit-rap-dead-fresh-revitalized-him.html
 
