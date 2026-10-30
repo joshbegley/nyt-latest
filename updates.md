@@ -1,3 +1,11 @@
+**3 Arrested in Connection With Deadly Blast in Central Athens**\
+`The authorities said an attempt to steal copper gas pipes ultimately led to the massive explosion last month, which killed six people.`\
+https://www.nytimes.com/2026/10/30/world/europe/greece-explosion-athens-arrests.html
+
+**Musk Predicts End of Democracy if Elections Favor Democrats**\
+`Mr. Musk’s rhetoric, heated as it is, partly explains why he has spent nearly $475 million to back Republicans in the midterms.`\
+https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
+
 **Musk Predicts End of Democracy if Elections Favor Democrats**\
 `The billionaire megadonor urged voters to ensure that Republicans hold the Senate.`\
 https://www.nytimes.com/2026/10/30/us/elections/elon-musk-senate-donations.html
