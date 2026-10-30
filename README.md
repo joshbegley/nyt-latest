@@ -1,3 +1,7 @@
+**Appeals Court Again Rejects Trump Effort to Impound California Ballots**\
+`In a 2-to-1 vote, an appeals court panel declined to order the state to set aside more than 20,000 mail-in ballots, calling the notion plainly unconstitutional.`\
+https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.html
+
 **A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
 `Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
 https://www.nytimes.com/2026/10/30/us/politics/new-progressives-could-reshape-a-democratic-congress.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordabilit
 **Pelosi Splits With Mamdani and El-Sayed on Israel**\
 `In a podcast interview, she asserted that criticism of Israel from some prominent Democrats did not reflect the view of the party itself.`\
 https://www.nytimes.com/2026/10/30/us/elections/pelosi-mamdani-el-sayed-israel.html
-
-**A Long, Long Walk**\
-`We look at one man’s journey across the world.`\
-https://www.nytimes.com/2026/10/30/briefing/a-long-long-walk.html
 

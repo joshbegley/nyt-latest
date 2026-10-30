@@ -1,3 +1,15 @@
+**A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
+`Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
+https://www.nytimes.com/2026/10/30/us/politics/new-progressives-could-reshape-a-democratic-congress.html
+
+**Prosecutors Suggest They May Seek Additional Comey Charges**\
+`At a hearing in federal court, prosecutors defended an unusual, 11th-hour criminal case accusing the former F.B.I. director of leaking classified information a decade ago.`\
+https://www.nytimes.com/2026/10/30/us/politics/james-comey-charges-doj.html
+
+**Everything I Loved Vanished in an Instant**\
+`The mountaineer and skier Jim Morrison joins Anna Martin, the host of “Modern Love,” to talk about the day he lost everything.`\
+https://www.nytimes.com/video/podcasts/100000011243128/everything-i-loved-vanished-in-an-instant.html
+
 **Could El Salvador’s Bukele Be Haiti’s Savior?**\
 `The Salvadoran government dispatched more than 2,000 troops to Haiti this week in an extraordinary deployment on foreign soil.`\
 https://www.nytimes.com/2026/10/30/world/americas/el-salvador-haiti-soldiers-bukele.html
