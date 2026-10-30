@@ -1,3 +1,7 @@
+**Fans Pay Tribute to Patrick Stewart**\
+`Fans of Patrick Stewart paid tribute to the actor, who died on Wednesday, and recalled some of his best performances.`\
+https://www.nytimes.com/video/obituaries/archives/100000011248218/patrick-stewart-fan-tributes.html
+
 **New ‘Call of Duty’ Game Draws Criticism for Using Footage of Deadly Seoul Crowd Crush**\
 `Call of Duty: Modern Warfare 4 uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
 https://www.nytimes.com/2026/10/30/world/asia/call-of-duty-seoul-itaweon-crowd-crush.html

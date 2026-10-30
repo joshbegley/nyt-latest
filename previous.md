@@ -1,3 +1,7 @@
+**Fans Pay Tribute to Patrick Stewart**\
+`Fans of Patrick Stewart paid tribute to the actor, who died on Wednesday, and recalled some of his best performances.`\
+https://www.nytimes.com/video/obituaries/archives/100000011248218/patrick-stewart-fan-tributes.html
+
 **New ‘Call of Duty’ Game Draws Criticism for Using Footage of Deadly Seoul Crowd Crush**\
 `Call of Duty: Modern Warfare 4 uses actual visuals from a crowd crush in South Korea, in which over 150 Halloween carousers died in a narrow alleyway.`\
 https://www.nytimes.com/2026/10/30/world/asia/call-of-duty-seoul-itaweon-crowd-crush.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/oberlin-college-professor-murdered.html
 **Machado Says U.S. Plan for Venezuela Will Lead to Elections Next Year**\
 `SUM: On Thursday in Caracas, María Corina Machado, the Venezuelan opposition leader, gave her first news conference since returning to the country on Sunday.`\
 https://www.nytimes.com/video/world/americas/100000011247322/maria-corina-machado-speech.html
-
-**Judge Orders Trump Officials to Outline Election Demands Sent to States**\
-`A federal judge gave the government until noon on Friday to share which states had received letters trying to enlist them in an effort to find evidence of voter fraud.`\
-https://www.nytimes.com/2026/10/29/us/politics/trump-judge-election-lawsuit.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
