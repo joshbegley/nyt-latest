@@ -1,3 +1,11 @@
+**Melania Trump’s Halloween Coat Was Its Own Kind of Costume**\
+`The first lady continues to let her coats do the talking.`\
+https://www.nytimes.com/2026/10/30/style/melania-trump-halloween-coat-white-house.html
+
+**Are Trump Voters Refusing to Take Polls? And Other Polling Risks.**\
+`Answers to readers’ queries about the reasons a survey could misfire.`\
+https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html
+
 **The Result of Dissatisfaction Is Endless Political Deadlock**\
 `From France to Brazil, voters are railing against the status quo, even as the politics of disenchantment make lasting change nearly impossible.`\
 https://www.nytimes.com/2026/10/30/magazine/political-deadlock-france-brazil.html
