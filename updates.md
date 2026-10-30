@@ -1,3 +1,7 @@
+**Patrick Stewart, ‘Star Trek’ Star, Dies at 86**\
+`Patrick Stewart, who rose from Britain’s coal-mining country to find acclaim as a Shakespearean actor and later achieved stardom as Capt. Jean-Luc Picard in TV’s “Star Trek: The Next Generation,” has died at the age of 86.`\
+https://www.nytimes.com/video/obituaries/100000011244527/patrick-stewart-death-star-trek.html
+
 **Moody Makes Appeal to a South Florida Audience Leery of the Left**\
 `Senator Ashley Moody, Republican of Florida, campaigned in Miami-Dade County, an area with a large Cuban population that the G.O.P. is hoping to keep red.`\
 https://www.nytimes.com/2026/10/29/us/elections/ashley-moody-florida-senate-race.html

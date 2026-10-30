@@ -1,3 +1,7 @@
+**Patrick Stewart, ‘Star Trek’ Star, Dies at 86**\
+`Patrick Stewart, who rose from Britain’s coal-mining country to find acclaim as a Shakespearean actor and later achieved stardom as Capt. Jean-Luc Picard in TV’s “Star Trek: The Next Generation,” has died at the age of 86.`\
+https://www.nytimes.com/video/obituaries/100000011244527/patrick-stewart-death-star-trek.html
+
 **Moody Makes Appeal to a South Florida Audience Leery of the Left**\
 `Senator Ashley Moody, Republican of Florida, campaigned in Miami-Dade County, an area with a large Cuban population that the G.O.P. is hoping to keep red.`\
 https://www.nytimes.com/2026/10/29/us/elections/ashley-moody-florida-senate-race.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/cuban-diplomat-expelled.html
 **As Midterm Ads Focus on Epstein, a Florida Senator Is the Latest Target**\
 `A new ad criticizes Senator Ashley Moody, a Republican, for voting against releasing files on Jeffrey Epstein, who was accused of sex crimes in Palm Beach.`\
 https://www.nytimes.com/2026/10/29/us/politics/epstein-victim-ashley-moody-ad.html
-
-**Taryn Simon Fills Guggenheim With Evidence in ‘Father Country I Do Love You’**\
-`The photographer Taryn Simon spent a decade channeling an F.B.I. agent’s life into pictures. Is it good art? Does it matter?`\
-https://www.nytimes.com/2026/10/29/arts/design/taryn-simon-guggenheim-father-country-i-do-love-you.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\
