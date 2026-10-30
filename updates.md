@@ -1,3 +1,15 @@
+**Curry Barker Narrates a Scene From ‘Obsession’**\
+`Barker, the film’s writer and director, explains how lingering shots heighten the tension and awkwardness in a party scene.`\
+https://www.nytimes.com/2026/10/30/movies/curry-barker-obsession-scene.html
+
+**How Curry Barker Makes a Sad Face Terrifying in ‘Obsession’**\
+`Just in time for Halloween, the director Curry Barker narrates a sequence from “Obsession,” his indie horror hit.`\
+https://www.nytimes.com/video/movies/100000011226252/curry-barker-obsession-clip.html
+
+**Trump Adds Midterm Rallies in Kansas and Iowa After Initially Canceling Events**\
+`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas President Trump won handily in 2024.`\
+https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midterms.html
+
 **New Jersey Governor Mikie Sherrill Lists Home for $3.5 Million**\
 `Before it was the New Jersey governor’s house, the Victorian was a fixture of the society pages.`\
 https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montclair.html

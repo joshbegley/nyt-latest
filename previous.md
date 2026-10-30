@@ -1,3 +1,11 @@
+**Curry Barker Narrates a Scene From ‘Obsession’**\
+`Barker, the film’s writer and director, explains how lingering shots heighten the tension and awkwardness in a party scene.`\
+https://www.nytimes.com/2026/10/30/movies/curry-barker-obsession-scene.html
+
+**How Curry Barker Makes a Sad Face Terrifying in ‘Obsession’**\
+`Just in time for Halloween, the director Curry Barker narrates a sequence from “Obsession,” his indie horror hit.`\
+https://www.nytimes.com/video/movies/100000011226252/curry-barker-obsession-clip.html
+
 **New Jersey Governor Mikie Sherrill Lists Home for $3.5 Million**\
 `Before it was the New Jersey governor’s house, the Victorian was a fixture of the society pages.`\
 https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montclair.html
@@ -95,7 +103,7 @@ https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.
 https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-price-what.html
 
 **Trump Adds Midterm Rallies in Kansas and Iowa After Initially Canceling Events**\
-`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas Mr. Trump won handily in 2024.`\
+`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas President Trump won handily in 2024.`\
 https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midterms.html
 
 **Unions Sue Justice Department Over Attempt to Intervene in California’s Vote**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/30/magazine/political-deadlock-france-brazil.htm
 **Christa Pike Describes Pain and Isolation After Botched Execution**\
 `Convicted of a 1995 murder, Ms. Pike released her first statement since the failed attempt to execute her last month.`\
 https://www.nytimes.com/2026/10/30/us/christa-pike-botched-execution-statement.html
-
-**Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
-`Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
-https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
-
-**Democratic Candidate Mary Peltola Says She Didn’t Know About Alaska Ballot Stacking**\
-`Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
-https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
 
