@@ -1,3 +1,7 @@
+**In Reversal, Former Primary Rival Will Campaign With El-Sayed**\
+`Representative Haley Stevens of Michigan, who was defeated by Dr. Abdul El-Sayed in August’s Democratic Senate primary, said she would appear with the candidate this weekend.`\
+https://www.nytimes.com/2026/10/29/us/elections/el-sayed-stevens-campaign-event.html
+
 **Republicans Ramp Up Investigation Into Democratic Plan to Pack Alaska’s Ballot**\
 `The Justice Department issued subpoenas, a House oversight committee sought interviews and the state opened its own inquiry into a Democratic plan to recruit a spoiler into a Senate race.`\
 https://www.nytimes.com/2026/10/29/us/politics/alaska-dan-sullivan-peltola-ballot-investigation-trump.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/arts/patrick-stewart-best-moments-star-trek.h
 **Patrick Stewart, ‘Star Trek’ Captain and Professor X on ‘X-Men,’ Dies at 86**\
 `The British actor was 86. He achieved pop-culture stardom as Capt. Jean-Luc Picard on “Star Trek: The Next Generation.”`\
 https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-dead.html
-
-**Why Miami Is a Destination for Latin America’s Political Exiles**\
-`The city’s Hispanic majority, news media reach and air links to Latin America have made it an ideal base for politicians escaping their home countries.`\
-https://www.nytimes.com/2026/10/29/us/flavio-bolsonaro-miami-exile.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
