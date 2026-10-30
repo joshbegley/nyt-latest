@@ -1,3 +1,15 @@
+**Oleshky Evacuations Start After Melania Trump Announces Deal**\
+`Residents of Oleshky, a southern Ukrainian city that has been under Russian occupation since 2022, were evacuated on Friday during a rare localized cease-fire deal announced by the U.S. First Lady Melania Trump.`\
+https://www.nytimes.com/video/world/europe/100000011248961/ukraine-oleshky-ceasefire-russia-war.html
+
+**Going to the NYC Marathon? Here are the Best Places to Cheer.**\
+`Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
+https://www.nytimes.com/2026/10/30/nyregion/new-york-city-marathon-where-to-cheer-route.html
+
+**The Local: ‘Kung Fu Zombies’ in St. Paul**\
+`Also, the quiet confidence of the (Minnesotan) long-distance runner.`\
+https://www.nytimes.com/2026/10/30/briefing/kung-fu-zombies.html
+
 **Why Kalshi Wants to Repeal a 1958 Law About Onions**\
 `A law enacted after a brazen scheme to rig onion prices in the 1950s puts the vegetable, as well as box office receipts, off-limits for prediction markets.`\
 https://www.nytimes.com/2026/10/30/business/kalshi-onion-futures-act-1958.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-stocks-bitcoin.h
 **Elke Sommer, Star of 1960s Comedies and Spy Films, Dies at 85**\
 `The German actress was 23 when she arrived in Hollywood, where she starred in movies with Peter Sellers, Paul Newman and Bob Hope.`\
 https://www.nytimes.com/2026/10/30/movies/elke-sommer-dead.html
-
-**Russian News Outlet That Defied Kremlin Will Shut Down: ‘They Killed Us’**\
-`Journalists at the fiercely independent Novaya Gazeta, whose co-founder received the Nobel Peace Prize, said the government had orchestrated its demise.`\
-https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html
-
-**The Justice Department’s Unusual Election-Year Activity**\
-`Federal prosecutors have targeted President Trump’s political opponents and sued states over election administration just before the midterms. Devlin Barrett, a reporter for The New York Times, explains how this activity is compared with the Justice Department’s usual election-year behavior.`\
-https://www.nytimes.com/video/us/elections/100000011240630/the-justice-departments-unusual-election-year-activity.html
-
-**Is Porn Ruining Sex?**\
-`Connecting to other people is hard. Watching porn might be easier. We asked a pornographer whether porn is to blame for the sex recession on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000011247211/is-porn-ruining-sex.html
 
