@@ -1,3 +1,7 @@
+**Obamacare Dealt Yet Another Blow as Premiums Rise Again**\
+`Premiums will jump by 13 percent for next year, though much of the price increase will be offset by subsidies. But customers who earn over $64,000 will pay more, on top of this year’s huge increases.`\
+https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
+
 **Lawsuit Accuses Education Dept. of Throttling Debt Cancellation Through PSLF Program**\
 `Public servants on the brink of student debt forgiveness are facing setbacks and extensive delays. The American Federation of Teachers sued to help them.`\
 https://www.nytimes.com/2026/10/30/business/pslf-education-department-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midter
 **Unions Sue Justice Department Over Attempt to Intervene in California’s Vote**\
 `The complaint was filed a day after the Trump administration issued a flurry of threats and subpoenas to local officials, claiming it was part of an effort to stop voting by undocumented immigrants.`\
 https://www.nytimes.com/2026/10/30/us/elections/california-unions-lawsuit-justice-department-election-immigrants.html
-
-**Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
-`Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
-https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html
 
