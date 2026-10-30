@@ -1,3 +1,11 @@
+**Why Kalshi Wants to Repeal a 1958 Law About Onions**\
+`A law enacted after a brazen scheme to rig onion prices in the 1950s puts the vegetable, as well as box office receipts, off-limits for prediction markets.`\
+https://www.nytimes.com/2026/10/30/business/kalshi-onion-futures-act-1958.html
+
+**Can Republicans Hold the Senate? They Need These Midterm Voters.**\
+`Republicans need the support of both longtime stalwarts and newly minted supporters to have any chance of holding onto the Senate.`\
+https://www.nytimes.com/interactive/2026/10/30/us/elections/midterms-senate-seats-republican.html
+
 **El-Sayed’s Former Primary Rival Demands Apology Ahead of Joint Midterms Appearance**\
 `Representative Haley Stevens plans to campaign with Dr. Abdul El-Sayed in a pivotal race. But she also wants him to apologize for comments about Israel and disavow an ad she sees as antisemitic.`\
 https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/elections/100000011240630/the-justice-departmen
 **Is Porn Ruining Sex?**\
 `Connecting to other people is hard. Watching porn might be easier. We asked a pornographer whether porn is to blame for the sex recession on “Interesting Times.”`\
 https://www.nytimes.com/video/opinion/100000011247211/is-porn-ruining-sex.html
-
-**The Risky Business of Sexual Fantasy**\
-`A lack of sex education is a bigger problem than pornography, according to the adult filmmaker Erika Lust. She argues on “Interesting Times” that a healthy outlook on sex begins by talking about it at an early age.`\
-https://www.nytimes.com/video/opinion/100000011240875/the-risky-business-of-sexual-fantasy.html
-
-**The Transactional World of Trump’s Pardons**\
-`What is different about the way that President Trump has approached pardons? Kenneth P. Vogel, a New York Times investigative reporter, joined Natalie Kitroeff, a host of “The Daily,” to talk about how connections and shared grudges against the justice system are now driving clemency decisions.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011247627/the-transactional-world-of-trumps-pardons.html
 
