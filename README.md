@@ -1,3 +1,7 @@
+**Moody Makes Appeal to a South Florida Audience Leery of the Left**\
+`Senator Ashley Moody, Republican of Florida, campaigned in Miami-Dade County, an area with a large Cuban population that the G.O.P. is hoping to keep red.`\
+https://www.nytimes.com/2026/10/29/us/elections/ashley-moody-florida-senate-race.html
+
 **Georgia Republican Donor Gets 15 Years in $76 Million Ponzi Scheme**\
 `Federal prosecutors said Edwin Brant Frost IV lured investors with promises of high returns, but used new money to pay earlier investors and fund personal expenses.`\
 https://www.nytimes.com/2026/10/29/us/politics/edwin-frost-georgia-ponzi-scheme-sentencing.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/epstein-victim-ashley-moody-ad.ht
 **Taryn Simon Fills Guggenheim With Evidence in ‘Father Country I Do Love You’**\
 `The photographer Taryn Simon spent a decade channeling an F.B.I. agent’s life into pictures. Is it good art? Does it matter?`\
 https://www.nytimes.com/2026/10/29/arts/design/taryn-simon-guggenheim-father-country-i-do-love-you.html
-
-**The Democrats’ Secret Search for Alaska’s ‘Other’ Dan Sullivan**\
-`In Alaska’s Senate race, two candidates share the same name: Dan Sullivan. But that’s no coincidence. A New York Times investigation uncovered a secret plan by Democratic operatives to recruit candidates with the same name as the incumbent Republican senator, hoping to confuse voters and split the Republican vote.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011247013/the-democrats-secret-search-for-alaskas-other-dan-sullivan.html
 
 **Elections Live Updates: Trump’s Justice Dept. Investigates Alaska and California as Midterms Near**\
 `The Trump administration has repeatedly promoted doubts about the integrity of the voting process as Republicans face a daunting electoral map.`\

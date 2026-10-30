@@ -1,3 +1,11 @@
+**Georgia Republican Donor Gets 15 Years in $76 Million Ponzi Scheme**\
+`Federal prosecutors said Edwin Brant Frost IV lured investors with promises of high returns, but used new money to pay earlier investors and fund personal expenses.`\
+https://www.nytimes.com/2026/10/29/us/politics/edwin-frost-georgia-ponzi-scheme-sentencing.html
+
+**How Common Is Ballot Stacking? What to Know as Conflict Roils Alaska Senate Race.**\
+`As a conflict over candidates roils the Alaskan Senate race, here’s a look back at the political practice over the years.`\
+https://www.nytimes.com/2026/10/29/us/elections/ballot-stacking-alaska.html
+
 **‘The Heart’ Review: A Bracing New Musical Pulses With Life**\
 `The show’s electronic dance-influenced music perfectly suits its story about a young man’s death and the rush to carry out a heart transplant.`\
 https://www.nytimes.com/2026/10/29/theater/the-heart-review-organ-transplant.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/2026/10/29/business/polymarket-investigates-israeli-bets
 https://www.nytimes.com/2026/10/29/world/europe/stephen-james-hubbard-russian-prison.html
 
 **Patrick Stewart: A Life in Pictures**\
-`The motley mix of roles that won the British actor acclaim include a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
+`The motley mix of roles that won the British actor acclaim includes a Shakespearean hero, a “Star Trek” captain and an “X-Men” mutant.`\
 https://www.nytimes.com/2026/10/29/movies/patrick-stewart-photos.html
 
 **What Israeli Election Results Reveal About the Electorate**\
