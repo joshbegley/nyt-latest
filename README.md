@@ -194,7 +194,7 @@ https://www.nytimes.com/video/us/elections/100000011247339/trump-el-sayed-suppor
 `The case offers a rare look at the military’s handling of mental health issues during extended deployments.`\
 https://www.nytimes.com/2026/10/29/us/politics/sailor-mental-health-uss-lincoln-navy.html
 
-**Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
+**Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
 https://www.nytimes.com/live/2026/10/29/us/midterms-elections-trump
 
