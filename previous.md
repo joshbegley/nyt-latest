@@ -1,3 +1,7 @@
+**2 Helicopters Collide Midair in Oregon, Killing All 3 Aboard**\
+`A student pilot and a flight instructor were killed, along with the person in the second helicopter, officials said. The cause has not been determined.`\
+https://www.nytimes.com/2026/10/30/us/helicopters-crash-oregon.html
+
 **An Arab Town in Israel Celebrates the Election but Wonders What Will Change**\
 `Gains for Arab-led parties have electrified Taibe, in central Israel, even as voters elsewhere in Israel say they have no place in any future government.`\
 https://www.nytimes.com/2026/10/30/world/middleeast/arab-voters-israel-election-taibe.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/10/29/us/voice-logan-airport-contest-boston-accent.
 **Court Rejects Erin Patterson’s Appeal in Mushroom Murders Case**\
 `Judges took away the possibility of parole for an Australian woman, Erin Patterson, and rejected a bid to overturn her conviction over deadly beef Wellington lunch.`\
 https://www.nytimes.com/2026/10/29/world/asia/mushroom-murder-case-sentencing-appeal-australia.html
-
-**What’s Going On in This Picture? | Nov. 2, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/10/29/learning/whats-going-on-in-this-picture-nov-2-2026.html
 
 **Elections Live Updates: Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\

@@ -1,3 +1,7 @@
+**2 Helicopters Collide Midair in Oregon, Killing All 3 Aboard**\
+`A student pilot and a flight instructor were killed, along with the person in the second helicopter, officials said. The cause has not been determined.`\
+https://www.nytimes.com/2026/10/30/us/helicopters-crash-oregon.html
+
 **An Arab Town in Israel Celebrates the Election but Wonders What Will Change**\
 `Gains for Arab-led parties have electrified Taibe, in central Israel, even as voters elsewhere in Israel say they have no place in any future government.`\
 https://www.nytimes.com/2026/10/30/world/middleeast/arab-voters-israel-election-taibe.html
