@@ -1,3 +1,51 @@
+**An Arab Town in Israel Celebrates the Election but Wonders What Will Change**\
+`Gains for Arab-led parties have electrified Taibe, in central Israel, even as voters elsewhere in Israel say they have no place in any future government.`\
+https://www.nytimes.com/2026/10/30/world/middleeast/arab-voters-israel-election-taibe.html
+
+**Quote of the Day: In France’s 2nd Most Populous City, Tensions, Rioting and Progress**\
+`Quotation of the Day for Friday, October 30, 2026.`\
+https://www.nytimes.com/2026/10/30/pageoneplus/quote-of-the-day-in-frances-2nd-most-populous-city-tensions-rioting-and-progress.html
+
+**How One Country Became the Unlikely Crossroads of the Global A.I. Boom**\
+`In Malaysia, U.S. and Chinese tech giants are pouring billions into vast data centers, straining local resources and testing the limits of Washington’s restrictions on advanced chips.`\
+https://www.nytimes.com/2026/10/30/business/malaysia-data-center-china.html
+
+**In China, the War on Mosquitoes Has Entered the A.I. Era**\
+`Using sensors developed for self-driving cars, a Chinese start-up claims it can track and destroy tiny flying targets while avoiding people, pets and reflective surfaces.`\
+https://www.nytimes.com/2026/10/30/business/mosquito-laser-ai.html
+
+**This Device Uses A.I. and Lasers to Kill Mosquitoes**\
+`A Chinese start-up has developed a device that uses artificial intelligence and lasers to kill mosquitoes. But there are safety concerns for people and other creatures nearby when the device is in action.`\
+https://www.nytimes.com/video/technology/100000011221955/ai-lasers-mosquitoes.html
+
+**‘I Miss Him So Much, but I’m Glad He’s With You’**\
+`At 20, I made a choice that shaped my baby’s entire life — and mine.`\
+https://www.nytimes.com/2026/10/30/style/modern-love-open-adoption-miss-him-but-glad-hes-with-you.html
+
+**She Gave Dates 30 Minutes. This One Clicked in the 27th.**\
+`Erin Lee Carr, the daughter of the former Times reporter David Carr, “can’t do small talk” — and didn’t on her first date with Michelle Bruton.`\
+https://www.nytimes.com/2026/10/30/style/erin-lee-carr-michelle-bruton-wedding.html
+
+**They Started Dating in High School and Never Stopped**\
+`When Hayden Field and Cody Clegg first met, they realized that they had a lot in common — including being born at the same Atlanta hospital one day apart.`\
+https://www.nytimes.com/2026/10/30/style/hayden-field-cody-clegg-wedding.html
+
+**A Call of the Wild, and to Each Other**\
+`Gus Sigel was enamored with Josie Arnold before they took off as seasonal wranglers and horse packers in Wyoming’s Teton Wilderness.`\
+https://www.nytimes.com/2026/10/30/style/josie-arnold-gus-sigel-wedding.html
+
+**Given a Future She Didn’t Expect**\
+`When a new drug was developed for Huntington’s disease, it helped Katie Moser feel optimistic — and marry Jaclyn Conklin.`\
+https://www.nytimes.com/2026/10/30/style/jaclyn-conklin-katie-moser-wedding.html
+
+**“Hacks” Star Mark Indelicato Marries David Watson in Los Angeles**\
+`On their first date, Mark Indelicato, who played Damien on “Hacks,” tapped into David Watson’s love of a project.`\
+https://www.nytimes.com/2026/10/30/style/david-watson-mark-indelicato-wedding.html
+
+**From the Front Page: Muhammad Ali Knocks Out George Foreman on Oct. 30, 1974**\
+`In the eighth round of the “Rumble in the Jungle” boxing match, Ali knocked out Foreman to regain the world heavyweight title. The event took place in Kinshasa, in what is now the Democratic Republic of Congo.`\
+https://www.nytimes.com/2026/10/30/learning/from-the-front-page-muhammad-ali-knocks-out-george-foreman-on-oct-30-1974.html
+
 **The Best Trick-or-Treating Happens in Apartment Buildings**\
 `We asked readers to share their Halloween tales of going door to door in New York City.`\
 https://www.nytimes.com/interactive/2026/10/29/realestate/halloween-trick-or-treat-new-york-memories.html
