@@ -1,3 +1,7 @@
+**Could Lil Baby Get More Vulnerable in His Rapping?**\
+`The Atlanta rapper Lil Baby discusses why he’s hesitant to be more vulnerable in his music.`\
+https://www.nytimes.com/video/podcasts/100000011238259/could-lil-baby-get-more-vulnerable-in-his-rapping.html
+
 **Curry Barker Narrates a Scene From ‘Obsession’**\
 `Barker, the film’s writer and director, explains how lingering shots heighten the tension and awkwardness in a party scene.`\
 https://www.nytimes.com/2026/10/30/movies/curry-barker-obsession-scene.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/style/melania-trump-halloween-coat-white-hous
 **The Result of Dissatisfaction Is Endless Political Deadlock**\
 `From France to Brazil, voters are railing against the status quo, even as the politics of disenchantment make lasting change nearly impossible.`\
 https://www.nytimes.com/2026/10/30/magazine/political-deadlock-france-brazil.html
-
-**Christa Pike Describes Pain and Isolation After Botched Execution**\
-`Convicted of a 1995 murder, Ms. Pike released her first statement since the failed attempt to execute her last month.`\
-https://www.nytimes.com/2026/10/30/us/christa-pike-botched-execution-statement.html
 
