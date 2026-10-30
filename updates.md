@@ -1,3 +1,11 @@
+**Carney Commits Canada to Becoming European Union’s First ‘Associate Member’**\
+`The move is part of the Canadian prime minister’s effort to reduce American influence over Canada and expand trade to other parts of the world.`\
+https://www.nytimes.com/2026/10/30/world/canada/carney-canada-european-union.html
+
+**House Democrats Criticize Justice Dept. Support of OpenAI in Copyright Suit**\
+`In a court filing, top Democrats on the Judiciary Committee indicated their support for publishers in a lawsuit led by The New York Times.`\
+https://www.nytimes.com/2026/10/30/technology/house-democrats-openai-copyright-lawsuit.html
+
 **Obamacare Dealt Yet Another Blow as Premiums Rise Again**\
 `Premiums will jump by 13 percent for next year, though much of the price increase will be offset by subsidies. But customers who earn over $64,000 will pay more, on top of this year’s huge increases.`\
 https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
