@@ -1,3 +1,11 @@
+**Carney Commits Canada to Becoming European Union’s First ‘Associate Member’**\
+`The move is part of the Canadian prime minister’s effort to reduce American influence over Canada and expand trade to other parts of the world.`\
+https://www.nytimes.com/2026/10/30/world/canada/carney-canada-european-union.html
+
+**House Democrats Criticize Justice Dept. Support of OpenAI in Copyright Suit**\
+`In a court filing, top Democrats on the Judiciary Committee indicated their support for publishers in a lawsuit led by The New York Times.`\
+https://www.nytimes.com/2026/10/30/technology/house-democrats-openai-copyright-lawsuit.html
+
 **Obamacare Dealt Yet Another Blow as Premiums Rise Again**\
 `Premiums will jump by 13 percent for next year, though much of the price increase will be offset by subsidies. But customers who earn over $64,000 will pay more, on top of this year’s huge increases.`\
 https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.
 **Binance Lost Over $6 Billion in Crypto Hack. Here’s What to Know.**\
 `Hackers made off with around $6 billion in digital currency in what could be the biggest crypto heist in history. Binance said it will cover the losses.`\
 https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-price-what.html
-
-**Trump Adds Midterm Rallies in Kansas and Iowa After Initially Canceling Events**\
-`The whiplash over the president’s schedule comes as polls show Republicans in danger of losing seats, including in areas President Trump won handily in 2024.`\
-https://www.nytimes.com/2026/10/30/us/elections/trump-iowa-kansas-rallies-midterms.html
-
-**Unions Sue Justice Department Over Attempt to Intervene in California’s Vote**\
-`The complaint was filed a day after the Trump administration issued a flurry of threats and subpoenas to local officials, claiming it was part of an effort to stop voting by undocumented immigrants.`\
-https://www.nytimes.com/2026/10/30/us/elections/california-unions-lawsuit-justice-department-election-immigrants.html
 

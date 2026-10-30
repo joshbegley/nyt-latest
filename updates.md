@@ -1,3 +1,7 @@
+**Obamacare Dealt Yet Another Blow as Premiums Rise Again**\
+`Premiums will jump by 13 percent for next year, though much of the price increase will be offset by subsidies. But customers who earn over $64,000 will pay more, on top of this year’s huge increases.`\
+https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
+
 **Lawsuit Accuses Education Dept. of Throttling Debt Cancellation Through PSLF Program**\
 `Public servants on the brink of student debt forgiveness are facing setbacks and extensive delays. The American Federation of Teachers sued to help them.`\
 https://www.nytimes.com/2026/10/30/business/pslf-education-department-lawsuit.html
