@@ -1,3 +1,7 @@
+**The Tech Tumult Rocks Wall Street**\
+`Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
+https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
+
 **‘The Headlines’ News Quiz: Oct. 30, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/10/30/podcasts/the-headlines/the-headlines-news-quiz-oct-30-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/us/politics/michigan-senate-democratic-presid
 **Beware of Election Night Mirages**\
 `Early race counts on election night can sometimes differ sharply from the final outcome. Christine Zhang, our election data reporter, explains the reasons behind red and blue “mirages.”`\
 https://www.nytimes.com/video/us/elections/100000011224072/beware-of-election-night-mirages.html
-
-**Dozens of Headless Skeletons Pose a Macabre Mystery**\
-`Mass graves found at a Stone Age farming settlement in Slovakia have researchers baffled about the details — including the location of the missing skulls.`\
-https://www.nytimes.com/2026/10/30/science/headless-skeletons-stone-age.html
 
