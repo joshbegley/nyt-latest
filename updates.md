@@ -1,3 +1,19 @@
+**Put a Flower on It**\
+`An accessory from the early aughts is having a new moment.`\
+https://www.nytimes.com/2026/10/30/style/the-fashions-fake-flower-accessory.html
+
+**Meta Settles Social Media Addiction Case, Avoiding Trial**\
+`The case, brought by an 18-year-old Mississippi woman and set for trial next week, was the fourth of nine bellwether personal injury lawsuits.`\
+https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit.html
+
+**Pope Leo Votes by Mail, From the Vatican, in Illinois Midterm Election**\
+`Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
+https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
+
+**As Picard, Patrick Stewart Had ‘Life-Changing’ Effects on Generations of Scientists**\
+`Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
+https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
+
 **Houston Grand Jury Indicts ICE Agent on Charges of Ramming Man in Chase**\
 `The agent is facing charges of aggravated assault with a deadly weapon, officials said Friday.`\
 https://www.nytimes.com/2026/10/30/us/houston-ice-agent-charged-ramming.html

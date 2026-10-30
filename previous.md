@@ -1,3 +1,19 @@
+**Put a Flower on It**\
+`An accessory from the early aughts is having a new moment.`\
+https://www.nytimes.com/2026/10/30/style/the-fashions-fake-flower-accessory.html
+
+**Meta Settles Social Media Addiction Case, Avoiding Trial**\
+`The case, brought by an 18-year-old Mississippi woman and set for trial next week, was the fourth of nine bellwether personal injury lawsuits.`\
+https://www.nytimes.com/2026/10/30/business/meta-settlement-child-addiction-suit.html
+
+**Pope Leo Votes by Mail, From the Vatican, in Illinois Midterm Election**\
+`Pope Leo may be the first pope to vote in a national election, Vatican experts said.`\
+https://www.nytimes.com/2026/10/30/us/elections/pope-leo-votes-mail-midterm.html
+
+**As Picard, Patrick Stewart Had ‘Life-Changing’ Effects on Generations of Scientists**\
+`Stewart’s iconic “Star Trek” character inspired astronomers and astronauts in countless ways: “You were the captain of my childhood,” one astrophysicist said.`\
+https://www.nytimes.com/2026/10/30/science/space/patrick-stewart-scientists-react.html
+
 **Houston Grand Jury Indicts ICE Agent on Charges of Ramming Man in Chase**\
 `The agent is facing charges of aggravated assault with a deadly weapon, officials said Friday.`\
 https://www.nytimes.com/2026/10/30/us/houston-ice-agent-charged-ramming.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswa
 **Here’s Where Rain Could Dampen Your Spirits This Halloween**\
 `Use our tool to see your trick-or-treat forecast.`\
 https://www.nytimes.com/2026/10/30/weather/halloween-rain-forecast.html
-
-**4 Ways to Feel More Hopeful**\
-`Start by picking up some trash and pruning your social media feeds.`\
-https://www.nytimes.com/2026/10/30/well/hope-hopeful-inspiration-caitlin-moran-book.html
-
-**Tech Stocks Tumble, but Broader Market Is Holding On**\
-`The S&P 500 is set for a small loss for the month, despite a deeper slide in some of the A.I. stocks that exert a heavy influence on the index.`\
-https://www.nytimes.com/2026/10/30/business/stock-market-october-ai.html
-
-**Another Toll of the Violent Unrest in France: The Political Center**\
-`Support for Édouard Philippe, the leading candidate from the centrist bloc, has eroded, while his far-right and far-left rivals benefit.`\
-https://www.nytimes.com/2026/10/30/world/europe/france-unrest-political-center.html
-
-**Wirecutter’s All-Time Favorite Slippers**\
-`How to get a pair that delivers lasting comfort.`\
-https://www.nytimes.com/2026/10/30/podcasts/wirecutters-all-time-favorite-slippers.html
 

@@ -1,3 +1,11 @@
+**Female Student Sues for Gender Discrimination After Losing Male Lead Role in Play**\
+`Texas officials feared the casting in “Little Shop of Horrors” violated a state law limiting diversity efforts. The student has sued for gender discrimination.`\
+https://www.nytimes.com/2026/10/30/theater/little-shop-of-horrors-texas-lawsuit-title-ix.html
+
+**Where to Eat, Sleep and Shop in Taipei, Taiwan**\
+`Plus, experts share the Taiwanese city’s best boutique hotels, tea shops and local mountain hikes.`\
+https://www.nytimes.com/2026/10/30/t-magazine/taipei-taiwan-hotel-night-market.html
+
 **Put a Flower on It**\
 `An accessory from the early aughts is having a new moment.`\
 https://www.nytimes.com/2026/10/30/style/the-fashions-fake-flower-accessory.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/live/2026/10/30/us/midterms-elections-trump
 **Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.**\
 `I experienced war’s subterranean future as drones dominate the skies. I didn’t like it.`\
 https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html
-
-**The Unforced Errors of Vivek Ramaswamy**\
-`Fact-checking a tumultuous campaign with the independent journalist who broke the story of a shocking ad.`\
-https://www.nytimes.com/2026/10/30/podcasts/the-unforced-errors-of-vivek-ramaswamy.html
-
-**Here’s Where Rain Could Dampen Your Spirits This Halloween**\
-`Use our tool to see your trick-or-treat forecast.`\
-https://www.nytimes.com/2026/10/30/weather/halloween-rain-forecast.html
 
