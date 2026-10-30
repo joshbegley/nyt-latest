@@ -1,3 +1,7 @@
+**Lawsuit Accuses Education Department of Throttling Student Debt Cancellation**\
+`Public servants on the brink of student debt forgiveness are facing setbacks and extensive delays. The American Federation of Teachers sued to help them.`\
+https://www.nytimes.com/2026/10/30/business/education-dept-is-accused-in-lawsuit-of-throttling-student-debt-cancellation.html
+
 **Marvin Shanken, Publisher of Wine Spectator and Cigar Aficionado, Has Died**\
 `He bought a struggling industry newsletter called Wine Spectator in 1979 and turned it into one of America’s leading tastemakers. He was 83.`\
 https://www.nytimes.com/2026/10/30/dining/drinks/marvin-shanken-wine-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/elections/california-unions-lawsuit-justic
 **Polymarket and Kalshi Face a Major Accuracy Test: The Midterms**\
 `Studies have shown that the betting sites can predict races correctly, but their ability to forecast U.S. midterm elections is an important proving ground.`\
 https://www.nytimes.com/2026/10/30/technology/polymarket-kalshi-midterm-elections.html
-
-**Democrats and Republicans Share Dueling Health Care Messages in Final Midterms Push**\
-`After concentrating on the high price of gas and groceries, Democrats are using health costs to make their case about an “affordability crisis.”`\
-https://www.nytimes.com/2026/10/30/us/politics/midterms-health-care-affordability-fraud.html
 
