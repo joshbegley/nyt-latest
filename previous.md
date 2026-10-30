@@ -1,3 +1,11 @@
+**The Story Behind Musk’s ‘Woke Mind Virus’ Theory**\
+`Elon Musk is obsessed with the “woke mind virus.” On “The Ezra Klein Show,” Quinn Slobodian, a co-author of “Muskism,” explains the roots of this meme and how it has influenced Musk’s politics.`\
+https://www.nytimes.com/video/opinion/100000011243962/the-story-behind-musks-woke-mind-virus-theory.html
+
+**Elon Musk’s $450 Million Political Gamble**\
+`Why did Musk donate about $450 million to the elections? On “The Ezra Klein Show,” a co-author of “Muskism,” Quinn Slobodian, argues that Musk is insulating himself by making his businesses too essential for any future administration, Democratic or Republican, to rein in.`\
+https://www.nytimes.com/video/opinion/100000011249608/elon-musks-450-million-political-gamble.html
+
 **Carney Commits Canada to Becoming European Union’s First ‘Associate Member’**\
 `The move is part of the Canadian prime minister’s effort to reduce American influence over Canada and expand trade to other parts of the world.`\
 https://www.nytimes.com/2026/10/30/world/canada/carney-canada-european-union.html
@@ -83,7 +91,7 @@ https://www.nytimes.com/video/us/politics/100000011248503/mary-peltola-denial-al
 https://www.nytimes.com/2026/10/30/style/patrick-stewart-bald-hereditary-alopecia.html
 
 **Binance Was Hacked. What Protections Exist for Crypto Customers?**\
-`After a $6.3 billion hack, the company said it was going to reimburse customers who have losses.`\
+`After a $6.3 billion hack, the company said it was going to reimburse customers who had losses.`\
 https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
 
 **Could Lil Baby Get More Vulnerable in His Rapping?**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/30/us/elections/senator-marshall-patient-lawsuit
 **Tell Us Your Twin Cities Secrets**\
 `Hidden gems? Stars in the making? A commute you actually enjoy? Our Twin Cities newsletter wants to hear from you.`\
 https://www.nytimes.com/2026/10/30/briefing/twin-cities-secrets.html
-
-**Patrick Stewart Was Regal, Stately and Quite Hilarious**\
-`The actor used his booming voice and Shakespearean pedigree in the service of absurd (and often lewd) comedy.`\
-https://www.nytimes.com/2026/10/30/arts/television/patrick-stewart-humor-comedy.html
-
-**Binance Lost Over $6 Billion in Crypto Hack. Here’s What to Know.**\
-`Hackers made off with around $6 billion in digital currency in what could be the biggest crypto heist in history. Binance said it will cover the losses.`\
-https://www.nytimes.com/2026/10/30/business/binance-hack-crypto-price-what.html
 
