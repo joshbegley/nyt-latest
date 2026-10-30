@@ -1,3 +1,7 @@
+**Democratic Candidate Mary Peltola Denies Involvement in Alaska Ballot Stacking**\
+`Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
+https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
+
 **What’s Keeping Us Up at Night (or Not) About the Polls**\
 `Answers to readers’ queries about the reasons a survey could misfire.`\
 https://www.nytimes.com/2026/10/30/upshot/times-siena-poll-midterms-questions.html

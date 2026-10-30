@@ -1,3 +1,7 @@
+**Democratic Candidate Mary Peltola Denies Involvement in Alaska Ballot Stacking**\
+`Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
+https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
+
 **The Tech Tumult Rocks Wall Street**\
 `Investors are growing nervous about the huge spending bills that tech giants are amassing to pay for their bets on artificial intelligence.`\
 https://www.nytimes.com/2026/10/30/business/dealbook/tech-tumult-ai-wall-street.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/movies/who-killed-alex-odeh-review.html
 **How Michigan’s Midterm Senate Race Could Influence the 2028 Democratic Presidential Primary**\
 `The fate of Dr. Abdul El-Sayed, the progressive candidate in the race, will serve as a litmus test for the left’s potency heading into the next presidential contest.`\
 https://www.nytimes.com/2026/10/30/us/politics/michigan-senate-democratic-presidential-primary.html
-
-**Beware of Election Night Mirages**\
-`Early race counts on election night can sometimes differ sharply from the final outcome. Christine Zhang, our election data reporter, explains the reasons behind red and blue “mirages.”`\
-https://www.nytimes.com/video/us/elections/100000011224072/beware-of-election-night-mirages.html
 

@@ -1,3 +1,7 @@
+**Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland**\
+`Andrew Mountbatten-Windsor spent time with Jeffrey Epstein, the convicted sex offender, and his associate Ghislaine Maxwell, at Balmoral, the royal family’s Scottish retreat.`\
+https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html
+
 **Democratic Candidate Mary Peltola Denies Involvement in Alaska Ballot Stacking**\
 `Peltola told supporters on Thursday that she “knew nothing" about decoy Senate candidates recruited to run.`\
 https://www.nytimes.com/2026/10/30/us/elections/peltola-alaska-senate-election-sullivan-ballot-stacking.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/30/t-magazine/war-contemporary-art.html
 **Who Killed Alex Odeh?’ Asks Good Questions About a Terrible Death**\
 `The film by Jason Osder and William Lafi Youmans examines the 1985 pipe-bombing of a Palestinian activist in California, tracing the case to suspects in Israel.`\
 https://www.nytimes.com/2026/10/30/movies/who-killed-alex-odeh-review.html
-
-**How Michigan’s Midterm Senate Race Could Influence the 2028 Democratic Presidential Primary**\
-`The fate of Dr. Abdul El-Sayed, the progressive candidate in the race, will serve as a litmus test for the left’s potency heading into the next presidential contest.`\
-https://www.nytimes.com/2026/10/30/us/politics/michigan-senate-democratic-presidential-primary.html
 
