@@ -1,3 +1,7 @@
+**We’re About to Find Out If We’re in an A.I. Bubble**\
+`Erin Griffith joins us to unpack Anthropic’s S-1 filing, which offers the clearest view yet into the business side of the A.I. boom and sets up what could be the largest I.P.O. in history, and then Mike Isaac and Jasmine Sun break down the rest of the week’s tech news.`\
+https://www.nytimes.com/video/podcasts/100000011247824/were-about-to-find-out-if-were-in-an-ai-bubble.html
+
 **Protesters Call on Israel’s Opposition to Partner With Arab Parties**\
 `As Arab voter turnout hit a record high in Israel’s election, protesters urged Gadi Eisenkot, a leader of the opposition bloc, to include Arab-led parties in a coalition to govern.`\
 https://www.nytimes.com/video/world/middleeast/100000011248317/israel-election-protest-arab-parties.html

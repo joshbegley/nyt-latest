@@ -1,3 +1,11 @@
+**What’s Driving Elon Musk?**\
+`What does the world’s richest man believe in?`\
+https://www.nytimes.com/video/opinion/100000011243958/whats-driving-elon-musk.html
+
+**Tax the Rich? Easier Said Than Done.**\
+`Forget California’s billionaire wealth tax. The economist Natasha Sarin believes there are better ways to make billionaires pay up.`\
+https://www.nytimes.com/video/opinion/100000011237986/tax-the-rich-easier-said-than-done.html
+
 **We’re About to Find Out If We’re in an A.I. Bubble**\
 `Erin Griffith joins us to unpack Anthropic’s S-1 filing, which offers the clearest view yet into the business side of the A.I. boom and sets up what could be the largest I.P.O. in history, and then Mike Isaac and Jasmine Sun break down the rest of the week’s tech news.`\
 https://www.nytimes.com/video/podcasts/100000011247824/were-about-to-find-out-if-were-in-an-ai-bubble.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/10/29/us/politics/trump-alina-habba-mildon-deal.htm
 **A 360° Tour of Trump’s D.C. Makeover**\
 `This panorama of Washington shows the president’s growing imprint on the city.`\
 https://www.nytimes.com/interactive/2026/10/29/us/trump-renovation-projects-washington-east-wing.html
-
-**Trump Attacks Black and Jewish Supporters of El-Sayed as ‘Crazy’**\
-`The president’s attack line follows a similarly divisive campaign strategy from 2024, when Mr. Trump sought to drive a wedge between Jewish and Arab voters.`\
-https://www.nytimes.com/2026/10/29/us/elections/trump-jewish-arab-el-sayed-supporters.html
-
-**Patrick Stewart Brought Elegance To ‘Star Trek’ as Jean-Luc Picard**\
-`Led by the Shakespearean veteran in his role as Jean-Luc Picard, “Star Trek: The Next Generation” gracefully went where the franchise had never gone before.`\
-https://www.nytimes.com/2026/10/29/arts/television/patrick-stewart-captain-picard-star-trek-the-next-generation.html
 
 **Trump Cancels Rallies in Kansas and Iowa**\
 `The president had been campaigning almost daily for weeks in red states, where polls show tight races.`\
