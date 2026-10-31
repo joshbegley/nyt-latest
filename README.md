@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
 `Gerrymandering, Gilded Age-style.`\
 https://www.nytimes.com/2026/10/31/opinion/gerrymandering-colonization-gilded-age.html
 
-**Democrats Are the Populist Party Now**\
+**Republicans Tried to Turn the Cheesecake Factory Against Democrats. It Flopped.**\
 `It’s become screamingly obvious who represents billionaires and unchecked plutocratic power.`\
 https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html
 
@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html
 `With the midterms just days away, Times Opinion writers are taking stock of key races and the themes emerging from them. The columnist Jamelle Bouie sees a “politics of morality” taking shape in the messaging of popular Democratic candidates, like Jon Ossoff and James Talarico. He’s hopeful that it signals a larger shift away from the grievance-filled politics of Donald Trump.`\
 https://www.nytimes.com/video/opinion/100000011242382/in-the-midterms-morality-is-on-the-ballot.html
 
-**What We’re Watching For on Election Night**\
+**Brace Yourself for an ‘Unusual Election’**\
 `Democratic sweep or not, politics are about to change.`\
 https://www.nytimes.com/2026/10/31/opinion/midterms-races-democrats-election.html
 
