@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
 `Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
 https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
 
-**Why Play With Political Maps When You Can Do This Instead?**\
+**Why Manipulate the Lines When You Can Just Move People Around?**\
 `Gerrymandering, Gilded Age-style.`\
 https://www.nytimes.com/2026/10/31/opinion/gerrymandering-colonization-gilded-age.html
 
@@ -86,7 +86,7 @@ https://www.nytimes.com/video/opinion/100000011242382/in-the-midterms-morality-i
 `Democratic sweep or not, politics are about to change.`\
 https://www.nytimes.com/2026/10/31/opinion/midterms-races-democrats-election.html
 
-**What My Father Taught Me About Horror**\
+**You Should Go to the Basement. Just Don’t Go Alone.**\
 `Horror isn’t just scary — it can draw people together, especially when they’ve struggled to connect.`\
 https://www.nytimes.com/2026/10/31/opinion/horror-family-father.html
 
