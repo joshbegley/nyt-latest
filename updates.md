@@ -1,3 +1,7 @@
+**Shooting at Spirit Halloween in California Leaves at Least One Dead**\
+`The police are searching for a person who shot seven people, killing a 31-year-old pregnant woman, on the eve of Halloween. Families were in the store shopping for last minute costumes.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
 **El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
 `Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival, leaving uncertainty about their scheduled joint event on Sunday.`\
 https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
