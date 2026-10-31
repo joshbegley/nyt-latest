@@ -1,3 +1,7 @@
+**These Runners Got Faster at the N.Y.C. Marathon. The Data Says You Can Too.**\
+`Repeat runners improve their times on average. Here’s how some did it.`\
+https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
+
 **Republicans Tried to Turn the Cheesecake Factory Against Democrats. It Flopped.**\
 `It’s become screamingly obvious who represents billionaires and unchecked plutocratic power.`\
 https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html

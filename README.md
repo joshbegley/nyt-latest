@@ -1,3 +1,15 @@
+**Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
+`President Trump will appear on Sunday in Kansas, which has recently become a crucial Senate battleground.`\
+https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
+
+**Live Updates: Thousands Expected at Another Round of Protests in France**\
+`With Halloween falling on Saturday, demonstrators might turn out in masks and costumes. The authorities again prepared a vast security response.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
+**The New Hot Job in Law Doesn’t Require a J.D.**\
+`Big law firms, legal tech vendors, and in-house legal departments at companies like Microsoft and Nvidia are all hiring legal engineers, a new position for lawyers with A.I. skills.`\
+https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
+
 **Could These Democrats Destroy MAHA?**\
 `Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
 https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
@@ -89,10 +101,6 @@ https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
 **Corrections: Oct. 31, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
-
-**Plan for More Protests, This Time on Halloween, Causes Jitters in France**\
-`Thousands, potentially in masks and costumes, are expected on the streets on Saturday, prompting the authorities to prepare another vast security response.`\
-https://www.nytimes.com/2026/10/31/world/europe/france-student-protests-halloween.html
 
 **Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
 `Prime Minister Benjamin Netanyahu is jockeying to stay in power, and President Trump is in a tough midterm fight, yet Iran’s leaders do not expect a major shift in Israeli or U.S. policy.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/business/100000011219428/what-does-running-the-nyc
 **Book Review: ‘Our Cut of Salt,’ by Deena Helm**\
 `In “Our Cut of Salt,” a young woman’s return to her ancestral home uncovers chilling secrets.`\
 https://www.nytimes.com/2026/10/31/books/review/deena-helm-our-cut-of-salt.html
-
-**For a Stronger Core, You Only Need 10 Minutes**\
-`Strengthening your midsection doesn’t have to take long, but it can have serious benefits.`\
-https://www.nytimes.com/2026/10/31/well/move/strong-core-workout.html
-
-**Busy Philipps Might Be Listening to Your Outdoor Convo**\
-`The “Cupertino” star enjoys walks with a bit of eavesdropping on passers-by: “I love those snippets of conversation. You hear some really great ones.”`\
-https://www.nytimes.com/2026/10/31/arts/television/busy-philipps-cupertino.html
 
