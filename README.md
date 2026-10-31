@@ -1,3 +1,35 @@
+**Could These Democrats Destroy MAHA?**\
+`Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
+https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
+
+**Why Play With Political Maps When You Can Do This Instead?**\
+`Gerrymandering, Gilded Age-style.`\
+https://www.nytimes.com/2026/10/31/opinion/gerrymandering-colonization-gilded-age.html
+
+**Democrats Are the Populist Party Now**\
+`It’s become screamingly obvious who represents billionaires and unchecked plutocratic power.`\
+https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html
+
+**In the Midterms, Morality Is on the Ballot**\
+`With the midterms just days away, Times Opinion writers are taking stock of key races and the themes emerging from them. The columnist Jamelle Bouie sees a “politics of morality” taking shape in the messaging of popular Democratic candidates, like Jon Ossoff and James Talarico. He’s hopeful that it signals a larger shift away from the grievance-filled politics of Donald Trump.`\
+https://www.nytimes.com/video/opinion/100000011242382/in-the-midterms-morality-is-on-the-ballot.html
+
+**What We’re Watching For on Election Night**\
+`Democratic sweep or not, politics are about to change.`\
+https://www.nytimes.com/2026/10/31/opinion/midterms-races-democrats-election.html
+
+**What My Father Taught Me About Horror**\
+`Horror isn’t just scary — it can draw people together, especially when they’ve struggled to connect.`\
+https://www.nytimes.com/2026/10/31/opinion/horror-family-father.html
+
+**The Democratic Party’s Masculinity Crisis**\
+`The Democrats have been searching for a way to counteract the toxic masculinity of the right.`\
+https://www.nytimes.com/2026/10/31/opinion/democrats-republicans-toxic-masculinity.html
+
+**Jeffrey Eugenides: My First Day Seems So Much Older Than Me**\
+`One news report that morning conveyed an eternal truth: Commuters will be delayed.`\
+https://www.nytimes.com/2026/10/31/opinion/jeffrey-eugenides-nyt-175.html
+
 **What We’re Watching For on Election Night**\
 `Democratic sweep or not, politics are about to change.`\
 https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-election-night.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/10/31/well/move/strong-core-workout.html
 **Busy Philipps Might Be Listening to Your Outdoor Convo**\
 `The “Cupertino” star enjoys walks with a bit of eavesdropping on passers-by: “I love those snippets of conversation. You hear some really great ones.”`\
 https://www.nytimes.com/2026/10/31/arts/television/busy-philipps-cupertino.html
-
-**Cannibalism Novels With a Feminist Twist**\
-`Cannibalism has become an increasingly popular trope in contemporary fiction, with female authors leading the charge. Our reporter Alexandra Alter dives into why female authors are drawn to the taboo topic as an expression of female rage.`\
-https://www.nytimes.com/video/books/100000011196780/cannibalism-novels-with-a-feminist-twist.html
-
-**How Disabled Children Were Caught Up in Trump’s Homeless Crackdown**\
-`In its push to clear out people who live on the street and are mentally ill, the Trump administration is targeting legal protections that cover a much bigger population.`\
-https://www.nytimes.com/2026/10/31/us/trump-homeless-crackdown-disabled-children.html
-
-**In San Francisco’s A.I. Boom, a First Date Has Become an Interview**\
-`When there is A.I. to build, who has time for romance? Techies are going out less and expecting more on each date — including a family health history.`\
-https://www.nytimes.com/2026/10/31/technology/san-francisco-ai-boom-dating.html
-
-**Hiring Etsy Witches to Conjure Up Good Wedding Weather**\
-`Sometimes these “spells” work, sometimes they don’t. But that hasn’t stopped couples from trying to ward off rain.`\
-https://www.nytimes.com/2026/10/31/style/etsy-witches-weather-spells-wedding.html
-
-**Voters Usually Ignore Corruption as an Issue. It Now Has Their Attention.**\
-`Voters have shrugged off accusations of corruption for years, believing all politicians are corrupt, but thanks to President Trump’s unpopularity and growing wealth, the issue is breaking through.`\
-https://www.nytimes.com/2026/10/31/us/politics/corruption-midterms.html
-
-**How Trump Is Dismantling America’s Scientific Research Machine**\
-`The system that has driven life-altering discoveries and helped make the United States a superpower is now under intense strain.`\
-https://www.nytimes.com/2026/10/31/climate/how-trump-is-dismantling-americas-scientific-research-machine.html
-
-**Why Does Culture Feel So Samey? A Walking Tour Reveals the Math.**\
-`The data scientist Lauren Leek says predictive algorithms are flattening the everyday world, from pub menus to pop lyrics.`\
-https://www.nytimes.com/2026/10/31/arts/lauren-leek-algorithms-culture.html
-
-**Book Review: ‘Shelter Is Necessary for Existence,’ by Brenda Iijima**\
-`A strange, thrilling novel combines a classic ghost story with a blistering satire of the modern landowning class.`\
-https://www.nytimes.com/2026/10/31/books/review/shelter-is-necessary-for-existence-brenda-iijima.html
 
