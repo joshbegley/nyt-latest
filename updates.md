@@ -1,3 +1,11 @@
+**One Dead in Halloween Store Shooting in California**\
+`The police are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
+**It’s the Great (Roasted) Pumpkin (Seeds)**\
+`Here’s how to turn the seeds from your pumpkin or other hard-skinned squashes into a salty, crunchy snack.`\
+https://www.nytimes.com/2026/10/31/dining/its-the-great-roasted-pumpkin-seeds.html
+
 **How Binance’s $6.3 Billion Hack Went Down**\
 `A war room. A global conference call. A founder who live-posted about the largest crypto heist in history. Inside a frantic 24 hours at the world’s biggest crypto exchange.`\
 https://www.nytimes.com/2026/10/31/technology/binance-hack-crypto-north-korea.html
