@@ -1,3 +1,7 @@
+**Liu Yandong, Rare Woman Among China’s Political Elite, Dies at 80**\
+`The former vice premier was one of just six women to have served on the Chinese Communist Party’s elite Politburo, though she was excluded from the top ranks of power.`\
+https://www.nytimes.com/2026/10/31/world/asia/liu-yandong-dead.html
+
 **Will Digging Up Vietnam’s War Dead Heal Old Wounds or Reopen Them?**\
 `A 500-day campaign to find and identify fallen soldiers has unearthed hundreds of bodies, but not everyone gets a chance at closure.`\
 https://www.nytimes.com/2026/10/31/world/asia/vietnam-missing-war-dead.html
