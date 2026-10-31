@@ -1,3 +1,7 @@
+**Centuries After Their Slaughter, Missionaries Move Toward Sainthood**\
+`The beatification of five Franciscan friars was cause for jubilation in South Georgia, where Christianity has flourished but Catholics are few and far between.`\
+https://www.nytimes.com/2026/10/31/us/south-saints-georgia-martyrs-beatification.html
+
 **Shooting at Spirit Halloween in California Kills Pregnant Mother of 4**\
 `The police are searching for a person who shot 7 people, killing a 31-year-old pregnant mother of 4, on the night before Halloween. Families were in the store shopping for last-minute costumes.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html

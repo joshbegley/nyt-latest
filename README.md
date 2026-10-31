@@ -1,3 +1,7 @@
+**When to Expect Midterm Results in Each State on Election Night**\
+`The time it takes to project winners will depend on two factors: how fast the states count their votes, and how close the races are.`\
+https://www.nytimes.com/interactive/2026/10/31/us/elections/midterm-vote-count-expectations.html
+
 **Centuries After Their Slaughter, Missionaries Move Toward Sainthood**\
 `The beatification of five Franciscan friars was cause for jubilation in South Georgia, where Christianity has flourished but Catholics are few and far between.`\
 https://www.nytimes.com/2026/10/31/us/south-saints-georgia-martyrs-beatification.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/crosswords/strands-sidekick-973.html
 **NYT Connections Answers for November 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1, 2026.`\
 https://www.nytimes.com/2026/10/31/crosswords/connections-companion-1239.html
-
-**Stage Fright**\
-`Halloween presents an endless parade of ghouls and goblins. Most aren’t actually scary, but can illuminate some things about the nature of fear.`\
-https://www.nytimes.com/2026/10/31/briefing/stage-fright.html
 
