@@ -1,3 +1,7 @@
+**Trump’s Arch Faces New Legal Challenge From Virginia and D.C.**\
+`The two jurisdictions contend that President Trump’s proposed 250-foot arch is “flagrantly unlawful,” citing concerns over traffic, the environment and historic preservation.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-arch-virginia-dc.html
+
 **F.D.A. Warns of Tractor Wheels Snack Bar Linked to Choking Hazard**\
 `Once Upon a Farm has recalled its Tractor Wheels soft-baked bars after reports that toddlers could not breathe while eating them.`\
 https://www.nytimes.com/2026/10/31/well/family/fda-tractor-wheels-choking-hazard.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/style/ulta-black-hair-salons.html
 **Fans Can’t Get Enough of ‘A Court of Thrones and Roses’ (Or Its Merch)**\
 `The sixth book in Sarah J. Maas’s blockbuster A Court of Thorn and Roses series drew costumed fans across the country out to celebrate — and to open their wallets.`\
 https://www.nytimes.com/2026/10/31/books/they-cant-get-enough-of-the-queen-of-fairy-smut-or-her-merch.html
-
-**As Midterms Near, Top Law Firms That Capitulated to Trump Are on the Sidelines**\
-`None of the firms that struck deals to avoid crippling executive orders are publicly involved in the major legal efforts to check the Trump administration’s attempts to meddle in the midterm elections, a review by The New York Times shows.`\
-https://www.nytimes.com/2026/10/31/us/politics/law-firms-trump-voting.html
 

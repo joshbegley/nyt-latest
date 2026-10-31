@@ -1,3 +1,7 @@
+**Trump’s Arch Faces New Legal Challenge From Virginia and D.C.**\
+`The two jurisdictions contend that President Trump’s proposed 250-foot arch is “flagrantly unlawful,” citing concerns over traffic, the environment and historic preservation.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-arch-virginia-dc.html
+
 **Live Updates: Thousands Join Another Round of Protests in France**\
 `Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response. Demonstrators and the police clashed in a few cities.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
