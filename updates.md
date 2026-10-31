@@ -1,3 +1,15 @@
+**Abdul El-Sayed Does Not Want to Talk About Haley Stevens. Everyone Else Does.**\
+`“We had a primary, right?” Dr. El-Sayed, the Democratic Senate candidate in Michigan, told reporters. “I understand that some folks are upset about that. I get it. But I’m here trying to beat Mike Rogers.”`\
+https://www.nytimes.com/2026/10/31/us/elections/michigan-senate-abdul-el-sayed.html
+
+**Be Amazed**\
+`Kevin Curry and Zhou Zhang’s Sunday collaboration takes us on a great trip around the blocks.`\
+https://www.nytimes.com/2026/10/31/crosswords/daily-puzzle-2026-11-01.html
+
+**North Korean Hackers Stole Billions, the F.B.I. Says. It’s Not Their First Heist.**\
+`This week’s $6.3 billion hack of Binance is the largest to hit crypto, and would be the most that North Koreans have stolen in years of brazen cybercrime.`\
+https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
+
 **Clashes Erupt Again in France, After Festive Start to Day of Protest**\
 `More than 300,000 people took to the streets, some wearing Halloween costumes, before the demonstrations ended in violence.`\
 https://www.nytimes.com/2026/10/31/world/europe/france-protests-clashes.html
