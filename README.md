@@ -1,3 +1,7 @@
+**Three Midterm Races I am Watching Closely**\
+`The future of American politics runs through the South.`\
+https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html
+
 **One Dead in Halloween Store Shooting in California**\
 `The police are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011237891/martin-mcdonagh-on-critic
 **Martin McDonagh Didn’t Want to Be Another ‘Dull’ Playwright**\
 `On “The Interview,” the writer-director Martin McDonagh talked about his early career and his anti-establishment approach to the theater.`\
 https://www.nytimes.com/video/podcasts/100000011237887/martin-mcdonagh-didnt-want-to-be-another-dull-playwright.html
-
-**Martin McDonagh on How Punk Rock Changed His Life**\
-`On “The Interview,” the writer-director Martin McDonagh talked about how bands like the Clash helped him question authority as he was growing up.`\
-https://www.nytimes.com/video/podcasts/100000011237884/martin-mcdonagh-on-how-punk-rock-changed-his-life.html
 
