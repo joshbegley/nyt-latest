@@ -1,3 +1,7 @@
+**Justice Dept. Confirms Alaska Inquiry Even as Its Focus Remains Unclear**\
+`Democrats and former officials have accused the department of pursuing a political goal in the guise of a legal one: to publicize a scheme, sordid but not illegal under state law, damaging to Democrats.`\
+https://www.nytimes.com/2026/10/30/us/politics/justice-dept-alaska-senate-inquiry.html
+
 **Photo Quiz: Guess the Year**\
 `We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
 https://www.nytimes.com/interactive/2026/10/30/arts/photo-quiz-game-175.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
 **Democrats, Hopeful All Over the Senate Map, Remain Jittery About Iowa**\
 `In the final days of the race, Josh Turek, the Democratic Senate nominee, appears to be in a dead heat against his Republican rival, Representative Ashley Hinson.`\
 https://www.nytimes.com/2026/10/30/us/politics/iowa-senate-race-josh-turek.html
-
-**You Can See Everything That Billy Evans Watched on 2x Speed**\
-`What was Elizabeth Holmes’s partner watching in the new Nathan Fielder documentary? We found the videos (and the scientists in them).`\
-https://www.nytimes.com/2026/10/30/upshot/billy-evans-you-can-see-everything.html
 
