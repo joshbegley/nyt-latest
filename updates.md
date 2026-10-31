@@ -1,3 +1,7 @@
+**Live Updates: Hundreds of Thousands Join Another Round of Protests in France**\
+`The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
 **Trump’s Arch Faces New Legal Challenge From Virginia and D.C.**\
 `The two jurisdictions contend that President Trump’s proposed 250-foot arch is “flagrantly unlawful,” citing concerns over traffic, the environment and historic preservation.`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-arch-virginia-dc.html
