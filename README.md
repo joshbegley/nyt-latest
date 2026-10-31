@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 
 **Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
-`President Trump will appear on Sunday in Kansas, which has recently become a crucial Senate battleground.`\
+`President Trump will appear on Sunday in Iowa and Kansas, which have become crucial Senate battlegrounds.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 
 **Live Updates: Thousands Expected at Another Round of Protests in France**\
