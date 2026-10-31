@@ -1,3 +1,7 @@
+**F.D.A. Warns of Tractor Wheels Snack Bar Linked to Choking Hazard**\
+`Once Upon a Farm has recalled its Tractor Wheels soft-baked bars after reports that toddlers could not breathe while eating them.`\
+https://www.nytimes.com/2026/10/31/well/family/fda-tractor-wheels-choking-hazard.html
+
 **Inside the Times’s Decisions on the Alaska Senate Race Story**\
 `Our investigation found that Democratic operatives were behind a plan to bring a potential spoiler into the Senate race.`\
 https://www.nytimes.com/2026/10/31/insider/the-times-decisions-alaska-senate-race-story.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/books/they-cant-get-enough-of-the-queen-of-fa
 **As Midterms Near, Top Law Firms That Capitulated to Trump Are on the Sidelines**\
 `None of the firms that struck deals to avoid crippling executive orders are publicly involved in the major legal efforts to check the Trump administration’s attempts to meddle in the midterm elections, a review by The New York Times shows.`\
 https://www.nytimes.com/2026/10/31/us/politics/law-firms-trump-voting.html
-
-**Martin McDonagh: ‘My Male Friendships Are Quite Deep and Sad and Open’**\
-`On “The Interview,” the writer-director Martin McDonagh talked about how he portrays the relationship between the characters played by Sam Rockwell and John Malkovich in his new movie, “Wild Horse Nine.”`\
-https://www.nytimes.com/video/podcasts/100000011237896/martin-mcdonagh-my-male-friendships-are-quite-deep-and-sad-and-open.html
 

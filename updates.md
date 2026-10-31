@@ -1,3 +1,11 @@
+**Inside the Times’s Decisions on the Alaska Senate Race Story**\
+`Our investigation found that Democratic operatives were behind a plan to bring a potential spoiler into the Senate race.`\
+https://www.nytimes.com/2026/10/31/insider/the-times-decisions-alaska-senate-race-story.html
+
+**The Designers Making Frightening, Halloween-Ready Floral Arrangements**\
+`For some designers, dark and ominous trumps pretty pastels.`\
+https://www.nytimes.com/2026/10/31/t-magazine/scary-floral-arrangements.html
+
 **Three Midterm Races I am Watching Closely**\
 `The future of American politics runs through the South.`\
 https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html

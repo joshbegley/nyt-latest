@@ -1,3 +1,11 @@
+**Inside the Times’s Decisions on the Alaska Senate Race Story**\
+`Our investigation found that Democratic operatives were behind a plan to bring a potential spoiler into the Senate race.`\
+https://www.nytimes.com/2026/10/31/insider/the-times-decisions-alaska-senate-race-story.html
+
+**The Designers Making Frightening, Halloween-Ready Floral Arrangements**\
+`For some designers, dark and ominous trumps pretty pastels.`\
+https://www.nytimes.com/2026/10/31/t-magazine/scary-floral-arrangements.html
+
 **Three Midterm Races I am Watching Closely**\
 `The future of American politics runs through the South.`\
 https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/31/us/politics/law-firms-trump-voting.html
 **Martin McDonagh: ‘My Male Friendships Are Quite Deep and Sad and Open’**\
 `On “The Interview,” the writer-director Martin McDonagh talked about how he portrays the relationship between the characters played by Sam Rockwell and John Malkovich in his new movie, “Wild Horse Nine.”`\
 https://www.nytimes.com/video/podcasts/100000011237896/martin-mcdonagh-my-male-friendships-are-quite-deep-and-sad-and-open.html
-
-**Martin McDonagh on Critics Who Find His Work Offensive**\
-`On “The Interview,” the writer-director Martin McDonagh discussed criticism of his work and how it affects him.`\
-https://www.nytimes.com/video/podcasts/100000011237891/martin-mcdonagh-on-critics-who-find-his-work-offensive.html
-
-**Martin McDonagh Didn’t Want to Be Another ‘Dull’ Playwright**\
-`On “The Interview,” the writer-director Martin McDonagh talked about his early career and his anti-establishment approach to the theater.`\
-https://www.nytimes.com/video/podcasts/100000011237887/martin-mcdonagh-didnt-want-to-be-another-dull-playwright.html
 
