@@ -1,3 +1,7 @@
+**Shooting at Spirit Halloween in California Leaves at Least One Dead**\
+`The police are searching for a person who shot seven people on the eve of Halloween, as families were shopping for last minute costumes.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
 **‘Poop Water’ Churns a Local Election in Parched Arizona**\
 `City Council candidates in ritzy Scottsdale disagree on whether recycling wastewater into drinking water is smart policy or a dangerous remedy.`\
 https://www.nytimes.com/2026/10/31/us/poop-water-scottsdale-arizona.html

@@ -38,8 +38,8 @@ https://www.nytimes.com/2026/10/31/t-magazine/scary-floral-arrangements.html
 `The future of American politics runs through the South.`\
 https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html
 
-**One Dead in Halloween Store Shooting in California**\
-`The police, who called the shooting “targeted,” are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
+**Shooting at Spirit Halloween in California Leaves at Least One Dead**\
+`The police are searching for a person who shot seven people on the eve of Halloween, as families were shopping for last minute costumes.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
 
 **It’s the Great (Roasted) Pumpkin (Seeds)**\
