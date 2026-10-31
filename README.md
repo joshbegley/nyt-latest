@@ -1,3 +1,7 @@
+**Britain’s Prime Minister Says He’s Open to a Formal Apology for Slavery**\
+`The premier’s comments represent a major change in British policy, but they are unlikely to satisfy those who hoped that reparations would follow.`\
+https://www.nytimes.com/2026/10/30/world/europe/britain-burnham-charles-apology-slavery.html
+
 **Count on One’s Fingers?**\
 `Erik Agard and Brendan Emmett Quigley bring us a horrifyingly good Halloween puzzle.`\
 https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/movies/100000011226252/curry-barker-obsession-clip
 **New Jersey Governor Mikie Sherrill Lists Home for $3.5 Million**\
 `Before it was the New Jersey governor’s house, the Victorian was a fixture of the society pages.`\
 https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montclair.html
-
-**Steve Hilton Tries Anything as a G.O.P. Long Shot in California**\
-`Steve Hilton is attempting to become governor in a state that hasn’t elected a Republican to the top job in 20 years.`\
-https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
 
