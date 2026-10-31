@@ -1,3 +1,7 @@
+**Three Midterm Races I am Watching Closely**\
+`The future of American politics runs through the South.`\
+https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html
+
 **One Dead in Halloween Store Shooting in California**\
 `The police are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
