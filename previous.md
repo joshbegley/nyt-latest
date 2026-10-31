@@ -1,3 +1,7 @@
+**Judge Tosses Trump’s $10 Billion Suit Against The Wall Street Journal**\
+`The defamation suit focused on an article about a birthday note to Jeffrey Epstein. It was the president’s second attempt to claim the publication had acted with actual malice.`\
+https://www.nytimes.com/2026/10/31/business/media/trump-wsj-defamation-suit-10-billion.html
+
 **France Protests Hit Third Weekend**\
 `Protesters gathered across France on Saturday for the third consecutive weekend of unrest over living costs and education. The rallies, which coincided with Halloween, were largely peaceful but descended into clashes in some areas.`\
 https://www.nytimes.com/video/world/europe/100000011251779/france-student-protests-halloween.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
 **Corrections: Oct. 31, 2026**\
 `Corrections that appeared in print on Saturday, Oct. 31, 2026.`\
 https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
-
-**Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
-`With Prime Minister Benjamin Netanyahu fighting to stay in power and President Trump facing a tough midterm, Iran’s leaders expect no major shift in policy.`\
-https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
 
