@@ -1,3 +1,11 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
+`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
+`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-toplines.html
+
 **Trump Complains About Campaign Schedule as Midterms Near**\
 `President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
 https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/30/us/politics/special-master-reyes-trump-golf.h
 **Distaste for Lavrov Forces U.S. to Cancel G20 Photo Session in Atlanta**\
 `Some European foreign ministers had refused to pose alongside Russia’s top diplomat, Sergey Lavrov, at a Group of 20 gathering hosted by the United States.`\
 https://www.nytimes.com/2026/10/30/us/politics/lavrov-russia-photo-rubio.html
-
-**Oleshky Evacuations Start After Melania Trump Announces Deal**\
-`Residents of Oleshky, a southern Ukrainian city that has been under Russian occupation since 2022, were evacuated on Friday during a rare localized cease-fire deal announced by the U.S. First Lady Melania Trump.`\
-https://www.nytimes.com/video/world/europe/100000011248961/ukraine-oleshky-ceasefire-russia-war.html
-
-**Going to the NYC Marathon? Here are the Best Places to Cheer.**\
-`Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
-https://www.nytimes.com/2026/10/30/nyregion/new-york-city-marathon-where-to-cheer-route.html
 
