@@ -1,3 +1,11 @@
+**How Binance’s $6.3 Billion Hack Went Down**\
+`A war room. A global conference call. A founder who live-posted about the largest crypto heist in history. Inside a frantic 24 hours at the world’s biggest crypto exchange.`\
+https://www.nytimes.com/2026/10/31/technology/binance-hack-crypto-north-korea.html
+
+**Susan Collins Is Always Keeping Score**\
+`The long-serving senator has delivered millions of dollars to every corner of her state. But in Maine, people say, it’s best to avoid getting on her bad side.`\
+https://www.nytimes.com/2026/10/31/us/politics/susan-collins-maine-senate-election.html
+
 **In Australia, Halloween Means Spring, Sunshine and Skepticism**\
 `The holiday, which is increasingly popular in the country, can look different from its American counterpart — and has sparked discussions about cultural encroachment.`\
 https://www.nytimes.com/2026/10/31/world/australia/australia-halloween-america-influence.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/31/business/breeders-cup-thoroughbreds-keeneland
 **Martin McDonagh Says Art Can Change the World. Just Not As Much as Murder.**\
 `The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
 https://www.nytimes.com/video/podcasts/100000011237879/martin-mcdonagh-says-art-can-change-the-world-just-not-as-much-as-murder.html
-
-**No One Wants to Serve on the Condo Board. Now What?**\
-`Owners should know that there can be serious financial risks if they don’t set a sustainable path forward for the building.`\
-https://www.nytimes.com/2026/10/31/realestate/condo-board-members-shortage.html
-
-**Choose Your Favorite $1 Million Home in Athens**\
-`An apartment in Pangrati with Acropolis views, a penthouse in Thiseio with Parthenon views, and a loft in Psirri, also with Acropolis views.`\
-https://www.nytimes.com/2026/10/31/realestate/homes-for-sale-athens-greece.html
 

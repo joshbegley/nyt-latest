@@ -1,3 +1,7 @@
+**Live Updates: Thousands Join Another Round of Protests in France**\
+`Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
 **In Australia, Halloween Means Spring, Sunshine and Skepticism**\
 `The holiday, which is increasingly popular in the country, can look different from its American counterpart — and has sparked discussions about cultural encroachment.`\
 https://www.nytimes.com/2026/10/31/world/australia/australia-halloween-america-influence.html
