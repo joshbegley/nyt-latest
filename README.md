@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/10/31/us/politics/us-capitol-ghosts-haunted.html
 `Mike Dang, a 10-time marathoner and New York Times business editor, relives the unique sonic experience of running the New York City Marathon.`\
 https://www.nytimes.com/video/business/100000011219428/what-does-running-the-nyc-marathon-sound-like.html
 
-**Book Review: ‘Our Cut of Salt,’ by Deena Helm**\
-`In “Our Cut of Salt,” a young woman’s return to her ancestral home uncovers chilling secrets.`\
-https://www.nytimes.com/2026/10/31/books/review/deena-helm-our-cut-of-salt.html
-
