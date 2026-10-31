@@ -1,3 +1,11 @@
+**One Dead in Halloween Store Shooting in California**\
+`The police are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
+**It’s the Great (Roasted) Pumpkin (Seeds)**\
+`Here’s how to turn the seeds from your pumpkin or other hard-skinned squashes into a salty, crunchy snack.`\
+https://www.nytimes.com/2026/10/31/dining/its-the-great-roasted-pumpkin-seeds.html
+
 **How Binance’s $6.3 Billion Hack Went Down**\
 `A war room. A global conference call. A founder who live-posted about the largest crypto heist in history. Inside a frantic 24 hours at the world’s biggest crypto exchange.`\
 https://www.nytimes.com/2026/10/31/technology/binance-hack-crypto-north-korea.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011237887/martin-mcdonagh-didnt-wan
 **Martin McDonagh on How Punk Rock Changed His Life**\
 `On “The Interview,” the writer-director Martin McDonagh talked about how bands like the Clash helped him question authority as he was growing up.`\
 https://www.nytimes.com/video/podcasts/100000011237884/martin-mcdonagh-on-how-punk-rock-changed-his-life.html
-
-**The U.S. Becomes a Global Hub for Horse Racing**\
-`More horses from overseas are competing in America’s marquee events, as the sport enjoys a renaissance.`\
-https://www.nytimes.com/2026/10/31/business/breeders-cup-thoroughbreds-keeneland-saratoga-sales.html
-
-**Martin McDonagh Says Art Can Change the World. Just Not As Much as Murder.**\
-`The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
-https://www.nytimes.com/video/podcasts/100000011237879/martin-mcdonagh-says-art-can-change-the-world-just-not-as-much-as-murder.html
 
