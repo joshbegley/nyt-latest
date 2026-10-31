@@ -1,3 +1,7 @@
+**Democrats File Suit Over Closed Polling Places in Rural Alaska**\
+`Voting sites in 18 far-flung communities failed to open, the suit claims.`\
+https://www.nytimes.com/2026/10/31/us/elections/democrats-lawsuit-alaska-elections.html
+
 **COP17 Biodiversity Talks in Yerevan, Armenia**\
 `Countries renewed their promises to protect wildlife at U.N. talks in Armenia, but how to cover the costs remains a question.`\
 https://www.nytimes.com/2026/10/31/climate/cop17-biodiversity-yerevan-conclusion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/us/politics/nebraska-senate-poll.html
 **Trump and GOP Close Midterms With Ugly Personal Attacks**\
 `Facing backlash over inflation and anger with the president, Republicans have turned to an onslaught of baseless claims about Democratic candidates.`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-republicans-personal-attacks-midterms.html
-
-**In Nebraska Senate Race, the Independent May Have an Identity Problem**\
-`Dan Osborn trails by six points, and voters don’t seem to buy that he’s truly independent from Democrats.`\
-https://www.nytimes.com/2026/10/31/upshot/poll-nebraska-osborn-times-siena.html
 

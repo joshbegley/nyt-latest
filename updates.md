@@ -1,3 +1,7 @@
+**Democrats File Suit Over Closed Polling Places in Rural Alaska**\
+`Voting sites in 18 far-flung communities failed to open, the suit claims.`\
+https://www.nytimes.com/2026/10/31/us/elections/democrats-lawsuit-alaska-elections.html
+
 **COP17 Biodiversity Talks in Yerevan, Armenia**\
 `Countries renewed their promises to protect wildlife at U.N. talks in Armenia, but how to cover the costs remains a question.`\
 https://www.nytimes.com/2026/10/31/climate/cop17-biodiversity-yerevan-conclusion.html
