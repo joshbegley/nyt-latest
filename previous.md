@@ -1,3 +1,7 @@
+**Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
+`Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
+https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
+
 **Justice Dept. Confirms Alaska Inquiry Even as Its Focus Remains Unclear**\
 `Democrats and former officials have accused the department of pursuing a political goal in the guise of a legal one: to publicize a scheme, sordid but not illegal under state law, damaging to Democrats.`\
 https://www.nytimes.com/2026/10/30/us/politics/justice-dept-alaska-senate-inquiry.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
 **Book Club: Let’s Talk About ‘Switzy’**\
 `Emma Cline’s latest novel is about a man with dementia who has decided to end his life on his own terms.`\
 https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
-
-**Democrats, Hopeful All Over the Senate Map, Remain Jittery About Iowa**\
-`In the final days of the race, Josh Turek, the Democratic Senate nominee, appears to be in a dead heat against his Republican rival, Representative Ashley Hinson.`\
-https://www.nytimes.com/2026/10/30/us/politics/iowa-senate-race-josh-turek.html
 

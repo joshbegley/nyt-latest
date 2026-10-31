@@ -1,3 +1,7 @@
+**Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
+`Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
+https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
+
 **Justice Dept. Confirms Alaska Inquiry Even as Its Focus Remains Unclear**\
 `Democrats and former officials have accused the department of pursuing a political goal in the guise of a legal one: to publicize a scheme, sordid but not illegal under state law, damaging to Democrats.`\
 https://www.nytimes.com/2026/10/30/us/politics/justice-dept-alaska-senate-inquiry.html
