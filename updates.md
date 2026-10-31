@@ -1,3 +1,7 @@
+**Chili’s Margaritas Rimmed With Degreaser Burn 5 People in North Carolina**\
+`Three customers and two employees were burned on and around their mouths after a granulated substance was mistaken for sugar, a health official said.`\
+https://www.nytimes.com/2026/10/31/us/chilis-margarita-chemical-burns-forest-city.html
+
 **When to Expect Midterm Results in Each State on Election Night**\
 `The time it takes to project winners will depend on two factors: how fast the states count their votes, and how close the races are.`\
 https://www.nytimes.com/interactive/2026/10/31/us/elections/midterm-vote-count-expectations.html
