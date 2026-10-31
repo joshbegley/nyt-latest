@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 `The campaign of Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, does not want his former primary rival to appear at his events, leaving uncertainty about a planned Sunday gathering.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 
-**Live Updates: Hundreds of Thousands Join Another Round of Protests in France**\
+**Hundreds of Thousands Join Another Round of Protests in France**\
 `The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
 

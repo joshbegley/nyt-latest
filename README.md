@@ -1,3 +1,7 @@
+**Women Voters Are a Potent Political Force in the Midterms**\
+`The country’s biggest demographic group — women — is the main driver of voting and has grown ever more Democratic in this election cycle.`\
+https://www.nytimes.com/2026/10/31/us/elections/women-voters-midterms-democratic.html
+
 **‘We Are Coming From Hell’: A Ukrainian City’s Evacuees Tell Survival Stories**\
 `Safely out of Oleshky after enduring years in the combat zone and a harrowing 24-hour journey, weary civilians reunited with family and friends.`\
 https://www.nytimes.com/2026/10/31/todayspaper/we-are-coming-from-hell-a-ukrainian-citys-evacuees-tell-survival-stories.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improver
 **Train Disaster Is Blow to Spain’s Leader, Already Election Underdog**\
 `Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
 https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
-
-**Corrections: Oct. 31, 2026**\
-`Corrections that appeared in print on Saturday, Oct. 31, 2026.`\
-https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
 

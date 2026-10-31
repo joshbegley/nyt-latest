@@ -1,3 +1,7 @@
+**Hundreds of Thousands Join Another Round of Protests in France**\
+`The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
 **El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
 `Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival. “I don’t want any distractions,” Dr. El-Sayed said Saturday.`\
 https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
