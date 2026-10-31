@@ -10,7 +10,7 @@ https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
 `Big law firms, legal tech vendors, and in-house legal departments at companies like Microsoft and Nvidia are all hiring legal engineers, a new position for lawyers with A.I. skills.`\
 https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
 
-**Could These Democrats Destroy MAHA?**\
+**This Is How MAHA Ends**\
 `Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
 https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
 
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
 https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
 
 **Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
-`Prime Minister Benjamin Netanyahu is jockeying to stay in power, and President Trump is in a tough midterm fight, yet Iran’s leaders do not expect a major shift in Israeli or U.S. policy.`\
+`With Prime Minister Benjamin Netanyahu fighting to stay in power and President Trump facing a tough midterm, Iran’s leaders expect no major shift in policy.`\
 https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
 
 **How Locals and Shopkeepers Tried to Save One Paris Street From Rioters**\
