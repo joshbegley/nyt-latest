@@ -1,3 +1,11 @@
+**North Korean Hackers May Have Stolen Billions. It Wouldn’t Be Their First Heist.**\
+`This week’s $6.3 billion hack of Binance is the largest to rock the crypto industry. North Korea, with a history of brazen cybercrime, is a suspect.`\
+https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
+
+**Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
+`California Gov. Gavin Newsom warned judges that the Trump administration may seek subpoenas to seize ballots and voting machines.`\
+https://www.nytimes.com/2026/10/31/us/newsom-california-election-interference.html
+
 **Women Voters Are a Potent Political Force in the Midterms**\
 `The country’s biggest demographic group — women — is the main driver of voting and has grown ever more Democratic in this election cycle.`\
 https://www.nytimes.com/2026/10/31/us/elections/women-voters-midterms-democratic.html

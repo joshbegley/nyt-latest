@@ -1,3 +1,11 @@
+**North Korean Hackers May Have Stolen Billions. It Wouldn’t Be Their First Heist.**\
+`This week’s $6.3 billion hack of Binance is the largest to rock the crypto industry. North Korea, with a history of brazen cybercrime, is a suspect.`\
+https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
+
+**Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
+`California Gov. Gavin Newsom warned judges that the Trump administration may seek subpoenas to seize ballots and voting machines.`\
+https://www.nytimes.com/2026/10/31/us/newsom-california-election-interference.html
+
 **Women Voters Are a Potent Political Force in the Midterms**\
 `The country’s biggest demographic group — women — is the main driver of voting and has grown ever more Democratic in this election cycle.`\
 https://www.nytimes.com/2026/10/31/us/elections/women-voters-midterms-democratic.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
 **Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
 `In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
 https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
-
-**These Runners Got Faster at the N.Y.C. Marathon. The Data Says You Can Too.**\
-`Repeat runners improve their times on average. Here’s how some did it.`\
-https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
-
-**Train Disaster Is Blow to Spain’s Leader, Already Election Underdog**\
-`Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
-https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
 

@@ -1,9 +1,13 @@
+**Clashes Erupt Again in France, After Festive Start to Day of Protest**\
+`More than 300,000 people took to the streets, some wearing Halloween costumes, before the demonstrations ended in violence.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-protests-clashes.html
+
 **North Korean Hackers May Have Stolen Billions. It Wouldn’t Be Their First Heist.**\
 `This week’s $6.3 billion hack of Binance is the largest to rock the crypto industry. North Korea, with a history of brazen cybercrime, is a suspect.`\
 https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
 
 **Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
-`California Gov. Gavin Newsom warned judges that the Trump administration may seek subpoenas to seize ballots and voting machines.`\
+`California Gov. Gavin Newsom warned judges that the Trump administration may seek search warrants to seize ballots and voting machines.`\
 https://www.nytimes.com/2026/10/31/us/newsom-california-election-interference.html
 
 **Women Voters Are a Potent Political Force in the Midterms**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/weather/nyc-marathon-temperature.html
 **Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
 `The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
 https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
-
-**Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
-`In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
-https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
 
