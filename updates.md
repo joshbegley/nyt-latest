@@ -1,3 +1,7 @@
+**El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
+`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival. “I don’t want any distractions,” Dr. El-Sayed said Saturday.`\
+https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
+
 **‘We Are Coming From Hell’: A Ukrainian City’s Evacuees Tell Survival Stories**\
 `Safely out of Oleshky after enduring years in the combat zone and a harrowing 24-hour journey, weary civilians reunited with family and friends.`\
 https://www.nytimes.com/2026/10/31/todayspaper/we-are-coming-from-hell-a-ukrainian-citys-evacuees-tell-survival-stories.html
