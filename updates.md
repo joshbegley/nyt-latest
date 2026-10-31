@@ -1,3 +1,7 @@
+**Justice Dept. Confirms Alaska Inquiry Even as Its Focus Remains Unclear**\
+`Democrats and former officials have accused the department of pursuing a political goal in the guise of a legal one: to publicize a scheme, sordid but not illegal under state law, damaging to Democrats.`\
+https://www.nytimes.com/2026/10/30/us/politics/justice-dept-alaska-senate-inquiry.html
+
 **Photo Quiz: Guess the Year**\
 `We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
 https://www.nytimes.com/interactive/2026/10/30/arts/photo-quiz-game-175.html
