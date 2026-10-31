@@ -1,3 +1,7 @@
+**Centuries After Their Slaughter, Missionaries Move Toward Sainthood**\
+`The beatification of five Franciscan friars was cause for jubilation in South Georgia, where Christianity has flourished but Catholics are few and far between.`\
+https://www.nytimes.com/2026/10/31/us/south-saints-georgia-martyrs-beatification.html
+
 **Abdul El-Sayed Does Not Want to Talk About Haley Stevens. Everyone Else Does.**\
 `“We had a primary, right?” Dr. El-Sayed, the Democratic Senate candidate in Michigan, told reporters. “I understand that some folks are upset about that. I get it. But I’m here trying to beat Mike Rogers.”`\
 https://www.nytimes.com/2026/10/31/us/elections/michigan-senate-abdul-el-sayed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/crosswords/connections-companion-1239.html
 **Stage Fright**\
 `Halloween presents an endless parade of ghouls and goblins. Most aren’t actually scary, but can illuminate some things about the nature of fear.`\
 https://www.nytimes.com/2026/10/31/briefing/stage-fright.html
-
-**Southwest Faces More Storms After Months of Heavy Rain**\
-`Rivers that swelled over their banks just days ago could flood again, forecasters warned.`\
-https://www.nytimes.com/2026/10/31/weather/four-corners-navajo-nation-colorado-utah-flooding.html
 
