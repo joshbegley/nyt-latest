@@ -1,3 +1,47 @@
+**Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
+`In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
+https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
+
+**These Runners Got Faster at the NYC Marathon. The Data Says You Can Too.**\
+`Repeat runners improve their times on average. Here’s how some did it.`\
+https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
+
+**Train Disaster Is a Blow to Spain’s Leader, Already an Election Underdog**\
+`Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
+https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
+
+**Corrections: Oct. 31, 2026**\
+`Corrections that appeared in print on Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
+
+**Plan for More Protests, This Time on Halloween, Causes Jitters in France**\
+`Thousands, potentially in masks and costumes, are expected on the streets on Saturday, prompting the authorities to prepare another vast security response.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-student-protests-halloween.html
+
+**Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
+`Prime Minister Benjamin Netanyahu is jockeying to stay in power, and President Trump is in a tough midterm fight, yet Iran’s leaders do not expect a major shift in Israeli or U.S. policy.`\
+https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
+
+**How Locals and Shopkeepers Tried to Save One Paris Street From Rioters**\
+`As arson, looting and destruction overwhelmed Rue Beaurepaire, some residents pleaded with rioters to stop. Others hid out of fear. Many dread a repeat.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-riots-protests-paris-rue-beaurepaire.html
+
+**Talarico Makes Final Election Pitch to Texans: ‘You Are My Slingshot’**\
+`The Democratic candidate for Senate has led in polls. But because it’s Texas, he remains the underdog.`\
+https://www.nytimes.com/2026/10/31/us/politics/talarico-texas.html
+
+**Pete Ricketts Leads Dan Osborn in Nebraska Senate Race, Poll Finds**\
+`Voters see Dan Osborn, the independent seeking to unseat Senator Pete Ricketts, as more like a Democrat than an independent, a Times/Siena poll found.`\
+https://www.nytimes.com/2026/10/31/us/politics/nebraska-senate-poll.html
+
+**Trump and GOP Close Midterms With Ugly Personal Attacks**\
+`Facing backlash over inflation and anger with the president, Republicans have turned to an onslaught of baseless claims about Democratic candidates.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-republicans-personal-attacks-midterms.html
+
+**In Nebraska Senate Race, the Independent May Have an Identity Problem**\
+`Dan Osborn trails by six points, and voters don’t seem to buy that he’s truly independent from Democrats.`\
+https://www.nytimes.com/2026/10/31/upshot/poll-nebraska-osborn-times-siena.html
+
 **Pick Another Protein? Americans Still Want Beef, Despite the Price.**\
 `After chicken, consumers are buying more beef, while pork, turkey and soy products remain flat.`\
 https://www.nytimes.com/2026/10/31/business/beef-prices-protein.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/10/31/nyregion/nyc-marathon-price.html
 **NYT Spelling Bee Answers for October 31, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/10/31/crosswords/spelling-bee-forum.html
-
-**How NBC’s Maria Taylor Gets Ready for a Big Night With the Knicks**\
-`Ms. Taylor had to work out, get her son to school and fit in “Real Housewives” before leading the broadcast of the Knicks game on ring night.`\
-https://www.nytimes.com/interactive/2026/10/31/nyregion/routine-maria-taylor.html
-
-**Black Bears in Connecticut Are Eating Grapes and Entering Homes**\
-`Bears and humans are increasingly getting in each other’s way, presenting problems for both species.`\
-https://www.nytimes.com/2026/10/31/nyregion/black-bears-houses-restaurants-connecticut.html
-
-**A Navy Pilot Tries to Flip a Key House Seat, Right by Trump’s Golf Club**\
-`Rebecca Bennett, a Democrat, is vying to unseat Representative Thomas Kean Jr. in a New Jersey district that includes President Trump’s Bedminster golf club.`\
-https://www.nytimes.com/2026/10/31/nyregion/rebecca-bennett-nj-house-race.html
-
-**Liu Yandong, Rare Woman Among China’s Political Elite, Dies at 80**\
-`The former vice premier was one of just six women to have served on the Chinese Communist Party’s elite Politburo, though she was excluded from the top ranks of power.`\
-https://www.nytimes.com/2026/10/31/world/asia/liu-yandong-dead.html
-
-**Will Digging Up Vietnam’s War Dead Heal Old Wounds or Reopen Them?**\
-`A 500-day campaign to find and identify fallen soldiers has unearthed hundreds of bodies, but not everyone gets a chance at closure.`\
-https://www.nytimes.com/2026/10/31/world/asia/vietnam-missing-war-dead.html
-
-**Quote of the Day: These Homes Are a Horror, To the Delight of Film Fans**\
-`Quotation of the Day for Saturday, October 31, 2026.`\
-https://www.nytimes.com/2026/10/31/pageoneplus/quote-of-the-day-these-homes-are-a-horror-to-the-delight-of-film-fans.html
-
-**Wanted: New Central Bank Chief. Expertise and Political Acumen Required.**\
-`The looming departure of the European Central Bank’s president, Christine Lagarde, has set in motion a high-stakes search for her successor.`\
-https://www.nytimes.com/2026/10/31/business/european-central-bank-lagarde-succession.html
-
-**From the Front Page: Indira Gandhi Is Assassinated on Oct. 31, 1984**\
-`Two of her bodyguards killed Mrs. Gandhi, India’s first female prime minister, near her home.`\
-https://www.nytimes.com/2026/10/31/learning/from-the-front-page-indira-gandhi-is-assassinated-on-oct-31-1984.html
-
-**Britain’s Prime Minister Says He’s Open to a Formal Apology for Slavery**\
-`The premier’s comments represent a major change in British policy, but they are unlikely to satisfy those who hoped that reparations would follow.`\
-https://www.nytimes.com/2026/10/30/world/europe/britain-burnham-charles-apology-slavery.html
-
-**Count on One’s Fingers?**\
-`Erik Agard and Brendan Emmett Quigley bring us a horrifyingly good Halloween puzzle.`\
-https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
-
-**Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
-`Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
-https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
 

@@ -1,3 +1,47 @@
+**Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
+`In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
+https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
+
+**These Runners Got Faster at the NYC Marathon. The Data Says You Can Too.**\
+`Repeat runners improve their times on average. Here’s how some did it.`\
+https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
+
+**Train Disaster Is a Blow to Spain’s Leader, Already an Election Underdog**\
+`Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
+https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
+
+**Corrections: Oct. 31, 2026**\
+`Corrections that appeared in print on Saturday, Oct. 31, 2026.`\
+https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
+
+**Plan for More Protests, This Time on Halloween, Causes Jitters in France**\
+`Thousands, potentially in masks and costumes, are expected on the streets on Saturday, prompting the authorities to prepare another vast security response.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-student-protests-halloween.html
+
+**Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
+`Prime Minister Benjamin Netanyahu is jockeying to stay in power, and President Trump is in a tough midterm fight, yet Iran’s leaders do not expect a major shift in Israeli or U.S. policy.`\
+https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
+
+**How Locals and Shopkeepers Tried to Save One Paris Street From Rioters**\
+`As arson, looting and destruction overwhelmed Rue Beaurepaire, some residents pleaded with rioters to stop. Others hid out of fear. Many dread a repeat.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-riots-protests-paris-rue-beaurepaire.html
+
+**Talarico Makes Final Election Pitch to Texans: ‘You Are My Slingshot’**\
+`The Democratic candidate for Senate has led in polls. But because it’s Texas, he remains the underdog.`\
+https://www.nytimes.com/2026/10/31/us/politics/talarico-texas.html
+
+**Pete Ricketts Leads Dan Osborn in Nebraska Senate Race, Poll Finds**\
+`Voters see Dan Osborn, the independent seeking to unseat Senator Pete Ricketts, as more like a Democrat than an independent, a Times/Siena poll found.`\
+https://www.nytimes.com/2026/10/31/us/politics/nebraska-senate-poll.html
+
+**Trump and GOP Close Midterms With Ugly Personal Attacks**\
+`Facing backlash over inflation and anger with the president, Republicans have turned to an onslaught of baseless claims about Democratic candidates.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-republicans-personal-attacks-midterms.html
+
+**In Nebraska Senate Race, the Independent May Have an Identity Problem**\
+`Dan Osborn trails by six points, and voters don’t seem to buy that he’s truly independent from Democrats.`\
+https://www.nytimes.com/2026/10/31/upshot/poll-nebraska-osborn-times-siena.html
+
 **Pick Another Protein? Americans Still Want Beef, Despite the Price.**\
 `After chicken, consumers are buying more beef, while pork, turkey and soy products remain flat.`\
 https://www.nytimes.com/2026/10/31/business/beef-prices-protein.html
