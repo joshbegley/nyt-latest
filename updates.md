@@ -1,3 +1,7 @@
+**Shooting at Spirit Halloween in California Kills Pregnant Mother of 4**\
+`The police are searching for a person who shot 7 people, killing a 31-year-old pregnant mother of 4, on the night before Halloween. Families were in the store shopping for last-minute costumes.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
 **Abdul El-Sayed Does Not Want to Talk About Haley Stevens. Everyone Else Does.**\
 `“We had a primary, right?” Dr. El-Sayed, the Democratic Senate candidate in Michigan, told reporters. “I understand that some folks are upset about that. I get it. But I’m here trying to beat Mike Rogers.”`\
 https://www.nytimes.com/2026/10/31/us/elections/michigan-senate-abdul-el-sayed.html
