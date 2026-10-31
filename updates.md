@@ -1,3 +1,7 @@
+**Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
+`The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
+https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
+
 **Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
 `In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
 https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html

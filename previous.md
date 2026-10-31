@@ -1,3 +1,7 @@
+**Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
+`The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
+https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
+
 **Why Haley Stevens Can’t Stop Talking About Abdul El-Sayed**\
 `In a frank interview, she described her disappointment and also said she was considering converting to Judaism. Her fiancé had thoughts, too.`\
 https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
 **Shoes, Fees, Competition: Why the NYC Marathon Is Out of Reach for Many**\
 `Running has long been celebrated as a cheap and accessible sport. But the culture of racing, especially in New York, is often anything but.`\
 https://www.nytimes.com/2026/10/31/nyregion/nyc-marathon-price.html
-
-**NYT Spelling Bee Answers for October 31, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/10/31/crosswords/spelling-bee-forum.html
 
