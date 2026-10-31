@@ -15,7 +15,7 @@ https://www.nytimes.com/video/world/europe/100000011251779/france-student-protes
 https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
 
 **El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
-`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival, leaving uncertainty about their scheduled joint event on Sunday.`\
+`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival. “I don’t want any distractions,” Dr. El-Sayed said Saturday.`\
 https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
 
 **‘Poop Water’ Churns a Local Election in Parched Arizona**\
