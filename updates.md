@@ -1,3 +1,19 @@
+**Will Digging Up Vietnam’s War Dead Heal Old Wounds or Reopen Them?**\
+`A 500-day campaign to find and identify fallen soldiers has unearthed hundreds of bodies, but not everyone gets a chance at closure.`\
+https://www.nytimes.com/2026/10/31/world/asia/vietnam-missing-war-dead.html
+
+**Quote of the Day: These Homes Are a Horror, To the Delight of Film Fans**\
+`Quotation of the Day for Saturday, October 31, 2026.`\
+https://www.nytimes.com/2026/10/31/pageoneplus/quote-of-the-day-these-homes-are-a-horror-to-the-delight-of-film-fans.html
+
+**Wanted: New Central Bank Chief. Expertise and Political Acumen Required.**\
+`The looming departure of the European Central Bank’s president, Christine Lagarde, has set in motion a high-stakes search for her successor.`\
+https://www.nytimes.com/2026/10/31/business/european-central-bank-lagarde-succession.html
+
+**From the Front Page: Indira Gandhi Is Assassinated on Oct. 31, 1984**\
+`Two of her bodyguards killed Mrs. Gandhi, India’s first female prime minister, near her home.`\
+https://www.nytimes.com/2026/10/31/learning/from-the-front-page-indira-gandhi-is-assassinated-on-oct-31-1984.html
+
 **Britain’s Prime Minister Says He’s Open to a Formal Apology for Slavery**\
 `The premier’s comments represent a major change in British policy, but they are unlikely to satisfy those who hoped that reparations would follow.`\
 https://www.nytimes.com/2026/10/30/world/europe/britain-burnham-charles-apology-slavery.html
