@@ -1,3 +1,11 @@
+**Southwest Faces More Storms After Months of Heavy Rain**\
+`Rivers that swelled over their banks just days ago could flood again, forecasters warned.`\
+https://www.nytimes.com/2026/10/31/weather/four-corners-navajo-nation-colorado-utah-flooding.html
+
+**How Warm Will the New York City Marathon Route Get on Sunday?**\
+`A borough-by-borough breakdown of the weather forecast.`\
+https://www.nytimes.com/2026/10/31/weather/nyc-marathon-temperature.html
+
 **Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
 `The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
 https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-topline
 **Trump Complains About Campaign Schedule as Midterms Near**\
 `President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
 https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
-
-**Birders Fear for N.Y. Celebrity Owls Over Construction Near Their Nest**\
-`A family of barn owls drew a crowd after making a nest in a derelict water tower in Manhattan. After workers tore off the roof, conservation officers arrived.`\
-https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
-
-**Shoes, Fees, Competition: Why the NYC Marathon Is Out of Reach for Many**\
-`Running has long been celebrated as a cheap and accessible sport. But the culture of racing, especially in New York, is often anything but.`\
-https://www.nytimes.com/2026/10/31/nyregion/nyc-marathon-price.html
 

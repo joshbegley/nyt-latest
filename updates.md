@@ -1,3 +1,11 @@
+**Southwest Faces More Storms After Months of Heavy Rain**\
+`Rivers that swelled over their banks just days ago could flood again, forecasters warned.`\
+https://www.nytimes.com/2026/10/31/weather/four-corners-navajo-nation-colorado-utah-flooding.html
+
+**How Warm Will the New York City Marathon Route Get on Sunday?**\
+`A borough-by-borough breakdown of the weather forecast.`\
+https://www.nytimes.com/2026/10/31/weather/nyc-marathon-temperature.html
+
 **Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
 `The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
 https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
