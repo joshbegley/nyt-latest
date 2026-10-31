@@ -1,3 +1,11 @@
+**In Australia, Halloween Means Spring, Sunshine and Skepticism**\
+`The holiday, which is increasingly popular in the country, can look different from its American counterpart — and has sparked discussions about cultural encroachment.`\
+https://www.nytimes.com/2026/10/31/world/australia/australia-halloween-america-influence.html
+
+**Poland Deploys Riot Police in Standoff Over Country’s Top Court**\
+`After years of legal wrangling, judges backed by the current government suspended the chief justice, as a feud escalated with the right-wing party that last held power.`\
+https://www.nytimes.com/2026/10/31/world/europe/poland-court-police-president.html
+
 **This Pumpkin Chocoflan Is Actually Magic**\
 `And thereby apt for Halloween.`\
 https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-magic.html
@@ -106,7 +114,7 @@ https://www.nytimes.com/2026/10/31/us/haley-stevens-abdul-el-sayed.html
 `Repeat runners improve their times on average. Here’s how some did it.`\
 https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
 
-**Train Disaster Is a Blow to Spain’s Leader, Already an Election Underdog**\
+**Train Disaster Is Blow to Spain’s Leader, Already Election Underdog**\
 `Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
 https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/10/31/realestate/condo-board-members-shortage.html
 **Choose Your Favorite $1 Million Home in Athens**\
 `An apartment in Pangrati with Acropolis views, a penthouse in Thiseio with Parthenon views, and a loft in Psirri, also with Acropolis views.`\
 https://www.nytimes.com/2026/10/31/realestate/homes-for-sale-athens-greece.html
-
-**Why Did So Many People File Early for Social Security Last Year?**\
-`Experts point to well-publicized turmoil at the government agency last year as a potential spark.`\
-https://www.nytimes.com/2026/10/31/well/whats-behind-a-recent-spike-in-early-social-security-claims.html
-
-**Queens of the Stone Age Returns, and 8 More Songs We’re Talking About**\
-`The rockers rant against brainwashing, Snoh Aalegra declares her love, Zach Bryan floods the Hot 100 chart and more.`\
-https://www.nytimes.com/2026/10/31/arts/music/queens-of-the-stone-age-snoh-aalegra-songs.html
 

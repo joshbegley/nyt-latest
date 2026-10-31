@@ -1,3 +1,15 @@
+**In Australia, Halloween Means Spring, Sunshine and Skepticism**\
+`The holiday, which is increasingly popular in the country, can look different from its American counterpart — and has sparked discussions about cultural encroachment.`\
+https://www.nytimes.com/2026/10/31/world/australia/australia-halloween-america-influence.html
+
+**Poland Deploys Riot Police in Standoff Over Country’s Top Court**\
+`After years of legal wrangling, judges backed by the current government suspended the chief justice, as a feud escalated with the right-wing party that last held power.`\
+https://www.nytimes.com/2026/10/31/world/europe/poland-court-police-president.html
+
+**Train Disaster Is Blow to Spain’s Leader, Already Election Underdog**\
+`Prime Minister Pedro Sánchez wanted to campaign on inequality and housing, but the second major rail accident this year has put his government’s competence on trial.`\
+https://www.nytimes.com/2026/10/31/world/europe/spain-train-crash-politics.html
+
 **This Pumpkin Chocoflan Is Actually Magic**\
 `And thereby apt for Halloween.`\
 https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-magic.html
