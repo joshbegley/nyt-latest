@@ -1,3 +1,11 @@
+**This Is How MAHA Ends**\
+`Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
+https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
+
+**Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
+`With Prime Minister Benjamin Netanyahu fighting to stay in power and President Trump facing a tough midterm, Iran’s leaders expect no major shift in policy.`\
+https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
+
 **Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
 `President Trump will appear on Sunday in Kansas, which has recently become a crucial Senate battleground.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
