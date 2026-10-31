@@ -1,3 +1,7 @@
+**When to Expect Midterm Results in Each State on Election Night**\
+`The time it takes to project winners will depend on two factors: how fast the states count their votes, and how close the races are.`\
+https://www.nytimes.com/interactive/2026/10/31/us/elections/midterm-vote-count-expectations.html
+
 **Centuries After Their Slaughter, Missionaries Move Toward Sainthood**\
 `The beatification of five Franciscan friars was cause for jubilation in South Georgia, where Christianity has flourished but Catholics are few and far between.`\
 https://www.nytimes.com/2026/10/31/us/south-saints-georgia-martyrs-beatification.html
