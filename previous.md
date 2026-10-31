@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 
 **Live Updates: Thousands Join Another Round of Protests in France**\
-`Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response.`\
+`Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response. Demonstrators and the police clashed in a few cities.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
 
 **The New Hot Job in Law Doesn’t Require a J.D.**\

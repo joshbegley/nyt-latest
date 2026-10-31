@@ -1,3 +1,7 @@
+**Live Updates: Thousands Join Another Round of Protests in France**\
+`Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response. Demonstrators and the police clashed in a few cities.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
 **F.D.A. Warns of Tractor Wheels Snack Bar Linked to Choking Hazard**\
 `Once Upon a Farm has recalled its Tractor Wheels soft-baked bars after reports that toddlers could not breathe while eating them.`\
 https://www.nytimes.com/2026/10/31/well/family/fda-tractor-wheels-choking-hazard.html
