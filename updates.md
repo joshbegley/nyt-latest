@@ -1,3 +1,11 @@
+**How Binance’s $6.3 Billion Hack Went Down**\
+`A war room. A global conference call. A founder who live-posted about the largest crypto heist in history. Inside a frantic 24 hours at the world’s biggest crypto exchange.`\
+https://www.nytimes.com/2026/10/31/technology/binance-hack-crypto-north-korea.html
+
+**Susan Collins Is Always Keeping Score**\
+`The long-serving senator has delivered millions of dollars to every corner of her state. But in Maine, people say, it’s best to avoid getting on her bad side.`\
+https://www.nytimes.com/2026/10/31/us/politics/susan-collins-maine-senate-election.html
+
 **Live Updates: Thousands Join Another Round of Protests in France**\
 `Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
