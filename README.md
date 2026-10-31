@@ -1,3 +1,7 @@
+**‘Poop Water’ Churns a Local Election in Parched Arizona**\
+`City Council candidates in ritzy Scottsdale disagree on whether recycling wastewater into drinking water is smart policy or a dangerous remedy.`\
+https://www.nytimes.com/2026/10/31/us/poop-water-scottsdale-arizona.html
+
 **Democrats File Suit Over Closed Polling Places in Rural Alaska**\
 `Voting sites in 18 far-flung communities failed to open, the suit claims.`\
 https://www.nytimes.com/2026/10/31/us/elections/democrats-lawsuit-alaska-elections.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/us/politics/talarico-texas.html
 **Pete Ricketts Leads Dan Osborn in Nebraska Senate Race, Poll Finds**\
 `Voters see Dan Osborn, the independent seeking to unseat Senator Pete Ricketts, as more like a Democrat than an independent, a Times/Siena poll found.`\
 https://www.nytimes.com/2026/10/31/us/politics/nebraska-senate-poll.html
-
-**Trump and GOP Close Midterms With Ugly Personal Attacks**\
-`Facing backlash over inflation and anger with the president, Republicans have turned to an onslaught of baseless claims about Democratic candidates.`\
-https://www.nytimes.com/2026/10/31/us/politics/trump-republicans-personal-attacks-midterms.html
 
