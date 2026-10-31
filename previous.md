@@ -1,3 +1,7 @@
+**France Protests Hit Third Weekend**\
+`Protesters gathered across France on Saturday for the third consecutive weekend of unrest over living costs and education. The rallies, which coincided with Halloween, were largely peaceful but descended into clashes in some areas.`\
+https://www.nytimes.com/video/world/europe/100000011251779/france-student-protests-halloween.html
+
 **Mother of Teen Killed in the Bronx Gets Visa After Mamdani-Trump Call**\
 `Javits Frimpong, 15, died on Thursday after being shot close to his home near Crotona Park, the police said. The boy had moved from Ghana a year ago.`\
 https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/pageoneplus/corrections-oct-31-2026.html
 **Iran Braces for More War, No Matter the Outcome of the U.S. and Israeli Elections**\
 `With Prime Minister Benjamin Netanyahu fighting to stay in power and President Trump facing a tough midterm, Iran’s leaders expect no major shift in policy.`\
 https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections-trump-netanyahu.html
-
-**How Locals and Shopkeepers Tried to Save One Paris Street From Rioters**\
-`As arson, looting and destruction overwhelmed Rue Beaurepaire, some residents pleaded with rioters to stop. Others hid out of fear. Many dread a repeat.`\
-https://www.nytimes.com/2026/10/31/world/europe/france-riots-protests-paris-rue-beaurepaire.html
 

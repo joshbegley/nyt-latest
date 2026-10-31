@@ -1,3 +1,7 @@
+**France Protests Hit Third Weekend**\
+`Protesters gathered across France on Saturday for the third consecutive weekend of unrest over living costs and education. The rallies, which coincided with Halloween, were largely peaceful but descended into clashes in some areas.`\
+https://www.nytimes.com/video/world/europe/100000011251779/france-student-protests-halloween.html
+
 **Mother of Teen Killed in the Bronx Gets Visa After Mamdani-Trump Call**\
 `Javits Frimpong, 15, died on Thursday after being shot close to his home near Crotona Park, the police said. The boy had moved from Ghana a year ago.`\
 https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
