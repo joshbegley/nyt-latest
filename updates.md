@@ -1,3 +1,11 @@
+**Women Voters Are a Potent Political Force in the Midterms**\
+`The country’s biggest demographic group — women — is the main driver of voting and has grown ever more Democratic in this election cycle.`\
+https://www.nytimes.com/2026/10/31/us/elections/women-voters-midterms-democratic.html
+
+**Midterm Elections Live Updates: Democratic Discord Intensifies in Michigan Senate Race**\
+`Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, said Representative Haley Stevens, his former primary rival, should not attend Sunday’s party unity event in Detroit.`\
+https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
+
 **Hundreds of Thousands Join Another Round of Protests in France**\
 `The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
