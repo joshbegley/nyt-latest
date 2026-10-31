@@ -1,3 +1,11 @@
+**Republicans Tried to Turn the Cheesecake Factory Against Democrats. It Flopped.**\
+`It’s become screamingly obvious who represents billionaires and unchecked plutocratic power.`\
+https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html
+
+**Brace Yourself for an ‘Unusual Election’**\
+`Democratic sweep or not, politics are about to change.`\
+https://www.nytimes.com/2026/10/31/opinion/midterms-races-democrats-election.html
+
 **Could These Democrats Destroy MAHA?**\
 `Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
 https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
