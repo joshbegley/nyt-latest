@@ -1,3 +1,11 @@
+**Clashes Erupt Again in France, After Festive Start to Day of Protest**\
+`More than 300,000 people took to the streets, some wearing Halloween costumes, before the demonstrations ended in violence.`\
+https://www.nytimes.com/2026/10/31/world/europe/france-protests-clashes.html
+
+**Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
+`California Gov. Gavin Newsom warned judges that the Trump administration may seek search warrants to seize ballots and voting machines.`\
+https://www.nytimes.com/2026/10/31/us/newsom-california-election-interference.html
+
 **North Korean Hackers May Have Stolen Billions. It Wouldn’t Be Their First Heist.**\
 `This week’s $6.3 billion hack of Binance is the largest to rock the crypto industry. North Korea, with a history of brazen cybercrime, is a suspect.`\
 https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
