@@ -1,3 +1,7 @@
+**Mother of Teen Killed in the Bronx Gets Visa After Mamdani-Trump Call**\
+`Javits Frimpong, 15, died on Thursday after being shot close to his home near Crotona Park, the police said. The boy had moved from Ghana a year ago.`\
+https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
+
 **Shooting at Spirit Halloween in California Leaves at Least One Dead**\
 `The police are searching for a person who shot seven people, killing a 31-year-old pregnant woman, on the eve of Halloween. Families were in the store shopping for last minute costumes.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html

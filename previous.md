@@ -1,3 +1,7 @@
+**Mother of Teen Killed in the Bronx Gets Visa After Mamdani-Trump Call**\
+`Javits Frimpong, 15, died on Thursday after being shot close to his home near Crotona Park, the police said. The boy had moved from Ghana a year ago.`\
+https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
+
 **El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
 `Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival, leaving uncertainty about their scheduled joint event on Sunday.`\
 https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/world/middleeast/iran-war-israel-us-elections
 **How Locals and Shopkeepers Tried to Save One Paris Street From Rioters**\
 `As arson, looting and destruction overwhelmed Rue Beaurepaire, some residents pleaded with rioters to stop. Others hid out of fear. Many dread a repeat.`\
 https://www.nytimes.com/2026/10/31/world/europe/france-riots-protests-paris-rue-beaurepaire.html
-
-**Talarico Makes Final Election Pitch to Texans: ‘You Are My Slingshot’**\
-`The Democratic candidate for Senate has led in polls. But because it’s Texas, he remains the underdog.`\
-https://www.nytimes.com/2026/10/31/us/politics/talarico-texas.html
 
