@@ -1,3 +1,7 @@
+**Count on One’s Fingers?**\
+`Erik Agard and Brendan Emmett Quigley bring us a horrifyingly good Halloween puzzle.`\
+https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
+
 **Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
 `Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
 https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/30/realestate/mikie-sherrill-house-listing-montc
 **Steve Hilton Tries Anything as a G.O.P. Long Shot in California**\
 `Steve Hilton is attempting to become governor in a state that hasn’t elected a Republican to the top job in 20 years.`\
 https://www.nytimes.com/2026/10/30/us/hilton-california-governor.html
-
-**Book Club: Let’s Talk About ‘Switzy’**\
-`Emma Cline’s latest novel is about a man with dementia who has decided to end his life on his own terms.`\
-https://www.nytimes.com/2026/10/30/books/review/podcast-book-club-switzy.html
 

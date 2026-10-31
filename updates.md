@@ -1,3 +1,7 @@
+**Count on One’s Fingers?**\
+`Erik Agard and Brendan Emmett Quigley bring us a horrifyingly good Halloween puzzle.`\
+https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
+
 **Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
 `Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
 https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
