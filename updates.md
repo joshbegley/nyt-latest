@@ -1,3 +1,7 @@
+**Why Texas Dems Are Still Nervous About Talarico**\
+`In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
+
 **Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
 `President Trump will appear on Sunday in Iowa and Kansas, which have become crucial Senate battlegrounds.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
