@@ -1,3 +1,7 @@
+**Trump Complains About Campaign Schedule as Midterms Near**\
+`President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
+https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
+
 **Birders Fear for N.Y. Celebrity Owls Over Construction Near Their Nest**\
 `A family of barn owls drew a crowd after making a nest in a derelict water tower in Manhattan. After workers tore off the roof, conservation officers arrived.`\
 https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011248961/ukraine-oleshky-cease
 **Going to the NYC Marathon? Here are the Best Places to Cheer.**\
 `Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
 https://www.nytimes.com/2026/10/30/nyregion/new-york-city-marathon-where-to-cheer-route.html
-
-**The Local: ‘Kung Fu Zombies’ in St. Paul**\
-`Also, the quiet confidence of the (Minnesotan) long-distance runner.`\
-https://www.nytimes.com/2026/10/30/briefing/kung-fu-zombies.html
 

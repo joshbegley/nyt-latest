@@ -1,3 +1,7 @@
+**Trump Complains About Campaign Schedule as Midterms Near**\
+`President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
+https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
+
 **Birders Fear for N.Y. Celebrity Owls Over Construction Near Their Nest**\
 `A family of barn owls drew a crowd after making a nest in a derelict water tower in Manhattan. After workers tore off the roof, conservation officers arrived.`\
 https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
