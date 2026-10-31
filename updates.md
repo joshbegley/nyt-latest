@@ -1,3 +1,7 @@
+**F.D.A. Warns of Tractor Wheels Snack Bar Linked to Choking Hazard**\
+`Once Upon a Farm has recalled its Tractor Wheels soft-baked bars after reports that toddlers could not breathe while eating them.`\
+https://www.nytimes.com/2026/10/31/well/family/fda-tractor-wheels-choking-hazard.html
+
 **Inside the Times’s Decisions on the Alaska Senate Race Story**\
 `Our investigation found that Democratic operatives were behind a plan to bring a potential spoiler into the Senate race.`\
 https://www.nytimes.com/2026/10/31/insider/the-times-decisions-alaska-senate-race-story.html
