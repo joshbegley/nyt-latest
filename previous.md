@@ -1,3 +1,7 @@
+**Court Filing Cites Internal Pressure to Close Kennedy Center**\
+`Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
+https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
+
 **Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
 `President Trump will appear on Sunday in Kansas, which has recently become a crucial Senate battleground.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/science/ukraine-soldiers-infection-treatment.
 **A Halloween Tale: Ghost Stories of the U.S. Capitol**\
 `The ghost stories, dating back to the 19th century, are fitting for a building where the past rarely stays dead.`\
 https://www.nytimes.com/2026/10/31/us/politics/us-capitol-ghosts-haunted.html
-
-**What Does Running the N.Y.C. Marathon Sound Like?**\
-`Mike Dang, a 10-time marathoner and New York Times business editor, relives the unique sonic experience of running the New York City Marathon.`\
-https://www.nytimes.com/video/business/100000011219428/what-does-running-the-nyc-marathon-sound-like.html
 

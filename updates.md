@@ -1,3 +1,7 @@
+**Court Filing Cites Internal Pressure to Close Kennedy Center**\
+`Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
+https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
+
 **This Is How MAHA Ends**\
 `Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
 https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
