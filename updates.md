@@ -1,3 +1,15 @@
+**Syria Weighs Joining Saudi Mutual Defense Pact as Yemen War Rages**\
+`A move to join Saudi Arabia’s agreement with Turkey and Pakistan could entangle more countries in the kingdom’s escalating conflict between the Iran-backed Houthis.`\
+https://www.nytimes.com/2026/10/31/world/middleeast/syria-saudi-defense-pact.html
+
+**Why Manipulate the Lines When You Can Just Move People Around?**\
+`Gerrymandering, Gilded Age-style.`\
+https://www.nytimes.com/2026/10/31/opinion/gerrymandering-colonization-gilded-age.html
+
+**You Should Go to the Basement. Just Don’t Go Alone.**\
+`Horror isn’t just scary — it can draw people together, especially when they’ve struggled to connect.`\
+https://www.nytimes.com/2026/10/31/opinion/horror-family-father.html
+
 **Live Updates: Hundreds of Thousands Join Another Round of Protests in France**\
 `The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
