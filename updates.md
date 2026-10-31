@@ -1,3 +1,27 @@
+**Birders Fear for N.Y. Celebrity Owls Over Construction Near Their Nest**\
+`A family of barn owls drew a crowd after making a nest in a derelict water tower in Manhattan. After workers tore off the roof, conservation officers arrived.`\
+https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
+
+**Shoes, Fees, Competition: Why the NYC Marathon Is Out of Reach for Many**\
+`Running has long been celebrated as a cheap and accessible sport. But the culture of racing, especially in New York, is often anything but.`\
+https://www.nytimes.com/2026/10/31/nyregion/nyc-marathon-price.html
+
+**NYT Spelling Bee Answers for October 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/31/crosswords/spelling-bee-forum.html
+
+**How NBC’s Maria Taylor Gets Ready for a Big Night With the Knicks**\
+`Ms. Taylor had to work out, get her son to school and fit in “Real Housewives” before leading the broadcast of the Knicks game on ring night.`\
+https://www.nytimes.com/interactive/2026/10/31/nyregion/routine-maria-taylor.html
+
+**Black Bears in Connecticut Are Eating Grapes and Entering Homes**\
+`Bears and humans are increasingly getting in each other’s way, presenting problems for both species.`\
+https://www.nytimes.com/2026/10/31/nyregion/black-bears-houses-restaurants-connecticut.html
+
+**A Navy Pilot Tries to Flip a Key House Seat, Right by Trump’s Golf Club**\
+`Rebecca Bennett, a Democrat, is vying to unseat Representative Thomas Kean Jr. in a New Jersey district that includes President Trump’s Bedminster golf club.`\
+https://www.nytimes.com/2026/10/31/nyregion/rebecca-bennett-nj-house-race.html
+
 **Liu Yandong, Rare Woman Among China’s Political Elite, Dies at 80**\
 `The former vice premier was one of just six women to have served on the Chinese Communist Party’s elite Politburo, though she was excluded from the top ranks of power.`\
 https://www.nytimes.com/2026/10/31/world/asia/liu-yandong-dead.html
