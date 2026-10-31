@@ -55,7 +55,7 @@ https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-
 https://www.nytimes.com/2026/10/31/magazine/thanksgiving-elderly-parents-ethics.html
 
 **Why Texas Dems Are Still Nervous About Talarico**\
-`In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign. All eyes are on the competitive Texas Senate Race, the most expensive in the country, as the Democratic nominee Jame Talarico battles it out with the Republican nominee, former state attorney general Ken Paxton.`\
+`In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
 
 **75 Years On, the National Ballet of Canada ‘Remains the Icon’**\
