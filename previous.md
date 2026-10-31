@@ -1,3 +1,143 @@
+**Pick Another Protein? Americans Still Want Beef, Despite the Price.**\
+`After chicken, consumers are buying more beef, while pork, turkey and soy products remain flat.`\
+https://www.nytimes.com/2026/10/31/business/beef-prices-protein.html
+
+**Can Ulta, a Corporate Chain, Also Be a Great Black Hair Salon?**\
+`Black women are discovering Ulta Beauty’s textured hair services, but not everyone is convinced it’s worth leaving their stylists for.`\
+https://www.nytimes.com/2026/10/31/style/ulta-black-hair-salons.html
+
+**Fans Can’t Get Enough of ‘A Court of Thrones and Roses’ (Or Its Merch)**\
+`The sixth book in Sarah J. Maas’s blockbuster A Court of Thorn and Roses series drew costumed fans across the country out to celebrate — and to open their wallets.`\
+https://www.nytimes.com/2026/10/31/books/they-cant-get-enough-of-the-queen-of-fairy-smut-or-her-merch.html
+
+**As Midterms Near, Top Law Firms That Capitulated to Trump Are on the Sidelines**\
+`None of the firms that struck deals to avoid crippling executive orders are publicly involved in the major legal efforts to check the Trump administration’s attempts to meddle in the midterm elections, a review by The New York Times shows.`\
+https://www.nytimes.com/2026/10/31/us/politics/law-firms-trump-voting.html
+
+**Martin McDonagh: ‘My Male Friendships Are Quite Deep and Sad and Open’**\
+`On “The Interview,” the writer-director Martin McDonagh talked about how he portrays the relationship between the characters played by Sam Rockwell and John Malkovich in his new movie, “Wild Horse Nine.”`\
+https://www.nytimes.com/video/podcasts/100000011237896/martin-mcdonagh-my-male-friendships-are-quite-deep-and-sad-and-open.html
+
+**Martin McDonagh on Critics Who Find His Work Offensive**\
+`On “The Interview,” the writer-director Martin McDonagh discussed criticism of his work and how it affects him.`\
+https://www.nytimes.com/video/podcasts/100000011237891/martin-mcdonagh-on-critics-who-find-his-work-offensive.html
+
+**Martin McDonagh Didn’t Want to Be Another ‘Dull’ Playwright**\
+`On “The Interview,” the writer-director Martin McDonagh talked about his early career and his anti-establishment approach to the theater.`\
+https://www.nytimes.com/video/podcasts/100000011237887/martin-mcdonagh-didnt-want-to-be-another-dull-playwright.html
+
+**Martin McDonagh on How Punk Rock Changed His Life**\
+`On “The Interview,” the writer-director Martin McDonagh talked about how bands like the Clash helped him question authority as he was growing up.`\
+https://www.nytimes.com/video/podcasts/100000011237884/martin-mcdonagh-on-how-punk-rock-changed-his-life.html
+
+**The U.S. Becomes a Global Hub for Horse Racing**\
+`More horses from overseas are competing in America’s marquee events, as the sport enjoys a renaissance.`\
+https://www.nytimes.com/2026/10/31/business/breeders-cup-thoroughbreds-keeneland-saratoga-sales.html
+
+**Martin McDonagh Says Art Can Change the World. Just Not As Much as Murder.**\
+`The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
+https://www.nytimes.com/video/podcasts/100000011237879/martin-mcdonagh-says-art-can-change-the-world-just-not-as-much-as-murder.html
+
+**No One Wants to Serve on the Condo Board. Now What?**\
+`Owners should know that there can be serious financial risks if they don’t set a sustainable path forward for the building.`\
+https://www.nytimes.com/2026/10/31/realestate/condo-board-members-shortage.html
+
+**Choose Your Favorite $1 Million Home in Athens**\
+`An apartment in Pangrati with Acropolis views, a penthouse in Thiseio with Parthenon views, and a loft in Psirri, also with Acropolis views.`\
+https://www.nytimes.com/2026/10/31/realestate/homes-for-sale-athens-greece.html
+
+**Why Did So Many People File Early for Social Security Last Year?**\
+`Experts point to well-publicized turmoil at the government agency last year as a potential spark.`\
+https://www.nytimes.com/2026/10/31/well/whats-behind-a-recent-spike-in-early-social-security-claims.html
+
+**Queens of the Stone Age Returns, and 8 More Songs We’re Talking About**\
+`The rockers rant against brainwashing, Snoh Aalegra declares her love, Zach Bryan floods the Hot 100 chart and more.`\
+https://www.nytimes.com/2026/10/31/arts/music/queens-of-the-stone-age-snoh-aalegra-songs.html
+
+**Doctors in Ukraine Try Treating Infections Like Biological Warfare Attacks**\
+`As many as 40 percent of injured soldiers face severe infections that can lead to amputations and death. One initiative is trying to fix that.`\
+https://www.nytimes.com/2026/10/31/science/ukraine-soldiers-infection-treatment.html
+
+**A Halloween Tale: Ghost Stories of the U.S. Capitol**\
+`The ghost stories, dating back to the 19th century, are fitting for a building where the past rarely stays dead.`\
+https://www.nytimes.com/2026/10/31/us/politics/us-capitol-ghosts-haunted.html
+
+**What Does Running the N.Y.C. Marathon Sound Like?**\
+`Mike Dang, a 10-time marathoner and New York Times business editor, relives the unique sonic experience of running the New York City Marathon.`\
+https://www.nytimes.com/video/business/100000011219428/what-does-running-the-nyc-marathon-sound-like.html
+
+**Book Review: ‘Our Cut of Salt,’ by Deena Helm**\
+`In “Our Cut of Salt,” a young woman’s return to her ancestral home uncovers chilling secrets.`\
+https://www.nytimes.com/2026/10/31/books/review/deena-helm-our-cut-of-salt.html
+
+**For a Stronger Core, You Only Need 10 Minutes**\
+`Strengthening your midsection doesn’t have to take long, but it can have serious benefits.`\
+https://www.nytimes.com/2026/10/31/well/move/strong-core-workout.html
+
+**Busy Philipps Might Be Listening to Your Outdoor Convo**\
+`The “Cupertino” star enjoys walks with a bit of eavesdropping on passers-by: “I love those snippets of conversation. You hear some really great ones.”`\
+https://www.nytimes.com/2026/10/31/arts/television/busy-philipps-cupertino.html
+
+**Cannibalism Novels With a Feminist Twist**\
+`Cannibalism has become an increasingly popular trope in contemporary fiction, with female authors leading the charge. Our reporter Alexandra Alter dives into why female authors are drawn to the taboo topic as an expression of female rage.`\
+https://www.nytimes.com/video/books/100000011196780/cannibalism-novels-with-a-feminist-twist.html
+
+**How Disabled Children Were Caught Up in Trump’s Homeless Crackdown**\
+`In its push to clear out people who live on the street and are mentally ill, the Trump administration is targeting legal protections that cover a much bigger population.`\
+https://www.nytimes.com/2026/10/31/us/trump-homeless-crackdown-disabled-children.html
+
+**In San Francisco’s A.I. Boom, a First Date Has Become an Interview**\
+`When there is A.I. to build, who has time for romance? Techies are going out less and expecting more on each date — including a family health history.`\
+https://www.nytimes.com/2026/10/31/technology/san-francisco-ai-boom-dating.html
+
+**Hiring Etsy Witches to Conjure Up Good Wedding Weather**\
+`Sometimes these “spells” work, sometimes they don’t. But that hasn’t stopped couples from trying to ward off rain.`\
+https://www.nytimes.com/2026/10/31/style/etsy-witches-weather-spells-wedding.html
+
+**Voters Usually Ignore Corruption as an Issue. It Now Has Their Attention.**\
+`Voters have shrugged off accusations of corruption for years, believing all politicians are corrupt, but thanks to President Trump’s unpopularity and growing wealth, the issue is breaking through.`\
+https://www.nytimes.com/2026/10/31/us/politics/corruption-midterms.html
+
+**How Trump Is Dismantling America’s Scientific Research Machine**\
+`The system that has driven life-altering discoveries and helped make the United States a superpower is now under intense strain.`\
+https://www.nytimes.com/2026/10/31/climate/how-trump-is-dismantling-americas-scientific-research-machine.html
+
+**Why Does Culture Feel So Samey? A Walking Tour Reveals the Math.**\
+`The data scientist Lauren Leek says predictive algorithms are flattening the everyday world, from pub menus to pop lyrics.`\
+https://www.nytimes.com/2026/10/31/arts/lauren-leek-algorithms-culture.html
+
+**Book Review: ‘Shelter Is Necessary for Existence,’ by Brenda Iijima**\
+`A strange, thrilling novel combines a classic ghost story with a blistering satire of the modern landowning class.`\
+https://www.nytimes.com/2026/10/31/books/review/shelter-is-necessary-for-existence-brenda-iijima.html
+
+**That Mummy for Sale on Facebook Could Make You Ill**\
+`Experts warn that online black markets for mummified remains could pose health risks.`\
+https://www.nytimes.com/2026/10/31/science/mummy-sale-facebook-ill.html
+
+**Cleveland’s Rock & Roll Hall of Fame Is Reborn**\
+`A $195 million expansion of the Rock Hall features a new entry plaza, an amphitheater and a 40-foot-tall wall of glass.`\
+https://www.nytimes.com/2026/10/31/arts/design/cleveland-rock-roll-hall-fame.html
+
+**In the Fog of War, Native American Veteran Artists Find Inspiration**\
+`A show at the Wheelwright Museum of the American Indian highlights art made by Indigenous veterans, especially those who served in the Vietnam War.`\
+https://www.nytimes.com/2026/10/31/arts/design/wheelwright-museum-native-american-vietnam-veteran-exhibit.html
+
+**Democrats Need Big Margins in Houston. Can This Progressive Deliver?**\
+`Dr. Letitia Plummer has been polling ahead in the race to lead Harris County, where turnout could decide statewide races.`\
+https://www.nytimes.com/2026/10/31/us/muslim-democrat-harris-county-texas.html
+
+**The La Brea Tar Pits Faces a Huge Task in its Remodel**\
+`Over the next two years, the Los Angeles institution must pack, move and unpack 3.5 million fossils, while modernizing to meet this critical moment.`\
+https://www.nytimes.com/2026/10/31/arts/design/los-angeles-la-brea-tar-pits-renovation.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
+`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
+`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
+https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-toplines.html
+
 **Trump Complains About Campaign Schedule as Midterms Near**\
 `President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
 https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
@@ -57,144 +197,4 @@ https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
 **Judge Blocks Expediting Migrant Children’s Asylum Cases, For Now**\
 `Lawyers for the children praised the pause on fast-tracked interviews of unaccompanied minors, calling it a blow against the Trump administration’s “deportation assembly line.”`\
 https://www.nytimes.com/2026/10/30/us/politics/children-asylum-fast-track-deport.html
-
-**Justice Dept. Confirms Alaska Inquiry Even as Its Focus Remains Unclear**\
-`Democrats and former officials have accused the department of pursuing a political goal in the guise of a legal one: to publicize a scheme, sordid but not illegal under state law, damaging to Democrats.`\
-https://www.nytimes.com/2026/10/30/us/politics/justice-dept-alaska-senate-inquiry.html
-
-**Photo Quiz: Guess the Year**\
-`We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
-https://www.nytimes.com/interactive/2026/10/30/arts/photo-quiz-game-175.html
-
-**‘Election Pornography’ Is Making Voters Anxious**\
-`“Both sides have raised the anxiety level,” around the midterm election, the law expert Rick Pildes said on “Interesting Times” earlier this fall. Pildes argued that what he calls “election pornography” has shaped a narrative that our elections are more vulnerable to fraud than they actually are.`\
-https://www.nytimes.com/video/opinion/100000011240920/election-pornography-is-making-voters-anxious.html
-
-**Traffic Control Errors Most Likely Caused Spain Train Wreck, Says Official**\
-`Óscar Puente, Spain’s transportation minister, said traffic controllers gave the green light to a train racing at about 100 miles per hour toward a stopped train this week, precipitating a crash that killed at least 69 people.`\
-https://www.nytimes.com/video/world/europe/100000011250770/spain-train-crash-cause-traffic-control.html
-
-**ICE Agent Indicted After Hitting Immigrant With Car**\
-`An ICE agent is facing state charges of aggravated assault with a deadly weapon after hitting an undocumented Mexican immigrant with his car in Houston earlier this month.`\
-https://www.nytimes.com/video/us/100000011250843/ice-agent-indicted-hitting-immigrant-car.html
-
-**Why Running for the U.S. Senate Is a Rich Person’s Game**\
-`Your Senate candidates are probably richer than you.`\
-https://www.nytimes.com/2026/10/30/us/politics/us-senate-races-millionaires-wealth.html
-
-**Anthropic’s I.P.O.: Why the Stakes Are So High**\
-`This week on “Hard Fork,” the A.I. company Anthropic is getting ready to go public. As more and more investment dollars and the economy at large are wrapped up in these large A.I. companies, what’s at stake with this I.P.O.?`\
-https://www.nytimes.com/video/technology/100000011250815/anthropics-ipo-why-the-stakes-are-so-high.html
-
-**How Healthy Is Anthropic’s Business?**\
-`This week on “Hard Fork,” Max Read, guest host, and Erin Griffith, a tech reporter for The New York Times, discuss how Anthropic’s upcoming I.P.O. is a rare chance to see the financials of a major A.I. company.`\
-https://www.nytimes.com/video/technology/100000011250776/how-healthy-is-anthropics-business.html
-
-**Minnesota Declined to Buy a Prison for $75 Million. D.H.S. Paid $495 Million.**\
-`The recent purchase of the prison to hold immigrants is among the acquisitions facing scrutiny in the Trump administration’s mass deportation push.`\
-https://www.nytimes.com/2026/10/30/us/minnesota-prison-homeland-security.html
-
-**Hack Could Leave AO3, a Popular Fan Fiction Site, Offline for Weeks**\
-`AO3, which hosts 18 million stories spun off from the likes of “Harry Potter” and “Heated Rivalry,” was taken offline after “an intrusion,” one of its founders said.`\
-https://www.nytimes.com/2026/10/30/arts/ao3-fan-fiction-site-down.html
-
-**Alina Habba’s Husband Ignited Drama in Trump’s Circle. Now He’s Under Scrutiny.**\
-`Turhan Mildon, who married Alina Habba this summer, presents himself as a 29-year-old billionaire with ties to global leaders. His story has inconsistencies.`\
-https://www.nytimes.com/2026/10/30/us/politics/alina-habba-turhan-mildon-trump-congo-venezuela.html
-
-**Trump’s Plane Flyover Is a Halloween Trick for Startled D.C. Residents**\
-`A White House social media account said the surprise Air Force One flight was part of a Halloween event hosted by the president and the first lady.`\
-https://www.nytimes.com/2026/10/30/us/politics/air-force-flyover.html
-
-**Trump Will Go to Kansas and Iowa Before Election Day**\
-`Also, a rare rescue begins in Ukraine. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/10/30/briefing/trump-campaign-plans-crypto-hack.html
-
-**A Meteorite Found in the Sahara Is a 4.1-Billion-Year-Old Piece of Mars**\
-`Minerals in the space rock provide hints about the early history of the red planet, when water was flowing on the surface.`\
-https://www.nytimes.com/2026/10/30/science/space/mars-meteorite-teghaza.html
-
-**Halloween Costume Inspiration From the Fashion Runways**\
-`Halloween costume inspiration from the latest fashion runways.`\
-https://www.nytimes.com/2026/10/30/t-magazine/halloween-costume-inspiration-spring-fashion-runways.html
-
-**A Century-Old Queens Costumer Says Goodbye**\
-`Robert Stivanello is the third-generation owner of his family’s costume company. But handmade costumes aren’t so popular anymore.`\
-https://www.nytimes.com/2026/10/30/nyregion/stivanello-costume-company-closing.html
-
-**They Bought Harry Houdini’s House. It Came With a Gaggle of Magic Fans.**\
-`When a family of four moved into the famed escape artist’s former Harlem brownstone, they had no idea how much attention would come with the address.`\
-https://www.nytimes.com/2026/10/30/nyregion/houdini-harlem-brownstone.html
-
-**Daniel Singer Has Died. He Shrank Shakespeare and Made Disney Models.**\
-`He helped turn the Bard’s canon into a three-man, 97-minute comedy, then worked as a Disney Imagineer. He was 66.`\
-https://www.nytimes.com/2026/10/30/obituaries/daniel-singer-dead.html
-
-**The Story Behind Musk’s ‘Woke Mind Virus’ Theory**\
-`Elon Musk is obsessed with the “woke mind virus.” On “The Ezra Klein Show,” Quinn Slobodian, a co-author of “Muskism,” explains the roots of this meme and how it has influenced Musk’s politics.`\
-https://www.nytimes.com/video/opinion/100000011243962/the-story-behind-musks-woke-mind-virus-theory.html
-
-**Elon Musk’s $450 Million Political Gamble**\
-`Why did Musk donate about $450 million to the elections? On “The Ezra Klein Show,” a co-author of “Muskism,” Quinn Slobodian, argues that Musk is insulating himself by making his businesses too essential for any future administration, Democratic or Republican, to rein in.`\
-https://www.nytimes.com/video/opinion/100000011249608/elon-musks-450-million-political-gamble.html
-
-**Carney Commits Canada to Becoming European Union’s First ‘Associate Member’**\
-`The move is part of the Canadian prime minister’s effort to reduce American influence over Canada and expand trade to other parts of the world.`\
-https://www.nytimes.com/2026/10/30/world/canada/carney-canada-european-union.html
-
-**House Democrats Criticize Justice Dept. Support of OpenAI in Copyright Suit**\
-`In a court filing, top Democrats on the Judiciary Committee indicated their support for publishers in a lawsuit led by The New York Times.`\
-https://www.nytimes.com/2026/10/30/technology/house-democrats-openai-copyright-lawsuit.html
-
-**Obamacare Policies Hit Again With Steep Premium Increases for 2027**\
-`Premiums will increase an average 13 percent next year for millions of Americans, on top of an earlier steep increase. It adds to the problems facing the program, which the Trump administration has weakened.`\
-https://www.nytimes.com/2026/10/30/business/obamacare-health-insurance-rates.html
-
-**Lawsuit Accuses Education Dept. of Throttling Debt Cancellation Through PSLF Program**\
-`Public servants on the brink of student debt forgiveness are facing setbacks and extensive delays. The American Federation of Teachers sued to help them.`\
-https://www.nytimes.com/2026/10/30/business/pslf-education-department-lawsuit.html
-
-**Marvin Shanken, Publisher of Wine Spectator and Cigar Aficionado, Has Died**\
-`He bought a struggling industry newsletter called Wine Spectator in 1979 and turned it into one of America’s leading tastemakers. He was 83.`\
-https://www.nytimes.com/2026/10/30/dining/drinks/marvin-shanken-wine-dead.html
-
-**Appeals Court Again Rejects Trump Effort to Impound California Ballots**\
-`In a 2-to-1 vote, an appeals court panel declined to order the state to set aside more than 20,000 mail-in ballots, calling the notion plainly unconstitutional.`\
-https://www.nytimes.com/2026/10/30/us/politics/appeals-trump-california-ballots.html
-
-**A Resurgent Justice Democrats Could Reshape a Democratic Congress**\
-`Justice Democrats, which gained prominence backing Alexandria Ocasio-Cortez, is on track to see more of its candidates elected. Will the party listen to them?`\
-https://www.nytimes.com/2026/10/30/us/politics/progressive-democrats-congress-2026.html
-
-**Prosecutors Suggest They May Seek Additional Comey Charges**\
-`At a hearing in federal court, prosecutors defended an unusual, 11th-hour criminal case accusing the former F.B.I. director of leaking classified information a decade ago.`\
-https://www.nytimes.com/2026/10/30/us/politics/james-comey-charges-doj.html
-
-**Everything I Loved Vanished in an Instant**\
-`The mountaineer and skier Jim Morrison joins Anna Martin, the host of “Modern Love,” to talk about the day he lost everything.`\
-https://www.nytimes.com/video/podcasts/100000011243128/everything-i-loved-vanished-in-an-instant.html
-
-**Could El Salvador’s Bukele Be Haiti’s Savior?**\
-`The Salvadoran government dispatched more than 2,000 troops to Haiti this week in an extraordinary deployment on foreign soil.`\
-https://www.nytimes.com/2026/10/30/world/americas/el-salvador-haiti-soldiers-bukele.html
-
-**Jordan Firstman’s ‘Club Kid’ Takes Over Downtown Manhattan**\
-`Cast members including Cara Delevingne celebrated the A24 film on the Lower East Side.`\
-https://www.nytimes.com/2026/10/30/style/jordan-firstman-club-kids-a24-party.html
-
-**Judge Appoints Special Master to Determine if Trump Officials Lied in Golf Course Suit**\
-`Judge Ana C. Reyes said an outside investigator would help determine whether parks officials or Justice Department lawyers withheld plans for Washington’s East Potomac Park.`\
-https://www.nytimes.com/2026/10/30/us/politics/special-master-reyes-trump-golf.html
-
-**Distaste for Lavrov Forces U.S. to Cancel G20 Photo Session in Atlanta**\
-`Some European foreign ministers had refused to pose alongside Russia’s top diplomat, Sergey Lavrov, at a Group of 20 gathering hosted by the United States.`\
-https://www.nytimes.com/2026/10/30/us/politics/lavrov-russia-photo-rubio.html
-
-**Oleshky Evacuations Start After Melania Trump Announces Deal**\
-`Residents of Oleshky, a southern Ukrainian city that has been under Russian occupation since 2022, were evacuated on Friday during a rare localized cease-fire deal announced by the U.S. First Lady Melania Trump.`\
-https://www.nytimes.com/video/world/europe/100000011248961/ukraine-oleshky-ceasefire-russia-war.html
-
-**Going to the NYC Marathon? Here are the Best Places to Cheer.**\
-`Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
-https://www.nytimes.com/2026/10/30/nyregion/new-york-city-marathon-where-to-cheer-route.html
 
