@@ -1,3 +1,7 @@
+**‘Poop Water’ Churns a Local Election in Parched Arizona**\
+`City Council candidates in ritzy Scottsdale disagree on whether recycling wastewater into drinking water is smart policy or a dangerous remedy.`\
+https://www.nytimes.com/2026/10/31/us/poop-water-scottsdale-arizona.html
+
 **Democrats File Suit Over Closed Polling Places in Rural Alaska**\
 `Voting sites in 18 far-flung communities failed to open, the suit claims.`\
 https://www.nytimes.com/2026/10/31/us/elections/democrats-lawsuit-alaska-elections.html
