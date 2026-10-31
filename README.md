@@ -1,3 +1,7 @@
+**What We’re Watching For on Election Night**\
+`Democratic sweep or not, politics are about to change.`\
+https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-election-night.html
+
 **Is It Wrong to Leave My 85-Year-Old Mother Alone on Thanksgiving?**\
 `She’s pretending our getaway is fine with her, but she’s clearly not looking forward to it.`\
 https://www.nytimes.com/2026/10/31/magazine/thanksgiving-elderly-parents-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/arts/lauren-leek-algorithms-culture.html
 **Book Review: ‘Shelter Is Necessary for Existence,’ by Brenda Iijima**\
 `A strange, thrilling novel combines a classic ghost story with a blistering satire of the modern landowning class.`\
 https://www.nytimes.com/2026/10/31/books/review/shelter-is-necessary-for-existence-brenda-iijima.html
-
-**That Mummy for Sale on Facebook Could Make You Ill**\
-`Experts warn that online black markets for mummified remains could pose health risks.`\
-https://www.nytimes.com/2026/10/31/science/mummy-sale-facebook-ill.html
 
