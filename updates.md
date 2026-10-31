@@ -1,3 +1,7 @@
+**He Was a Rising Star at West Point. Then He Got His Girlfriend Pregnant.**\
+`Caleb Suh, a former West Point cadet and current Columbia student, pleaded guilty in June to forcing an abortion on another cadet in 2022. His ex-girlfriend is now suing him for assault and battery.`\
+https://www.nytimes.com/2026/10/31/nyregion/caleb-suh-west-point-abortion-columbia.html
+
 **Syria Weighs Joining Saudi Mutual Defense Pact as Yemen War Rages**\
 `A move to join Saudi Arabia’s agreement with Turkey and Pakistan could entangle more countries in the kingdom’s escalating conflict between the Iran-backed Houthis.`\
 https://www.nytimes.com/2026/10/31/world/middleeast/syria-saudi-defense-pact.html

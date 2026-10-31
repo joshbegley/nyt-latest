@@ -1,3 +1,7 @@
+**COP17 Biodiversity Talks in Yerevan, Armenia**\
+`Countries renewed their promises to protect wildlife at U.N. talks in Armenia, but how to cover the costs remains a question.`\
+https://www.nytimes.com/2026/10/31/climate/cop17-biodiversity-yerevan-conclusion.html
+
 **He Was a Rising Star at West Point. Then He Got His Girlfriend Pregnant.**\
 `Caleb Suh, a former West Point cadet and current Columbia student, pleaded guilty in June to forcing an abortion on another cadet in 2022. His ex-girlfriend is now suing him for assault and battery.`\
 https://www.nytimes.com/2026/10/31/nyregion/caleb-suh-west-point-abortion-columbia.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/us/politics/trump-republicans-personal-attack
 **In Nebraska Senate Race, the Independent May Have an Identity Problem**\
 `Dan Osborn trails by six points, and voters don’t seem to buy that he’s truly independent from Democrats.`\
 https://www.nytimes.com/2026/10/31/upshot/poll-nebraska-osborn-times-siena.html
-
-**Pick Another Protein? Americans Still Want Beef, Despite the Price.**\
-`After chicken, consumers are buying more beef, while pork, turkey and soy products remain flat.`\
-https://www.nytimes.com/2026/10/31/business/beef-prices-protein.html
 
