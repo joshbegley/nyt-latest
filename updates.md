@@ -1,3 +1,7 @@
+**Britain’s Prime Minister Says He’s Open to a Formal Apology for Slavery**\
+`The premier’s comments represent a major change in British policy, but they are unlikely to satisfy those who hoped that reparations would follow.`\
+https://www.nytimes.com/2026/10/30/world/europe/britain-burnham-charles-apology-slavery.html
+
 **Count on One’s Fingers?**\
 `Erik Agard and Brendan Emmett Quigley bring us a horrifyingly good Halloween puzzle.`\
 https://www.nytimes.com/2026/10/30/crosswords/daily-puzzle-2026-10-31.html
