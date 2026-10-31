@@ -1,3 +1,31 @@
+**Is It Wrong to Leave My 85-Year-Old Mother Alone on Thanksgiving?**\
+`She’s pretending our getaway is fine with her, but she’s clearly not looking forward to it.`\
+https://www.nytimes.com/2026/10/31/magazine/thanksgiving-elderly-parents-ethics.html
+
+**Why Texas Dems Are Still Nervous About Talarico**\
+`In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign. All eyes are on the competitive Texas Senate Race, the most expensive in the country, as the Democratic nominee Jame Talarico battles it out with the Republican nominee, former state attorney general Ken Paxton.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
+
+**75 Years On, the National Ballet of Canada ‘Remains the Icon’**\
+`The dance company started on a shoestring and went on to become internationally acclaimed.`\
+https://www.nytimes.com/2026/10/31/world/canada/national-ballet-canada-carney.html
+
+**Today’s Wordle Hints for November 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1 2026.`\
+https://www.nytimes.com/2026/10/31/crosswords/wordle-review-1961.html
+
+**Strands Hints for November 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1, 2026.`\
+https://www.nytimes.com/2026/10/31/crosswords/strands-sidekick-973.html
+
+**NYT Connections Answers for November 1, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1, 2026.`\
+https://www.nytimes.com/2026/10/31/crosswords/connections-companion-1239.html
+
+**Stage Fright**\
+`Halloween presents an endless parade of ghouls and goblins. Most aren’t actually scary, but can illuminate some things about the nature of fear.`\
+https://www.nytimes.com/2026/10/31/briefing/stage-fright.html
+
 **Southwest Faces More Storms After Months of Heavy Rain**\
 `Rivers that swelled over their banks just days ago could flood again, forecasters warned.`\
 https://www.nytimes.com/2026/10/31/weather/four-corners-navajo-nation-colorado-utah-flooding.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/10/31/books/review/shelter-is-necessary-for-existen
 **That Mummy for Sale on Facebook Could Make You Ill**\
 `Experts warn that online black markets for mummified remains could pose health risks.`\
 https://www.nytimes.com/2026/10/31/science/mummy-sale-facebook-ill.html
-
-**Cleveland’s Rock & Roll Hall of Fame Is Reborn**\
-`A $195 million expansion of the Rock Hall features a new entry plaza, an amphitheater and a 40-foot-tall wall of glass.`\
-https://www.nytimes.com/2026/10/31/arts/design/cleveland-rock-roll-hall-fame.html
-
-**In the Fog of War, Native American Veteran Artists Find Inspiration**\
-`A show at the Wheelwright Museum of the American Indian highlights art made by Indigenous veterans, especially those who served in the Vietnam War.`\
-https://www.nytimes.com/2026/10/31/arts/design/wheelwright-museum-native-american-vietnam-veteran-exhibit.html
-
-**Democrats Need Big Margins in Houston. Can This Progressive Deliver?**\
-`Dr. Letitia Plummer has been polling ahead in the race to lead Harris County, where turnout could decide statewide races.`\
-https://www.nytimes.com/2026/10/31/us/muslim-democrat-harris-county-texas.html
-
-**The La Brea Tar Pits Faces a Huge Task in its Remodel**\
-`Over the next two years, the Los Angeles institution must pack, move and unpack 3.5 million fossils, while modernizing to meet this critical moment.`\
-https://www.nytimes.com/2026/10/31/arts/design/los-angeles-la-brea-tar-pits-renovation.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
-`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
-https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Nebraska**\
-`Results of a New York Times/Siena poll conducted among 809 voters from Oct. 23 to 29, 2026.`\
-https://www.nytimes.com/interactive/2026/10/31/polls/times-siena-ne-poll-toplines.html
-
-**Trump Complains About Campaign Schedule as Midterms Near**\
-`President Trump complained on Friday about his demanding campaign schedule, and reinstated his weekend rallies in Iowa and Kansas a day after canceling them.`\
-https://www.nytimes.com/video/us/politics/100000011251361/trump-iowa-kansas-rallies-midterms.html
 
