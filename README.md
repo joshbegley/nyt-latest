@@ -1,9 +1,17 @@
+**Abdul El-Sayed Does Not Want to Talk About Haley Stevens. Everyone Else Does.**\
+`“We had a primary, right?” Dr. El-Sayed, the Democratic Senate candidate in Michigan, told reporters. “I understand that some folks are upset about that. I get it. But I’m here trying to beat Mike Rogers.”`\
+https://www.nytimes.com/2026/10/31/us/elections/michigan-senate-abdul-el-sayed.html
+
+**Be Amazed**\
+`Kevin Curry and Zhou Zhang’s Sunday collaboration takes us on a great trip around the blocks.`\
+https://www.nytimes.com/2026/10/31/crosswords/daily-puzzle-2026-11-01.html
+
 **Clashes Erupt Again in France, After Festive Start to Day of Protest**\
 `More than 300,000 people took to the streets, some wearing Halloween costumes, before the demonstrations ended in violence.`\
 https://www.nytimes.com/2026/10/31/world/europe/france-protests-clashes.html
 
-**North Korean Hackers May Have Stolen Billions. It Wouldn’t Be Their First Heist.**\
-`This week’s $6.3 billion hack of Binance is the largest to rock the crypto industry. North Korea, with a history of brazen cybercrime, is a suspect.`\
+**North Korean Hackers Stole Billions, the F.B.I. Says. It’s Not Their First Heist.**\
+`This week’s $6.3 billion hack of Binance is the largest to hit crypto, and would be the most that North Koreans have stolen in years of brazen cybercrime.`\
 https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
 
 **Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/10/31/briefing/stage-fright.html
 **Southwest Faces More Storms After Months of Heavy Rain**\
 `Rivers that swelled over their banks just days ago could flood again, forecasters warned.`\
 https://www.nytimes.com/2026/10/31/weather/four-corners-navajo-nation-colorado-utah-flooding.html
-
-**How Warm Will the New York City Marathon Route Get on Sunday?**\
-`A borough-by-borough breakdown of the weather forecast.`\
-https://www.nytimes.com/2026/10/31/weather/nyc-marathon-temperature.html
-
-**Martin McDonagh Says Art Can Change the World. Just Not as Much as Murder.**\
-`The writer-director, known for his dark and bleak work, believes in film’s power to change our lives.`\
-https://www.nytimes.com/2026/10/31/magazine/martin-mcdonagh-interview.html
 
