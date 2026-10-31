@@ -1,3 +1,27 @@
+**Birders Fear for N.Y. Celebrity Owls Over Construction Near Their Nest**\
+`A family of barn owls drew a crowd after making a nest in a derelict water tower in Manhattan. After workers tore off the roof, conservation officers arrived.`\
+https://www.nytimes.com/2026/10/31/nyregion/barn-owls-manhattan.html
+
+**Shoes, Fees, Competition: Why the NYC Marathon Is Out of Reach for Many**\
+`Running has long been celebrated as a cheap and accessible sport. But the culture of racing, especially in New York, is often anything but.`\
+https://www.nytimes.com/2026/10/31/nyregion/nyc-marathon-price.html
+
+**NYT Spelling Bee Answers for October 31, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/10/31/crosswords/spelling-bee-forum.html
+
+**How NBC’s Maria Taylor Gets Ready for a Big Night With the Knicks**\
+`Ms. Taylor had to work out, get her son to school and fit in “Real Housewives” before leading the broadcast of the Knicks game on ring night.`\
+https://www.nytimes.com/interactive/2026/10/31/nyregion/routine-maria-taylor.html
+
+**Black Bears in Connecticut Are Eating Grapes and Entering Homes**\
+`Bears and humans are increasingly getting in each other’s way, presenting problems for both species.`\
+https://www.nytimes.com/2026/10/31/nyregion/black-bears-houses-restaurants-connecticut.html
+
+**A Navy Pilot Tries to Flip a Key House Seat, Right by Trump’s Golf Club**\
+`Rebecca Bennett, a Democrat, is vying to unseat Representative Thomas Kean Jr. in a New Jersey district that includes President Trump’s Bedminster golf club.`\
+https://www.nytimes.com/2026/10/31/nyregion/rebecca-bennett-nj-house-race.html
+
 **Liu Yandong, Rare Woman Among China’s Political Elite, Dies at 80**\
 `The former vice premier was one of just six women to have served on the Chinese Communist Party’s elite Politburo, though she was excluded from the top ranks of power.`\
 https://www.nytimes.com/2026/10/31/world/asia/liu-yandong-dead.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/10/30/nyregion/new-york-city-marathon-where-to-chee
 **The Local: ‘Kung Fu Zombies’ in St. Paul**\
 `Also, the quiet confidence of the (Minnesotan) long-distance runner.`\
 https://www.nytimes.com/2026/10/30/briefing/kung-fu-zombies.html
-
-**Why Kalshi Wants to Repeal a 1958 Law About Onions**\
-`A law enacted after a brazen scheme to rig onion prices in the 1950s puts the vegetable, as well as box office receipts, off-limits for prediction markets.`\
-https://www.nytimes.com/2026/10/30/business/kalshi-onion-futures-act-1958.html
-
-**Can Republicans Hold the Senate? They Need These Midterm Voters.**\
-`Republicans need the support of both longtime stalwarts and newly minted supporters to have any chance of holding onto the Senate.`\
-https://www.nytimes.com/interactive/2026/10/30/us/elections/midterms-senate-seats-republican.html
-
-**El-Sayed Clashes With Former Primary Rival Who Demanded His Apology**\
-`Dr. Abdul El-Sayed and Representative Haley Stevens traded sharply critical comments Friday, escalating intraparty tensions in Michigan’s pivotal Senate race.`\
-https://www.nytimes.com/2026/10/30/us/politics/el-sayed-stevens-michigan-senate-event.html
-
-**Democratic Senate Candidate Denies Knowledge of Alaska Ballot Stacking**\
-`Mary Peltola, the Democratic candidate for the Senate in Alaska, said she was unaware of Democrats’ secret effort to stack the midterm ballot with a candidate with the same name as the Republican incumbent.`\
-https://www.nytimes.com/video/us/politics/100000011248503/mary-peltola-denial-alaska-senate.html
-
-**Patrick Stewart Embraced His Baldness and Became an Icon**\
-`It took him a while to realize that his lack of hair only added to his quietly commanding presence.`\
-https://www.nytimes.com/2026/10/30/style/patrick-stewart-bald-hereditary-alopecia.html
-
-**Binance Was Hacked. What Protections Exist for Crypto Customers?**\
-`After a $6.3 billion hack, the company said it was going to reimburse customers who had losses.`\
-https://www.nytimes.com/2026/10/30/business/binances-hack-customer-protections.html
 
