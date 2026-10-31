@@ -1,3 +1,15 @@
+**Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
+`President Trump will appear on Sunday in Kansas, which has recently become a crucial Senate battleground.`\
+https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
+
+**Live Updates: Thousands Expected at Another Round of Protests in France**\
+`With Halloween falling on Saturday, demonstrators might turn out in masks and costumes. The authorities again prepared a vast security response.`\
+https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
+
+**The New Hot Job in Law Doesn’t Require a J.D.**\
+`Big law firms, legal tech vendors, and in-house legal departments at companies like Microsoft and Nvidia are all hiring legal engineers, a new position for lawyers with A.I. skills.`\
+https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
+
 **These Runners Got Faster at the N.Y.C. Marathon. The Data Says You Can Too.**\
 `Repeat runners improve their times on average. Here’s how some did it.`\
 https://www.nytimes.com/interactive/2026/10/31/upshot/marathon-new-york-improvers.html
