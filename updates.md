@@ -1,3 +1,7 @@
+**Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
+`The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
+https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
+
 **Why Texas Dems Are Still Nervous About Talarico**\
 `In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
