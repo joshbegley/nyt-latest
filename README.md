@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 `President Trump will appear on Sunday in Iowa and Kansas, which have become crucial Senate battlegrounds.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 
-**Live Updates: Thousands Expected at Another Round of Protests in France**\
-`With Halloween falling on Saturday, demonstrators might turn out in masks and costumes. The authorities again prepared a vast security response.`\
+**Live Updates: Thousands Join Another Round of Protests in France**\
+`Early estimates suggest that the turnout will be lower than the previous two Saturdays, and the authorities again prepared a vast security response.`\
 https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
 
 **The New Hot Job in Law Doesn’t Require a J.D.**\
