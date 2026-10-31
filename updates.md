@@ -1,3 +1,35 @@
+**Could These Democrats Destroy MAHA?**\
+`Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
+https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
+
+**Why Play With Political Maps When You Can Do This Instead?**\
+`Gerrymandering, Gilded Age-style.`\
+https://www.nytimes.com/2026/10/31/opinion/gerrymandering-colonization-gilded-age.html
+
+**Democrats Are the Populist Party Now**\
+`It’s become screamingly obvious who represents billionaires and unchecked plutocratic power.`\
+https://www.nytimes.com/2026/10/31/opinion/democrats-populist-working-class.html
+
+**In the Midterms, Morality Is on the Ballot**\
+`With the midterms just days away, Times Opinion writers are taking stock of key races and the themes emerging from them. The columnist Jamelle Bouie sees a “politics of morality” taking shape in the messaging of popular Democratic candidates, like Jon Ossoff and James Talarico. He’s hopeful that it signals a larger shift away from the grievance-filled politics of Donald Trump.`\
+https://www.nytimes.com/video/opinion/100000011242382/in-the-midterms-morality-is-on-the-ballot.html
+
+**What We’re Watching For on Election Night**\
+`Democratic sweep or not, politics are about to change.`\
+https://www.nytimes.com/2026/10/31/opinion/midterms-races-democrats-election.html
+
+**What My Father Taught Me About Horror**\
+`Horror isn’t just scary — it can draw people together, especially when they’ve struggled to connect.`\
+https://www.nytimes.com/2026/10/31/opinion/horror-family-father.html
+
+**The Democratic Party’s Masculinity Crisis**\
+`The Democrats have been searching for a way to counteract the toxic masculinity of the right.`\
+https://www.nytimes.com/2026/10/31/opinion/democrats-republicans-toxic-masculinity.html
+
+**Jeffrey Eugenides: My First Day Seems So Much Older Than Me**\
+`One news report that morning conveyed an eternal truth: Commuters will be delayed.`\
+https://www.nytimes.com/2026/10/31/opinion/jeffrey-eugenides-nyt-175.html
+
 **What We’re Watching For on Election Night**\
 `Democratic sweep or not, politics are about to change.`\
 https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-election-night.html
