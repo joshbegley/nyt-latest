@@ -1,3 +1,11 @@
+**El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
+`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival, leaving uncertainty about their scheduled joint event on Sunday.`\
+https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
+
+**Midterm Elections Live Updates: Democratic Discord Intensifies in Michigan Senate Race**\
+`The campaign of Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, does not want his former primary rival to appear at his events, leaving uncertainty about a planned Sunday gathering.`\
+https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
+
 **Shooting at Spirit Halloween in California Leaves at Least One Dead**\
 `The police are searching for a person who shot seven people on the eve of Halloween, as families were shopping for last minute costumes.`\
 https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html

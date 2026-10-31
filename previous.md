@@ -1,3 +1,7 @@
+**El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
+`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival, leaving uncertainty about their scheduled joint event on Sunday.`\
+https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
+
 **‘Poop Water’ Churns a Local Election in Parched Arizona**\
 `City Council candidates in ritzy Scottsdale disagree on whether recycling wastewater into drinking water is smart policy or a dangerous remedy.`\
 https://www.nytimes.com/2026/10/31/us/poop-water-scottsdale-arizona.html
@@ -74,8 +78,8 @@ https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
 `Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
 https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 
-**Midterm Elections Live Updates: Candidates Barnstorm in Competitive States on Final Weekend of Campaigning**\
-`President Trump will appear on Sunday in Iowa and Kansas, which have become crucial Senate battlegrounds.`\
+**Midterm Elections Live Updates: Democratic Discord Intensifies in Michigan Senate Race**\
+`The campaign of Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, does not want his former primary rival to appear at his events, leaving uncertainty about a planned Sunday gathering.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 
 **Live Updates: Hundreds of Thousands Join Another Round of Protests in France**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/world/europe/france-riots-protests-paris-rue-
 **Talarico Makes Final Election Pitch to Texans: ‘You Are My Slingshot’**\
 `The Democratic candidate for Senate has led in polls. But because it’s Texas, he remains the underdog.`\
 https://www.nytimes.com/2026/10/31/us/politics/talarico-texas.html
-
-**Pete Ricketts Leads Dan Osborn in Nebraska Senate Race, Poll Finds**\
-`Voters see Dan Osborn, the independent seeking to unseat Senator Pete Ricketts, as more like a Democrat than an independent, a Times/Siena poll found.`\
-https://www.nytimes.com/2026/10/31/us/politics/nebraska-senate-poll.html
 
