@@ -1,3 +1,11 @@
+**COP17 Biodiversity Talks in Yerevan, Armenia**\
+`Countries renewed their promises to protect wildlife at U.N. talks in Armenia, but how to cover the costs remains a question.`\
+https://www.nytimes.com/2026/10/31/climate/cop17-biodiversity-yerevan-conclusion.html
+
+**One Dead in Halloween Store Shooting in California**\
+`The police, who called the shooting “targeted,” are searching for a person who shot seven people at a costume shop on the eve of the holiday.`\
+https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
+
 **He Was a Rising Star at West Point. Then He Got His Girlfriend Pregnant.**\
 `Caleb Suh, a former West Point cadet and current Columbia student, pleaded guilty in June to forcing an abortion on another cadet in 2022. His ex-girlfriend is now suing him for assault and battery.`\
 https://www.nytimes.com/2026/10/31/nyregion/caleb-suh-west-point-abortion-columbia.html
