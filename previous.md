@@ -1,3 +1,7 @@
+**This Pumpkin Chocoflan Is Actually Magic**\
+`And thereby apt for Halloween.`\
+https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-magic.html
+
 **Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
 `The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
 https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/well/whats-behind-a-recent-spike-in-early-soc
 **Queens of the Stone Age Returns, and 8 More Songs We’re Talking About**\
 `The rockers rant against brainwashing, Snoh Aalegra declares her love, Zach Bryan floods the Hot 100 chart and more.`\
 https://www.nytimes.com/2026/10/31/arts/music/queens-of-the-stone-age-snoh-aalegra-songs.html
-
-**Doctors in Ukraine Try Treating Infections Like Biological Warfare Attacks**\
-`As many as 40 percent of injured soldiers face severe infections that can lead to amputations and death. One initiative is trying to fix that.`\
-https://www.nytimes.com/2026/10/31/science/ukraine-soldiers-infection-treatment.html
 

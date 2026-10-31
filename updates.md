@@ -1,3 +1,7 @@
+**This Pumpkin Chocoflan Is Actually Magic**\
+`And thereby apt for Halloween.`\
+https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-magic.html
+
 **Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
 `The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
 https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
