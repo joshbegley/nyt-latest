@@ -1,3 +1,7 @@
+**Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
+`The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
+https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
+
 **Court Filing Cites Internal Pressure to Close Kennedy Center**\
 `Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
 https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/arts/music/queens-of-the-stone-age-snoh-aaleg
 **Doctors in Ukraine Try Treating Infections Like Biological Warfare Attacks**\
 `As many as 40 percent of injured soldiers face severe infections that can lead to amputations and death. One initiative is trying to fix that.`\
 https://www.nytimes.com/2026/10/31/science/ukraine-soldiers-infection-treatment.html
-
-**A Halloween Tale: Ghost Stories of the U.S. Capitol**\
-`The ghost stories, dating back to the 19th century, are fitting for a building where the past rarely stays dead.`\
-https://www.nytimes.com/2026/10/31/us/politics/us-capitol-ghosts-haunted.html
 
