@@ -1,3 +1,7 @@
+**Syria Weighs Joining Saudi Mutual Defense Pact as Yemen War Rages**\
+`A move to join Saudi Arabia’s agreement with Turkey and Pakistan could entangle more countries in the kingdom’s escalating conflict between the Iran-backed Houthis.`\
+https://www.nytimes.com/2026/10/31/world/middleeast/syria-saudi-defense-pact.html
+
 **Trump’s Arch Faces New Legal Challenge From Virginia and D.C.**\
 `The two jurisdictions contend that President Trump’s proposed 250-foot arch is “flagrantly unlawful,” citing concerns over traffic, the environment and historic preservation.`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-arch-virginia-dc.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/10/31/business/beef-prices-protein.html
 **Can Ulta, a Corporate Chain, Also Be a Great Black Hair Salon?**\
 `Black women are discovering Ulta Beauty’s textured hair services, but not everyone is convinced it’s worth leaving their stylists for.`\
 https://www.nytimes.com/2026/10/31/style/ulta-black-hair-salons.html
-
-**Fans Can’t Get Enough of ‘A Court of Thrones and Roses’ (Or Its Merch)**\
-`The sixth book in Sarah J. Maas’s blockbuster A Court of Thorn and Roses series drew costumed fans across the country out to celebrate — and to open their wallets.`\
-https://www.nytimes.com/2026/10/31/books/they-cant-get-enough-of-the-queen-of-fairy-smut-or-her-merch.html
 
