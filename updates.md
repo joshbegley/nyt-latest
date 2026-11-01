@@ -1,3 +1,7 @@
+**Democratic Discord Intensifies in Michigan Senate Race**\
+`Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, said Representative Haley Stevens, his former primary rival, should not attend Sunday’s party unity event in Detroit.`\
+https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
+
 **Heidi Klum Becomes Her Left Hand for Halloween**\
 `The model, who scurried across the red carpet to celebrate the 25th anniversary of her annual Halloween party, reflected on some of her favorite costumes.`\
 https://www.nytimes.com/2026/10/31/style/heidi-klum-halloween-costume-hand.html
