@@ -119,7 +119,7 @@ https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.h
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
 **Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
-`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa and Kansas.`\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa before heading to Kansas.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **Ask a Journalist: How Images Help Tell the Story**\
