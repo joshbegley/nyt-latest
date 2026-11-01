@@ -1,3 +1,19 @@
+**A Racial Equity Leader Clashed With Mamdani. Now She’s on the Way Out.**\
+`After Mayor Zohran Mamdani sought to remove the head of New York City’s Racial Equity Commission, some have raised questions about his commitment to reparations.`\
+https://www.nytimes.com/2026/11/01/nyregion/mamdani-reparations-tigani-nyc.html
+
+**‘At the Next Stop, a Seat Opened Up Next to Her, So I Sat Down’**\
+`Seeing double on the 4 train, meeting a sitcom sidekick at dinner and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/01/nyregion/metropolitan-diary.html
+
+**The Ecologist Surveying What NYC Looked Like Before the Concrete**\
+`The ecologist Eric W. Sanderson surveys the historical landscape of New York in a new book that, at 900,000 words, is as massive as the city it chronicles.`\
+https://www.nytimes.com/2026/11/01/nyregion/nyc-book-before-new-york-mannahatta.html
+
+**NYT Spelling Bee Answers for November 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/01/crosswords/spelling-bee-forum.html
+
 **Pope Leo XIV, the Tough Guy of ‘High T’ Christianity**\
 `The pontiff draws on his missionary background for a show of fortitude.`\
 https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-mag
 **Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
 `The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
 https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
-
-**Court Filing Cites Internal Pressure to Close Kennedy Center**\
-`Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
-https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
-
-**Democratic Discord Intensifies in Michigan Senate Race**\
-`Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, said Representative Haley Stevens, his former primary rival, should not attend Sunday’s party unity event in Detroit.`\
-https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
-
-**Hundreds of Thousands Join Another Round of Protests in France**\
-`The interior ministry estimated that 320,000 people had demonstrated nationwide, a smaller number than the previous two Saturdays. The police and protesters clashed in Paris and other cities.`\
-https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
-
-**The New Hot Job in Law Doesn’t Require a J.D.**\
-`Big law firms, legal tech vendors, and in-house legal departments at companies like Microsoft and Nvidia are all hiring legal engineers, a new position for lawyers with A.I. skills.`\
-https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
 
