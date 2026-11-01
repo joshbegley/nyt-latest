@@ -1,3 +1,15 @@
+**The History Behind Trump’s Arch**\
+`The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
+https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
+
+**You Can’t Go Wrong With Quesadillas**\
+`Especially these quesadillas, which go all in on kick with pickled jalapeños, spinach and feta.`\
+https://www.nytimes.com/2026/11/01/dining/you-cant-go-wrong-with-quesadillas.html
+
+**Using Denver as a Model to Help the Homeless**\
+`Readers discuss the city’s policies and offer their own suggestions. Also: An A.I. monster?`\
+https://www.nytimes.com/2026/11/01/opinion/homelessness-denver.html
+
 **Maps: Tracking Tropical Cyclone Murasu**\
 `See the likely path and wind arrival times for Murasu`\
 https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.html
@@ -181,12 +193,4 @@ https://www.nytimes.com/2026/11/01/magazine/curtis-malone-basketball.html
 **Cyril Hilsum, Who Helped Invent Flat-Panel Displays in TVs and iPhones, Has Died at 101**\
 `The man who helped develop the technology for liquid crystal displays — the screens in flat-panel televisions and laptops — has died at 101.`\
 https://www.nytimes.com/2026/11/01/technology/cyril-hilsum-dead.html
-
-**The Merry Widow Wedding Watchers of Key West**\
-`After losing her husband in 2017, Jane Cosco moved to Key West, Fla., and found an unexpected way to celebrate love again: watching weddings with a community of fellow widows.`\
-https://www.nytimes.com/2026/11/01/style/the-merry-widow-wedding-watchers-of-key-west.html
-
-**Two New Poetry Collections Lean Into the Ecstatic**\
-`By creating a space to take us outside ourselves, poems cast an almost mystical spell. Two new collections prove the point.`\
-https://www.nytimes.com/2026/11/01/books/review/new-poetry.html
 
