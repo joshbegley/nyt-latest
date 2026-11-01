@@ -1,3 +1,11 @@
+**Ocasio-Cortez and Mamdani Rebuke Stevens’ G.O.P. Endorsement in Michigan**\
+`Mayor Zohran Mamdani of New York and Representative Alexandria Ocasio-Cortez, two leading figures of the left, criticized Representative Haley Stevens for backing a Republican in Michigan.`\
+https://www.nytimes.com/2026/11/01/us/elections/aoc-mamdani-haley-stevens-mike-rogers.html
+
+**9 Aboard a Small Plane That Crashed in Florida, F.A.A. Says**\
+`Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **A Lesson From Germany**\
 `Trump is betting on economic incentives to stop Putin in Ukraine. Germany’s experience shows why that strategy is risky.`\
 https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.html
