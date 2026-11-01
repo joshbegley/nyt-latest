@@ -1,3 +1,11 @@
+**Jerry Koosman, Who Helped the Miracle Mets Win the World Series, Has Died**\
+`A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
+https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
+
+**Small Plane Crashes in Fireball in Florida, Video Shows**\
+`Photos and video posted online showed a plane plunging to the ground and exploding just outside Palm Springs. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
 `It was not by accident that the final concert of the British pop star’s 30-show New York residency fell on a holiday that invites exuberance.`\
 https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harryween.html
@@ -149,14 +157,6 @@ https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building
 **$2 Billion From 20 Top Donors Fuels a Hugely Expensive Midterms**\
 `An updated Times analysis reveals the outsize role that megadonors like Elon Musk are playing in this election, and where the money is going.`\
 https://www.nytimes.com/interactive/2026/11/01/us/politics/2026-midterm-top-donors.html
-
-**Putin Breaks Down His Isolation, With a Big Assist From Trump**\
-`Notching wins from Washington, the Russian leader is talking with foreign leaders and could return to diplomatic center stage with possible summit meetings.`\
-https://www.nytimes.com/2026/11/01/world/europe/putin-isolation-breakdown-trump.html
-
-**Where Do Israel’s Arab Parties Stand?**\
-`Having won a record 19 seats in Israel’s Parliament, the two Arab-led parties say they want to work with opposition factions to take down the Netanyahu government.`\
-https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
 
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\

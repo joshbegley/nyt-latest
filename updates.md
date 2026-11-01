@@ -1,3 +1,11 @@
+**Jerry Koosman, Who Helped the Miracle Mets Win the World Series, Has Died**\
+`A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
+https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
+
+**Small Plane Crashes in Fireball in Florida, Video Shows**\
+`Photos and video posted online showed a plane plunging to the ground and exploding just outside Palm Springs. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
 `In the latest defeat for the Trump administration, the ruling dismisses a lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
 https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
