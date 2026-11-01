@@ -1,3 +1,7 @@
+**Stylish Looks From the New York City Marathon**\
+`Newlyweds and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
+https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
+
 **Ocasio-Cortez and Mamdani Rebuke Stevens’ G.O.P. Endorsement in Michigan**\
 `Mayor Zohran Mamdani of New York and Representative Alexandria Ocasio-Cortez, two leading figures of the left, criticized Representative Haley Stevens for backing a Republican in Michigan.`\
 https://www.nytimes.com/2026/11/01/us/elections/aoc-mamdani-haley-stevens-mike-rogers.html

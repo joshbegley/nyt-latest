@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
 https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
 
 **Stylish Looks From the New York City Marathon**\
-`A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
+`Newlyweds and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
 https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
 
 **Which Miles Are the Toughest at the NYC Marathon?**\
