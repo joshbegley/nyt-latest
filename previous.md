@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/01/realestate/raising-kids-small-apartments-new-
 `In “Sound Tracks,” the musician and archaeologist Graeme Lawson tells our story, in ancient instruments.`\
 https://www.nytimes.com/2026/11/01/books/review/graeme-lawson-sound-tracks.html
 
-**New York City Marathon Live Updates: Sheila Chepkirui of Kenya Prevails in Dash to the Finish**\
-`Chepkirui held off the American Jessica McClain and the defending champion Hellen Obiri in a late duel. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
+**New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
+`Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 

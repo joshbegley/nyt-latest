@@ -1,3 +1,7 @@
+**New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
+`Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Senate Bean Soup for Your House**\
 `Made on the stovetop or in the slow cooker, it’s a rib-sticking mix of dried beans, ham hocks, onions, butter, smoked paprika and cider vinegar.`\
 https://www.nytimes.com/2026/11/01/dining/senate-bean-soup-for-your-house.html

@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/11/01/opinion/homelessness-denver.html
 `See the likely path and wind arrival times for Murasu`\
 https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.html
 
-**Social Security Email Praising Trump May Violate Anticorruption Law, Experts Say**\
-`A message sent days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
+**Federal Agency Emails Praising Trump May Violate Ethics Laws, Experts Say**\
+`Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
 **Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
