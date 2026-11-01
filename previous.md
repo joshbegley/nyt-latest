@@ -1,3 +1,7 @@
+**Trump Calls Former Lawyer’s $50 Million Deal ‘Obnoxious and Outrageous’**\
+`At a Halloween event in Florida, President Trump told reporters that Alina Habba Mildon’s lucrative work for someone seeking a pardon was “not acceptable.”`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-habba-mildon-lawyer.html
+
 **Bronx Neighbors Mourn Family Ravaged by E-bike Fire**\
 `Four members of a family have died after an electric-bike battery caught fire inside their apartment on Wednesday.`\
 https://www.nytimes.com/2026/10/31/nyregion/bronx-neighbors-mourn-family-ravaged-by-e-bike-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/magazine/thanksgiving-elderly-parents-ethics.
 **Why Texas Dems Are Still Nervous About Talarico**\
 `In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
-
-**75 Years On, the National Ballet of Canada ‘Remains the Icon’**\
-`The dance company started on a shoestring and went on to become internationally acclaimed.`\
-https://www.nytimes.com/2026/10/31/world/canada/national-ballet-canada-carney.html
 

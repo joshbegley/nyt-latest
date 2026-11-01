@@ -1,3 +1,7 @@
+**Trump Calls Former Lawyer’s $50 Million Deal ‘Obnoxious and Outrageous’**\
+`At a Halloween event in Florida, President Trump told reporters that Alina Habba Mildon’s lucrative work for someone seeking a pardon was “not acceptable.”`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-habba-mildon-lawyer.html
+
 **Bronx Neighbors Mourn Family Ravaged by E-bike Fire**\
 `Four members of a family have died after an electric-bike battery caught fire inside their apartment on Wednesday.`\
 https://www.nytimes.com/2026/10/31/nyregion/bronx-neighbors-mourn-family-ravaged-by-e-bike-fire.html
