@@ -1,8 +1,12 @@
+**NYT Crossword Answers for Nov. 2, 2026**\
+`Max Schlenker doesn’t leave us in the dark.`\
+https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
+
 **Learjet Crashes in Florida, Killing 9, Authorities Say**\
 `A Learjet 60 headed to the Bahamas from Austin, Texas, crashed on Sunday in Florida. All nine people aboard were killed, the authorities said.`\
 https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-killing-9-authorities-say.html
 
-**Shootings on Halloween Night Leave at Least 24 Dead and 98 Wounded**\
+**Halloween Shootings Leave at Least 24 Dead and 94 Wounded Nationwide**\
 `Experts on violence say Halloween is one of the most dangerous days of the year.`\
 https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
 
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/opinion/pizzagate-conspiracy-epstein.html
 **Could A.I. Be Conscious? It’s Definitely Possible.**\
 `It’s not an idle philosophical question.`\
 https://www.nytimes.com/2026/11/01/opinion/ai-consciousness-ethics.html
-
-**Trump Has Found the Attorney General of His Dreams**\
-`The Department of Justice is in a state of moral collapse.`\
-https://www.nytimes.com/2026/11/01/opinion/trump-blanche-comey-justice.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\

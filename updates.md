@@ -1,3 +1,11 @@
+**Learjet Crashes in Florida, Killing 9, Authorities Say**\
+`A Learjet 60 headed to the Bahamas from Austin, Texas, crashed on Sunday in Florida. All nine people aboard were killed, the authorities said.`\
+https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-killing-9-authorities-say.html
+
+**Learjet Plummets to Ground in Florida, Killing 9**\
+`Photos and video posted online showed the plane diving nose-first to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
 `Photos and video posted online showed the plane diving nose-first to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
