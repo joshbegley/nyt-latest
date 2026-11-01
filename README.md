@@ -1,3 +1,7 @@
+**Maps: Tracking Tropical Cyclone Murasu**\
+`See the likely path and wind arrival times for Murasu`\
+https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.html
+
 **Social Security Email Praising Trump May Violate Anticorruption Law, Experts Say**\
 `A message sent days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/01/style/the-merry-widow-wedding-watchers-of-key
 **Two New Poetry Collections Lean Into the Ecstatic**\
 `By creating a space to take us outside ourselves, poems cast an almost mystical spell. Two new collections prove the point.`\
 https://www.nytimes.com/2026/11/01/books/review/new-poetry.html
-
-**Swarms of Butterflies Land at New York’s Natural History Museum**\
-`The cartoonist Peter Kuper has filled a corridor with drawings of monarchs, depicting the beauty of the annual mass migration to Mexican forests — as well as its perils.`\
-https://www.nytimes.com/2026/11/01/arts/design/butterflies-american-museum-natural-history.html
 
