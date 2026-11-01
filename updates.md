@@ -1,3 +1,27 @@
+**Quote of the Day: Still a Mind-Twisting Classic, 25 Years Later**\
+`Quotation of the Day for Sunday, November 1, 2026.`\
+https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twisting-classic-25-years-later.html
+
+**He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
+`Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
+https://www.nytimes.com/2026/11/01/world/asia/hes-the-top-snake-catcher-and-business-is-booming-theres-just-one-problem.html
+
+**Honk if You Know Why Delhi’s Air Is So Bad**\
+`Millions of vehicles crowd India’s capital, spewing pollutants that become especially dangerous when winter weather traps them over the city.`\
+https://www.nytimes.com/interactive/2026/11/01/world/asia/india-pollution-vehicles.html
+
+**Thailand’s Most Famous Snake Catcher**\
+`Pinyo Pukpinyo, Thailand’s most famous snake catcher, has found the critters slithering in nooks and crannies all over Bangkok. He refuses to kill them.`\
+https://www.nytimes.com/video/world/asia/100000011244032/thailand-snake-catcher-bangkok.html
+
+**Korean Language Picks Up in Japan**\
+`The rise of Korean terms in Japanese is a striking reversal from colonial times and a sign of the global appeal of South Korean culture.`\
+https://www.nytimes.com/2026/11/01/world/asia/japan-slang-korean-language.html
+
+**From the Front Page: The U.S. Tests the First Hydrogen Bomb on Nov. 1, 1952**\
+`The United States tested the first full-scale thermonuclear device at Enewetak Atoll in the Marshall Islands.`\
+https://www.nytimes.com/2026/11/01/learning/from-the-front-page-the-us-tests-the-first-hydrogen-bomb-on-nov-1-1952.html
+
 **India’s Congress Party Plans Mass Protest in New Delhi**\
 `Organizers are calling for one of the biggest demonstrations yet, in a string of rallies that has racked India since the summer.`\
 https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
