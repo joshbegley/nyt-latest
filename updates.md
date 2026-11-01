@@ -1,3 +1,7 @@
+**Here Are Some of the Celebrities Running in the NYC Marathon**\
+`Actors, reality stars and athletes are among those in the mass of runners.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-running.html
+
 **‘S.N.L.’ Plays Trick-or-Treat When Trump Interrupts David S. Pumpkins**\
 `Tom Hanks returned, all too briefly, to play his baffling Halloween character on a “Saturday Night Live” episode hosted by the “Obsession” star Inde Navarrette.`\
 https://www.nytimes.com/2026/11/01/arts/television/snl-trick-or-treat-trump-interrupts-david-s-pumpkins.html

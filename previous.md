@@ -1,3 +1,7 @@
+**Here Are Some of the Celebrities Running in the NYC Marathon**\
+`Actors, reality stars and athletes are among those in the mass of runners.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-running.html
+
 **‘S.N.L.’ Plays Trick-or-Treat When Trump Interrupts David S. Pumpkins**\
 `Tom Hanks returned, all too briefly, to play his baffling Halloween character on a “Saturday Night Live” episode hosted by the “Obsession” star Inde Navarrette.`\
 https://www.nytimes.com/2026/11/01/arts/television/snl-trick-or-treat-trump-interrupts-david-s-pumpkins.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/business/media/advertising-paxton-talarico-te
 **The Rise, Fall and Rise of Curtis Malone, D.C. Basketball Power Broker**\
 `Curtis Malone ran a basketball powerhouse in Washington, D.C., before going to prison for drug dealing. Now he wants back in the game.`\
 https://www.nytimes.com/2026/11/01/magazine/curtis-malone-basketball.html
-
-**Cyril Hilsum, Who Helped Invent Flat-Panel Displays in TVs and iPhones, Has Died at 101**\
-`The man who helped develop the technology for liquid crystal displays — the screens in flat-panel televisions and laptops — has died at 101.`\
-https://www.nytimes.com/2026/11/01/technology/cyril-hilsum-dead.html
 
