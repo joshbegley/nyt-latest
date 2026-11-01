@@ -1,3 +1,7 @@
+**Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
+`The ruling dismisses the Department of Justice’s lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
+https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
+
 **Binance Reports $3.64 Billion in Outflows as It Resumes Normal Transactions**\
 `The cryptocurrency exchange saw an immediate uptick in customer withdrawals, following the theft of $6.3 billion in tokens that has been linked to North Korea.`\
 https://www.nytimes.com/2026/11/01/business/binance-hack-crypto-north-korea.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/arts/television/cynthia-nixon-the-gilded-age.
 **Did the Peltola Campaign Seal the Fate of Alaska’s Ranked Choice Vote?**\
 `Beyond hotly contested Senate and governor’s races, Alaskans will decide Tuesday whether to scrap the state’s unique ballot. The campaign of Mary Peltola may have bolstered critics of the system.`\
 https://www.nytimes.com/2026/11/01/us/alaska-ranked-choice-voting-peltola.html
-
-**A Rembrandt on Your Skin: Museum Hosts a Tattoo Parlor in Amsterdam**\
-`For two weeks, patrons at the Rembrandt House can get tattoos of the artist’s drawings and etchings, courtesy of “the godfather of Amsterdam tattoo culture.”`\
-https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
 
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
