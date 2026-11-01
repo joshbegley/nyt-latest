@@ -54,8 +54,8 @@ https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.h
 `Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
-**Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
-`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Dr. Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
+**Midterm Elections Live Updates: Democratic Feud in Michigan Escalates as Senate Primary Loser Joins Republican**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf. The president was set to campaign in Iowa and Kansas two days before the elections.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **Ask a Journalist: How Images Help Tell the Story**\
@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/11/01/world/europe/putin-isolation-breakdown-trump.
 `Having won a record 19 seats in Israel’s Parliament, the two Arab-led parties say they want to work with opposition factions to take down the Netanyahu government.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
 
-**23 Off Broadway Shows to Catch This November**\
+**24 Off Broadway Shows to Catch This November**\
 `From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
 https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
 
