@@ -1,3 +1,11 @@
+**Haley Stevens Endorses Republican Mike Rogers for Senate**\
+`Representative Haley Stevens, a Democrat from Michigan, endorsed Mike Rogers, the Republican Senate nominee for her state. The late endorsement comes after a feud between Stevens and Dr. Abdul El-Sayed, the Democratic Senate nominee, spilled into the public in recent days.`\
+https://www.nytimes.com/video/us/politics/100000011253329/stevens-rogers-el-sayed-michigan-senate.html
+
+**Fans Pack the Streets to Cheer On New York Marathon Runners**\
+`The roughly 60,000 people who ran the New York City Marathon on Sunday were met with cheers along the roads of the city’s five boroughs.`\
+https://www.nytimes.com/video/us/100000011252970/fans-new-york-marathon-runners-streets.html
+
 **Martin Erlichman, Barbra Streisand’s Longtime Manager, Dies at 97**\
 `He had other clients, like Chevy Chase and Joan Rivers, and he produced movies. But he was best known as Ms. Streisand’s negotiator and protector.`\
 https://www.nytimes.com/2026/11/01/obituaries/martin-erlichman-dead.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
 **Learjet Plummets to Ground in Florida, Killing 9**\
-`Photos and video posted online showed the plane diving nose first to the ground and exploding. What led up to the crash was not immediately known.`\
+`Photos and video posted online showed the plane diving nose first to the ground and exploding. In radio call, the pilot said the plane was descending at a speed of 20,000 feet per minute.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/11/01/learning/lesson-plans/ask-a-journalist-how-im
 **How Marathons Changed**\
 `The New York City Marathon is happening this morning.`\
 https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
-
-**Want to Enjoy Music More? Go For a Run.**\
-`For New York City Marathon day: how running can make listening to music better.`\
-https://www.nytimes.com/2026/11/01/podcasts/the-daily/new-york-city-marathon-music-running.html
-
-**What a Decade of Pizzagate Has Done to America**\
-`A decade after the Pizzagate theory began, the Epstein files give the conspiracy theory a new life.`\
-https://www.nytimes.com/2026/11/01/opinion/pizzagate-conspiracy-epstein.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
