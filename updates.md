@@ -1,3 +1,19 @@
+**A Racial Equity Leader Clashed With Mamdani. Now She’s on the Way Out.**\
+`After Mayor Zohran Mamdani sought to remove the head of New York City’s Racial Equity Commission, some have raised questions about his commitment to reparations.`\
+https://www.nytimes.com/2026/11/01/nyregion/mamdani-reparations-tigani-nyc.html
+
+**‘At the Next Stop, a Seat Opened Up Next to Her, So I Sat Down’**\
+`Seeing double on the 4 train, meeting a sitcom sidekick at dinner and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/01/nyregion/metropolitan-diary.html
+
+**The Ecologist Surveying What NYC Looked Like Before the Concrete**\
+`The ecologist Eric W. Sanderson surveys the historical landscape of New York in a new book that, at 900,000 words, is as massive as the city it chronicles.`\
+https://www.nytimes.com/2026/11/01/nyregion/nyc-book-before-new-york-mannahatta.html
+
+**NYT Spelling Bee Answers for November 1, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/01/crosswords/spelling-bee-forum.html
+
 **Pope Leo XIV, the Tough Guy of ‘High T’ Christianity**\
 `The pontiff draws on his missionary background for a show of fortitude.`\
 https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
