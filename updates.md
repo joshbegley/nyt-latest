@@ -1,3 +1,7 @@
+**India’s Congress Party Plans Mass Protest in New Delhi**\
+`Organizers are calling for one of the biggest demonstrations yet, in a string of rallies that has racked India since the summer.`\
+https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
+
 **‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\
 `President Trump attended his jungle-themed Halloween party at Mar-a-Lago dressed as a distinctly recognizable figure.`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-halloween-party-scene.html
