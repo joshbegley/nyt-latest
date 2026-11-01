@@ -1,3 +1,31 @@
+**Want to Enjoy Music More? Go For a Run.**\
+`For New York City Marathon day: how running can make listening to music better.`\
+https://www.nytimes.com/2026/11/01/podcasts/the-daily/new-york-city-marathon-music-running.html
+
+**What a Decade of Pizzagate Has Done to America**\
+`A decade after the Pizzagate theory began, the Epstein files give the conspiracy theory a new life.`\
+https://www.nytimes.com/2026/11/01/opinion/pizzagate-conspiracy-epstein.html
+
+**Could A.I. Be Conscious? It’s Definitely Possible.**\
+`It’s not an idle philosophical question.`\
+https://www.nytimes.com/2026/11/01/opinion/ai-consciousness-ethics.html
+
+**Trump Has Found the Attorney General of His Dreams**\
+`The Department of Justice is in a state of moral collapse.`\
+https://www.nytimes.com/2026/11/01/opinion/trump-blanche-comey-justice.html
+
+**Today’s Wordle Hints for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/wordle-review-1962.html
+
+**NYT Strands Hints for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/strands-sidekick-974.html
+
+**NYT Connections Answers for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/connections-companion-1240.html
+
 **Netanyahu’s Bid to Stay in Power Will Test His Political Savvy**\
 `After losing ground in Israel’s election, Prime Minister Benjamin Netanyahu must draw on decades of political capital and reckon with old foes if he is to build a governing coalition.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building-tests-political-skills.html

@@ -1,3 +1,31 @@
+**Want to Enjoy Music More? Go For a Run.**\
+`For New York City Marathon day: how running can make listening to music better.`\
+https://www.nytimes.com/2026/11/01/podcasts/the-daily/new-york-city-marathon-music-running.html
+
+**What a Decade of Pizzagate Has Done to America**\
+`A decade after the Pizzagate theory began, the Epstein files give the conspiracy theory a new life.`\
+https://www.nytimes.com/2026/11/01/opinion/pizzagate-conspiracy-epstein.html
+
+**Could A.I. Be Conscious? It’s Definitely Possible.**\
+`It’s not an idle philosophical question.`\
+https://www.nytimes.com/2026/11/01/opinion/ai-consciousness-ethics.html
+
+**Trump Has Found the Attorney General of His Dreams**\
+`The Department of Justice is in a state of moral collapse.`\
+https://www.nytimes.com/2026/11/01/opinion/trump-blanche-comey-justice.html
+
+**Today’s Wordle Hints for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/wordle-review-1962.html
+
+**NYT Strands Hints for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/strands-sidekick-974.html
+
+**NYT Connections Answers for November 2, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/01/crosswords/connections-companion-1240.html
+
 **Netanyahu’s Bid to Stay in Power Will Test His Political Savvy**\
 `After losing ground in Israel’s election, Prime Minister Benjamin Netanyahu must draw on decades of political capital and reckon with old foes if he is to build a governing coalition.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building-tests-political-skills.html
@@ -161,32 +189,4 @@ https://www.nytimes.com/2026/11/01/theater/richard-nelson-apple-family-public-th
 **Recalling the Pathbreaking Role of a Newark Art Space**\
 `An exhibition at the Newark Museum of Art is showcasing the influence of Aljira, a nonprofit gallery that supported underrepresented artists.`\
 https://www.nytimes.com/2026/11/01/arts/design/aljira-newark-museum.html
-
-**In San Diego, Exploring the Joy and Solace of Queer Latino Nightlife**\
-`An exhibition at the Museum of Contemporary Art San Diego features artworks celebrating the spaces that often serve as sites of refuge for L.G.B.T.Q. communities.`\
-https://www.nytimes.com/2026/11/01/arts/design/musuem-san-diego-queer-latino-nightlife.html
-
-**A Racial Equity Leader Clashed With Mamdani. Now She’s on the Way Out.**\
-`After Mayor Zohran Mamdani sought to remove the head of New York City’s Racial Equity Commission, some have raised questions about his commitment to reparations.`\
-https://www.nytimes.com/2026/11/01/nyregion/mamdani-reparations-tigani-nyc.html
-
-**‘At the Next Stop, a Seat Opened Up Next to Her, So I Sat Down’**\
-`Seeing double on the 4 train, meeting a sitcom sidekick at dinner and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/11/01/nyregion/metropolitan-diary.html
-
-**The Ecologist Surveying What NYC Looked Like Before the Concrete**\
-`The ecologist Eric W. Sanderson surveys the historical landscape of New York in a new book that, at 900,000 words, is as massive as the city it chronicles.`\
-https://www.nytimes.com/2026/11/01/nyregion/nyc-book-before-new-york-mannahatta.html
-
-**NYT Spelling Bee Answers for November 1, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/01/crosswords/spelling-bee-forum.html
-
-**Pope Leo XIV, the Tough Guy of ‘High T’ Christianity**\
-`The pontiff draws on his missionary background for a show of fortitude.`\
-https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
-
-**Quote of the Day: Still a Mind-Twisting Classic, 25 Years Later**\
-`Quotation of the Day for Sunday, November 1, 2026.`\
-https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twisting-classic-25-years-later.html
 
