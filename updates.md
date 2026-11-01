@@ -1,3 +1,11 @@
+**Some Americans Are Fearful of Federal Interference on Election Day**\
+`Most voters say they trust that the results of the election will be accurate. But some worry that President Trump will try to sow doubt.`\
+https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
+
+**Stylish Looks From the New York City Marathon**\
+`A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
+https://www.nytimes.com/2026/11/01/style/14-unforgettable-looks-from-the-new-york-city-marathon.html
+
 **Which Miles Are the Toughest at the NYC Marathon?**\
 `Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
