@@ -1,3 +1,11 @@
+**Pope Leo XIV, the Tough Guy of ‘High T’ Christianity**\
+`The pontiff draws on his missionary background for a show of fortitude.`\
+https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
+
+**‘We Are Coming From Hell’: A Ukrainian City’s Evacuees Tell Survival Stories**\
+`Safely out of Oleshky after enduring years in the combat zone and a harrowing 24-hour journey, weary civilians reunited with family and friends.`\
+https://www.nytimes.com/2026/10/31/todayspaper/ukraine-evacuees-oleshky.html
+
 **Pope Leo XIV, the Tough Guy of High T Christianity**\
 `The pontiff draws on his missionary background for a show of fortitude.`\
 https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
