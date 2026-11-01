@@ -1,3 +1,15 @@
+**The History Behind Trump’s Arch**\
+`The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
+https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
+
+**You Can’t Go Wrong With Quesadillas**\
+`Especially these quesadillas, which go all in on kick with pickled jalapeños, spinach and feta.`\
+https://www.nytimes.com/2026/11/01/dining/you-cant-go-wrong-with-quesadillas.html
+
+**Using Denver as a Model to Help the Homeless**\
+`Readers discuss the city’s policies and offer their own suggestions. Also: An A.I. monster?`\
+https://www.nytimes.com/2026/11/01/opinion/homelessness-denver.html
+
 **New York City Marathon Live Updates: Runners and Spectators Unite for a Five-Borough Street Party**\
 `Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
