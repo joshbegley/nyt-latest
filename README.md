@@ -1,3 +1,7 @@
+**India’s Congress Party Plans Mass Protest in New Delhi**\
+`Organizers are calling for one of the biggest demonstrations yet, in a string of rallies that has racked India since the summer.`\
+https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
+
 **‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\
 `President Trump attended his jungle-themed Halloween party at Mar-a-Lago dressed as a distinctly recognizable figure.`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-halloween-party-scene.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/opinion/horror-family-father.html
 **The Democratic Party’s Masculinity Crisis**\
 `The Democrats have been searching for a way to counteract the toxic masculinity of the right.`\
 https://www.nytimes.com/2026/10/31/opinion/democrats-republicans-toxic-masculinity.html
-
-**Jeffrey Eugenides: My First Day Seems So Much Older Than Me**\
-`One news report that morning conveyed an eternal truth: Commuters will be delayed.`\
-https://www.nytimes.com/2026/10/31/opinion/jeffrey-eugenides-nyt-175.html
 
