@@ -1,3 +1,7 @@
+**A Florida Election Chief Urges In-Person Voting Over ‘Serious’ Postal Delays**\
+`The Broward County supervisor of elections said his office had received dozens of reports that ballots weren’t being delivered in a timely manner.`\
+https://www.nytimes.com/2026/10/31/us/elections/florida-early-voting-usps-delays.html
+
 **Chili’s Margaritas Rimmed With Degreaser Burn 5 People in North Carolina**\
 `Three customers and two employees were burned on and around their mouths after a granulated substance was mistaken for sugar, a health official said.`\
 https://www.nytimes.com/2026/10/31/us/chilis-margarita-chemical-burns-forest-city.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/world/canada/national-ballet-canada-carney.ht
 **Today’s Wordle Hints for November 1, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1 2026.`\
 https://www.nytimes.com/2026/10/31/crosswords/wordle-review-1961.html
-
-**Strands Hints for November 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1, 2026.`\
-https://www.nytimes.com/2026/10/31/crosswords/strands-sidekick-973.html
 
