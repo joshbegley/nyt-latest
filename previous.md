@@ -1,5 +1,5 @@
 **Here Are Some of the Celebrities Running in the NYC Marathon**\
-`Actors, reality stars and athletes are among those in the mass of runners.`\
+`Actors, reality stars and athletes are among those in the mass of runners. The comedian Tracy Morgan is the event’s grand marshal.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-running.html
 
 **‘S.N.L.’ Plays Trick-or-Treat When Trump Interrupts David S. Pumpkins**\
