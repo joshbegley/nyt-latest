@@ -154,8 +154,8 @@ https://www.nytimes.com/2026/11/01/books/authors-fashion-models.html
 `To escape predators, dwarf reed snakes trade slithering for rolling to safety.`\
 https://www.nytimes.com/2026/11/01/science/these-snakes-cartwheel-out-of-dangerous-situations.html
 
-**New York City Marathon Live Updates: Runners and Fans Gather for a Five-Borough Street Party**\
-`Sunny skies and warm temperatures are expected for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
+**New York City Marathon Live Updates: Runners and Spectators Come Together for a Five-Borough Street Party**\
+`Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
 **In L.A., a Stark Generational Divide May Determine the Mayor’s Race**\

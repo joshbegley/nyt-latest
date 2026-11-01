@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
 **Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
-`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
+`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Dr. Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **Ask a Journalist: How Images Help Tell the Story**\
