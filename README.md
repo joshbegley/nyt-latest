@@ -1,3 +1,11 @@
+**Shootings on Halloween Night Leave at Least 24 Dead and 98 Wounded**\
+`Experts on violence say Halloween is one of the most dangerous days of the year.`\
+https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
+
+**Haley Stevens Bashed Mike Rogers in Michigan Senate Race Until She Endorsed Him**\
+`Ms. Stevens, who lost to Dr. Abdul El-Sayed in the Democratic Senate primary in Michigan, once fashioned herself as one of Mr. Rogers’s fiercest critics.`\
+https://www.nytimes.com/2026/11/01/us/elections/haley-stevens-mike-rogers-endorse-michigan.html
+
 **Roger Marshall Goes Rogue in Kansas Senate Race With a Video**\
 `Roger Marshall, a Republican senator whose re-election bid has grown surprisingly competitive, wanted to push back against attacks. His team didn’t agree. He ignored the guidance.`\
 https://www.nytimes.com/2026/11/01/us/elections/roger-marshall-ad-kansas-senate-race.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/11/01/opinion/trump-blanche-comey-justice.html
 **Today’s Wordle Hints for November 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
 https://www.nytimes.com/2026/11/01/crosswords/wordle-review-1962.html
-
-**NYT Strands Hints for November 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
-https://www.nytimes.com/2026/11/01/crosswords/strands-sidekick-974.html
-
-**NYT Connections Answers for November 2, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
-https://www.nytimes.com/2026/11/01/crosswords/connections-companion-1240.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
