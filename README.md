@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
 `Lawyers for a Democratic lawmaker suing to block President Trump from closing the arts venue say documents support their view that the decision was part of a “sham process.”`\
 https://www.nytimes.com/2026/10/31/arts/kennedy-center-trump-beatty.html
 
-**Midterm Elections Live Updates: Democratic Discord Intensifies in Michigan Senate Race**\
+**Democratic Discord Intensifies in Michigan Senate Race**\
 `Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, said Representative Haley Stevens, his former primary rival, should not attend Sunday’s party unity event in Detroit.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
 

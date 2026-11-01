@@ -1,3 +1,7 @@
+**Heidi Klum Becomes Her Left Hand for Halloween**\
+`The model, who scurried across the red carpet to celebrate the 25th anniversary of her annual Halloween party, reflected on some of her favorite costumes.`\
+https://www.nytimes.com/2026/10/31/style/heidi-klum-halloween-costume-hand.html
+
 **Long Beach Shuts Down Its Coastal Waters After Sewage Spill**\
 `A wastewater pipe burst and dumped nearly 30,000 gallons of raw sewage, forcing the coastal California city to close its open swimming sites.`\
 https://www.nytimes.com/2026/10/31/us/long-beach-sewage-spill.html
