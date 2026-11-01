@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
 https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html
 
 **Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
-`The ruling dismisses the Department of Justice’s lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
+`In the latest defeat for the Trump administration, the ruling dismisses a lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
 https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
 
 **Binance Reports $3.64 Billion in Outflows as It Resumes Normal Transactions**\
