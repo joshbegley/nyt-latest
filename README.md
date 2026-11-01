@@ -1,3 +1,11 @@
+**Some Americans Are Fearful of Federal Interference on Election Day**\
+`Most voters say they trust that the results of the election will be accurate. But some worry that President Trump will try to sow doubt.`\
+https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
+
+**Stylish Looks From the New York City Marathon**\
+`A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
+https://www.nytimes.com/2026/11/01/style/14-unforgettable-looks-from-the-new-york-city-marathon.html
+
 **Which Miles Are the Toughest at the NYC Marathon?**\
 `Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/11/01/us/take-back-the-night-college-sexual-violenc
 **On the Ballot in California: The Prospects for a National Wealth Tax**\
 `The outcome of the state’s ballot initiative for a billionaires tax could set the tone for the broader Democratic debate about how to raise more revenue.`\
 https://www.nytimes.com/2026/11/01/us/on-the-ballot-in-california-the-prospects-for-a-national-wealth-tax.html
-
-**‘Saturday Night Live U.K.’ Has Found Its Voice**\
-`From sneering at royals to “Nigerian Wicked,” here’s how the British spinoff has set itself apart.`\
-https://www.nytimes.com/2026/11/01/arts/television/saturday-night-live-uk-has-found-its-voice.html
-
-**A Midterm Campaign Dominated by Concerns Over High Prices Nears Its End**\
-`Across the country, many voters have drawn a straight line between President Trump’s policies and inflation.`\
-https://www.nytimes.com/2026/11/01/us/politics/election-mood-affordability.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
