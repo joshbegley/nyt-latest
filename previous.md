@@ -1,3 +1,7 @@
+**Bronx Neighbors Mourn Family Ravaged by E-bike Fire**\
+`Four members of a family have died after an electric-bike battery caught fire inside their apartment on Wednesday.`\
+https://www.nytimes.com/2026/10/31/nyregion/bronx-neighbors-mourn-family-ravaged-by-e-bike-fire.html
+
 **A Florida Election Chief Urges In-Person Voting Over ‘Serious’ Postal Delays**\
 `The Broward County supervisor of elections said his office had received dozens of reports that ballots weren’t being delivered in a timely manner.`\
 https://www.nytimes.com/2026/10/31/us/elections/florida-early-voting-usps-delays.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-
 **75 Years On, the National Ballet of Canada ‘Remains the Icon’**\
 `The dance company started on a shoestring and went on to become internationally acclaimed.`\
 https://www.nytimes.com/2026/10/31/world/canada/national-ballet-canada-carney.html
-
-**Today’s Wordle Hints for November 1, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 1 2026.`\
-https://www.nytimes.com/2026/10/31/crosswords/wordle-review-1961.html
 
