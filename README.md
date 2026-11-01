@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twi
 
 **He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
 `Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
-https://www.nytimes.com/2026/11/01/world/asia/hes-the-top-snake-catcher-and-business-is-booming-theres-just-one-problem.html
+https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html
 
 **Honk if You Know Why Delhi’s Air Is So Bad**\
 `Millions of vehicles crowd India’s capital, spewing pollutants that become especially dangerous when winter weather traps them over the city.`\
