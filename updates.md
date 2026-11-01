@@ -1,3 +1,7 @@
+**Flooding in Parts of Arizona and Colorado Prompts Evacuation Orders**\
+`A potent storm system was bringing heavy rains to areas of Arizona, Colorado, New Mexico and Utah that were still recovering from recent devastating floods.`\
+https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html
+
 **Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
 `The ruling dismisses the Department of Justice’s lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
 https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html

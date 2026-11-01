@@ -1,3 +1,7 @@
+**Flooding in Parts of Arizona and Colorado Prompts Evacuation Orders**\
+`A potent storm system was bringing heavy rains to areas of Arizona, Colorado, New Mexico and Utah that were still recovering from recent devastating floods.`\
+https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html
+
 **Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
 `The ruling dismisses the Department of Justice’s lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
 https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/us/paxton-abbott-texas-election.html
 **Cynthia Nixon Is Not a Miranda**\
 `But she admires her “Sex and the City” alter ego and knows she will always be defined by her. The real Nixon, also a star of “The Gilded Age,” is warm and mellow — until you ask her about politics.`\
 https://www.nytimes.com/2026/11/01/arts/television/cynthia-nixon-the-gilded-age.html
-
-**Did the Peltola Campaign Seal the Fate of Alaska’s Ranked Choice Vote?**\
-`Beyond hotly contested Senate and governor’s races, Alaskans will decide Tuesday whether to scrap the state’s unique ballot. The campaign of Mary Peltola may have bolstered critics of the system.`\
-https://www.nytimes.com/2026/11/01/us/alaska-ranked-choice-voting-peltola.html
 
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
