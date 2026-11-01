@@ -1,3 +1,7 @@
+**Inspired by the Marathon? Here’s How to Qualify to Run.**\
+`There are several pathways to gain entry to the field, but most come with rules or obligations.`\
+https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
+
 **Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
 `Representative Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
