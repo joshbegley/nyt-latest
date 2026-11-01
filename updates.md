@@ -1,3 +1,7 @@
+**He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
+`Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
+https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html
+
 **A Racial Equity Leader Clashed With Mamdani. Now She’s on the Way Out.**\
 `After Mayor Zohran Mamdani sought to remove the head of New York City’s Racial Equity Commission, some have raised questions about his commitment to reparations.`\
 https://www.nytimes.com/2026/11/01/nyregion/mamdani-reparations-tigani-nyc.html
