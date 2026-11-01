@@ -1,3 +1,7 @@
+**Martin Erlichman, Barbra Streisand’s Longtime Manager, Dies at 97**\
+`He had other clients, like Chevy Chase and Joan Rivers, and he produced movies. But he was best known as Ms. Streisand’s negotiator and protector.`\
+https://www.nytimes.com/2026/11/01/obituaries/martin-erlichman-dead.html
+
 **NYT Crossword Answers for Nov. 2, 2026**\
 `Max Schlenker doesn’t leave us in the dark.`\
 https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
 **Learjet Plummets to Ground in Florida, Killing 9**\
-`Photos and video posted online showed the plane diving nose-first to the ground and exploding. What led up to the crash was not immediately known.`\
+`Photos and video posted online showed the plane diving nose first to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/podcasts/the-daily/new-york-city-marathon-mus
 **What a Decade of Pizzagate Has Done to America**\
 `A decade after the Pizzagate theory began, the Epstein files give the conspiracy theory a new life.`\
 https://www.nytimes.com/2026/11/01/opinion/pizzagate-conspiracy-epstein.html
-
-**Could A.I. Be Conscious? It’s Definitely Possible.**\
-`It’s not an idle philosophical question.`\
-https://www.nytimes.com/2026/11/01/opinion/ai-consciousness-ethics.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
