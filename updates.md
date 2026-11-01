@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa before heading to Kansas.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
 **9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
 `Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html

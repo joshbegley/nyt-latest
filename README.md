@@ -1,4 +1,8 @@
-**Ocasio-Cortez and Mamdani Rebuke Stevens’ G.O.P. Endorsement in Michigan**\
+**Roger Marshall Goes Rogue in Kansas Senate Race With a Video**\
+`Roger Marshall, a Republican senator whose re-election bid has grown surprisingly competitive, wanted to push back against attacks. His team didn’t agree. He ignored the guidance.`\
+https://www.nytimes.com/2026/11/01/us/elections/roger-marshall-ad-kansas-senate-race.html
+
+**Ocasio-Cortez and Mamdani Rebuke Stevens’s G.O.P. Endorsement in Michigan**\
 `Mayor Zohran Mamdani of New York and Representative Alexandria Ocasio-Cortez, two leading figures of the left, criticized Representative Haley Stevens for backing a Republican in Michigan.`\
 https://www.nytimes.com/2026/11/01/us/elections/aoc-mamdani-haley-stevens-mike-rogers.html
 
