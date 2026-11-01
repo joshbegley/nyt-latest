@@ -1,3 +1,11 @@
+**Martin Erlichman, Barbra Streisand’s Longtime Manager, Dies at 97**\
+`He had other clients, like Chevy Chase and Joan Rivers, and he produced movies. But he was best known as Ms. Streisand’s negotiator and protector.`\
+https://www.nytimes.com/2026/11/01/obituaries/martin-erlichman-dead.html
+
+**Learjet Plummets to Ground in Florida, Killing 9**\
+`Photos and video posted online showed the plane diving nose first to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **NYT Crossword Answers for Nov. 2, 2026**\
 `Max Schlenker doesn’t leave us in the dark.`\
 https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
