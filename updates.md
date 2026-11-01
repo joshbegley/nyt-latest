@@ -1,3 +1,11 @@
+**Senate Bean Soup for Your House**\
+`Made on the stovetop or in the slow cooker, it’s a rib-sticking mix of dried beans, ham hocks, onions, butter, smoked paprika and cider vinegar.`\
+https://www.nytimes.com/2026/11/01/dining/senate-bean-soup-for-your-house.html
+
+**New York City Marathon Live Updates: Sheila Chepkirui of Kenya Prevails in Dash to the Finish**\
+`Chepkirui held off the American Jessica McClain and the defending champion Hellen Obiri in a late duel. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Inside Heidi Klum’s 2026 Halloween Party: See All the Wacky Costumes**\
 `The model and television presenter, dressed as her severed left hand, celebrated the 25th anniversary of her annual party by going gory.`\
 https://www.nytimes.com/2026/11/01/style/heidi-klum-halloween-party-photos-costumes.html
