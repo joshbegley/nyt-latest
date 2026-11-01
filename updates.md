@@ -1,3 +1,7 @@
+**New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
+`Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Jerry Koosman, Who Helped the Miracle Mets Win the World Series, Has Died**\
 `A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html

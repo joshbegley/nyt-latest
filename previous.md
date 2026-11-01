@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building
 `An updated Times analysis reveals the outsize role that megadonors like Elon Musk are playing in this election, and where the money is going.`\
 https://www.nytimes.com/interactive/2026/11/01/us/politics/2026-midterm-top-donors.html
 
-**New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
+**New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
