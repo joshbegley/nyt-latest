@@ -1,3 +1,7 @@
+**The Origins of Political Cowardice**\
+`Jacob Weisberg studied eight powerful Americans who caved under pressure. He wants readers to ask what they would have done.`\
+https://www.nytimes.com/2026/11/01/briefing/the-origins-of-political-cowardice.html
+
 **Here Are Some of the Celebrities Running in the NYC Marathon**\
 `Actors, reality stars and athletes are among those in the mass of runners. The comedian Tracy Morgan is the event’s grand marshal.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-running.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/us/politics/ocasio-cortez-dsa.html
 **As Political Ad Spending Skyrockets, Broadcast TV Remains King**\
 `Even though marketers have increasingly shifted their dollars to other media, local stations are reaping a bonanza during these midterm elections. Nowhere is this is more evident than in Texas.`\
 https://www.nytimes.com/2026/11/01/business/media/advertising-paxton-talarico-texas-television.html
-
-**The Rise, Fall and Rise of Curtis Malone, D.C. Basketball Power Broker**\
-`Curtis Malone ran a basketball powerhouse in Washington, D.C., before going to prison for drug dealing. Now he wants back in the game.`\
-https://www.nytimes.com/2026/11/01/magazine/curtis-malone-basketball.html
 
