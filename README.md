@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/01/us/alaska-ranked-choice-voting-peltola.html
 https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
 
 **Democrats Want to Prove They Can Win in the Rapidly Changing South**\
-`The electoral math could become difficult for Southern Democrats, especially if they lag on Tuesday: An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
+`An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
 https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
 
 **What to Know About ‘Take Back the Night’ Rallies**\
@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/11/01/books/authors-fashion-models.html
 `To escape predators, dwarf reed snakes trade slithering for rolling to safety.`\
 https://www.nytimes.com/2026/11/01/science/these-snakes-cartwheel-out-of-dangerous-situations.html
 
-**New York City Marathon Live Updates: Race Day Arrives for a Packed Field**\
-`Nearly 60,000 entrants will set out this morning on a 26.2-mile run, roll and (sometimes) walk through the five boroughs. Sunny skies and warm temperatures are expected.`\
+**New York City Marathon Live Updates: Runners and Fans Gather for a Five-Borough Street Party**\
+`Sunny skies and warm temperatures are expected for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
 **In L.A., a Stark Generational Divide May Determine the Mayor’s Race**\
