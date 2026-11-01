@@ -1,3 +1,7 @@
+**Why The Times Doesn’t Rely on Exit Polls**\
+`Instead of relying on exit polls, we have created Times Voter Trends, a project that will break down estimates for the results of U.S. House and Senate elections by age, race, education and gender.`\
+https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates-trends.html
+
 **Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
 `The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
 https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
 **Democrats Want to Prove They Can Win in the Rapidly Changing South**\
 `An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
 https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
-
-**What to Know About ‘Take Back the Night’ Rallies**\
-`The decades-old organization, which pushes to end sexual violence, plans to marshal students across more than 90 campuses on Sunday.`\
-https://www.nytimes.com/2026/11/01/us/take-back-the-night-college-sexual-violence.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\

@@ -1,3 +1,11 @@
+**Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
+`The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
+https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
+
+**Haley Stevens Withdraws Support for El-Sayed, Endorsing Mike Rogers in Michigan**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **Some Americans Are Fearful of Federal Interference on Election Day**\
 `Most voters say they trust that the results of the election will be accurate. But some worry that President Trump will try to sow doubt.`\
 https://www.nytimes.com/2026/11/01/us/politics/election-fears.html

@@ -1,3 +1,7 @@
+**Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
+`The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
+https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
+
 **Some Americans Are Fearful of Federal Interference on Election Day**\
 `Most voters say they trust that the results of the election will be accurate. But some worry that President Trump will try to sow doubt.`\
 https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles
 `The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
 https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
 
-**Haley Stevens Appears With Mike Rogers in Michigan Amid Feud With Abdul El-Sayed**\
+**Haley Stevens Withdraws Support for El-Sayed, Endorsing Mike Rogers in Michigan**\
 `Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
 
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
 **What to Know About ‘Take Back the Night’ Rallies**\
 `The decades-old organization, which pushes to end sexual violence, plans to marshal students across more than 90 campuses on Sunday.`\
 https://www.nytimes.com/2026/11/01/us/take-back-the-night-college-sexual-violence.html
-
-**On the Ballot in California: The Prospects for a National Wealth Tax**\
-`The outcome of the state’s ballot initiative for a billionaires tax could set the tone for the broader Democratic debate about how to raise more revenue.`\
-https://www.nytimes.com/2026/11/01/us/on-the-ballot-in-california-the-prospects-for-a-national-wealth-tax.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
