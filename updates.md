@@ -1,3 +1,11 @@
+**Haley Stevens Appears With Mike Rogers in Michigan Amid Feud With Abdul El-Sayed**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
+**Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was set to campaign in Iowa and Kansas.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
 **What You Need to Know About The Times’s 2026 Election Results and the Needle**\
 `Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
 https://www.nytimes.com/live/2026/us/times-election-results-explained

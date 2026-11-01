@@ -1,3 +1,7 @@
+**Which Miles Are the Toughest at the NYC Marathon?**\
+`Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
+
 **Michael Mann Accidentally Shoots Himself at Los Angeles Gun Range**\
 `The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
 https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/arts/television/saturday-night-live-uk-has-fo
 **A Midterm Campaign Dominated by Concerns Over High Prices Nears Its End**\
 `Across the country, many voters have drawn a straight line between President Trump’s policies and inflation.`\
 https://www.nytimes.com/2026/11/01/us/politics/election-mood-affordability.html
-
-**Joseph Lagu, Who Led Independence Movement in Southern Sudan, Has Died**\
-`He played a pivotal role in winning his region’s autonomy from Sudan in 1972, then served as a high-ranking diplomat. He was 94.`\
-https://www.nytimes.com/2026/11/01/world/africa/joseph-lagu-sudan-dead.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
