@@ -1,3 +1,15 @@
+**Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
+`The ruling dismisses the Department of Justice’s lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
+https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
+
+**Binance Reports $3.64 Billion in Outflows as It Resumes Normal Transactions**\
+`The cryptocurrency exchange saw an immediate uptick in customer withdrawals, following the theft of $6.3 billion in tokens that has been linked to North Korea.`\
+https://www.nytimes.com/2026/11/01/business/binance-hack-crypto-north-korea.html
+
+**Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **Stylish Looks From the New York City Marathon**\
 `A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
 https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
