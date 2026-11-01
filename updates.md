@@ -1,3 +1,23 @@
+**Para Athletes Will Place on the Podium for the First Time This Year**\
+`New York City Marathon organizers for the first time have added competitive rankings for Para athletes, including those who have low vision or other disabilities.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-para-athletes.html
+
+**Tens of Thousands Protest Modi’s Voter Roll Changes in New Delhi**\
+`Huge crowds joined an opposition-led rally in New Delhi on Sunday to protest against the government and recent changes to the voter rolls.`\
+https://www.nytimes.com/video/world/asia/100000011252664/india-protests-new-delhi-modi.html
+
+**The Rise and Fall of the Triumphal Arch**\
+`The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
+https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
+
+**Midterm Elections Live Updates: Democratic Feud in Michigan Escalates as Senate Primary Loser Joins Republican**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf. The president was set to campaign in Iowa and Kansas two days before the elections.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
+**24 Off Broadway Shows to Catch This November**\
+`From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
+https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
+
 **Federal Agency Emails Praising Trump May Violate Ethics Laws, Experts Say**\
 `Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html

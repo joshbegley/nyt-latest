@@ -1,3 +1,7 @@
+**El-Sayed’s Primary Rival Appears With G.O.P. Opponent Amid Michigan Democratic Rift**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **Para Athletes Will Place on the Podium for the First Time This Year**\
 `New York City Marathon organizers for the first time have added competitive rankings for Para athletes, including those who have low vision or other disabilities.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-para-athletes.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/01/arts/fun-things-to-do-nyc-november.html
 **Gaffes and Men’s Bodies: Analysis of Trump’s Speeches at Age 80**\
 `A Times review of the president’s public speeches finds that he is more profane, more absolutist, longer-winded and less coherent than he was in 2016.`\
 https://www.nytimes.com/2026/11/01/us/politics/trump-speeches-rallies-age.html
-
-**ACLU’s Anthony Romero Says CEOs Are ‘Ducking the Hard Issues’**\
-`Anthony Romero has led the American Civil Liberties Union since 2001. He worries that Americans have fewer rights now.`\
-https://www.nytimes.com/2026/11/01/business/anthony-romero-aclu.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\

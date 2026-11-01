@@ -1,3 +1,11 @@
+**Para Athletes Will Place on the Podium for the First Time This Year**\
+`New York City Marathon organizers for the first time have added competitive rankings for Para athletes, including those who have low vision or other disabilities.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-para-athletes.html
+
+**Tens of Thousands Protest Modi’s Voter Roll Changes in New Delhi**\
+`Huge crowds joined an opposition-led rally in New Delhi on Sunday to protest against the government and recent changes to the voter rolls.`\
+https://www.nytimes.com/video/world/asia/100000011252664/india-protests-new-delhi-modi.html
+
 **Senate Bean Soup for Your House**\
 `Made on the stovetop or in the slow cooker, it’s a rib-sticking mix of dried beans, ham hocks, onions, butter, smoked paprika and cider vinegar.`\
 https://www.nytimes.com/2026/11/01/dining/senate-bean-soup-for-your-house.html
@@ -26,7 +34,7 @@ https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-r
 `Tom Hanks returned, all too briefly, to play his baffling Halloween character on a “Saturday Night Live” episode hosted by the “Obsession” star Inde Navarrette.`\
 https://www.nytimes.com/2026/11/01/arts/television/snl-trick-or-treat-trump-interrupts-david-s-pumpkins.html
 
-**The History Behind Trump’s Arch**\
+**The Rise and Fall of the Triumphal Arch**\
 `The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
 https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
 
@@ -46,8 +54,8 @@ https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.h
 `Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
-**Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
-`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Dr. Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
+**Midterm Elections Live Updates: Democratic Feud in Michigan Escalates as Senate Primary Loser Joins Republican**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf. The president was set to campaign in Iowa and Kansas two days before the elections.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **Ask a Journalist: How Images Help Tell the Story**\
@@ -102,7 +110,7 @@ https://www.nytimes.com/2026/11/01/world/europe/putin-isolation-breakdown-trump.
 `Having won a record 19 seats in Israel’s Parliament, the two Arab-led parties say they want to work with opposition factions to take down the Netanyahu government.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
 
-**23 Off Broadway Shows to Catch This November**\
+**24 Off Broadway Shows to Catch This November**\
 `From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
 https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/01/us/politics/trump-speeches-rallies-age.html
 **ACLU’s Anthony Romero Says CEOs Are ‘Ducking the Hard Issues’**\
 `Anthony Romero has led the American Civil Liberties Union since 2001. He worries that Americans have fewer rights now.`\
 https://www.nytimes.com/2026/11/01/business/anthony-romero-aclu.html
-
-**Bringing Up Baby in a One-Bedroom Apartment**\
-`Amid a housing shortage and skyrocketing rent, new New York City parents are learning to embrace the squeeze.`\
-https://www.nytimes.com/2026/11/01/realestate/raising-kids-small-apartments-new-york.html
-
-**Book Review: ‘Sound Tracks,’ by Graeme Lawson**\
-`In “Sound Tracks,” the musician and archaeologist Graeme Lawson tells our story, in ancient instruments.`\
-https://www.nytimes.com/2026/11/01/books/review/graeme-lawson-sound-tracks.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
