@@ -1,3 +1,7 @@
+**Binance Reports $3.64 Billion in Outflows as It Resumes Normal Transactions**\
+`The cryptocurrency exchange saw an immediate uptick in customer withdrawals, following the theft of $6.3 billion in tokens that has been linked to North Korea.`\
+https://www.nytimes.com/2026/11/01/business/binance-hack-crypto-north-korea.html
+
 **Why The Times Doesn’t Rely on Exit Polls**\
 `Instead of relying on exit polls, we have created Times Voter Trends, a project that will break down estimates for the results of U.S. House and Senate elections by age, race, education and gender.`\
 https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates-trends.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles
 `The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
 https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
 
-**Haley Stevens Withdraws Support for El-Sayed, Endorsing Mike Rogers in Michigan**\
+**Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
 `Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
 
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/us/alaska-ranked-choice-voting-peltola.html
 **A Rembrandt on Your Skin: Museum Hosts a Tattoo Parlor in Amsterdam**\
 `For two weeks, patrons at the Rembrandt House can get tattoos of the artist’s drawings and etchings, courtesy of “the godfather of Amsterdam tattoo culture.”`\
 https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
-
-**Democrats Want to Prove They Can Win in the Rapidly Changing South**\
-`An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
-https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
 
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\

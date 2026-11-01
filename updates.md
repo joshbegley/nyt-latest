@@ -1,3 +1,11 @@
+**Stylish Looks From the New York City Marathon**\
+`A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
+https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
+
+**New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
+`Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Why The Times Doesn’t Rely on Exit Polls**\
 `Instead of relying on exit polls, we have created Times Voter Trends, a project that will break down estimates for the results of U.S. House and Senate elections by age, race, education and gender.`\
 https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates-trends.html
