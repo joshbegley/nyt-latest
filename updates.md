@@ -1,3 +1,7 @@
+**Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
+`In the latest defeat for the Trump administration, the ruling dismisses a lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
+https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
+
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
 `It was not by accident that the final concert of the British pop star’s 30-show New York residency fell on a holiday that invites exuberance.`\
 https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harryween.html
