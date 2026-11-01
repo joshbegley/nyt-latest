@@ -1,3 +1,15 @@
+**Social Security Email Praising Trump May Violate Anticorruption Law, Experts Say**\
+`A message sent days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
+https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
+
+**Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
+`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
+**Ask a Journalist: How Images Help Tell the Story**\
+`Fernanda Didini, an art director for The New York Times, joins us in November to chat with teenagers about art and design. Post your comments and questions for her by Nov. 16.`\
+https://www.nytimes.com/2026/11/01/learning/lesson-plans/ask-a-journalist-how-images-help-tell-the-story.html
+
 **Democrats Want to Prove They Can Win in the Rapidly Changing South**\
 `An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
 https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html

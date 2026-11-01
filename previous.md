@@ -1,3 +1,15 @@
+**Social Security Email Praising Trump May Violate Anticorruption Law, Experts Say**\
+`A message sent days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
+https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
+
+**Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
+`The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
+**Ask a Journalist: How Images Help Tell the Story**\
+`Fernanda Didini, an art director for The New York Times, joins us in November to chat with teenagers about art and design. Post your comments and questions for her by Nov. 16.`\
+https://www.nytimes.com/2026/11/01/learning/lesson-plans/ask-a-journalist-how-images-help-tell-the-story.html
+
 **How Marathons Changed**\
 `The New York City Marathon is happening this morning.`\
 https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/11/01/books/review/new-poetry.html
 **Swarms of Butterflies Land at New York’s Natural History Museum**\
 `The cartoonist Peter Kuper has filled a corridor with drawings of monarchs, depicting the beauty of the annual mass migration to Mexican forests — as well as its perils.`\
 https://www.nytimes.com/2026/11/01/arts/design/butterflies-american-museum-natural-history.html
-
-**The Ancient Skill of Glassmaking Feels New Again**\
-`Exhibitions at museums across the United States are exploring today’s complex scientific and social issues through the lens of glassmaking.`\
-https://www.nytimes.com/2026/11/01/arts/design/glass-art-exhibitions.html
-
-**Museums Turn to A.I. to Create Personalized Tour Experiences**\
-`What if you could carry your own personal curator in your pocket? Museums are hoping A.I. can make this a reality.`\
-https://www.nytimes.com/2026/11/01/arts/design/technology-museum-ai-guides.html
-
-**Why This Playwright Can’t Quit His Family of Anxious Liberals**\
-`Richard Nelson thought he was done with the Apple family in 2020. Then Donald Trump returned to the White House.`\
-https://www.nytimes.com/2026/11/01/theater/richard-nelson-apple-family-public-theater.html
 
