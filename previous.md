@@ -1,4 +1,8 @@
-**El-Sayed’s Primary Rival Appears With G.O.P. Opponent Amid Michigan Democratic Rift**\
+**Michael Mann Accidentally Shoots Himself at Los Angeles Gun Range**\
+`The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
+https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
+
+**Haley Stevens Appears With Mike Rogers in Michigan Amid Feud With Abdul El-Sayed**\
 `Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/01/us/politics/john-sununu-new-hampshire-senate-
 **24 Fun Things to Do in N.Y.C. in November**\
 `Dave Chappelle takes over Madison Square Garden, a gay “Fantasticks” opens on Broadway and the Macy’s Thanksgiving Day Parade turns 100.`\
 https://www.nytimes.com/2026/11/01/arts/fun-things-to-do-nyc-november.html
-
-**Gaffes and Men’s Bodies: Analysis of Trump’s Speeches at Age 80**\
-`A Times review of the president’s public speeches finds that he is more profane, more absolutist, longer-winded and less coherent than he was in 2016.`\
-https://www.nytimes.com/2026/11/01/us/politics/trump-speeches-rallies-age.html
 
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\

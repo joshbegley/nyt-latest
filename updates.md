@@ -1,3 +1,11 @@
+**Michael Mann Accidentally Shoots Himself at Los Angeles Gun Range**\
+`The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
+https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
+
+**Haley Stevens Appears With Mike Rogers in Michigan Amid Feud With Abdul El-Sayed**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **El-Sayed’s Primary Rival Appears With G.O.P. Opponent Amid Michigan Democratic Rift**\
 `Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
