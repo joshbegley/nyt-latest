@@ -1,3 +1,11 @@
+**Shootings on Halloween Night Leave at Least 24 Dead and 98 Wounded**\
+`Experts on violence say Halloween is one of the most dangerous days of the year.`\
+https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
+
+**Haley Stevens Bashed Mike Rogers in Michigan Senate Race Until She Endorsed Him**\
+`Ms. Stevens, who lost to Dr. Abdul El-Sayed in the Democratic Senate primary in Michigan, once fashioned herself as one of Mr. Rogers’s fiercest critics.`\
+https://www.nytimes.com/2026/11/01/us/elections/haley-stevens-mike-rogers-endorse-michigan.html
+
 **Roger Marshall Goes Rogue in Kansas Senate Race With a Video**\
 `Roger Marshall, a Republican senator whose re-election bid has grown surprisingly competitive, wanted to push back against attacks. His team didn’t agree. He ignored the guidance.`\
 https://www.nytimes.com/2026/11/01/us/elections/roger-marshall-ad-kansas-senate-race.html

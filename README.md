@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
 **9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
-`Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
+`Photos and video posted online showed the plane diving nose-first to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
