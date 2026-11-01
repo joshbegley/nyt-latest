@@ -1,3 +1,7 @@
+**Long Beach Shuts Down Its Coastal Waters After Sewage Spill**\
+`A wastewater pipe burst and dumped nearly 30,000 gallons of raw sewage, forcing the coastal California city to close its open swimming sites.`\
+https://www.nytimes.com/2026/10/31/us/long-beach-sewage-spill.html
+
 **Trump Calls Former Lawyer’s $50 Million Deal ‘Obnoxious and Outrageous’**\
 `At a Halloween event in Florida, President Trump told reporters that Alina Habba Mildon’s lucrative work for someone seeking a pardon was “not acceptable.”`\
 https://www.nytimes.com/2026/10/31/us/politics/trump-habba-mildon-lawyer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-
 **Is It Wrong to Leave My 85-Year-Old Mother Alone on Thanksgiving?**\
 `She’s pretending our getaway is fine with her, but she’s clearly not looking forward to it.`\
 https://www.nytimes.com/2026/10/31/magazine/thanksgiving-elderly-parents-ethics.html
-
-**Why Texas Dems Are Still Nervous About Talarico**\
-`In this episode of “The Call”, veteran political journalist Robert Draper, a Texas native who has written about the state’s politics for decades, calls the host Natalie Kitroeff to report what he’s seeing on the ground there with James Talarico’s Senate campaign.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011251196/why-texas-dems-are-still-nervous-about-talarico.html
 
