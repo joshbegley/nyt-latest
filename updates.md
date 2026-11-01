@@ -1,3 +1,7 @@
+**El-Sayed’s Primary Rival Appears With G.O.P. Opponent Amid Michigan Democratic Rift**\
+`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **Para Athletes Will Place on the Podium for the First Time This Year**\
 `New York City Marathon organizers for the first time have added competitive rankings for Para athletes, including those who have low vision or other disabilities.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-para-athletes.html
