@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 `A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
-**9 Dead in Small Plane Crash in Palm Beach County, Fla., Officials Say**\
+**9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
 `Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
