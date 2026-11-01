@@ -1,3 +1,7 @@
+**Pope Leo XIV, the Tough Guy of High T Christianity**\
+`The pontiff draws on his missionary background for a show of fortitude.`\
+https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
+
 **Quote of the Day: Still a Mind-Twisting Classic, 25 Years Later**\
 `Quotation of the Day for Sunday, November 1, 2026.`\
 https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twisting-classic-25-years-later.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/10/31/world/france-student-protests-halloween
 **The New Hot Job in Law Doesn’t Require a J.D.**\
 `Big law firms, legal tech vendors, and in-house legal departments at companies like Microsoft and Nvidia are all hiring legal engineers, a new position for lawyers with A.I. skills.`\
 https://www.nytimes.com/2026/10/31/business/dealbook/legal-engineer-ai-law.html
-
-**This Is How MAHA Ends**\
-`Doctors like Annie Andrews, Amy Acton and Abdul El-Sayed remind us that Americans don’t trust Republicans with their nation’s health.`\
-https://www.nytimes.com/2026/10/31/opinion/doctor-democrats-midterms.html
 

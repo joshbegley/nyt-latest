@@ -1,3 +1,7 @@
+**Pope Leo XIV, the Tough Guy of High T Christianity**\
+`The pontiff draws on his missionary background for a show of fortitude.`\
+https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
+
 **Quote of the Day: Still a Mind-Twisting Classic, 25 Years Later**\
 `Quotation of the Day for Sunday, November 1, 2026.`\
 https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twisting-classic-25-years-later.html
