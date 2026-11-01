@@ -1,3 +1,7 @@
+**Which Miles Are the Toughest at the NYC Marathon?**\
+`Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
+https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
+
 **Haley Stevens Appears With Mike Rogers in Michigan Amid Feud With Abdul El-Sayed**\
 `Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
