@@ -1,3 +1,7 @@
+**New York City Marathon Live Updates: Runners and Spectators Come Together for a Five-Borough Street Party**\
+`Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Midterm Elections Live Updates: Trump to Visit Senate Battlegrounds as Democrats Feud in Michigan**\
 `The president was set to campaign in Iowa and Kansas two days before the elections. Tensions between Dr. Abdul El-Sayed and Haley Stevens disrupted a Democratic unity effort in Detroit.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
