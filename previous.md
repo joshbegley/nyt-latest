@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/11/01/world/asia/japan-slang-korean-language.html
 `The United States tested the first full-scale thermonuclear device at Enewetak Atoll in the Marshall Islands.`\
 https://www.nytimes.com/2026/11/01/learning/from-the-front-page-the-us-tests-the-first-hydrogen-bomb-on-nov-1-1952.html
 
-**India’s Congress Party Plans Mass Protest in New Delhi**\
-`Organizers are calling for one of the biggest demonstrations yet, in a string of rallies that has racked India since the summer.`\
+**India’s Congress Party Holds Mass Protest in New Delhi**\
+`Many more are still streaming into the city for what organizers hope will be one of the biggest demonstrations yet in a string of recent rallies.`\
 https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
 
 **‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\

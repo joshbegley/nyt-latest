@@ -1,3 +1,7 @@
+**India’s Congress Party Holds Mass Protest in New Delhi**\
+`Many more are still streaming into the city for what organizers hope will be one of the biggest demonstrations yet in a string of recent rallies.`\
+https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
+
 **He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
 `Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
 https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html
