@@ -1,3 +1,7 @@
+**Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
+`Representative Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
+https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
+
 **Flooding in Parts of Arizona and Colorado Prompts Evacuation Orders**\
 `A potent storm system was bringing heavy rains to areas of Arizona, Colorado, New Mexico and Utah that were still recovering from recent devastating floods.`\
 https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html

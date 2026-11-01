@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles
 https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
 
 **Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
-`Representative Haley Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
+`Representative Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
 https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
 
 **Para Athletes Will Place on the Podium for the First Time This Year**\
