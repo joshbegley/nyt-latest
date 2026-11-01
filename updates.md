@@ -1,3 +1,7 @@
+**9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
+`Photos and video posted online showed the plane diving nose-first to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **Shootings on Halloween Night Leave at Least 24 Dead and 98 Wounded**\
 `Experts on violence say Halloween is one of the most dangerous days of the year.`\
 https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
