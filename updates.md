@@ -1,3 +1,7 @@
+**Federal Agency Emails Praising Trump May Violate Ethics Laws, Experts Say**\
+`Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
+https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
+
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
