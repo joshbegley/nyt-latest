@@ -1,3 +1,7 @@
+**For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
+`It was not by accident that the concert celebration that concluded the British pop star’s 30-show New York residency fell on a holiday that invites exuberance.`\
+https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harryween.html
+
 **Inspired by the Marathon? Here’s How to Qualify to Run.**\
 `There are several pathways to gain entry to the field, but most come with rules or obligations.`\
 https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
 **24 Off Broadway Shows to Catch This November**\
 `From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
 https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
-
-**Abbott Campaigns Hard — and Far Away From Paxton**\
-`The Texas governor is locked in a tough re-election fight and, Republican consultants said, having Ken Paxton at the top of the ticket is not helping.`\
-https://www.nytimes.com/2026/11/01/us/paxton-abbott-texas-election.html
 
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\

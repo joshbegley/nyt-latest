@@ -1,3 +1,7 @@
+**For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
+`It was not by accident that the concert celebration that concluded the British pop star’s 30-show New York residency fell on a holiday that invites exuberance.`\
+https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harryween.html
+
 **Inspired by the Marathon? Here’s How to Qualify to Run.**\
 `There are several pathways to gain entry to the field, but most come with rules or obligations.`\
 https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
