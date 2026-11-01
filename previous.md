@@ -1,3 +1,167 @@
+**$2 Billion From 20 Top Donors Fuels a Hugely Expensive Midterms**\
+`An updated Times analysis reveals the outsize role that megadonors like Elon Musk are playing in this election, and where the money is going.`\
+https://www.nytimes.com/interactive/2026/11/01/us/politics/2026-midterm-top-donors.html
+
+**Putin Breaks Down His Isolation, With a Big Assist From Trump**\
+`Notching wins from Washington, the Russian leader is talking with foreign leaders and could return to diplomatic center stage with possible summit meetings.`\
+https://www.nytimes.com/2026/11/01/world/europe/putin-isolation-breakdown-trump.html
+
+**Where Do Israel’s Arab Parties Stand?**\
+`Having won a record 19 seats in Israel’s Parliament, the two Arab-led parties say they want to work with opposition factions to take down the Netanyahu government.`\
+https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
+
+**23 Off Broadway Shows to Catch This November**\
+`From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
+https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
+
+**Abbott Campaigns Hard — and Far Away From Paxton**\
+`The Texas governor is locked in a tough re-election fight and, Republican consultants said, having Ken Paxton at the top of the ticket is not helping.`\
+https://www.nytimes.com/2026/11/01/us/paxton-abbott-texas-election.html
+
+**Cynthia Nixon Is Not a Miranda**\
+`But she admires her “Sex and the City” alter ego and knows she will always be defined by her. The real Nixon, also a star of “The Gilded Age,” is warm and mellow — until you ask her about politics.`\
+https://www.nytimes.com/2026/11/01/arts/television/cynthia-nixon-the-gilded-age.html
+
+**Did the Peltola Campaign Seal the Fate of Alaska’s Ranked Choice Vote?**\
+`Beyond hotly contested Senate and governor’s races, Alaskans will decide Tuesday whether to scrap the state’s unique ballot. The campaign of Mary Peltola may have bolstered critics of the system.`\
+https://www.nytimes.com/2026/11/01/us/alaska-ranked-choice-voting-peltola.html
+
+**A Rembrandt on Your Skin: Museum Hosts a Tattoo Parlor in Amsterdam**\
+`For two weeks, patrons at the Rembrandt House can get tattoos of the artist’s drawings and etchings, courtesy of “the godfather of Amsterdam tattoo culture.”`\
+https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
+
+**Democrats Want to Prove They Can Win in the Rapidly Changing South**\
+`The electoral math could become difficult for Southern Democrats, especially if they lag on Tuesday: An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
+https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
+
+**What to Know About ‘Take Back the Night’ Rallies**\
+`The decades-old organization, which pushes to end sexual violence, plans to marshal students across more than 90 campuses on Sunday.`\
+https://www.nytimes.com/2026/11/01/us/take-back-the-night-college-sexual-violence.html
+
+**On the Ballot in California: The Prospects for a National Wealth Tax**\
+`The outcome of the state’s ballot initiative for a billionaires tax could set the tone for the broader Democratic debate about how to raise more revenue.`\
+https://www.nytimes.com/2026/11/01/us/on-the-ballot-in-california-the-prospects-for-a-national-wealth-tax.html
+
+**‘Saturday Night Live U.K.’ Has Found Its Voice**\
+`From sneering at royals to “Nigerian Wicked,” here’s how the British spinoff has set itself apart.`\
+https://www.nytimes.com/2026/11/01/arts/television/saturday-night-live-uk-has-found-its-voice.html
+
+**A Midterm Campaign Dominated by Concerns Over High Prices Nears Its End**\
+`Across the country, many voters have drawn a straight line between President Trump’s policies and inflation.`\
+https://www.nytimes.com/2026/11/01/us/politics/election-mood-affordability.html
+
+**Joseph Lagu, Who Led Independence Movement in Southern Sudan, Has Died**\
+`He played a pivotal role in winning his region’s autonomy from Sudan in 1972, then served as a high-ranking diplomat. He was 94.`\
+https://www.nytimes.com/2026/11/01/world/africa/joseph-lagu-sudan-dead.html
+
+**How a Little-Known Company Dominated the Persian Gulf Oil Trade**\
+`South Korea’s Sinokor controls about half the tanker transits through the Strait of Hormuz, benefiting from a big bet just before the war in Iran started.`\
+https://www.nytimes.com/2026/11/01/business/sinokor-oil-tankers-strait-hormuz-shipping-iran.html
+
+**The Best Movies and TV Shows Coming to HBO Max, Hulu, Apple TV and More in November**\
+`Amy Poehler digs into a new mystery. Return to the future in another “Blade Runner” project. And “Yellowjackets” begins its final season.`\
+https://www.nytimes.com/2026/11/01/arts/television/movies-tv-shows-november-2026-streaming.html
+
+**Culture War Tensions Roil Beverly Hills School Board Race**\
+`Battles over Israel, antisemitism and race have shaken Beverly Hills in recent years and divided the formerly Democratic enclave.`\
+https://www.nytimes.com/2026/11/01/us/politics/beverly-hills-school-board.html
+
+**Corrections: Nov. 1, 2026**\
+`Corrections that appeared in print on Sunday, Nov. 1, 2026.`\
+https://www.nytimes.com/2026/11/01/pageoneplus/corrections-nov-1-2026.html
+
+**Imprisoned on Flimsy Evidence, He Began Quilting. Now His Work Is in Museums.**\
+`Gary Tyler was convicted of murder in a trial that a court later deemed unfair. Now free after 41 years, he is a celebrated textile artist with a new solo show.`\
+https://www.nytimes.com/2026/11/01/arts/gary-tyler-wrongful-imprisonment-art-exhibit.html
+
+**This Republican Wants Voters to Consider a Post-Trump World**\
+`John E. Sununu, the Republican Senate candidate in New Hampshire, has the president’s endorsement but is keeping him at arm’s length.`\
+https://www.nytimes.com/2026/11/01/us/politics/john-sununu-new-hampshire-senate-race.html
+
+**24 Fun Things to Do in N.Y.C. in November**\
+`Dave Chappelle takes over Madison Square Garden, a gay “Fantasticks” opens on Broadway and the Macy’s Thanksgiving Day Parade turns 100.`\
+https://www.nytimes.com/2026/11/01/arts/fun-things-to-do-nyc-november.html
+
+**Gaffes and Men’s Bodies: Analysis of Trump’s Speeches at Age 80**\
+`A Times review of the president’s public speeches finds that he is more profane, more absolutist, longer-winded and less coherent than he was in 2016.`\
+https://www.nytimes.com/2026/11/01/us/politics/trump-speeches-rallies-age.html
+
+**ACLU’s Anthony Romero Says CEOs Are ‘Ducking the Hard Issues’**\
+`Anthony Romero has led the American Civil Liberties Union since 2001. He worries that Americans have fewer rights now.`\
+https://www.nytimes.com/2026/11/01/business/anthony-romero-aclu.html
+
+**Bringing Up Baby in a One-Bedroom Apartment**\
+`Amid a housing shortage and skyrocketing rent, new New York City parents are learning to embrace the squeeze.`\
+https://www.nytimes.com/2026/11/01/realestate/raising-kids-small-apartments-new-york.html
+
+**Book Review: ‘Sound Tracks,’ by Graeme Lawson**\
+`In “Sound Tracks,” the musician and archaeologist Graeme Lawson tells our story, in ancient instruments.`\
+https://www.nytimes.com/2026/11/01/books/review/graeme-lawson-sound-tracks.html
+
+**You Must Be a Model! Yes, and an Author, Too.**\
+`Brands are increasingly employing writers as models, evoking a time when the profession was a shorthand for “glamour.” Today’s authors can use the paychecks.`\
+https://www.nytimes.com/2026/11/01/books/authors-fashion-models.html
+
+**These Snakes Cartwheel Out of Dangerous Situations**\
+`To escape predators, dwarf reed snakes trade slithering for rolling to safety.`\
+https://www.nytimes.com/2026/11/01/science/these-snakes-cartwheel-out-of-dangerous-situations.html
+
+**New York City Marathon Live Updates: Race Day Arrives for a Packed Field**\
+`More than 60,000 entrants will set out this morning on a 26.2-mile run, roll and (sometimes) walk through the five boroughs. Sunny skies and warm temperatures are expected.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
+**In L.A., a Stark Generational Divide May Determine the Mayor’s Race**\
+`Young voters want affordability. Older ones want stability. That tension may be the biggest factor in the contest between Karen Bass, 73, the incumbent, and Nithya Raman, 45.`\
+https://www.nytimes.com/2026/11/01/us/politics/la-mayor-election-generational-divide.html
+
+**Ocasio-Cortez Has Evolved. She Wants the Left to Evolve, Too.**\
+`The New York congresswoman, once a bane of establishment Democrats, has tried to nudge her movement in a bigger-tent direction as she weighs her 2028 options.`\
+https://www.nytimes.com/2026/11/01/us/politics/ocasio-cortez-dsa.html
+
+**As Political Ad Spending Skyrockets, Broadcast TV Remains King**\
+`Even though marketers have increasingly shifted their dollars to other media, local stations are reaping a bonanza during these midterm elections. Nowhere is this is more evident than in Texas.`\
+https://www.nytimes.com/2026/11/01/business/media/advertising-paxton-talarico-texas-television.html
+
+**The Rise, Fall and Rise of Curtis Malone, D.C. Basketball Power Broker**\
+`Curtis Malone ran a basketball powerhouse in Washington, D.C., before going to prison for drug dealing. Now he wants back in the game.`\
+https://www.nytimes.com/2026/11/01/magazine/curtis-malone-basketball.html
+
+**Cyril Hilsum, Who Helped Invent Flat-Panel Displays in TVs and iPhones, Has Died at 101**\
+`The man who helped develop the technology for liquid crystal displays — the screens in flat-panel televisions and laptops — has died at 101.`\
+https://www.nytimes.com/2026/11/01/technology/cyril-hilsum-dead.html
+
+**The Merry Widow Wedding Watchers of Key West**\
+`After losing her husband in 2017, Jane Cosco moved to Key West, Fla., and found an unexpected way to celebrate love again: watching weddings with a community of fellow widows.`\
+https://www.nytimes.com/2026/11/01/style/the-merry-widow-wedding-watchers-of-key-west.html
+
+**Two New Poetry Collections Lean Into the Ecstatic**\
+`By creating a space to take us outside ourselves, poems cast an almost mystical spell. Two new collections prove the point.`\
+https://www.nytimes.com/2026/11/01/books/review/new-poetry.html
+
+**Swarms of Butterflies Land at New York’s Natural History Museum**\
+`The cartoonist Peter Kuper has filled a corridor with drawings of monarchs, depicting the beauty of the annual mass migration to Mexican forests — as well as its perils.`\
+https://www.nytimes.com/2026/11/01/arts/design/butterflies-american-museum-natural-history.html
+
+**The Ancient Skill of Glassmaking Feels New Again**\
+`Exhibitions at museums across the United States are exploring today’s complex scientific and social issues through the lens of glassmaking.`\
+https://www.nytimes.com/2026/11/01/arts/design/glass-art-exhibitions.html
+
+**Museums Turn to A.I. to Create Personalized Tour Experiences**\
+`What if you could carry your own personal curator in your pocket? Museums are hoping A.I. can make this a reality.`\
+https://www.nytimes.com/2026/11/01/arts/design/technology-museum-ai-guides.html
+
+**Why This Playwright Can’t Quit His Family of Anxious Liberals**\
+`Richard Nelson thought he was done with the Apple family in 2020. Then Donald Trump returned to the White House.`\
+https://www.nytimes.com/2026/11/01/theater/richard-nelson-apple-family-public-theater.html
+
+**Recalling the Pathbreaking Role of a Newark Art Space**\
+`An exhibition at the Newark Museum of Art is showcasing the influence of Aljira, a nonprofit gallery that supported underrepresented artists.`\
+https://www.nytimes.com/2026/11/01/arts/design/aljira-newark-museum.html
+
+**In San Diego, Exploring the Joy and Solace of Queer Latino Nightlife**\
+`An exhibition at the Museum of Contemporary Art San Diego features artworks celebrating the spaces that often serve as sites of refuge for L.G.B.T.Q. communities.`\
+https://www.nytimes.com/2026/11/01/arts/design/musuem-san-diego-queer-latino-nightlife.html
+
 **A Racial Equity Leader Clashed With Mamdani. Now She’s on the Way Out.**\
 `After Mayor Zohran Mamdani sought to remove the head of New York City’s Racial Equity Commission, some have raised questions about his commitment to reparations.`\
 https://www.nytimes.com/2026/11/01/nyregion/mamdani-reparations-tigani-nyc.html
@@ -29,172 +193,4 @@ https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.htm
 **Honk if You Know Why Delhi’s Air Is So Bad**\
 `Millions of vehicles crowd India’s capital, spewing pollutants that become especially dangerous when winter weather traps them over the city.`\
 https://www.nytimes.com/interactive/2026/11/01/world/asia/india-pollution-vehicles.html
-
-**Thailand’s Most Famous Snake Catcher**\
-`Pinyo Pukpinyo, Thailand’s most famous snake catcher, has found the critters slithering in nooks and crannies all over Bangkok. He refuses to kill them.`\
-https://www.nytimes.com/video/world/asia/100000011244032/thailand-snake-catcher-bangkok.html
-
-**Korean Language Picks Up in Japan**\
-`The rise of Korean terms in Japanese is a striking reversal from colonial times and a sign of the global appeal of South Korean culture.`\
-https://www.nytimes.com/2026/11/01/world/asia/japan-slang-korean-language.html
-
-**From the Front Page: The U.S. Tests the First Hydrogen Bomb on Nov. 1, 1952**\
-`The United States tested the first full-scale thermonuclear device at Enewetak Atoll in the Marshall Islands.`\
-https://www.nytimes.com/2026/11/01/learning/from-the-front-page-the-us-tests-the-first-hydrogen-bomb-on-nov-1-1952.html
-
-**India’s Congress Party Holds Mass Protest in New Delhi**\
-`Many more are still streaming into the city for what organizers hope will be one of the biggest demonstrations yet in a string of recent rallies.`\
-https://www.nytimes.com/2026/10/31/world/asia/congress-cjp-protest-delhi-india-modi.html
-
-**‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\
-`President Trump attended his jungle-themed Halloween party at Mar-a-Lago dressed as a distinctly recognizable figure.`\
-https://www.nytimes.com/2026/10/31/us/politics/trump-halloween-party-scene.html
-
-**Heidi Klum Becomes Her Left Hand for Halloween**\
-`The model, who scurried across the red carpet to celebrate the 25th anniversary of her annual Halloween party, reflected on some of her favorite costumes.`\
-https://www.nytimes.com/2026/10/31/style/heidi-klum-halloween-costume-hand.html
-
-**Long Beach Shuts Down Its Coastal Waters After Sewage Spill**\
-`A wastewater pipe burst and dumped nearly 30,000 gallons of raw sewage, forcing the coastal California city to close its open swimming sites.`\
-https://www.nytimes.com/2026/10/31/us/long-beach-sewage-spill.html
-
-**Trump Calls Former Lawyer’s $50 Million Deal ‘Obnoxious and Outrageous’**\
-`At a Halloween event in Florida, President Trump told reporters that Alina Habba Mildon’s lucrative work for someone seeking a pardon was “not acceptable.”`\
-https://www.nytimes.com/2026/10/31/us/politics/trump-habba-mildon-lawyer.html
-
-**Bronx Neighbors Mourn Family Ravaged by E-bike Fire**\
-`Four members of a family have died after an electric-bike battery caught fire inside their apartment on Wednesday.`\
-https://www.nytimes.com/2026/10/31/nyregion/bronx-neighbors-mourn-family-ravaged-by-e-bike-fire.html
-
-**A Florida Election Chief Urges In-Person Voting Over ‘Serious’ Postal Delays**\
-`The Broward County supervisor of elections said his office had received dozens of reports that ballots weren’t being delivered in a timely manner.`\
-https://www.nytimes.com/2026/10/31/us/elections/florida-early-voting-usps-delays.html
-
-**Chili’s Margaritas Rimmed With Degreaser Burn 5 People in North Carolina**\
-`Three customers and two employees were burned on and around their mouths after a granulated substance was mistaken for sugar, a health official said.`\
-https://www.nytimes.com/2026/10/31/us/chilis-margarita-chemical-burns-forest-city.html
-
-**When to Expect Midterm Results in Each State on Election Night**\
-`The time it takes to project winners will depend on two factors: how fast the states count their votes, and how close the races are.`\
-https://www.nytimes.com/interactive/2026/10/31/us/elections/midterm-vote-count-expectations.html
-
-**Centuries After Their Slaughter, Missionaries Move Toward Sainthood**\
-`The beatification of five Franciscan friars was cause for jubilation in South Georgia, where Christianity has flourished but Catholics are few and far between.`\
-https://www.nytimes.com/2026/10/31/us/south-saints-georgia-martyrs-beatification.html
-
-**Abdul El-Sayed Does Not Want to Talk About Haley Stevens. Everyone Else Does.**\
-`“We had a primary, right?” Dr. El-Sayed, the Democratic Senate candidate in Michigan, told reporters. “I understand that some folks are upset about that. I get it. But I’m here trying to beat Mike Rogers.”`\
-https://www.nytimes.com/2026/10/31/us/elections/michigan-senate-abdul-el-sayed.html
-
-**Be Amazed**\
-`Kevin Curry and Zhou Zhang’s Sunday collaboration takes us on a great trip around the blocks.`\
-https://www.nytimes.com/2026/10/31/crosswords/daily-puzzle-2026-11-01.html
-
-**Clashes Erupt Again in France, After Festive Start to Day of Protest**\
-`More than 300,000 people took to the streets, some wearing Halloween costumes, before the demonstrations ended in violence.`\
-https://www.nytimes.com/2026/10/31/world/europe/france-protests-clashes.html
-
-**North Korean Hackers Stole Billions, the F.B.I. Says. It’s Not Their First Heist.**\
-`This week’s $6.3 billion hack of Binance is the largest to hit crypto, and would be the most that North Koreans have stolen in years of brazen cybercrime.`\
-https://www.nytimes.com/2026/10/31/world/asia/north-korea-hacking.html
-
-**Newsom Issues Warning to Judges About Election Interference From Trump Administration**\
-`California Gov. Gavin Newsom warned judges that the Trump administration may seek search warrants to seize ballots and voting machines.`\
-https://www.nytimes.com/2026/10/31/us/newsom-california-election-interference.html
-
-**Women Voters Are a Potent Political Force in the Midterms**\
-`The country’s biggest demographic group — women — is the main driver of voting and has grown ever more Democratic in this election cycle.`\
-https://www.nytimes.com/2026/10/31/us/elections/women-voters-midterms-democratic.html
-
-**‘We Are Coming From Hell’: A Ukrainian City’s Evacuees Tell Survival Stories**\
-`Safely out of Oleshky after enduring years in the combat zone and a harrowing 24-hour journey, weary civilians reunited with family and friends.`\
-https://www.nytimes.com/2026/10/31/todayspaper/ukraine-evacuees-oleshky.html
-
-**Judge Tosses Trump’s $10 Billion Suit Against The Wall Street Journal**\
-`The defamation suit focused on an article about a birthday note to Jeffrey Epstein. It was the president’s second attempt to claim the publication had acted with actual malice.`\
-https://www.nytimes.com/2026/10/31/business/media/trump-wsj-defamation-suit-10-billion.html
-
-**France Protests Hit Third Weekend**\
-`Protesters gathered across France on Saturday for the third consecutive weekend of unrest over living costs and education. The rallies, which coincided with Halloween, were largely peaceful but descended into clashes in some areas.`\
-https://www.nytimes.com/video/world/europe/100000011251779/france-student-protests-halloween.html
-
-**Mother of Teen Killed in the Bronx Gets Visa After Mamdani-Trump Call**\
-`Javits Frimpong, 15, died on Thursday after being shot close to his home near Crotona Park, the police said. The boy had moved from Ghana a year ago.`\
-https://www.nytimes.com/2026/10/31/nyregion/bronx-shooting-javits-frimpong-bullies.html
-
-**El-Sayed’s Campaign Doesn’t Want Haley Stevens at His Events**\
-`Tensions have flared between Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, and his former primary rival. “I don’t want any distractions,” Dr. El-Sayed said Saturday.`\
-https://www.nytimes.com/2026/10/31/us/elections/el-sayed-haley-stevens-democrats-tension.html
-
-**‘Poop Water’ Churns a Local Election in Parched Arizona**\
-`City Council candidates in ritzy Scottsdale disagree on whether recycling wastewater into drinking water is smart policy or a dangerous remedy.`\
-https://www.nytimes.com/2026/10/31/us/poop-water-scottsdale-arizona.html
-
-**Democrats File Suit Over Closed Polling Places in Rural Alaska**\
-`Voting sites in 18 far-flung communities failed to open, the suit claims.`\
-https://www.nytimes.com/2026/10/31/us/elections/democrats-lawsuit-alaska-elections.html
-
-**COP17 Biodiversity Talks in Yerevan, Armenia**\
-`Countries renewed their promises to protect wildlife at U.N. talks in Armenia, but how to cover the costs remains a question.`\
-https://www.nytimes.com/2026/10/31/climate/cop17-biodiversity-yerevan-conclusion.html
-
-**He Was a Rising Star at West Point. Then He Got His Girlfriend Pregnant.**\
-`Caleb Suh, a former West Point cadet and current Columbia student, pleaded guilty in June to forcing an abortion on another cadet in 2022. His ex-girlfriend is now suing him for assault and battery.`\
-https://www.nytimes.com/2026/10/31/nyregion/caleb-suh-west-point-abortion-columbia.html
-
-**Syria Weighs Joining Saudi Mutual Defense Pact as Yemen War Rages**\
-`A move to join Saudi Arabia’s agreement with Turkey and Pakistan could entangle more countries in the kingdom’s escalating conflict between the Iran-backed Houthis.`\
-https://www.nytimes.com/2026/10/31/world/middleeast/syria-saudi-defense-pact.html
-
-**Trump’s Arch Faces New Legal Challenge From Virginia and D.C.**\
-`The two jurisdictions contend that President Trump’s proposed 250-foot arch is “flagrantly unlawful,” citing concerns over traffic, the environment and historic preservation.`\
-https://www.nytimes.com/2026/10/31/us/politics/trump-arch-virginia-dc.html
-
-**F.D.A. Warns of Tractor Wheels Snack Bar Linked to Choking Hazard**\
-`Once Upon a Farm has recalled its Tractor Wheels soft-baked bars after reports that toddlers could not breathe while eating them.`\
-https://www.nytimes.com/2026/10/31/well/family/fda-tractor-wheels-choking-hazard.html
-
-**Inside the Times’s Decisions on the Alaska Senate Race Story**\
-`Our investigation found that Democratic operatives were behind a plan to bring a potential spoiler into the Senate race.`\
-https://www.nytimes.com/2026/10/31/insider/the-times-decisions-alaska-senate-race-story.html
-
-**The Designers Making Frightening, Halloween-Ready Floral Arrangements**\
-`For some designers, dark and ominous trumps pretty pastels.`\
-https://www.nytimes.com/2026/10/31/t-magazine/scary-floral-arrangements.html
-
-**Three Midterm Races I am Watching Closely**\
-`The future of American politics runs through the South.`\
-https://www.nytimes.com/2026/10/31/opinion/columnists/midterm-election-races-what-to-watch.html
-
-**Shooting at Spirit Halloween in California Kills Pregnant Mother of 4**\
-`The police are searching for a person who shot 7 people, killing a 31-year-old pregnant mother of 4, on the night before Halloween. Families were in the store shopping for last-minute costumes.`\
-https://www.nytimes.com/2026/10/31/us/shooting-spirit-halloween-california.html
-
-**It’s the Great (Roasted) Pumpkin (Seeds)**\
-`Here’s how to turn the seeds from your pumpkin or other hard-skinned squashes into a salty, crunchy snack.`\
-https://www.nytimes.com/2026/10/31/dining/its-the-great-roasted-pumpkin-seeds.html
-
-**How Binance’s $6.3 Billion Hack Went Down**\
-`A war room. A global conference call. A founder who live-posted about the largest crypto heist in history. Inside a frantic 24 hours at the world’s biggest crypto exchange.`\
-https://www.nytimes.com/2026/10/31/technology/binance-hack-crypto-north-korea.html
-
-**Susan Collins Is Always Keeping Score**\
-`The long-serving senator has delivered millions of dollars to every corner of her state. But in Maine, people say, it’s best to avoid getting on her bad side.`\
-https://www.nytimes.com/2026/10/31/us/politics/susan-collins-maine-senate-election.html
-
-**In Australia, Halloween Means Spring, Sunshine and Skepticism**\
-`The holiday, which is increasingly popular in the country, can look different from its American counterpart — and has sparked discussions about cultural encroachment.`\
-https://www.nytimes.com/2026/10/31/world/australia/australia-halloween-america-influence.html
-
-**Poland Deploys Riot Police in Standoff Over Country’s Top Court**\
-`After years of legal wrangling, judges backed by the current government suspended the chief justice, as a feud escalated with the right-wing party that last held power.`\
-https://www.nytimes.com/2026/10/31/world/europe/poland-court-police-president.html
-
-**This Pumpkin Chocoflan Is Actually Magic**\
-`And thereby apt for Halloween.`\
-https://www.nytimes.com/2026/10/31/dining/this-pumpkin-chocoflan-is-actually-magic.html
-
-**Advocacy Groups Sue to Stop Trump Effort to Set Aside Ballots in Washington State**\
-`The lawsuit was the latest move to stave off pressure from the Trump administration to pursue its unsubstantiated claim that noncitizens are voting en masse.`\
-https://www.nytimes.com/2026/10/31/us/elections/washington-ballots-lawsuit.html
 
