@@ -1,3 +1,7 @@
+**How Marathons Changed**\
+`The New York City Marathon is happening this morning.`\
+https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
+
 **New York City Marathon Live Updates: Race Day Arrives for a Packed Field**\
 `Nearly 60,000 entrants will set out this morning on a 26.2-mile run, roll and (sometimes) walk through the five boroughs. Sunny skies and warm temperatures are expected.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
