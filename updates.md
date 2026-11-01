@@ -1,3 +1,7 @@
+**Why The Times Doesn’t Rely on Exit Polls**\
+`Instead of relying on exit polls, we have created Times Voter Trends, a project that will break down estimates for the results of U.S. House and Senate elections by age, race, education and gender.`\
+https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates-trends.html
+
 **Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
 `The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
 https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html

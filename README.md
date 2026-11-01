@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
 
 **Stylish Looks From the New York City Marathon**\
 `A pasta-loving runner and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
-https://www.nytimes.com/2026/11/01/style/14-unforgettable-looks-from-the-new-york-city-marathon.html
+https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
 
 **Which Miles Are the Toughest at the NYC Marathon?**\
 `Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/11/01/arts/design/rembrandt-tattoos.html
 `An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
 https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
 
-**New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
-`Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
+**New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
+`Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
 **What You Need to Know About The Times’s 2026 Election Results and the Needle**\
