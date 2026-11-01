@@ -1,3 +1,7 @@
+**A Lesson From Germany**\
+`Trump is betting on economic incentives to stop Putin in Ukraine. Germany’s experience shows why that strategy is risky.`\
+https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.html
+
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race

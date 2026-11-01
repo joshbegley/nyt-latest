@@ -1,3 +1,7 @@
+**A Lesson From Germany**\
+`Trump is betting on economic incentives to stop Putin in Ukraine. Germany’s experience shows why that strategy is risky.`\
+https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.html
+
 **Jerry Koosman, Who Helped the Miracle Mets Win the World Series, Has Died**\
 `A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/11/01/crosswords/connections-companion-1240.html
 **Netanyahu’s Bid to Stay in Power Will Test His Political Savvy**\
 `After losing ground in Israel’s election, Prime Minister Benjamin Netanyahu must draw on decades of political capital and reckon with old foes if he is to build a governing coalition.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building-tests-political-skills.html
-
-**$2 Billion From 20 Top Donors Fuels a Hugely Expensive Midterms**\
-`An updated Times analysis reveals the outsize role that megadonors like Elon Musk are playing in this election, and where the money is going.`\
-https://www.nytimes.com/interactive/2026/11/01/us/politics/2026-midterm-top-donors.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\

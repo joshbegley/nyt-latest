@@ -1,3 +1,7 @@
+**Ocasio-Cortez and Mamdani Rebuke Stevens’ G.O.P. Endorsement in Michigan**\
+`Mayor Zohran Mamdani of New York and Representative Alexandria Ocasio-Cortez, two leading figures of the left, criticized Representative Haley Stevens for backing a Republican in Michigan.`\
+https://www.nytimes.com/2026/11/01/us/elections/aoc-mamdani-haley-stevens-mike-rogers.html
+
 **A Lesson From Germany**\
 `Trump is betting on economic incentives to stop Putin in Ukraine. Germany’s experience shows why that strategy is risky.`\
 https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.html
@@ -6,8 +10,8 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 `A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
-**Small Plane Crashes in Fireball in Florida, Video Shows**\
-`Photos and video posted online showed a plane plunging to the ground and exploding just outside Palm Springs. What led up to the crash was not immediately known.`\
+**9 Aboard a Small Plane That Crashed in Florida, F.A.A. Says**\
+`Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
 **For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/11/01/crosswords/strands-sidekick-974.html
 **NYT Connections Answers for November 2, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 2, 2026.`\
 https://www.nytimes.com/2026/11/01/crosswords/connections-companion-1240.html
-
-**Netanyahu’s Bid to Stay in Power Will Test His Political Savvy**\
-`After losing ground in Israel’s election, Prime Minister Benjamin Netanyahu must draw on decades of political capital and reckon with old foes if he is to build a governing coalition.`\
-https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building-tests-political-skills.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
