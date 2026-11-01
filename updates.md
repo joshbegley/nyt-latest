@@ -1,3 +1,7 @@
+**What You Need to Know About The Times’s 2026 Election Results and the Needle**\
+`Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
+https://www.nytimes.com/live/2026/us/times-election-results-explained
+
 **Michael Mann Accidentally Shoots Himself at Los Angeles Gun Range**\
 `The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
 https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html

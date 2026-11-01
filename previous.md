@@ -162,35 +162,11 @@ https://www.nytimes.com/2026/11/01/us/politics/election-mood-affordability.html
 `He played a pivotal role in winning his region’s autonomy from Sudan in 1972, then served as a high-ranking diplomat. He was 94.`\
 https://www.nytimes.com/2026/11/01/world/africa/joseph-lagu-sudan-dead.html
 
-**How a Little-Known Company Dominated the Persian Gulf Oil Trade**\
-`South Korea’s Sinokor controls about half the tanker transits through the Strait of Hormuz, benefiting from a big bet just before the war in Iran started.`\
-https://www.nytimes.com/2026/11/01/business/sinokor-oil-tankers-strait-hormuz-shipping-iran.html
-
-**The Best Movies and TV Shows Coming to HBO Max, Hulu, Apple TV and More in November**\
-`Amy Poehler digs into a new mystery. Return to the future in another “Blade Runner” project. And “Yellowjackets” begins its final season.`\
-https://www.nytimes.com/2026/11/01/arts/television/movies-tv-shows-november-2026-streaming.html
-
-**Culture War Tensions Roil Beverly Hills School Board Race**\
-`Battles over Israel, antisemitism and race have shaken Beverly Hills in recent years and divided the formerly Democratic enclave.`\
-https://www.nytimes.com/2026/11/01/us/politics/beverly-hills-school-board.html
-
-**Corrections: Nov. 1, 2026**\
-`Corrections that appeared in print on Sunday, Nov. 1, 2026.`\
-https://www.nytimes.com/2026/11/01/pageoneplus/corrections-nov-1-2026.html
-
-**Imprisoned on Flimsy Evidence, He Began Quilting. Now His Work Is in Museums.**\
-`Gary Tyler was convicted of murder in a trial that a court later deemed unfair. Now free after 41 years, he is a celebrated textile artist with a new solo show.`\
-https://www.nytimes.com/2026/11/01/arts/gary-tyler-wrongful-imprisonment-art-exhibit.html
-
-**This Republican Wants Voters to Consider a Post-Trump World**\
-`John E. Sununu, the Republican Senate candidate in New Hampshire, has the president’s endorsement but is keeping him at arm’s length.`\
-https://www.nytimes.com/2026/11/01/us/politics/john-sununu-new-hampshire-senate-race.html
-
-**24 Fun Things to Do in N.Y.C. in November**\
-`Dave Chappelle takes over Madison Square Garden, a gay “Fantasticks” opens on Broadway and the Macy’s Thanksgiving Day Parade turns 100.`\
-https://www.nytimes.com/2026/11/01/arts/fun-things-to-do-nyc-november.html
-
 **New York City Marathon Live Updates: Andreas Almgren of Sweden Wins First Title**\
 `Sheila Chepkirui held off two challengers in a sprint to the finish to win the women’s race. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
+**What You Need to Know About The Times’s 2026 Election Results and the Needle**\
+`Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
+https://www.nytimes.com/live/2026/us/times-election-results-explained
 
