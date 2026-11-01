@@ -1,3 +1,7 @@
+**Inside Heidi Klum’s 2026 Halloween Party: See All the Wacky Costumes**\
+`The model and television presenter, dressed as her severed left hand, celebrated the 25th anniversary of her annual party by going gory.`\
+https://www.nytimes.com/2026/11/01/style/heidi-klum-halloween-party-photos-costumes.html
+
 **For Talarico and Paxton, the Battle For the Senate Could Rest on Who is More Texan**\
 `From cowboy boots to corridos, the candidates for U.S. Senate are competing to prove their Texas bona fides.`\
 https://www.nytimes.com/2026/11/01/us/texas-culture-senate-talarico-paxton.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/01/books/review/graeme-lawson-sound-tracks.html
 **You Must Be a Model! Yes, and an Author, Too.**\
 `Brands are increasingly employing writers as models, evoking a time when the profession was a shorthand for “glamour.” Today’s authors can use the paychecks.`\
 https://www.nytimes.com/2026/11/01/books/authors-fashion-models.html
-
-**These Snakes Cartwheel Out of Dangerous Situations**\
-`To escape predators, dwarf reed snakes trade slithering for rolling to safety.`\
-https://www.nytimes.com/2026/11/01/science/these-snakes-cartwheel-out-of-dangerous-situations.html
 
 **New York City Marathon Live Updates: Runners and Spectators Unite for a Five-Borough Street Party**\
 `Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\

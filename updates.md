@@ -1,3 +1,7 @@
+**Inside Heidi Klum’s 2026 Halloween Party: See All the Wacky Costumes**\
+`The model and television presenter, dressed as her severed left hand, celebrated the 25th anniversary of her annual party by going gory.`\
+https://www.nytimes.com/2026/11/01/style/heidi-klum-halloween-party-photos-costumes.html
+
 **For Talarico and Paxton, the Battle For the Senate Could Rest on Who is More Texan**\
 `From cowboy boots to corridos, the candidates for U.S. Senate are competing to prove their Texas bona fides.`\
 https://www.nytimes.com/2026/11/01/us/texas-culture-senate-talarico-paxton.html

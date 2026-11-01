@@ -1,3 +1,7 @@
+**Senate Bean Soup for Your House**\
+`Made on the stovetop or in the slow cooker, it’s a rib-sticking mix of dried beans, ham hocks, onions, butter, smoked paprika and cider vinegar.`\
+https://www.nytimes.com/2026/11/01/dining/senate-bean-soup-for-your-house.html
+
 **Inside Heidi Klum’s 2026 Halloween Party: See All the Wacky Costumes**\
 `The model and television presenter, dressed as her severed left hand, celebrated the 25th anniversary of her annual party by going gory.`\
 https://www.nytimes.com/2026/11/01/style/heidi-klum-halloween-party-photos-costumes.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/11/01/realestate/raising-kids-small-apartments-new-
 `In “Sound Tracks,” the musician and archaeologist Graeme Lawson tells our story, in ancient instruments.`\
 https://www.nytimes.com/2026/11/01/books/review/graeme-lawson-sound-tracks.html
 
-**You Must Be a Model! Yes, and an Author, Too.**\
-`Brands are increasingly employing writers as models, evoking a time when the profession was a shorthand for “glamour.” Today’s authors can use the paychecks.`\
-https://www.nytimes.com/2026/11/01/books/authors-fashion-models.html
-
-**New York City Marathon Live Updates: Runners and Spectators Unite for a Five-Borough Street Party**\
-`Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
+**New York City Marathon Live Updates: Sheila Chepkirui of Kenya Prevails in Dash to the Finish**\
+`Chepkirui held off the American Jessica McClain and the defending champion Hellen Obiri in a late duel. About 60,000 runners and even more spectators have taken to the streets for a five-borough street party.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
