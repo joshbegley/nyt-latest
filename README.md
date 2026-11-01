@@ -1,3 +1,7 @@
+**‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\
+`President Trump attended his jungle-themed Halloween party at Mar-a-Lago dressed as a distinctly recognizable figure.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-halloween-party-scene.html
+
 **Heidi Klum Becomes Her Left Hand for Halloween**\
 `The model, who scurried across the red carpet to celebrate the 25th anniversary of her annual Halloween party, reflected on some of her favorite costumes.`\
 https://www.nytimes.com/2026/10/31/style/heidi-klum-halloween-costume-hand.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/10/31/opinion/democrats-republicans-toxic-masculini
 **Jeffrey Eugenides: My First Day Seems So Much Older Than Me**\
 `One news report that morning conveyed an eternal truth: Commuters will be delayed.`\
 https://www.nytimes.com/2026/10/31/opinion/jeffrey-eugenides-nyt-175.html
-
-**What We’re Watching For on Election Night**\
-`Democratic sweep or not, politics are about to change.`\
-https://www.nytimes.com/video/opinion/100000011250907/what-were-watching-for-on-election-night.html
 
