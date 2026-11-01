@@ -1,3 +1,7 @@
+**9 Dead in Small Plane Crash in Palm Beach County, Florida, Officials Say**\
+`Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **9 Dead in Small Plane Crash in Palm Beach County, Fla., Officials Say**\
 `Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
