@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/01/opinion/pope-leo-xiv-hegseth-courage.html
 `Quotation of the Day for Sunday, November 1, 2026.`\
 https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twisting-classic-25-years-later.html
 
-**He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
-`Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
-https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html
-
