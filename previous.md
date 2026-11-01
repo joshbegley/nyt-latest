@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/01/world/germany-russia-putin-deals-us-midterms.
 `A two-time All Star, in 1969 he joined with Tom Seaver in a pitching combo that propelled the team to an astonishing season.`\
 https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 
-**9 Aboard a Small Plane That Crashed in Florida, F.A.A. Says**\
+**9 Dead in Small Plane Crash in Palm Beach County, Fla., Officials Say**\
 `Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
 
@@ -119,7 +119,7 @@ https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.h
 https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
 
 **Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
-`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was set to campaign in Iowa and Kansas.`\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa and Kansas.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **Ask a Journalist: How Images Help Tell the Story**\

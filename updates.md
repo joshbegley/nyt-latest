@@ -1,3 +1,11 @@
+**9 Dead in Small Plane Crash in Palm Beach County, Fla., Officials Say**\
+`Photos and video posted online showed the plane plunging to the ground and exploding. What led up to the crash was not immediately known.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
+**Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa and Kansas.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
 **Stylish Looks From the New York City Marathon**\
 `Newlyweds and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
 https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
