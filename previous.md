@@ -1,3 +1,7 @@
+**Netanyahu’s Bid to Stay in Power Will Test His Political Savvy**\
+`After losing ground in Israel’s election, Prime Minister Benjamin Netanyahu must draw on decades of political capital and reckon with old foes if he is to build a governing coalition.`\
+https://www.nytimes.com/2026/11/01/world/middleeast/netanyahu-coalition-building-tests-political-skills.html
+
 **$2 Billion From 20 Top Donors Fuels a Hugely Expensive Midterms**\
 `An updated Times analysis reveals the outsize role that megadonors like Elon Musk are playing in this election, and where the money is going.`\
 https://www.nytimes.com/interactive/2026/11/01/us/politics/2026-midterm-top-donors.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/01/pageoneplus/quote-of-the-day-still-a-mind-twi
 **He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.**\
 `Bangkok’s firefighters do more snake catching than firefighting, and Pinyo Pukpinyo trains them. But he refuses to kill the snakes, and he’s running out of containers.`\
 https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html
-
-**Honk if You Know Why Delhi’s Air Is So Bad**\
-`Millions of vehicles crowd India’s capital, spewing pollutants that become especially dangerous when winter weather traps them over the city.`\
-https://www.nytimes.com/interactive/2026/11/01/world/asia/india-pollution-vehicles.html
 
