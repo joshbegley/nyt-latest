@@ -1,3 +1,7 @@
+**‘S.N.L.’ Plays Trick-or-Treat When Trump Interrupts David S. Pumpkins**\
+`Tom Hanks returned, all too briefly, to play his baffling Halloween character on a “Saturday Night Live” episode hosted by the “Obsession” star Inde Navarrette.`\
+https://www.nytimes.com/2026/11/01/arts/television/snl-trick-or-treat-trump-interrupts-david-s-pumpkins.html
+
 **The History Behind Trump’s Arch**\
 `The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
 https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
