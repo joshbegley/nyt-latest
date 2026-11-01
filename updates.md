@@ -1,3 +1,11 @@
+**Democrats Want to Prove They Can Win in the Rapidly Changing South**\
+`An influx of new residents means the party that controls Southern states is likely to gain political power after the next census.`\
+https://www.nytimes.com/2026/11/01/us/politics/southern-democrats-midterms.html
+
+**New York City Marathon Live Updates: Runners and Fans Gather for a Five-Borough Street Party**\
+`Sunny skies and warm temperatures are expected for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **How Marathons Changed**\
 `The New York City Marathon is happening this morning.`\
 https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
