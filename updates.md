@@ -1,3 +1,7 @@
+**‘I Came as Donald Trump’: The President Hosts a Luxury Halloween at Mar-a-Lago**\
+`President Trump attended his jungle-themed Halloween party at Mar-a-Lago dressed as a distinctly recognizable figure.`\
+https://www.nytimes.com/2026/10/31/us/politics/trump-halloween-party-scene.html
+
 **Democratic Discord Intensifies in Michigan Senate Race**\
 `Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, said Representative Haley Stevens, his former primary rival, should not attend Sunday’s party unity event in Detroit.`\
 https://www.nytimes.com/live/2026/10/31/us/midterms-elections-trump
