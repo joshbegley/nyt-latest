@@ -1,3 +1,7 @@
+**For Talarico and Paxton, the Battle For the Senate Could Rest on Who is More Texan**\
+`From cowboy boots to corridos, the candidates for U.S. Senate are competing to prove their Texas bona fides.`\
+https://www.nytimes.com/2026/11/01/us/texas-culture-senate-talarico-paxton.html
+
 **‘In the Heights’ Review: An Exuberant Revival of Lin-Manuel Miranda’s Musical**\
 `This concert staging of Lin-Manuel Miranda and Quiara Alegría Hudes’s 2005 musical is like driving through the streets of New York with the windows down.`\
 https://www.nytimes.com/2026/11/01/theater/in-the-heights-review-lin-manuel-miranda.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/01/science/these-snakes-cartwheel-out-of-dangero
 **New York City Marathon Live Updates: Runners and Spectators Unite for a Five-Borough Street Party**\
 `Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
-
-**In L.A., a Stark Generational Divide May Determine the Mayor’s Race**\
-`Young voters want affordability. Older ones want stability. That tension may be the biggest factor in the contest between Karen Bass, 73, the incumbent, and Nithya Raman, 45.`\
-https://www.nytimes.com/2026/11/01/us/politics/la-mayor-election-generational-divide.html
 
