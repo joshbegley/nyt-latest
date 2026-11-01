@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 2, 2026**\
+`Max Schlenker doesn’t leave us in the dark.`\
+https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
+
+**Halloween Shootings Leave at Least 24 Dead and 94 Wounded Nationwide**\
+`Experts on violence say Halloween is one of the most dangerous days of the year.`\
+https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
+
 **Learjet Crashes in Florida, Killing 9, Authorities Say**\
 `A Learjet 60 headed to the Bahamas from Austin, Texas, crashed on Sunday in Florida. All nine people aboard were killed, the authorities said.`\
 https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-killing-9-authorities-say.html
