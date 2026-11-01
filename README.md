@@ -1,3 +1,7 @@
+**How Marathons Changed**\
+`The New York City Marathon is happening this morning.`\
+https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
+
 **Want to Enjoy Music More? Go For a Run.**\
 `For New York City Marathon day: how running can make listening to music better.`\
 https://www.nytimes.com/2026/11/01/podcasts/the-daily/new-york-city-marathon-music-running.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/01/arts/design/technology-museum-ai-guides.html
 **Why This Playwright Can’t Quit His Family of Anxious Liberals**\
 `Richard Nelson thought he was done with the Apple family in 2020. Then Donald Trump returned to the White House.`\
 https://www.nytimes.com/2026/11/01/theater/richard-nelson-apple-family-public-theater.html
-
-**Recalling the Pathbreaking Role of a Newark Art Space**\
-`An exhibition at the Newark Museum of Art is showcasing the influence of Aljira, a nonprofit gallery that supported underrepresented artists.`\
-https://www.nytimes.com/2026/11/01/arts/design/aljira-newark-museum.html
 
