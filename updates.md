@@ -1,3 +1,7 @@
+**New York City Marathon Live Updates: Runners and Spectators Unite for a Five-Borough Street Party**\
+`Sunny skies and warm temperatures are forecast for one of New York’s favorite fall traditions. About 60,000 competitors will take part, cheered by crowds every step of the way.`\
+https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
+
 **Maps: Tracking Tropical Cyclone Murasu**\
 `See the likely path and wind arrival times for Murasu`\
 https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.html
