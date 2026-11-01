@@ -158,10 +158,6 @@ https://www.nytimes.com/2026/11/01/world/europe/putin-isolation-breakdown-trump.
 `Having won a record 19 seats in Israel’s Parliament, the two Arab-led parties say they want to work with opposition factions to take down the Netanyahu government.`\
 https://www.nytimes.com/2026/11/01/world/middleeast/israel-arab-parties.html
 
-**24 Off Broadway Shows to Catch This November**\
-`From a revival of August Wilson’s “Seven Guitars” to a musical parody of the reality show “The Traitors,” New York stages are full of creativity this month.`\
-https://www.nytimes.com/2026/11/01/theater/traitorz-carson-imitation-life-off-broadway-november.html
-
 **New York City Marathon Live Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
 https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
