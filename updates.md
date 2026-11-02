@@ -1,3 +1,7 @@
+**Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
+`Party leaders will make competing cases to the Israeli president for either Benjamin Netanyahu or Gadi Eisenkot to get the first chance to build a governing coalition.`\
+https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html
+
 **King Charles Meets Both Joy and Criticism on Caribbean Tour**\
 `During the king’s visits to three former colonies, many people came out for celebratory parades and events. Others said the British state needed to atone for slavery’s toll.`\
 https://www.nytimes.com/2026/11/02/world/europe/king-charles-caribbean-slavery-commonwealth.html
