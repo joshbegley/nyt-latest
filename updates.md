@@ -1,3 +1,11 @@
+**U.S.-China Relations Will Never Be the Same in the Age of A.I.**\
+`China and the U.S. need mutually assured collaboration to quash the threat of A.I.-empowered bad actors, even while their economic differences sharpen.`\
+https://www.nytimes.com/2026/11/02/opinion/us-china-ai-manufacturing-exports-weapons.html
+
+**‘North of North,’ and 8 More Shows to Watch on TV This Week**\
+`The sitcom, set in a small Arctic community, returns for a second season. And news networks air coverage of the midterm elections.`\
+https://www.nytimes.com/2026/11/02/arts/television/north-of-north-tv-this-week.html
+
 **Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
