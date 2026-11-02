@@ -1,3 +1,7 @@
+**China’s Message to Its Rivals: You Need What We Make**\
+`It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
+https://www.nytimes.com/2026/11/02/world/asia/china-us-exports-ai-solar.html
+
 **Audio Reveals Chaotic Moments Before Jet Crash in Florida**\
 `Audio of communications between the pilot of a business jet and air traffic control revealed the harrowing moments before the aircraft crashed in Florida on Sunday.`\
 https://www.nytimes.com/video/us/100000011253957/florida-jet-crash.html
