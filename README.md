@@ -1,3 +1,7 @@
+**Newsom and Harris Appear Together, With Little Hint of What’s to Come**\
+`The two possible presidential candidates showed up in Los Angeles to support Xavier Becerra, the Democratic candidate for California governor.`\
+https://www.nytimes.com/2026/11/02/us/elections/newsom-harris-becerra-rally.html
+
 **No Corrections: Nov. 2, 2026**\
 `No corrections appeared in print on Monday, Nov. 2, 2026.`\
 https://www.nytimes.com/2026/11/02/pageoneplus/no-corrections-nov-2-2026.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harrywe
 **Inspired by the Marathon? Here’s How to Qualify to Run.**\
 `There are several pathways to gain entry to the field, but most come with rules or obligations.`\
 https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
-
-**Flooding in Parts of Arizona and Colorado Prompts Evacuation Orders**\
-`A potent storm system was bringing heavy rains to areas of Arizona, Colorado, New Mexico and Utah that were still recovering from recent devastating floods.`\
-https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html
 
 **Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
