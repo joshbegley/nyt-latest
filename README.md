@@ -1,3 +1,11 @@
+**Mystery Group Spends Millions to Boost Third-Party Candidates at Republicans’ Expense**\
+`A super PAC called Our Heritage Matters, which was registered less than a month ago, has spent $6.5 million in the last days of campaigning to promote obscure candidates over Republicans it portrays as liberals.`\
+https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.html
+
+**A 31,000-Mile Walk Ends in England, at Mom’s House**\
+`Karl Bushby arrived in Hull, England, on Monday after spending 28 years crossing four continents on foot.`\
+https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-england.html
+
 **Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
 `The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
 https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/02/podcasts/the-headlines/midterms-polls-crypto-
 **NYT Connections Answers for November 3, 3036**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
 https://www.nytimes.com/2026/11/02/crosswords/connections-companion-1241.html
-
-**Today’s Wordle Hints for November 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
-https://www.nytimes.com/2026/11/02/crosswords/wordle-review-1963.html
-
-**A Political Rebellion in the Rio Grande Valley**\
-`In 2024, Hispanic voters in the region delivered a political earthquake: majority support for Republicans. Now, that support appears to be evaporating.`\
-https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispanic-voters.html
 
