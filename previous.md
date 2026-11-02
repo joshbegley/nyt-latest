@@ -1,3 +1,7 @@
+**Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
+`President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html
+
 **Inside Anthropic’s Hunt for A.I. Computing Power**\
 `The company went on a deal spree with tech giants, former crypto miners and others to obtain one of the artificial intelligence boom’s scarcest resources.`\
 https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/us/paxton-bus-tour.html
 **How The New York Times Is Covering the Midterm Elections**\
 `More than 400 journalists across at least 30 states will interview voters, break down results and identify trends.`\
 https://www.nytimes.com/2026/11/02/insider/new-york-times-midterm-elections.html
-
-**Do Animals Grieve?**\
-`The feeling of existential loss was long thought to be uniquely human. But studies of coyotes, cockatoos and other creatures are prompting some scientists to reconsider.`\
-https://www.nytimes.com/2026/11/02/science/animals-grief-death.html
 
