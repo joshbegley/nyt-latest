@@ -1,3 +1,15 @@
+**Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
+`The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
+https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
+
+**Are Freezers Being Hacked? Europe and the U.S. Military Are Investigating.**\
+`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlight the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
+https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
+
+**He Pioneered a Groundbreaking Idea and Was Met With Corporate Wrath**\
+`Economist William Nordhaus said putting a price on pollution was the best way to reduce climate change. Then came the fossil fuel lobby and the anti-tax movement.`\
+https://www.nytimes.com/2026/11/02/climate/william-nordhaus-carbon-tax-american-business.html
+
 **The Local: Minnesota election watch**\
 `Also, takeout to nervously nosh on while you wait.`\
 https://www.nytimes.com/2026/11/02/briefing/minnesota-election-watch.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/02/crosswords/wordle-review-1963.html
 **A Political Rebellion in the Rio Grande Valley**\
 `In 2024, Hispanic voters in the region delivered a political earthquake: majority support for Republicans. Now, that support appears to be evaporating.`\
 https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispanic-voters.html
-
-**NYT Strands Hints for November 3, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
-https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
-
-**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
-`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is speaking in Washington just hours after his administration asked the Supreme Court to intervene in a California election case.`\
-https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
-
-**Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
-`Party leaders will make competing cases to the Israeli president for either Benjamin Netanyahu or Gadi Eisenkot to get the first chance to build a governing coalition.`\
-https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html
 
