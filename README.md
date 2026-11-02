@@ -1,3 +1,7 @@
+**Campuses Join Take Back the Night Gathering to Protest Sexual Violence**\
+`Similar protests date to the 1970s, but their focus has evolved over time. Sunday’s event was prompted by a former Cornell University student’s lawsuit alleging she was raped.`\
+https://www.nytimes.com/2026/11/01/us/take-back-the-night-protests-sexual-violence.html
+
 **Who’s Winning the Race for the Senate?**\
 `Democrats have the lead in most of the seven tossup Senate races, according to the latest Times/Siena poll, though some contests remain close. Our polling reporter Ruth Igielnik breaks down what the numbers show.`\
 https://www.nytimes.com/video/us/elections/100000011241496/whos-winning-the-race-for-the-senate.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
 **Stylish Looks From the New York City Marathon**\
 `Newlyweds and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
 https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
-
-**Which Miles Are the Toughest at the NYC Marathon?**\
-`Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
-https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
 
 **Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
