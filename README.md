@@ -1,3 +1,11 @@
+**10-Minute Challenge: “Above the Clouds I,” by Georgia O’Keeffe**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
+
+**The Final Polls Show a Blue Surge. Can We Trust Them?**\
+`New Times/Siena surveys show Democrats leading in all the key battlegrounds that will decide Senate control.`\
+https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
+
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
 `Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-crosstabs.html
@@ -170,8 +178,8 @@ https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
 `Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
 
-**Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
-`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa before heading to Kansas.`\
+**Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
 **What You Need to Know About The Times’s 2026 Election Results and the Needle**\

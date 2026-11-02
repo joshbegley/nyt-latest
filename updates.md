@@ -1,3 +1,7 @@
+**Editors’ Note**\
+`, new New York Times/Siena University polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
+
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
 `Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
 https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-crosstabs.html
