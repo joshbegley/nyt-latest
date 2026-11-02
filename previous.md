@@ -1,3 +1,15 @@
+**Trump Floats Pre-Emptive Pardons for Allies if Democrats Take Congress in Midterms**\
+`“We just have to protect those people,” President Trump said in an interview, when asked about potential investigations of allies and administration officials if Democrats won control of Congress.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-control.html
+
+**Russia Senses Opportunity in Polish Political Turmoil**\
+`After its sometime allies were ousted in elections in Hungary and Serbia, Moscow has seized on Poland’s constitutional standoff in its effort to weaken Europe’s support for Ukraine.`\
+https://www.nytimes.com/2026/11/02/world/europe/russia-polish-political-turmoil.html
+
+**What Are Voters’ Top Concerns? Midterm Election Polls Point to the Economy.**\
+`Our polls suggest the economy is biggest motivator of voters’ choices in these midterm elections and that Democrats are more trusted to fix things.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterm-election-polls-trump-economy-immigration.html
+
 **Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
 `Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
 https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 **Elon Musk Spends $474 Million on the 2026 Midterm Elections**\
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
-
-**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
-`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
-https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
-
-**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
-`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
-https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
-
-**What Time Do Polls Close? Midterm Elections 2026**\
-`A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
-https://www.nytimes.com/interactive/2026/11/02/us/elections/polls-closing-time-midterm-elections.html
 
