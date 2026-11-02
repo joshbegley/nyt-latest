@@ -1,3 +1,27 @@
+**No Corrections: Nov. 2, 2026**\
+`No corrections appeared in print on Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/02/pageoneplus/no-corrections-nov-2-2026.html
+
+**Quote of the Day: Around the World, on Just His Feet, in 28 Years**\
+`Quotation of the Day for Monday, November 2, 2026.`\
+https://www.nytimes.com/2026/11/02/pageoneplus/quote-of-the-day-around-the-world-on-just-his-feet-in-28-years.html
+
+**FIFA Quietly Paid Millions in Gianni Infantino’s Taxes**\
+`FIFA promises to disclose its executives’ compensation. But its under-fire president received tax benefits that were never made public, according to documents and interviews.`\
+https://www.nytimes.com/2026/11/02/business/fifa-infantino-taxes.html
+
+**‘This Hour Has 22 Minutes,’ a Canadian Sketch Show, Beats American Late Night to the Punchline**\
+`The long-running comedy show “This Hour Has 22 Minutes” is having a heyday playing with the fraught relationship between President Trump and Canada.`\
+https://www.nytimes.com/2026/11/02/world/canada/this-hour-has-22-minutes-trump-carney.html
+
+**China’s Message to Its Rivals: You Need What We Make**\
+`It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
+https://www.nytimes.com/2026/11/02/world/asia/chinas-message-to-its-rivals-you-need-what-we-make.html
+
+**From the Front Page: The Cubs End 108-Year World Series Drought on Nov. 2, 2016**\
+`The Chicago Cubs defeated Cleveland in a 10-inning Game 7 that ended after midnight, winning their first championship title since 1908.`\
+https://www.nytimes.com/2026/11/02/learning/from-the-front-page-the-cubs-end-108-year-world-series-drought-on-nov-2-2016.html
+
 **Campuses Join Take Back the Night Gathering to Protest Sexual Violence**\
 `Similar protests date to the 1970s, but their focus has evolved over time. Sunday’s event was prompted by a former Cornell University student’s lawsuit alleging she was raped.`\
 https://www.nytimes.com/2026/11/01/us/take-back-the-night-protests-sexual-violence.html
