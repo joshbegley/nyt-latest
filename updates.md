@@ -1,3 +1,15 @@
+**Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
+`The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
+https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
+
+**Are Freezers Being Hacked? Europe and the U.S. Military Are Investigating.**\
+`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlight the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
+https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
+
+**He Pioneered a Groundbreaking Idea and Was Met With Corporate Wrath**\
+`Economist William Nordhaus said putting a price on pollution was the best way to reduce climate change. Then came the fossil fuel lobby and the anti-tax movement.`\
+https://www.nytimes.com/2026/11/02/climate/william-nordhaus-carbon-tax-american-business.html
+
 **The Local: Minnesota election watch**\
 `Also, takeout to nervously nosh on while you wait.`\
 https://www.nytimes.com/2026/11/02/briefing/minnesota-election-watch.html
