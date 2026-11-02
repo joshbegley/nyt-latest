@@ -1,3 +1,11 @@
+**Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
+`Iranian officials spoke of some progress in negotiating to reopen the strait, a vital oil and gas shipping lane, even as they prepare for all-out war.`\
+https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
+
+**Martha Stewart Apologizes for Homeless Halloween Costume**\
+`Stewart, the media mogul and entrepreneur, had posted a photo of a costume with tattered clothes and a sign asking for help.`\
+https://www.nytimes.com/2026/11/02/style/martha-stewart-homeless-halloween-costume-apology.html
+
 **Cracks in the A.I. Borrowing Binge**\
 `Investors are growing increasingly concerned about the debt-fueled spending spree at the heart of the artificial intelligence buildout.`\
 https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/02/opinion/psychedelics-medicine-patients.html
 **This Presidency Is All Flaws and No Majesty**\
 `Will Americans decide this week that character does, after all, matter?`\
 https://www.nytimes.com/2026/11/02/opinion/trump-character-presidents-midterms.html
-
-**3 Violinists Find a Place in Queens With Room to Practice and Teach**\
-`After finding an apartment in Forest Hills, three roommates don’t have to worry about making noise at night: Their neighbors are commercial tenants.`\
-https://www.nytimes.com/2026/11/02/realestate/violinists-renting-forest-hills-queens.html
-
-**Deportees Turn to TikTok to Document Life Starting Over**\
-`On TikTok, men and women sent back after living in the United States are documenting the reality of starting over — and finding an audience.`\
-https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
 

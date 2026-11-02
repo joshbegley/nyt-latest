@@ -1,3 +1,11 @@
+**Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
+`Iranian officials spoke of some progress in negotiating to reopen the strait, a vital oil and gas shipping lane, even as they prepare for all-out war.`\
+https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
+
+**Martha Stewart Apologizes for Homeless Halloween Costume**\
+`Stewart, the media mogul and entrepreneur, had posted a photo of a costume with tattered clothes and a sign asking for help.`\
+https://www.nytimes.com/2026/11/02/style/martha-stewart-homeless-halloween-costume-apology.html
+
 **Deportees Turn to TikTok to Document Life Starting Over**\
 `On TikTok, men and women sent back after living in the United States are documenting the reality of starting over — and finding an audience.`\
 https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
