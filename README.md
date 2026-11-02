@@ -1,3 +1,7 @@
+**CISA Retreats From Election Security Ahead of Midterms**\
+`Protecting the vote was once considered among the top priorities of the Cybersecurity and Infrastructure Security Agency. Now it barely mentions the issue.`\
+https://www.nytimes.com/2026/11/02/us/politics/cisa-election-security-midterms.html
+
 **Mystery Group Spends Millions to Boost Third-Party Candidates at Republicans’ Expense**\
 `A super PAC called Our Heritage Matters, which was registered less than a month ago, has spent $6.5 million in the last days of campaigning to promote obscure candidates over Republicans it portrays as liberals.`\
 https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
 **The Final Polls Before the Midterms, and a $6 Billion Crypto Heist**\
 `Plus, the smog over Tomorrowland.`\
 https://www.nytimes.com/2026/11/02/podcasts/the-headlines/midterms-polls-crypto-heist.html
-
-**NYT Connections Answers for November 3, 3036**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
-https://www.nytimes.com/2026/11/02/crosswords/connections-companion-1241.html
 
