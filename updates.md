@@ -1,3 +1,11 @@
+**Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
+`Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
+https://www.nytimes.com/video/world/middleeast/100000011254470/iran-strait-of-hormuz-us-deal.html
+
+**Inside Anthropic’s Hunt for A.I. Computing Power**\
+`The company went on a deal spree with tech giants, former crypto miners and others to gain computing power to further its artificial intelligence ambitions.`\
+https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
+
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is set to speak in Washington, just hours after his administration asked the Supreme Court to intervene in a California election case.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump

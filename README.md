@@ -1,3 +1,7 @@
+**Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
+`Marvell and Lumentum said they were combining, in a major bet on a technology known as optical networking that is increasingly being used in A.I. data centers.`\
+https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html
+
 **Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
 `Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
 https://www.nytimes.com/video/world/middleeast/100000011254470/iran-strait-of-hormuz-us-deal.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 **7 Ways Trump Skirts the Courts**\
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
-
-**Midterm Elections: Who Is Winning the Race for Congress?**\
-`We’re one day away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
 

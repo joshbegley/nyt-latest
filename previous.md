@@ -1,3 +1,7 @@
+**Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
+`Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
+https://www.nytimes.com/video/world/middleeast/100000011254470/iran-strait-of-hormuz-us-deal.html
+
 **Adventurer Who Walked Across the Globe for 28 Years Returns Home**\
 `Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
 https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-the-world.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms
 https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html
 
 **Inside Anthropic’s Hunt for A.I. Computing Power**\
-`The company went on a deal spree with tech giants, former crypto miners and others to obtain one of the artificial intelligence boom’s scarcest resources.`\
+`The company went on a deal spree with tech giants, former crypto miners and others to gain computing power to further its artificial intelligence ambitions.`\
 https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
 
 **Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
@@ -162,13 +166,13 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
-`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
-https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
-
 **A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
 `Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
 https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
+
+**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
+`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
+https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
 
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 **7 Ways Trump Skirts the Courts**\
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
-
-**Parties End the Midterm Election With Their Closing Arguments**\
-`Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
-https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
 
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `We’re one day away from the midterms. Here’s the state of play.`\
