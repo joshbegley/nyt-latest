@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
 `The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
 
-**A 20-Year-Old Was a Pilot of the Jet That Plunged to Earth in Florida**\
+**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
 
