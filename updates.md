@@ -1,3 +1,11 @@
+**In Run-Up to Midterms, Legacy of 2020 Looms Large Over Justice Dept.**\
+`The refusal of top department officials to acknowledge Donald J. Trump’s loss that year is the engine driving an intensifying effort to intercede in state administration of elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterms-2020-election-justice-department.html
+
+**Apple’s Profit Grows 12 Percent Despite Component Price Worries**\
+`The company said iPhone sales remained strong, but warned that the cost of memory chips for its devices were going up.`\
+https://www.nytimes.com/2026/11/02/technology/apple-earnings.html
+
 **How a Reporter Interviews People About the Midterms, Even Those Who ‘Don’t Talk Politics’**\
 `In purple states like Michigan, sharing political views — especially with reporters — has become a socially risky thing to do.`\
 https://www.nytimes.com/2026/11/02/insider/midterm-election-reporting-michigan-politics.html

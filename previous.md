@@ -1,3 +1,11 @@
+**In Run-Up to Midterms, Legacy of 2020 Looms Large Over Justice Dept.**\
+`The refusal of top department officials to acknowledge Donald J. Trump’s loss that year is the engine driving an intensifying effort to intercede in state administration of elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterms-2020-election-justice-department.html
+
+**Apple’s Profit Grows 12 Percent Despite Component Price Worries**\
+`The company said iPhone sales remained strong, but warned that the cost of memory chips for its devices were going up.`\
+https://www.nytimes.com/2026/11/02/technology/apple-earnings.html
+
 **How a Reporter Interviews People About the Midterms, Even Those Who ‘Don’t Talk Politics’**\
 `In purple states like Michigan, sharing political views — especially with reporters — has become a socially risky thing to do.`\
 https://www.nytimes.com/2026/11/02/insider/midterm-election-reporting-michigan-politics.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
 **Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
 `The A.I. company’s quarterly revenue totaled $17 billion, 12 times as high as the same quarter last year, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
-
-**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
-`Nathalia Filgueiras received a pilot’s license at 17, had logged more than 1,300 hours of flight time and was the co-pilot on Sunday, her mother said in an interview.`\
-https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
-
-**How Many of These Movies Adapted From Books Do You Know?**\
-`These novels have been adapted into popular films, sometimes more than once. Try this quiz and see how many books and movies you remember.`\
-https://www.nytimes.com/quiz/2026/11/02/bookreview/animal-book-movies.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
