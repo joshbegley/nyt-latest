@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: ‘Mrs. Dalloway’ Today**\
+`What does a 100 year-old novel reveal to us about our present day?`\
+https://www.nytimes.com/2026/11/02/learning/15-minute-lesson-plan-mrs-dalloway-today.html
+
 **Audio Reveals Chaotic Moments Before Jet Crash in Florida**\
 `Audio of communications between the pilot of a business jet and air traffic control revealed the harrowing moments before the aircraft crashed in Florida on Sunday.`\
 https://www.nytimes.com/video/us/100000011253957/florida-jet-crash.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
 **Learjet Crashes in Florida, Killing 9, Authorities Say**\
 `A Learjet 60 headed to the Bahamas from Austin, Texas, crashed on Sunday in Florida. All nine people aboard were killed, the authorities said.`\
 https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-killing-9-authorities-say.html
-
-**Halloween Shootings Leave at Least 24 Dead and 94 Wounded Nationwide**\
-`Experts on violence say Halloween is one of the most dangerous days of the year.`\
-https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
 
