@@ -1,3 +1,7 @@
+**Newsom and Harris Appear Together, With Little Hint of What’s to Come**\
+`The two possible presidential candidates showed up in Los Angeles to support Xavier Becerra, the Democratic candidate for California governor.`\
+https://www.nytimes.com/2026/11/02/us/elections/newsom-harris-becerra-rally.html
+
 **No Corrections: Nov. 2, 2026**\
 `No corrections appeared in print on Monday, Nov. 2, 2026.`\
 https://www.nytimes.com/2026/11/02/pageoneplus/no-corrections-nov-2-2026.html
