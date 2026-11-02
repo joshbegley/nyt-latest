@@ -1,3 +1,11 @@
+**Trump Delivers a Closing Midterm Message. Mostly About Landscaping.**\
+`On the eve of the election, the president held forth in great detail on columns, drain pipes and granite at the newly refilled Reflecting Pool.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-midterms.html
+
+**How The New York Times Reviewed 7 Million Words Uttered by Trump**\
+`Two Times journalists, blending A.I. analysis and traditional reporting, evaluated public speeches to spot trends.`\
+https://www.nytimes.com/2026/11/02/insider/trump-speeches-analysis.html
+
 **Buses Serving Jewish Schools Are Vandalized With Swastikas in Brooklyn**\
 `The police are investigating the vandalism as a potential hate crime after the buses were found defaced in Williamsburg on Monday morning.`\
 https://www.nytimes.com/2026/11/02/nyregion/jewish-school-buses-swastikas-brooklyn.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/video/dining/100000011255271/buttered-corn-flan.html
 `The 2026 midterm election is the most expensive national midterm election in U.S. history, with more than $11 billion in ad spending. Our national political correspondent Shane Goldmacher breaks down where all that money is going.`\
 https://www.nytimes.com/video/us/politics/100000011250897/how-money-is-shaping-the-midterms.html
 
-**What Voters Should Know About Possible Problems at the Polls**\
+**What Voters Should Know About Election Security for the 2026 Midterms**\
 `Despite worries about federal intervention, local and state officials say they are well prepared to run a secure election.`\
 https://www.nytimes.com/2026/11/02/us/politics/election-integrity-polling-sites.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-
 **The Trump Factor in the Midterm Elections**\
 `Readers offer some final thoughts before Election Day. Also: Hard times, or not; Halloween candy bliss.`\
 https://www.nytimes.com/2026/11/02/opinion/trump-midterm-elections.html
-
-**Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil**\
-`The Kennedy Center Honors, the venue’s marquee event, will also recognize the veteran actor Andy Garcia, the country singer Barbara Mandrell and the music producer David Foster.`\
-https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html
-
-**Supreme Court Rejects Trump Administration Request to Intervene in California Ballot Case**\
-`The court’s ruling came just hours after administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
-https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\

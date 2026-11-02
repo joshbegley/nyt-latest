@@ -1,3 +1,11 @@
+**Buses Serving Jewish Schools Are Vandalized With Swastikas in Brooklyn**\
+`The police are investigating the vandalism as a potential hate crime after the buses were found defaced in Williamsburg on Monday morning.`\
+https://www.nytimes.com/2026/11/02/nyregion/jewish-school-buses-swastikas-brooklyn.html
+
+**Supreme Court Rejects Trump Administration Request to Intervene in California Ballot Case**\
+`The court’s ruling came just hours after administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
+
 **Early Voting Turnout Surges**\
 `Also, the Senate’s future is riddled with wild cards. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/02/briefing/early-voting-turnout-surges.html
