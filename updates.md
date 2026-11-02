@@ -1,3 +1,15 @@
+**The Pilates Bros Have Arrived**\
+`Long seen as a women’s workout, the exercise method is winning over men — one trembling leg at a time.`\
+https://www.nytimes.com/2026/11/02/well/pilates-men.html
+
+**Judge Throws Out Charges Against Former F.B.I. Officials**\
+`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms.html
+
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **Midterms Vibe Check**\
 `We look at how college papers are covering the midterms.`\
 https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html

@@ -1,3 +1,7 @@
+**The Pilates Bros Have Arrived**\
+`Long seen as a women’s workout, the exercise method is winning over men — one trembling leg at a time.`\
+https://www.nytimes.com/2026/11/02/well/pilates-men.html
+
 **Midterms Vibe Check**\
 `We look at how college papers are covering the midterms.`\
 https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
@@ -20,7 +24,7 @@ https://www.nytimes.com/2026/11/02/us/politics/early-vote-turnout-senate-battleg
 
 **Judge Throws Out Charges Against Former F.B.I. Officials**\
 `The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
-https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
+https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms.html
 
 **Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
 `President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispan
 https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
-`The figures tell an incomplete story but offer some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
+`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/arts/television/streaming-tv-era-cost.html
 **How a Tax Cut Could Threaten a Florida Necessity: Mosquito Control**\
 `As Florida fights a dengue outbreak, a ballot proposal to cut property taxes has raised concerns about local governments’ ability to pay for sufficient mosquito control.`\
 https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
-
-**Two New Housing Projects That People Really Want to Live in**\
-`In East New York, Brooklyn, and Rockaway Village, Queens, new developments feel like neighborhoods.`\
-https://www.nytimes.com/2026/11/02/nyregion/housing-projects-brooklyn-queens-kimmelman.html
 
