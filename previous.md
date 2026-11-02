@@ -1,3 +1,7 @@
+**Our Final Polls**\
+`We look at our final polls before the midterms.`\
+https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
+
 **Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
 `A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
 https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
 **Deportees Post on Social Media About Living in Countries They Barely Know**\
 `In Mexico, Laos and El Salvador, people deported from the U.S. are turning to social media to find community and share about navigating life in countries they barely know.`\
 https://www.nytimes.com/video/world/100000011231165/us-deportees-social-media-posts.html
-
-**Word of the Day: nuptial**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/02/learning/word-of-the-day-nuptial.html
 

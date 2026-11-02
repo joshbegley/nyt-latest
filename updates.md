@@ -1,3 +1,7 @@
+**Our Final Polls**\
+`We look at our final polls before the midterms.`\
+https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
+
 **Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
 `A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
 https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
