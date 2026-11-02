@@ -1,3 +1,7 @@
+**What to Know About the Florida Plane Crash That Killed 9**\
+`A midsize jet plummeted to the ground on Sunday, exploding into a fireball and killing all on board.`\
+https://www.nytimes.com/2026/11/01/us/learjet-crash-florida-palm-beach.html
+
 **Inside the Abdul El-Sayed-Haley Stevens Meltdown in Michigan**\
 `The relationship shattered in part because of Israel, but also because of their sensitive egos and hurt feelings. The split had been months in the making.`\
 https://www.nytimes.com/2026/11/01/us/politics/el-sayed-stevens-meltdown-michigan-democrats.html

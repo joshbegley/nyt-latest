@@ -1,3 +1,7 @@
+**What to Know About the Florida Plane Crash That Killed 9**\
+`A midsize jet plummeted to the ground on Sunday, exploding into a fireball and killing all on board.`\
+https://www.nytimes.com/2026/11/01/us/learjet-crash-florida-palm-beach.html
+
 **The Final Polls Show a Blue Surge. Can We Trust Them?**\
 `Democrats lead in all the key states that will decide Senate control, according to new Times/Siena surveys.`\
 https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
