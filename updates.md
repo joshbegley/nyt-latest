@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Rivals Race to Finish As Parties Make Final Pitches**\
+`President Trump was scheduled to deliver remarks in Washington on the eve of Tuesday’s midterms. Over the weekend, surprises and distractions rocked battleground contests.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **He Was the Lone Boy in Ballet Class. Now He Teaches 40.**\
 `Adrian Blake Mitchell’s career took him to Russia. But he has returned to Los Angeles to shepherd young dancers at his alma mater. “I’m teaching a lot of things I wish most adult men had.”`\
 https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
