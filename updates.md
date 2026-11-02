@@ -1,3 +1,7 @@
+**Rome Greenlights New Investigation of Pier Paolo Pasolini Murder 51 Years Ago**\
+`Pier Paolo Pasolini was found bludgeoned to death in 1975. A young escort confessed to the crime but changed his story over the years, creating uncertainty.`\
+https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html
+
 **Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
 `Marvell and Lumentum said they were combining, in a major bet on a technology known as optical networking that is increasingly being used in A.I. data centers.`\
 https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html

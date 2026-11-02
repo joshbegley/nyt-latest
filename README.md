@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
-`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
-https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
-
 **A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
 `Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
 https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
+
+**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
+`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
+https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
 
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
