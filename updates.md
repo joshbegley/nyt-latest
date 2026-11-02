@@ -1,3 +1,7 @@
+**Trump Is Playing Up Voter Fraud Prosecutions. Meet Some of the Accused.**\
+`The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
+https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
+
 **The ’90s Cartoon That Taught Millennials How to Swing**\
 `The collaborators behind the “Hey Arnold!” score are performing the soundtrack on tour and connecting with a generation reared on the show’s big feelings.`\
 https://www.nytimes.com/2026/11/02/arts/music/hey-arnold-jazz-score-tour.html

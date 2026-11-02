@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-t
 `Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
 https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
 
-**Accused of Voter Fraud, They Ended Up in Shackles**\
+**Trump Is Playing Up Voter Fraud Prosecutions. Meet Some of the Accused.**\
 `The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
 https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
 
