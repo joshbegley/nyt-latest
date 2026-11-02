@@ -1,3 +1,11 @@
+**Adventurer Who Walked Across the Globe for 28 Years Returns Home**\
+`Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
+https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-the-world.html
+
+**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
+`Nathalia Filgueiras received a pilot’s license at 17, had logged more than 1,300 hours of flight time and was the co-pilot on Sunday, her mother said in an interview.`\
+https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
+
 **The Trump Factor in the Midterm Elections**\
 `Readers offer some final thoughts before Election Day. Also: Hard times, or not; Halloween candy bliss.`\
 https://www.nytimes.com/2026/11/02/opinion/trump-midterm-elections.html

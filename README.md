@@ -174,8 +174,8 @@ https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.htm
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
 https://www.nytimes.com/interactive/2026/11/02/us/elections/polls-closing-time-midterm-elections.html
 
-**Judge in Clancy Case to Weigh Motion to Dismiss Charges at Hearing**\
-`The hearing on Monday could also reveal whether prosecutors intend to try Lindsay Clancy again for first-degree murder or reduce the charges.`\
+**Clancy Hearing Focuses on Holdout Juror’s Inclusion on Jury**\
+`Lawyers debated whether the lone juror who voted for Lindsay Clancy’s conviction had been honest during jury selection for her trial.`\
 https://www.nytimes.com/2026/11/02/us/lindsay-clancy-trial-hearing.html
 
 **Senate Control After the Midterms: Party Switches, Ties and Wild Cards**\
