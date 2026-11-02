@@ -1,4 +1,8 @@
-**Woman Is on Life Support After She Being Stabbed While Jogging in Brooklyn**\
+**The New York City Marathon in Photos and Videos**\
+`See how tens of thousands of runners and an estimated 2 million spectators embraced the race across the five boroughs.`\
+https://www.nytimes.com/2026/11/01/nyregion/the-new-york-city-marathon-in-photos-and-videos.html
+
+**Woman Is on Life Support After Being Stabbed While Jogging in Brooklyn**\
 `Katie Suarez, 28, was running along the Brooklyn waterfront on Friday evening when she was attacked. The police were still searching for the assailant.`\
 https://www.nytimes.com/2026/11/01/nyregion/katie-suarez-jogger-stabbing.html
 
