@@ -1,3 +1,11 @@
+**How Money Is Shaping the Midterms**\
+`The 2026 midterm election is the most expensive national midterm election in U.S. history, with more than $11 billion in ad spending. Our national political correspondent Shane Goldmacher breaks down where all that money is going.`\
+https://www.nytimes.com/video/us/politics/100000011250897/how-money-is-shaping-the-midterms.html
+
+**Don’t Be a Haley Stevens**\
+`History doesn’t give us second chances.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-midterms-history.html
+
 **What to Know About the 2026 Midterm Elections and the Fight for Congress**\
 `Strategists in both parties say it is likely that Democrats will wrest back control of the House, but the battle for the Senate is more complicated.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterms-election-2026-senate-house-congress.html

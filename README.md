@@ -1,3 +1,7 @@
+**Buttered Corn Flan**\
+`Warm corn slathered with butter is an unbeatable combination. Here, that happy union takes on a new form: a share-size sweet corn flan.`\
+https://www.nytimes.com/video/dining/100000011255271/buttered-corn-flan.html
+
 **How Money Is Shaping the Midterms**\
 `The 2026 midterm election is the most expensive national midterm election in U.S. history, with more than $11 billion in ad spending. Our national political correspondent Shane Goldmacher breaks down where all that money is going.`\
 https://www.nytimes.com/video/us/politics/100000011250897/how-money-is-shaping-the-midterms.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-bo
 **The Pilates Bros Have Arrived**\
 `Long seen as a women’s workout, the exercise method is winning over men — one trembling leg at a time.`\
 https://www.nytimes.com/2026/11/02/well/pilates-men.html
-
-**Midterms Vibe Check**\
-`We look at how college papers are covering the midterms.`\
-https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
