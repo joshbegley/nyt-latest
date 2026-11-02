@@ -1,3 +1,7 @@
+**The Trump Factor in the Midterm Elections**\
+`Readers offer some final thoughts before Election Day. Also: Hard times, or not; Halloween candy bliss.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-midterm-elections.html
+
 **Mamdani Threatens Trump Administration with Legal Action Over ICE Parking Lot Use in NYC**\
 `Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
 https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
