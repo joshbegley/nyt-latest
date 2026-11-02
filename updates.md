@@ -1,3 +1,7 @@
+**Campuses Join Take Back the Night Gathering to Protest Sexual Violence**\
+`Similar protests date to the 1970s, but their focus has evolved over time. Sunday’s event was prompted by a former Cornell University student’s lawsuit alleging she was raped.`\
+https://www.nytimes.com/2026/11/01/us/take-back-the-night-protests-sexual-violence.html
+
 **Who’s Winning the Race for the Senate?**\
 `Democrats have the lead in most of the seven tossup Senate races, according to the latest Times/Siena poll, though some contests remain close. Our polling reporter Ruth Igielnik breaks down what the numbers show.`\
 https://www.nytimes.com/video/us/elections/100000011241496/whos-winning-the-race-for-the-senate.html
