@@ -78,7 +78,7 @@ https://www.nytimes.com/video/us/politics/100000011250893/can-a-progressive-win-
 `Young men no longer favor Republicans, new Times/Siena data shows. We asked them why.`\
 https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 
-**Elon Musk Tests What Nearly Half a Billion Dollars Can Buy in the Midterms**\
+**Elon Musk Spends $474 Million on the 2026 Midterm Elections**\
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 

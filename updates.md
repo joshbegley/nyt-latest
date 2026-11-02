@@ -1,3 +1,7 @@
+**Elon Musk Spends $474 Million on the 2026 Midterm Elections**\
+`Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
+https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
+
 **Midterm Elections Live Updates: Rivals Race to Finish as Parties Make Final Pitches**\
 `President Trump was scheduled to deliver remarks in Washington on the eve of Tuesday’s midterms. Over the weekend, surprises and distractions rocked battleground contests.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump

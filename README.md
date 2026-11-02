@@ -1,3 +1,7 @@
+**How A.I. Is Making It Easier Than Ever to Microtarget Voters**\
+`Hyper-personalized messages, delivered with A.I.-enabled precision, herald a new frontier for voter outreach (and potential disinformation).`\
+https://www.nytimes.com/2026/11/02/business/media/ai-microtargeting-midterm-elections.html
+
 **How Much Do You Pay for TV Streaming Services? We Want to Know.**\
 `Let us know your thoughts about the costs of streaming television.`\
 https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/style/color-trends.html
 **Gulf Economies, Torn by War in Iran, Desperately Need a Return to Normal**\
 `States like Saudi Arabia and the United Arab Emirates that have worked to rebalance from a dependence on energy have seen growth plunge in a year of strife.`\
 https://www.nytimes.com/2026/11/02/business/iran-war-gulf-economies.html
-
-**Trump Skirts Court Commands as Distrust Between Branches Spirals**\
-`Repeated compliance disputes and personal attacks on judges are straining relations between the executive branch and the judiciary.`\
-https://www.nytimes.com/2026/11/02/us/trump-courts-judges-orders.html
 
