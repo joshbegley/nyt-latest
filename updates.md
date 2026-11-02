@@ -1,3 +1,7 @@
+**CISA Retreats From Election Security Ahead of Midterms**\
+`Protecting the vote was once considered among the top priorities of the Cybersecurity and Infrastructure Security Agency. Now it barely mentions the issue.`\
+https://www.nytimes.com/2026/11/02/us/politics/cisa-election-security-midterms.html
+
 **Mystery Group Spends Millions to Boost Third-Party Candidates at Republicans’ Expense**\
 `A super PAC called Our Heritage Matters, which was registered less than a month ago, has spent $6.5 million in the last days of campaigning to promote obscure candidates over Republicans it portrays as liberals.`\
 https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.html

@@ -1,3 +1,11 @@
+**The ’90s Cartoon That Taught Millennials How to Swing**\
+`The collaborators behind the “Hey Arnold!” score are performing the soundtrack on tour and connecting with a generation reared on the show’s big feelings.`\
+https://www.nytimes.com/2026/11/02/arts/music/hey-arnold-jazz-score-tour.html
+
+**Judge Dismisses Trump Lawsuit Demanding Harvard Admissions Data**\
+`Trump administration officials had sought admissions data from Harvard, including student application essays, to see if the school was complying with a court decision banning affirmative action.`\
+https://www.nytimes.com/2026/11/02/us/harvard-admissions-trump-lawsuit-dismissed.html
+
 **CISA Retreats From Election Security Ahead of Midterms**\
 `Protecting the vote was once considered among the top priorities of the Cybersecurity and Infrastructure Security Agency. Now it barely mentions the issue.`\
 https://www.nytimes.com/2026/11/02/us/politics/cisa-election-security-midterms.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
 **Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
 `A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
 https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
-
-**Mamdani Threatens Trump Administration with Legal Action Over ICE Parking Lot Use in NYC**\
-`Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
-https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
-
-**The Final Polls Before the Midterms, and a $6 Billion Crypto Heist**\
-`Plus, the smog over Tomorrowland.`\
-https://www.nytimes.com/2026/11/02/podcasts/the-headlines/midterms-polls-crypto-heist.html
 
