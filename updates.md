@@ -1,3 +1,7 @@
+**After Tech Sell-Off, Investors Brace for More Market Volatility**\
+`Futures on the S&P 500, which allow investors to bet on the market before the official start of trading, rose slightly on Sunday night.`\
+https://www.nytimes.com/2026/11/01/business/after-tech-sell-off-investors-brace-for-more-market-volatility.html
+
 **Democrats Are Leading or Tied in Seven Battleground Governor’s Races, Polls Find**\
 `Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
 https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
