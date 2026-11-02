@@ -1,3 +1,11 @@
+**What Voters Should Know About Possible Problems at the Polls**\
+`Despite worries about federal intervention, local and state officials say they are well prepared to run a secure election.`\
+https://www.nytimes.com/2026/11/02/us/politics/election-integrity-polling-sites.html
+
+**William Nordhaus Has Died. Nobelist Influenced Climate Policy.**\
+`The Yale professor moved climate change into mainstream economic analysis.`\
+https://www.nytimes.com/2026/11/02/business/economy/williiam-nordhaus-nobel-dead.html
+
 **Five Stylish People Describe Their Beauty Hauls**\
 `From facial oil to fragrances, the choices are vast.`\
 https://www.nytimes.com/2026/11/02/fashion/fragrance-beauty-hauls.html
