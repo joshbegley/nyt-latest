@@ -62,8 +62,8 @@ https://www.nytimes.com/2026/11/02/opinion/trump-midterms-history.html
 `The refusal of top department officials to acknowledge Donald J. Trump’s loss that year is the engine driving an intensifying effort to intercede in state administration of elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterms-2020-election-justice-department.html
 
-**Apple’s Profit Grows 12 Percent Despite Component Price Worries**\
-`The company said iPhone sales remained strong, but warned that the cost of memory chips for its devices were going up.`\
+**Apple’s Profit Grows 12% Despite Component Price Worries**\
+`The company said iPhone sales remained strong, but warned that the cost of memory chips for its devices was going up.`\
 https://www.nytimes.com/2026/11/02/technology/apple-earnings.html
 
 **How a Reporter Interviews People About the Midterms, Even Those Who ‘Don’t Talk Politics’**\
