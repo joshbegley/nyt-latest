@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/11/02/world/canada/this-hour-has-22-minutes-trump-c
 
 **China’s Message to Its Rivals: You Need What We Make**\
 `It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
-https://www.nytimes.com/2026/11/02/world/asia/chinas-message-to-its-rivals-you-need-what-we-make.html
+https://www.nytimes.com/2026/11/02/world/asia/china-us-exports-ai-solar.html
 
 **From the Front Page: The Cubs End 108-Year World Series Drought on Nov. 2, 2016**\
 `The Chicago Cubs defeated Cleveland in a 10-inning Game 7 that ended after midnight, winning their first championship title since 1908.`\
