@@ -1,3 +1,11 @@
+**Five Stylish People Describe Their Beauty Hauls**\
+`From facial oil to fragrances, the choices are vast.`\
+https://www.nytimes.com/2026/11/02/fashion/fragrance-beauty-hauls.html
+
+**What to Know About the Midterm Elections**\
+`Strategists in both parties say it is likely that Democrats will wrest back control of the House, but the battle for the Senate is more complicated.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterms-election-2026-senate-house-congress.html
+
 **Trump’s Election Fraud Reward Raises Fears of Vigilantism, Local Officials Say**\
 `Election officials across the country have conducted hundreds of exercises to prepare for possible threats or disruptions at polling sites.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-midterms-election-fraud-reward.html
@@ -51,7 +59,7 @@ https://www.nytimes.com/2026/11/02/us/chicago-fbi-broadview-six-lawsuit.html
 https://www.nytimes.com/2026/11/02/arts/music/hey-arnold-jazz-score-tour.html
 
 **Judge Dismisses Trump Lawsuit Demanding Harvard Admissions Data**\
-`Trump administration officials had sought admissions data from Harvard, including student application essays, to see if the school was complying with a court decision banning affirmative action.`\
+`Trump administration officials had sought admissions data, including student application essays, from Harvard to see if the school was complying with a court decision banning affirmative action.`\
 https://www.nytimes.com/2026/11/02/us/harvard-admissions-trump-lawsuit-dismissed.html
 
 **CISA Retreats From Election Security Ahead of Midterms**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
 **Trump Is Playing Up Voter Fraud Prosecutions. Meet Some of the Accused.**\
 `The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
 https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
-
-**Early Voting Turnout Offers Promising Signs for Democrats**\
-`Early voting figures tell an incomplete story, but strong turnout among key demographics stood out in critical Senate battlegrounds.`\
-https://www.nytimes.com/2026/11/02/us/politics/early-vote-turnout-senate-battlegrounds.html
-
-**Judge Throws Out Charges Against Former F.B.I. Officials**\
-`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
-https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\

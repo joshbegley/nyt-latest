@@ -1,3 +1,7 @@
+**Trump’s Election Fraud Reward Raises Fears of Vigilantism, Local Officials Say**\
+`Election officials across the country have conducted hundreds of exercises to prepare for possible threats or disruptions at polling sites.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-midterms-election-fraud-reward.html
+
 **Student News Quiz: Israeli Elections, Driver’s Licenses, Halloween Candy**\
 `Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/11/02/learning/02studentnewsquiz-ln.html
