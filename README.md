@@ -1,3 +1,11 @@
+**What Voters Should Know About Possible Problems at the Polls**\
+`Despite worries about federal intervention, local and state officials say they are well prepared to run a secure election.`\
+https://www.nytimes.com/2026/11/02/us/politics/election-integrity-polling-sites.html
+
+**William Nordhaus Has Died. Nobelist Influenced Climate Policy.**\
+`The Yale professor moved climate change into mainstream economic analysis.`\
+https://www.nytimes.com/2026/11/02/business/economy/williiam-nordhaus-nobel-dead.html
+
 **Five Stylish People Describe Their Beauty Hauls**\
 `From facial oil to fragrances, the choices are vast.`\
 https://www.nytimes.com/2026/11/02/fashion/fragrance-beauty-hauls.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
 **Easy-Peasy Peanut Noodles With Spicy Tofu**\
 `A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
 https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
-
-**Justice Kagan Sounds an Alarm About the Court**\
-`Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
-https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
-
-**Trump Is Playing Up Voter Fraud Prosecutions. Meet Some of the Accused.**\
-`The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
-https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\

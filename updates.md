@@ -1,3 +1,15 @@
+**Five Stylish People Describe Their Beauty Hauls**\
+`From facial oil to fragrances, the choices are vast.`\
+https://www.nytimes.com/2026/11/02/fashion/fragrance-beauty-hauls.html
+
+**What to Know About the Midterm Elections**\
+`Strategists in both parties say it is likely that Democrats will wrest back control of the House, but the battle for the Senate is more complicated.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterms-election-2026-senate-house-congress.html
+
+**Judge Dismisses Trump Lawsuit Demanding Harvard Admissions Data**\
+`Trump administration officials had sought admissions data, including student application essays, from Harvard to see if the school was complying with a court decision banning affirmative action.`\
+https://www.nytimes.com/2026/11/02/us/harvard-admissions-trump-lawsuit-dismissed.html
+
 **Trump’s Election Fraud Reward Raises Fears of Vigilantism, Local Officials Say**\
 `Election officials across the country have conducted hundreds of exercises to prepare for possible threats or disruptions at polling sites.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-midterms-election-fraud-reward.html
