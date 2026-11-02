@@ -1,3 +1,7 @@
+**Cracks in the A.I. Borrowing Binge**\
+`Investors are growing increasingly concerned about the debt-fueled spending spree at the heart of the artificial intelligence buildout.`\
+https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html
+
 **Our Final Polls**\
 `We look at our final polls before the midterms.`\
 https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/realestate/violinists-renting-forest-hills-qu
 **Deportees Turn to TikTok to Document Life Starting Over**\
 `On TikTok, men and women sent back after living in the United States, are documenting the reality of starting over — and finding an audience.`\
 https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
-
-**Deportees Post on Social Media About Living in Countries They Barely Know**\
-`In Mexico, Laos and El Salvador, people deported from the U.S. are turning to social media to find community and share about navigating life in countries they barely know.`\
-https://www.nytimes.com/video/world/100000011231165/us-deportees-social-media-posts.html
 
