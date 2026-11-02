@@ -1,3 +1,75 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
+`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
+`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 5,708 voters in Alaska, Iowa, Kansas, Maine, Ohio, Michigan and Texas from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 5,708 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-toplines.html
+
+**Democrats Show Strength in Final Days of Race for the Senate, New Polls Find**\
+`Democrats are up in Michigan, Texas, Kansas, Maine and Ohio, have an edge in Alaska and are effectively tied with Republicans in Iowa, new New York Times/Siena polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-senate.html
+
+**Democrats Are Leading or Tied in Seven Battleground Governor’s Races, Poll Finds**\
+`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena University polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
+
 **The New York City Marathon in Photos and Videos**\
 `See how tens of thousands of runners and an estimated 2 million spectators embraced the race across the five boroughs.`\
 https://www.nytimes.com/2026/11/01/nyregion/the-new-york-city-marathon-in-photos-and-videos.html
@@ -98,77 +170,9 @@ https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
 `Runners often struggle with the Queensboro Bridge, First Avenue in Manhattan and the homestretch of the run.`\
 https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles.html
 
-**Michael Mann Accidentally Shoots Himself at Los Angeles Gun Range**\
-`The director and producer was in stable condition after his gun “accidentally discharged” on Saturday, a representative said.`\
-https://www.nytimes.com/2026/11/01/movies/michael-mann-shooting.html
-
-**Haley Stevens Abandons El-Sayed, Endorsing Mike Rogers in Michigan**\
-`Representative Stevens, who has been in a growing feud with Dr. Abdul El-Sayed, the Democratic Senate nominee in Michigan, appeared together with the Republican nominee, Mike Rogers.`\
-https://www.nytimes.com/2026/11/01/us/elections/stevens-rogers-el-sayed-michigan-senate.html
-
-**Para Athletes Will Place on the Podium for the First Time This Year**\
-`New York City Marathon organizers for the first time have added competitive rankings for Para athletes, including those who have low vision or other disabilities.`\
-https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-para-athletes.html
-
-**Tens of Thousands Protest Modi’s Voter Roll Changes in New Delhi**\
-`Huge crowds joined an opposition-led rally in New Delhi on Sunday to protest against the government and recent changes to the voter rolls.`\
-https://www.nytimes.com/video/world/asia/100000011252664/india-protests-new-delhi-modi.html
-
-**Senate Bean Soup for Your House**\
-`Made on the stovetop or in the slow cooker, it’s a rib-sticking mix of dried beans, ham hocks, onions, butter, smoked paprika and cider vinegar.`\
-https://www.nytimes.com/2026/11/01/dining/senate-bean-soup-for-your-house.html
-
-**Inside Heidi Klum’s 2026 Halloween Party: See All the Wacky Costumes**\
-`The model and television presenter, dressed as her severed left hand, celebrated the 25th anniversary of her annual party by going gory.`\
-https://www.nytimes.com/2026/11/01/style/heidi-klum-halloween-party-photos-costumes.html
-
-**For Talarico and Paxton, the Battle For the Senate Could Rest on Who is More Texan**\
-`From cowboy boots to corridos, the candidates for U.S. Senate are competing to prove their Texas bona fides.`\
-https://www.nytimes.com/2026/11/01/us/texas-culture-senate-talarico-paxton.html
-
-**‘In the Heights’ Review: An Exuberant Revival of Lin-Manuel Miranda’s Musical**\
-`This concert staging of Lin-Manuel Miranda and Quiara Alegría Hudes’s 2005 musical is like driving through the streets of New York with the windows down.`\
-https://www.nytimes.com/2026/11/01/theater/in-the-heights-review-lin-manuel-miranda.html
-
-**The Origins of Political Cowardice**\
-`Jacob Weisberg studied eight powerful Americans who caved under pressure. He wants readers to ask what they would have done.`\
-https://www.nytimes.com/2026/11/01/briefing/the-origins-of-political-cowardice.html
-
-**Here Are Some of the Celebrities Running in the NYC Marathon**\
-`Actors, reality stars and athletes are among those in the mass of runners. The comedian Tracy Morgan is the event’s grand marshal.`\
-https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-celebrities-running.html
-
-**‘S.N.L.’ Plays Trick-or-Treat When Trump Interrupts David S. Pumpkins**\
-`Tom Hanks returned, all too briefly, to play his baffling Halloween character on a “Saturday Night Live” episode hosted by the “Obsession” star Inde Navarrette.`\
-https://www.nytimes.com/2026/11/01/arts/television/snl-trick-or-treat-trump-interrupts-david-s-pumpkins.html
-
-**The Rise and Fall of the Triumphal Arch**\
-`The history of triumphal arches is long and messy. Where does Donald Trump’s proposed edifice fit in?`\
-https://www.nytimes.com/2026/11/01/opinion/trump-arch-washington-dc.html
-
-**You Can’t Go Wrong With Quesadillas**\
-`Especially these quesadillas, which go all in on kick with pickled jalapeños, spinach and feta.`\
-https://www.nytimes.com/2026/11/01/dining/you-cant-go-wrong-with-quesadillas.html
-
-**Using Denver as a Model to Help the Homeless**\
-`Readers discuss the city’s policies and offer their own suggestions. Also: An A.I. monster?`\
-https://www.nytimes.com/2026/11/01/opinion/homelessness-denver.html
-
-**Maps: Tracking Tropical Cyclone Murasu**\
-`See the likely path and wind arrival times for Murasu`\
-https://www.nytimes.com/interactive/2026/11/01/weather/murasu-map-path-tracker.html
-
-**Federal Agency Emails Praising Trump May Violate Ethics Laws, Experts Say**\
-`Messages sent by the I.R.S. and the Social Security Administration days before the midterms could violate the Hatch Act, which restricts political activity by federal employees.`\
-https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatch-act.html
-
 **Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa before heading to Kansas.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
-
-**New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
-`Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
-https://www.nytimes.com/live/2026/11/01/nyregion/nyc-marathon-race
 
 **What You Need to Know About The Times’s 2026 Election Results and the Needle**\
 `Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
