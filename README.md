@@ -1,3 +1,107 @@
+**Playing Mahjong Helped This Group Find Joy Amid Grief**\
+`Teaching people the everyday rituals of the game has helped a counselor in Ohio guide one group back to joy.`\
+https://www.nytimes.com/2026/11/02/crosswords/grief-community-mahjong-ohio.html
+
+**Disneyland’s Autopia Ride Will Switch to Electric Vehicles**\
+`The gas-powered engines in Disneyland’s Autopia ride weren’t properly certified. The little cars will be replaced by E.V.s.`\
+https://www.nytimes.com/2026/11/02/climate/after-71-years-and-a-lot-of-exhaust-disneylands-autopia-goes-electric.html
+
+**Purple Is Everywhere. Is It a Coincidence or a Conspiracy?**\
+`A reader wants to get to the bottom of seasonal color trends.`\
+https://www.nytimes.com/2026/11/02/style/color-trends.html
+
+**Gulf Economies, Torn by War in Iran, Desperately Need a Return to Normal**\
+`States like Saudi Arabia and the United Arab Emirates that have worked to rebalance from a dependence on energy have seen growth plunge in a year of strife.`\
+https://www.nytimes.com/2026/11/02/business/iran-war-gulf-economies.html
+
+**Trump Skirts Court Commands as Distrust Between Branches Spirals**\
+`Repeated compliance disputes and personal attacks on judges are straining relations between the executive branch and the judiciary.`\
+https://www.nytimes.com/2026/11/02/us/trump-courts-judges-orders.html
+
+**Could My Patients Benefit From Psychedelics?**\
+`Medicine has developed many tools for suppressing suffering, but fewer for cultivating meaning or peace.`\
+https://www.nytimes.com/2026/11/02/opinion/psychedelics-medicine-patients.html
+
+**This Presidency Is All Flaws and No Majesty**\
+`Will Americans decide this week that character does, after all, matter?`\
+https://www.nytimes.com/2026/11/02/opinion/trump-character-presidents-midterms.html
+
+**3 Violinists Find a Place in Queens With Room to Practice and Teach**\
+`After finding an apartment in Forest Hills, three roommates don’t have to worry about making noise at night: Their neighbors are commercial tenants.`\
+https://www.nytimes.com/2026/11/02/realestate/violinists-renting-forest-hills-queens.html
+
+**Deportees Turn to TikTok to Document Life Starting Over**\
+`On TikTok, men and women sent back after living in the United States, are documenting the reality of starting over — and finding an audience.`\
+https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
+
+**Deportees Post on Social Media About Living in Countries They Barely Know**\
+`In Mexico, Laos and El Salvador, people deported from the U.S. are turning to social media to find community and share about navigating life in countries they barely know.`\
+https://www.nytimes.com/video/world/100000011231165/us-deportees-social-media-posts.html
+
+**Word of the Day: nuptial**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/02/learning/word-of-the-day-nuptial.html
+
+**Why Is Clifford Odets Having His Best Year Since 1935?**\
+`The playwright of hard-talking works like “Waiting for Lefty” and “Awake and Sing!” is again the man of the moment.`\
+https://www.nytimes.com/2026/11/02/theater/odets-waiting-for-lefty-awake-sing-golden-boy.html
+
+**On Nantucket, a New Home Treads Lightly**\
+`Will Kinsella built a modest house on the storybook land of his youth, making good on his commitment to honor the terrain in the process.`\
+https://www.nytimes.com/2026/11/02/realestate/nantucket-home-will-kinsella.html
+
+**Book Review: ‘Castles,’ by Dan Jones**\
+`In “Castles,” Dan Jones tells the story of human history as a chronicle of destruction that occurred at fortifications across the world.`\
+https://www.nytimes.com/2026/11/02/books/review/castles-dan-jones.html
+
+**Catherine Zeta-Jones’s 5 Favorite Places in Wales**\
+`The Oscar-winning star of “Chicago,” “Traffic” and the new AMC+ series “Kill Jackie” shares her go-to spots in Wales, where she was born and raised.`\
+https://www.nytimes.com/2026/11/02/travel/catherine-zeta-jones-wales.html
+
+**Sofia Franklyn, the Messy One on ‘Call Her Daddy,’ Is Ready to Move On**\
+`Sofia Franklyn started the podcast “Call Her Daddy” with Alex Cooper, but their relationship fell apart. She’s telling her story in a new memoir.`\
+https://www.nytimes.com/2026/11/02/style/sofia-franklyn-alex-cooper-call-her-daddy.html
+
+**Up in the Clouds With the Pope, It’s Still Commercial**\
+`Unlike American presidents, Pope Leo XIV has no private jet, so he travels on commercial airlines, like the rest of us. Well, almost.`\
+https://www.nytimes.com/2026/11/02/world/europe/pope-plane-shepherd-one-flights.html
+
+**Draw Your Opinion Here**\
+`What does an opinion look like?`\
+https://www.nytimes.com/2026/11/02/opinion/op-ed-art-nyt-175.html
+
+**A French Style in South Korean Makeup**\
+`The beauty brand Monclos markets itself as made from natural ingredients grown in France and other countries.`\
+https://www.nytimes.com/2026/11/02/fashion/beauty-monclos-south-korea.html
+
+**A L’Oreal Executive on Robots and Makeup**\
+`Guive Balooch, a global vice president at L’Oréal, says the idea is not all that far fetched.`\
+https://www.nytimes.com/2026/11/02/fashion/loreal-makeup-technology.html
+
+**In France, a Treasure Trove of Fragrance**\
+`Osmothèque, which has stored as many as 6,000 scents during the past 35 years, describes itself as the world’s first perfume conservatory.`\
+https://www.nytimes.com/2026/11/02/fashion/perfumes-osmotheque-versailles-france.html
+
+**Atlas Atelier, a New Beauty Line, Focuses on Bold Color**\
+`Michelle Duncan says her new brand, Atlas Atelier, reflects the mood of the times.`\
+https://www.nytimes.com/2026/11/02/fashion/cosmetics-atlas-atelier-michelle-duncan.html
+
+**Keira Knightley Is Back Onstage in a Slick, Chilling ‘The Lives of Others’**\
+`The actress is a major draw for Robert Icke’s adaptation of the Oscar-winning movie. But in this version, the secret police steal the show.`\
+https://www.nytimes.com/2026/11/02/theater/lives-of-others-kiera-knightley-robert-icke.html
+
+**Why Did Snakes Lose Their Legs? And 9 More Animal Mysteries**\
+`There are more than 1.5 million known zoological species on Earth, with at least as many enigmas. Here are our top 10.`\
+https://www.nytimes.com/2026/11/02/science/animals-mysteries-research.html
+
+**The Nation’s Oldest Road Racetrack Starts a Big, Costly Face-Lift**\
+`New owners at Willow Springs in California have major plans for the once-spartan track, hoping to lure expensive supercars and their wealthy drivers.`\
+https://www.nytimes.com/2026/11/02/business/willow-springs-racetrack-country-club.html
+
+**They Tried Kratom for Its Health Benefits, Then They Became Addicted**\
+`Some say they were introduced to the drug through wellness podcasts, free samples at gyms or fitness influencers.`\
+https://www.nytimes.com/2026/11/02/well/kratom-wellness-marketing-addiction.html
+
 **How the Valkyries Defeated Atlanta to Win Their First WNBA Championship**\
 `The Golden State Valkyries beat the Atlanta Dream to clinch their first championship in just their second season.`\
 https://www.nytimes.com/2026/11/02/podcasts/golden-state-valkyries-defeat-atlanta-dream-wnba-championship.html
@@ -93,108 +197,4 @@ https://www.nytimes.com/2026/11/01/business/after-tech-sell-off-investors-brace-
 **10-Minute Challenge: ‘Above the Clouds I,’ by Georgia O’Keeffe**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
-
-**The Final Polls Show a Blue Surge. Can We Trust Them?**\
-`Democrats lead in all the key states that will decide Senate control, according to new Times/Siena surveys.`\
-https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
-`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
-`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
-`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
-`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
-`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of Likely Electorate in Ohio**\
-`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
-`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
-`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
-`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
-`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
-`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
-`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-toplines.html
-
-**Cross-Tabs: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
-`Results of New York Times/Siena polls conducted among 5,708 voters in Alaska, Iowa, Kansas, Maine, Ohio, Michigan and Texas from Oct. 23 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-crosstabs.html
-
-**Toplines: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
-`Results of New York Times/Siena polls conducted among 5,708 voters from Oct. 23 to Nov. 1, 2026.`\
-https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-toplines.html
-
-**Democrats Show Strength in Final Days of Race for the Senate, New Polls Find**\
-`Democrats are up in Michigan, Texas, Kansas, Maine and Ohio, have an edge in Alaska and are effectively tied with Republicans in Iowa, new New York Times/Siena polls found.`\
-https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-senate.html
-
-**Democrats Are Leading or Tied in 7 Battleground Governor’s Races, Polls Find**\
-`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
-https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
-
-**The New York City Marathon in Photos and Videos**\
-`See how tens of thousands of runners and an estimated 2 million spectators embraced the race across the five boroughs.`\
-https://www.nytimes.com/2026/11/01/nyregion/the-new-york-city-marathon-in-photos-and-videos.html
-
-**Woman Is on Life Support After Being Stabbed While Jogging in Brooklyn**\
-`Katie Suarez, 28, was running along the Brooklyn waterfront on Friday evening when she was attacked. The police were still searching for the assailant.`\
-https://www.nytimes.com/2026/11/01/nyregion/katie-suarez-jogger-stabbing.html
-
-**In the Final Stretch, Hochul and Blakeman Try to Motivate Their Voters**\
-`The governor campaigned in the city with Mayor Zohran Mamdani and Representative Alexandria Ocasio-Cortez. Her opponent, Bruce Blakeman, focused on Long Island and upstate.`\
-https://www.nytimes.com/2026/11/01/nyregion/hochul-blakeman-ny-governor-election.html
-
-**Haley Stevens Endorses Republican Mike Rogers for Senate**\
-`Representative Haley Stevens, a Democrat from Michigan, endorsed Mike Rogers, the Republican Senate nominee for her state. The late endorsement comes after a feud between Stevens and Dr. Abdul El-Sayed, the Democratic Senate nominee, spilled into the public in recent days.`\
-https://www.nytimes.com/video/us/politics/100000011253329/stevens-rogers-el-sayed-michigan-senate.html
-
-**Fans Pack the Streets to Cheer On New York Marathon Runners**\
-`The roughly 60,000 people who ran the New York City Marathon on Sunday were met with cheers along the roads of the city’s five boroughs.`\
-https://www.nytimes.com/video/us/100000011252970/fans-new-york-marathon-runners-streets.html
-
-**Martin Erlichman, Barbra Streisand’s Longtime Manager, Dies at 97**\
-`He had other clients, like Chevy Chase and Joan Rivers, and he produced movies. But he was best known as Ms. Streisand’s negotiator and protector.`\
-https://www.nytimes.com/2026/11/01/obituaries/martin-erlichman-dead.html
-
-**NYT Crossword Answers for Nov. 2, 2026**\
-`Max Schlenker doesn’t leave us in the dark.`\
-https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
 
