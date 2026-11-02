@@ -1,3 +1,7 @@
+**Trump’s Election Fraud Reward Raises Fears of Vigilantism, Local Officials Say**\
+`Election officials across the country have conducted hundreds of exercises to prepare for possible threats or disruptions at polling sites.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-midterms-election-fraud-reward.html
+
 **Student News Quiz: Israeli Elections, Driver’s Licenses, Halloween Candy**\
 `Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/11/02/learning/02studentnewsquiz-ln.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/early-vote-turnout-senate-battleg
 **Judge Throws Out Charges Against Former F.B.I. Officials**\
 `The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms.html
-
-**Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
-`President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
-https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
