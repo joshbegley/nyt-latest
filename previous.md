@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/02/business/economy/williiam-nordhaus-nobel-dead
 `From facial oil to fragrances, the choices are vast.`\
 https://www.nytimes.com/2026/11/02/fashion/fragrance-beauty-hauls.html
 
-**What to Know About the Midterm Elections**\
+**What to Know About the 2026 Midterm Elections and the Fight for Congress**\
 `Strategists in both parties say it is likely that Democrats will wrest back control of the House, but the battle for the Senate is more complicated.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterms-election-2026-senate-house-congress.html
 
@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
 `A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
 https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
 
-**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
-`Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
+**Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
+`President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 

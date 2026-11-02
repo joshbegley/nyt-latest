@@ -1,3 +1,11 @@
+**What to Know About the 2026 Midterm Elections and the Fight for Congress**\
+`Strategists in both parties say it is likely that Democrats will wrest back control of the House, but the battle for the Senate is more complicated.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterms-election-2026-senate-house-congress.html
+
+**Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
+`President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **What Voters Should Know About Possible Problems at the Polls**\
 `Despite worries about federal intervention, local and state officials say they are well prepared to run a secure election.`\
 https://www.nytimes.com/2026/11/02/us/politics/election-integrity-polling-sites.html
