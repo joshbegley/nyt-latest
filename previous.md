@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
 
-**Midterm Elections: Who Is Winning the Race for Congress?**\
-`We’re one day away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
-
 **Parties End the Midterm Election With Their Closing Arguments**\
 `Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
+
+**Midterm Elections: Who Is Winning the Race for Congress?**\
+`We’re one day away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
 
 **What Gen Z Is Looking For in Politics**\
 `Gen Z embraces dark, nihilistic humor online, but is sincere about politics and wanting people to go to the polls.`\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/11/02/style/gen-z-politics-2026-sincerity.html
 **Trump, Your Tax Dollars and the Midterms**\
 `$20 million from the Social Security Administration. $8 billion from the Department of Agriculture. Have you received a check from the Trump administration? According to the Opinion contributor Cristian Farias, an “alphabet soup of agencies” have been deputized by President Trump to bribe his way through the midterms and, he argues, to “interfere with the democratic process.”`\
 https://www.nytimes.com/video/opinion/100000011242571/trump-your-tax-dollars-and-the-midterms.html
-
-**Book Review: ‘Annie Proulx Stories'**\
-`A new career-spanning collection of short fiction highlights Annie Proulx’s dense and thorny writing style.`\
-https://www.nytimes.com/2026/11/02/books/review/annie-proulx-stories-new-and-selected.html
 
