@@ -1,3 +1,27 @@
+**Flu Arrives Early in New York, With Cases Rising Rapidly in Children**\
+`More than 10,000 cases overall have been reported in the state. Public health experts are urging people to get their flu shots now.`\
+https://www.nytimes.com/2026/11/02/nyregion/new-york-flu-early-season.html
+
+**NYT Spelling Bee Answers for November 2, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/02/crosswords/spelling-bee-forum.html
+
+**He Wants to Be One With Nature. But He Can’t Quit Instagram.**\
+`Once, Robin Greenfield aspired to wealth. Now, he has no home and eats from the earth. He chronicles it all on social media, but does the persona match the man?`\
+https://www.nytimes.com/2026/11/02/nyregion/forager-robin-greenfield.html
+
+**N.Y.C. Schools Are Deeply Segregated. These Students Demand Change.**\
+`An effort to diversity the elite Hunter College High School comes amid a larger reckoning over continued segregation in the city’s public schools.`\
+https://www.nytimes.com/2026/11/02/nyregion/nyc-schools-are-deeply-segregated-these-students-demand-change.html
+
+**The Democratic Party Is Slowly Losing Jewish Support in New York**\
+`An ironclad alliance between Jewish New Yorkers and the Democratic Party has been shaken by the divide over Israel’s war with Hamas.`\
+https://www.nytimes.com/2026/11/02/nyregion/jewish-voters-democratic-party-ny.html
+
+**Flash Flooding Threatens Homes in Arizona, Prompting Evacuations**\
+`Evacuation orders were in place for parts of Arizona and Colorado as flash flooding threatened homes.`\
+https://www.nytimes.com/video/us/100000011253865/arizona-colorado-floods.html
+
 **U.S.-China Relations Will Never Be the Same in the Age of A.I.**\
 `China and the U.S. need mutually assured collaboration to quash the threat of A.I.-empowered bad actors, even while their economic differences sharpen.`\
 https://www.nytimes.com/2026/11/02/opinion/us-china-ai-manufacturing-exports-weapons.html
