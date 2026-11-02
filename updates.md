@@ -1,3 +1,11 @@
+**The ’90s Cartoon That Taught Millennials How to Swing**\
+`The collaborators behind the “Hey Arnold!” score are performing the soundtrack on tour and connecting with a generation reared on the show’s big feelings.`\
+https://www.nytimes.com/2026/11/02/arts/music/hey-arnold-jazz-score-tour.html
+
+**Judge Dismisses Trump Lawsuit Demanding Harvard Admissions Data**\
+`Trump administration officials had sought admissions data from Harvard, including student application essays, to see if the school was complying with a court decision banning affirmative action.`\
+https://www.nytimes.com/2026/11/02/us/harvard-admissions-trump-lawsuit-dismissed.html
+
 **CISA Retreats From Election Security Ahead of Midterms**\
 `Protecting the vote was once considered among the top priorities of the Cybersecurity and Infrastructure Security Agency. Now it barely mentions the issue.`\
 https://www.nytimes.com/2026/11/02/us/politics/cisa-election-security-midterms.html
