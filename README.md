@@ -1,3 +1,7 @@
+**How the Valkyries Defeated Atlanta to Win Their First WNBA Championship**\
+`The Golden State Valkyries beat the Atlanta Dream to clinch their first championship in just their second season.`\
+https://www.nytimes.com/2026/11/02/podcasts/golden-state-valkyries-defeat-atlanta-dream-wnba-championship.html
+
 **15-Minute Lesson Plan: ‘Mrs. Dalloway’ Today**\
 `What does a 100 year-old novel reveal to us about our present day?`\
 https://www.nytimes.com/2026/11/02/learning/15-minute-lesson-plan-mrs-dalloway-today.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/obituaries/martin-erlichman-dead.html
 **NYT Crossword Answers for Nov. 2, 2026**\
 `Max Schlenker doesn’t leave us in the dark.`\
 https://www.nytimes.com/2026/11/01/crosswords/daily-puzzle-2026-11-02.html
-
-**Learjet Crashes in Florida, Killing 9, Authorities Say**\
-`A Learjet 60 headed to the Bahamas from Austin, Texas, crashed on Sunday in Florida. All nine people aboard were killed, the authorities said.`\
-https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-killing-9-authorities-say.html
 
