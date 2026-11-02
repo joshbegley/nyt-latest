@@ -1,4 +1,16 @@
-**Former Head of Chicago F.B.I. Sues Justice Department Over Resignation**\
+**America Votes**\
+`We answer your questions about the midterm elections and what they will mean for the world.`\
+https://www.nytimes.com/2026/11/02/world/midterm-elections-questions-trump-fifa.html
+
+**Trump Administration Said to Plan Rolling Back Pregnancy-Related Job Protections**\
+`The Biden era law was meant to help women stay in the workplace, but some conservatives say rules to enact it went too far with coverage for abortion and fertility treatment.`\
+https://www.nytimes.com/2026/11/02/business/economy/eeoc-trump-administration-pregnancy-fertility-abortion.html
+
+**Who Stole a Candidate’s Yard Signs? An AirTag Ping Offered an Answer.**\
+`Signs that belonged to Darrell Harris, a Republican candidate for state representative in Connecticut, vanished. Staff members had hidden AirTags inside some of them.`\
+https://www.nytimes.com/2026/11/02/nyregion/connecticut-stolen-election-yard-sign-airtag.html
+
+**Former Chicago FBI Chief Sues DOJ, Says He Was Wrongly Blamed for Botched Broadview Six Case**\
 `Douglas DePodesta says he was forced out of his job after U.S. Attorney Andrew S. Boutros’s prosecutions of protesters known as the Broadview Six fell apart.`\
 https://www.nytimes.com/2026/11/02/us/chicago-fbi-broadview-six-lawsuit.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
 **Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
 `Iranian officials spoke of some progress in negotiating to reopen the strait even as they prepared for all-out war. A Qatari delegation arrived in Tehran on Monday to meet with the foreign minister to continue talks.`\
 https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
-
-**Martha Stewart Apologizes for Homeless Halloween Costume**\
-`Stewart, the media mogul and entrepreneur, had posted a photo of a costume with tattered clothes and a sign asking for help.`\
-https://www.nytimes.com/2026/11/02/style/martha-stewart-homeless-halloween-costume-apology.html
-
-**Cracks in the A.I. Borrowing Binge**\
-`Investors are growing increasingly concerned about the debt-fueled spending spree at the heart of the artificial intelligence buildout.`\
-https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html
-
-**Our Final Polls**\
-`We look at our final polls before the midterms.`\
-https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
 
