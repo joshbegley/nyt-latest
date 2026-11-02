@@ -1,3 +1,7 @@
+**How a Tax Cut Could Threaten a Florida Necessity: Mosquito Control**\
+`As Florida fights a dengue outbreak, a ballot proposal to cut property taxes has raised concerns about local governments’ ability to pay for sufficient mosquito control.`\
+https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
+
 **20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
