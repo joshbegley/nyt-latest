@@ -1,3 +1,11 @@
+**Will Trump’s Comments About Jon Husted’s Physique Help Him Win the Ohio Senate Race?**\
+`The president has repeatedly complimented Senator Jon Husted’s body. For better or worse, it has caught the attention of voters and raised Mr. Husted’s profile in a key midterm race.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-husted-body-comments.html
+
+**Trump Removes South Africa From the African Growth and Opportunity Act Trade Program**\
+`The decision is the latest measure taken against the country, which the administration has accused of discriminating against white people.`\
+https://www.nytimes.com/2026/11/02/world/africa/trump-south-africa-trade-program-agoa.html
+
 **Justice Kagan Sounds an Alarm About the Court**\
 `Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
 https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
