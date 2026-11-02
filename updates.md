@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Rivals Race to Finish as Parties Make Final Pitches**\
+`President Trump was scheduled to deliver remarks in Washington on the eve of Tuesday’s midterms. Over the weekend, surprises and distractions rocked battleground contests.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **How Much Do You Pay for TV Streaming Services? We Want to Know.**\
 `Let us know your thoughts about the costs of streaming television.`\
 https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html

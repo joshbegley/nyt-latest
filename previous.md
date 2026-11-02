@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispan
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
 https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
 
-**Midterm Elections Live Updates: Rivals Race to Finish As Parties Make Final Pitches**\
+**Midterm Elections Live Updates: Rivals Race to Finish as Parties Make Final Pitches**\
 `President Trump was scheduled to deliver remarks in Washington on the eve of Tuesday’s midterms. Over the weekend, surprises and distractions rocked battleground contests.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
