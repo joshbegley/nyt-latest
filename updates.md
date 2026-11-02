@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: ‘Mrs. Dalloway’ Today**\
+`What does a 100 year-old novel reveal to us about our present day?`\
+https://www.nytimes.com/2026/11/02/learning/15-minute-lesson-plan-mrs-dalloway-today.html
+
 **China’s Message to Its Rivals: You Need What We Make**\
 `It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
 https://www.nytimes.com/2026/11/02/world/asia/china-us-exports-ai-solar.html
