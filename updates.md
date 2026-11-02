@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Rivals Race to Finish After Weekend of Twists**\
+`Surprises and distractions rocked battleground races as Democrats and Republicans made their closing arguments before Tuesday’s midterms.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
 `Party leaders will make competing cases to the Israeli president for either Benjamin Netanyahu or Gadi Eisenkot to get the first chance to build a governing coalition.`\
 https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html

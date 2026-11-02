@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Rivals Race to Finish After Weekend of Twists**\
+`Surprises and distractions rocked battleground races as Democrats and Republicans made their closing arguments before Tuesday’s midterms.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
 `Party leaders will make competing cases to the Israeli president for either Benjamin Netanyahu or Gadi Eisenkot to get the first chance to build a governing coalition.`\
 https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/world/europe/pope-plane-shepherd-one-flights.
 **Draw Your Opinion Here**\
 `What does an opinion look like?`\
 https://www.nytimes.com/2026/11/02/opinion/op-ed-art-nyt-175.html
-
-**A French Style in South Korean Makeup**\
-`The beauty brand Monclos markets itself as made from natural ingredients grown in France and other countries.`\
-https://www.nytimes.com/2026/11/02/fashion/beauty-monclos-south-korea.html
 
