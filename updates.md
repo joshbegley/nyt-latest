@@ -1,3 +1,75 @@
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
+`Results of a New York Times/Siena poll conducted among 705 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ia-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Maine**\
+`Results of a New York Times/Siena poll conducted among 714 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-me-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Alaska**\
+`Results of a New York Times/Siena poll conducted among 610 voters from Oct. 23 to 30, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ak-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of Likely Electorate in Ohio**\
+`Results of a New York Times/Siena poll conducted among 717 voters from Oct. 26 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-oh-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
+`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Michigan**\
+`Results of a New York Times/Siena poll conducted among 1,011 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-mi-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena poll conducted among 1,215 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-tx-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Poll of the Likely Electorate in Kansas**\
+`Results of a New York Times/Siena poll conducted among 736 voters from Oct. 27 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-ks-poll-toplines.html
+
+**Cross-Tabs: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 5,708 voters in Alaska, Iowa, Kansas, Maine, Ohio, Michigan and Texas from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-crosstabs.html
+
+**Toplines: October 2026 Times/Siena Polls of the Likely Electorate in Battleground Senate Races**\
+`Results of New York Times/Siena polls conducted among 5,708 voters from Oct. 23 to Nov. 1, 2026.`\
+https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-toplines.html
+
+**Democrats Show Strength in Final Days of Race for the Senate, New Polls Find**\
+`Democrats are up in Michigan, Texas, Kansas, Maine and Ohio, have an edge in Alaska and are effectively tied with Republicans in Iowa, new New York Times/Siena polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-senate.html
+
+**Democrats Are Leading or Tied in Seven Battleground Governor’s Races, Poll Finds**\
+`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena University polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
+
 **The New York City Marathon in Photos and Videos**\
 `See how tens of thousands of runners and an estimated 2 million spectators embraced the race across the five boroughs.`\
 https://www.nytimes.com/2026/11/01/nyregion/the-new-york-city-marathon-in-photos-and-videos.html
