@@ -1,3 +1,7 @@
+**Deportees Turn to TikTok to Document Life Starting Over**\
+`On TikTok, men and women sent back after living in the United States are documenting the reality of starting over — and finding an audience.`\
+https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
+
 **Cracks in the A.I. Borrowing Binge**\
 `Investors are growing increasingly concerned about the debt-fueled spending spree at the heart of the artificial intelligence buildout.`\
 https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html

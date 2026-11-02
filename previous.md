@@ -195,6 +195,6 @@ https://www.nytimes.com/2026/11/02/opinion/trump-character-presidents-midterms.h
 https://www.nytimes.com/2026/11/02/realestate/violinists-renting-forest-hills-queens.html
 
 **Deportees Turn to TikTok to Document Life Starting Over**\
-`On TikTok, men and women sent back after living in the United States, are documenting the reality of starting over — and finding an audience.`\
+`On TikTok, men and women sent back after living in the United States are documenting the reality of starting over — and finding an audience.`\
 https://www.nytimes.com/2026/11/02/world/deportees-social-media-immigration.html
 
