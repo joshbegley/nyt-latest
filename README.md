@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
 `A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
 https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
 
-**Justice Kagan Sounds an Alarm about the Court**\
+**Justice Kagan Sounds an Alarm About the Court**\
 `Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
 https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
 
@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispan
 https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
-`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is set to speak in Washington, just hours after his administration asked the Supreme Court to intervene in a California election case.`\
+`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is speaking in Washington just hours after his administration asked the Supreme Court to intervene in a California election case.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\

@@ -1,3 +1,19 @@
+**Trial Begins for M.L.B. Players Accused of Tipping Pitches to Gamblers**\
+`The trial will mark one of the first tests of the Justice Department’s ambitious efforts to crack down on manipulation in sports betting and prediction markets.`\
+https://www.nytimes.com/2026/11/02/nyregion/cleveland-guardians-gambling-trial.html
+
+**Democrats Gain Momentum in Florida Governor’s Race, Worrying DeSantis and Republicans**\
+`Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
+https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
+
+**Justice Kagan Sounds an Alarm about the Court**\
+`Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
+https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
+
+**Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
+`The A.I. company’s quarterly revenue totaled $17 billion, 12 times as high as the same quarter last year, while its net loss totaled $23 billion.`\
+https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
+
 **DeSantis and Florida Republicans Sound Alarms as Democrats Gain Momentum in Governor’s Race**\
 `Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
 https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
