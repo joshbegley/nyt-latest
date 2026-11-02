@@ -1,3 +1,31 @@
+**Midterms Vibe Check**\
+`We look at how college papers are covering the midterms.`\
+https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
+
+**Easy-Peasy Peanut Noodles With Spicy Tofu**\
+`A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
+https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
+
+**Justice Kagan Confronts a Broken Court**\
+`Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
+https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
+
+**Accused of Voter Fraud, They Ended Up in Shackles**\
+`The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
+https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
+
+**Early Voting Turnout Offers Promising Signs for Democrats**\
+`Early voting figures tell an incomplete story, but strong turnout among key demographics stood out in critical Senate battlegrounds.`\
+https://www.nytimes.com/2026/11/02/us/politics/early-vote-turnout-senate-battlegrounds.html
+
+**Judge Throws Out Charges Against Former F.B.I. Officials**\
+`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
+
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`The figures tell an incomplete story but offer some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **Judge Throws Out Charges Against Former F.B.I. Officials**\
 `The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the upcoming midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
