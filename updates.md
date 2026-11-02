@@ -1,3 +1,11 @@
+**Inside the Abdul El-Sayed-Haley Stevens Meltdown in Michigan**\
+`The relationship shattered in part because of Israel, but also because of their sensitive egos and hurt feelings. The split had been months in the making.`\
+https://www.nytimes.com/2026/11/01/us/politics/el-sayed-stevens-meltdown-michigan-democrats.html
+
+**10-Minute Challenge: ‘Above the Clouds I,’ by Georgia O’Keeffe**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
+
 **After Tech Sell-Off, Investors Brace for More Market Volatility**\
 `Futures on the S&P 500, which allow investors to bet on the market before the official start of trading, rose slightly on Sunday night.`\
 https://www.nytimes.com/2026/11/01/business/after-tech-sell-off-investors-brace-for-more-market-volatility.html
