@@ -1,3 +1,7 @@
+**Trump Returns to Reflecting Pool, Now Refilled After Botched Renovation**\
+`The president will make his closing arguments before the midterm elections at a landmark that came to symbolize his administration’s dysfunction.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-botched-repairs.html
+
 **The Pilates Bros Have Arrived**\
 `Long seen as a women’s workout, the exercise method is winning over men — one trembling leg at a time.`\
 https://www.nytimes.com/2026/11/02/well/pilates-men.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011237418/can-a-republican-win-i
 **The Streaming Era Has Given Us Great TV, but It Comes at a Price**\
 `The streaming era has provided viewers a lot of great things to watch. But it comes at a price.`\
 https://www.nytimes.com/2026/11/02/arts/television/streaming-tv-era-cost.html
-
-**How a Tax Cut Could Threaten a Florida Necessity: Mosquito Control**\
-`As Florida fights a dengue outbreak, a ballot proposal to cut property taxes has raised concerns about local governments’ ability to pay for sufficient mosquito control.`\
-https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
 
