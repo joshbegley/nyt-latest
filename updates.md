@@ -1,3 +1,11 @@
+**Mystery Group Spends Millions to Boost Third-Party Candidates at Republicans’ Expense**\
+`A super PAC called Our Heritage Matters, which was registered less than a month ago, has spent $6.5 million in the last days of campaigning to promote obscure candidates over Republicans it portrays as liberals.`\
+https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.html
+
+**A 31,000-Mile Walk Ends in England, at Mom’s House**\
+`Karl Bushby arrived in Hull, England, on Monday after spending 28 years crossing four continents on foot.`\
+https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-england.html
+
 **Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
 `The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
 https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
