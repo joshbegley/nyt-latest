@@ -1,3 +1,11 @@
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is set to speak in Washington, just hours after his administration asked the Supreme Court to intervene in a California election case.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
+**Clancy Hearing Focuses on Holdout Juror’s Inclusion on Jury**\
+`Lawyers debated whether the lone juror who voted for Lindsay Clancy’s conviction had been honest during jury selection for her trial.`\
+https://www.nytimes.com/2026/11/02/us/lindsay-clancy-trial-hearing.html
+
 **Adventurer Who Walked Across the Globe for 28 Years Returns Home**\
 `Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
 https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-the-world.html
