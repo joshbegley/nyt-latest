@@ -1,3 +1,15 @@
+**10-Minute Challenge: “Above the Clouds I,” by Georgia O’Keeffe**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
+
+**The Final Polls Show a Blue Surge. Can We Trust Them?**\
+`New Times/Siena surveys show Democrats leading in all the key battlegrounds that will decide Senate control.`\
+https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
+
+**Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
+`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
+https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
+
 **Editors’ Note**\
 `, new New York Times/Siena University polls found.`\
 https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
