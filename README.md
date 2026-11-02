@@ -1,7 +1,3 @@
-**Anthropic Reveals Surging Revenue in Third Quarter as I.P.O. Approaches**\
-`The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
-https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
-
 **A 20-Year-Old Was a Pilot of the Jet That Plunged to Earth in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
@@ -122,13 +118,13 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
 
-**Midterm Elections: Who Is Winning the Race for Congress?**\
-`We’re one day away from the midterms. Here’s the state of play.`\
-https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
-
 **Parties End the Midterm Election With Their Closing Arguments**\
 `Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
+
+**Midterm Elections: Who Is Winning the Race for Congress?**\
+`We’re one day away from the midterms. Here’s the state of play.`\
+https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
 
 **What Gen Z Is Looking For in Politics**\
 `Gen Z has turned nihilism into a competitive sport. Some of its members also really, really want you to vote.`\
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/11/02/science/animals-grief-death.html
 **Playing Mahjong Helped This Group Find Joy Amid Grief**\
 `Teaching people the everyday rituals of the game has helped a counselor in Ohio guide one group back to joy.`\
 https://www.nytimes.com/2026/11/02/crosswords/grief-community-mahjong-ohio.html
+
+**Disneyland’s Autopia Ride Will Switch to Electric Vehicles**\
+`The gas-powered engines in Disneyland’s Autopia ride weren’t properly certified. The little cars will be replaced by E.V.s.`\
+https://www.nytimes.com/2026/11/02/climate/after-71-years-and-a-lot-of-exhaust-disneylands-autopia-goes-electric.html
 
