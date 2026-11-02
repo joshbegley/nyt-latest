@@ -1,3 +1,7 @@
+**Anthropic Reveals Surging Revenue in Third Quarter as I.P.O. Approaches**\
+`The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
+https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
+
 **A 20-Year-Old Was a Pilot of the Jet That Plunged to Earth in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/science/animals-grief-death.html
 **Playing Mahjong Helped This Group Find Joy Amid Grief**\
 `Teaching people the everyday rituals of the game has helped a counselor in Ohio guide one group back to joy.`\
 https://www.nytimes.com/2026/11/02/crosswords/grief-community-mahjong-ohio.html
-
-**Disneyland’s Autopia Ride Will Switch to Electric Vehicles**\
-`The gas-powered engines in Disneyland’s Autopia ride weren’t properly certified. The little cars will be replaced by E.V.s.`\
-https://www.nytimes.com/2026/11/02/climate/after-71-years-and-a-lot-of-exhaust-disneylands-autopia-goes-electric.html
 
