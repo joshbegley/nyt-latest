@@ -1,3 +1,7 @@
+**Flash Flooding Threatens Homes in Arizona, Prompting Evacuations**\
+`Evacuation orders were in place for parts of Arizona and Colorado as flash flooding threatened homes.`\
+https://www.nytimes.com/video/us/100000011253865/arizona-colorado-floods.html
+
 **U.S.-China Relations Will Never Be the Same in the Age of A.I.**\
 `China and the U.S. need mutually assured collaboration to quash the threat of A.I.-empowered bad actors, even while their economic differences sharpen.`\
 https://www.nytimes.com/2026/11/02/opinion/us-china-ai-manufacturing-exports-weapons.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 **Learjet Plummets to Ground in Florida, Killing 9**\
 `Photos and video posted online showed the plane diving nose first to the ground and exploding. In a radio call, the pilot said the plane was descending at a speed of 20,000 feet per minute.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
-
-**Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
-`The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
-https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 
