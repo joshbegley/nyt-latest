@@ -1,3 +1,7 @@
+**The Local: Minnesota election watch**\
+`Also, takeout to nervously nosh on while you wait.`\
+https://www.nytimes.com/2026/11/02/briefing/minnesota-election-watch.html
+
 **Will Trump’s Comments About Jon Husted’s Physique Help Him Win the Ohio Senate Race?**\
 `The president has repeatedly complimented Senator Jon Husted’s body. For better or worse, it has caught the attention of voters and raised Mr. Husted’s profile in a key midterm race.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-husted-body-comments.html
