@@ -1,3 +1,15 @@
+**Trump Delivers a Closing Midterm Message. Mostly About Landscaping.**\
+`On the eve of the election, the president held forth in great detail on columns, drain pipes and granite at the newly refilled Reflecting Pool.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-midterms.html
+
+**How The New York Times Reviewed 7 Million Words Uttered by Trump**\
+`Two Times journalists, blending A.I. analysis and traditional reporting, evaluated public speeches to spot trends.`\
+https://www.nytimes.com/2026/11/02/insider/trump-speeches-analysis.html
+
+**What Voters Should Know About Election Security for the 2026 Midterms**\
+`Despite worries about federal intervention, local and state officials say they are well prepared to run a secure election.`\
+https://www.nytimes.com/2026/11/02/us/politics/election-integrity-polling-sites.html
+
 **Buses Serving Jewish Schools Are Vandalized With Swastikas in Brooklyn**\
 `The police are investigating the vandalism as a potential hate crime after the buses were found defaced in Williamsburg on Monday morning.`\
 https://www.nytimes.com/2026/11/02/nyregion/jewish-school-buses-swastikas-brooklyn.html
