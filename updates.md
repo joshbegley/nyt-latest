@@ -1,3 +1,7 @@
+**Learjet Plummets to Ground in Florida, Killing 9**\
+`Photos and video posted online showed the plane diving nose first to the ground and exploding. In a radio call, the pilot said the plane was descending at a speed of 20,000 feet per minute.`\
+https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
+
 **Inside the Abdul El-Sayed-Haley Stevens Meltdown in Michigan**\
 `The relationship shattered in part because of Israel, but also because of their sensitive egos and hurt feelings. The split had been months in the making.`\
 https://www.nytimes.com/2026/11/01/us/politics/el-sayed-stevens-meltdown-michigan-democrats.html
