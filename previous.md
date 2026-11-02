@@ -1,3 +1,7 @@
+**Audio Reveals Chaotic Moments Before Jet Crash in Florida**\
+`Audio of communications between the pilot of a business jet and air traffic control revealed the harrowing moments before the aircraft crashed in Florida on Sunday.`\
+https://www.nytimes.com/video/us/100000011253957/florida-jet-crash.html
+
 **Flu Arrives Early in New York, With Cases Rising Rapidly in Children**\
 `More than 10,000 cases overall have been reported in the state. Public health experts are urging people to get their flu shots now.`\
 https://www.nytimes.com/2026/11/02/nyregion/new-york-flu-early-season.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011253614/learjet-crashes-in-florida-kill
 **Halloween Shootings Leave at Least 24 Dead and 94 Wounded Nationwide**\
 `Experts on violence say Halloween is one of the most dangerous days of the year.`\
 https://www.nytimes.com/2026/11/01/us/halloween-shootings-deaths.html
-
-**Haley Stevens Bashed Mike Rogers in Michigan Senate Race Until She Endorsed Him**\
-`Ms. Stevens, who lost to Dr. Abdul El-Sayed in the Democratic Senate primary in Michigan, once fashioned herself as one of Mr. Rogers’s fiercest critics.`\
-https://www.nytimes.com/2026/11/01/us/elections/haley-stevens-mike-rogers-endorse-michigan.html
 
