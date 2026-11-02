@@ -1,3 +1,7 @@
+**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
+`Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
+https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
+
 **Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
 `President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html

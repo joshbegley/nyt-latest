@@ -168,7 +168,7 @@ https://www.nytimes.com/2026/11/02/arts/television/streaming-tv-era-cost.html
 
 **How a Tax Cut Could Threaten a Florida Necessity: Mosquito Control**\
 `As Florida fights a dengue outbreak, a ballot proposal to cut property taxes has raised concerns about local governments’ ability to pay for sufficient mosquito control.`\
-https://www.nytimes.com/2026/11/02/us/florida-mosquitos-dengue-fever-taxes.html
+https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
 
 **Two New Housing Projects That People Really Want to Live in**\
 `In East New York, Brooklyn, and Rockaway Village, Queens, new developments feel like neighborhoods.`\

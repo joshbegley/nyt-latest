@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
 `The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
 
-**A 20-Year-Old Was a Pilot of the Jet That Plunged to Earth in Florida**\
+**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
 
@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
-`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
-https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
-
 **How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
 `Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
 https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
+
+**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
+`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
+https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
 
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
