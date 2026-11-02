@@ -1,3 +1,15 @@
+**Trump Administration Asks Supreme Court to Intervene in California Ballot Case**\
+`In an emergency application, administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
+
+**Why Orban and Vucic Broke With Trump on Election Denial**\
+`Rejecting President Trump’s election denial playbook, nationalist leaders in Serbia and Hungary opted for an orderly retreat.`\
+https://www.nytimes.com/2026/11/02/world/europe/serbia-hungary-elections-trump.html
+
+**Trump’s Tariffs Are On the Ballot in Michigan**\
+`The levies as well as trade fighting with Canada are facing a test in the state, where voters appear skeptical of free trade but also of the president’s erratic approach.`\
+https://www.nytimes.com/2026/11/02/business/economy/trump-tariffs-midterms-michigan.html
+
 **Trump Returns to Reflecting Pool, Now Refilled After Botched Renovation**\
 `The president will make his closing arguments before the midterm elections at a landmark that came to symbolize his administration’s dysfunction.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-botched-repairs.html
@@ -171,7 +183,7 @@ https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
 https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
 
 **What Gen Z Is Looking For in Politics**\
-`Gen Z has turned nihilism into a competitive sport. Some of its members also really, really want you to vote.`\
+`Gen Z embraces dark, nihilistic humor online, but is sincere about politics and wanting people to go to the polls.`\
 https://www.nytimes.com/2026/11/02/style/gen-z-politics-2026-sincerity.html
 
 **Trump, Your Tax Dollars and the Midterms**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/02/books/review/annie-proulx-stories-new-and-sel
 **Can a Former Senator Come Back?**\
 `In Ohio, Sherrod Brown, a Democrat, is running for Senate just two years after he lost re-election. Our national political correspondent Shane Goldmacher describes how Democrats hope that a favorable political environment can propel him to victory.`\
 https://www.nytimes.com/video/us/politics/100000011237906/can-a-former-senator-come-back.html
-
-**Can Democrats Flip Texas?**\
-`The last time a Democrat won a statewide election in Texas, it was the 1990s. Our national political correspondent Shane Goldmacher explains why Democrats think this year could be different.`\
-https://www.nytimes.com/video/us/politics/100000011237962/can-democrats-flip-texas.html
-
-**Can a Republican Win in a Democratic State?**\
-`Senator Susan Collins, a Republican, is running for re-election in Maine, a state that has voted against President Trump three times. Our national political correspondent Shane Goldmacher explains how Republicans hope that she can distance herself enough from Mr. Trump to win.`\
-https://www.nytimes.com/video/us/politics/100000011237418/can-a-republican-win-in-a-democratic-state.html
-
-**The Streaming Era Has Given Us Great TV, but It Comes at a Price**\
-`The streaming era has provided viewers a lot of great things to watch. But it comes at a price.`\
-https://www.nytimes.com/2026/11/02/arts/television/streaming-tv-era-cost.html
 

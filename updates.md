@@ -1,3 +1,19 @@
+**Trump Administration Asks Supreme Court to Intervene in California Ballot Case**\
+`In an emergency application, administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
+
+**Why Orban and Vucic Broke With Trump on Election Denial**\
+`Rejecting President Trump’s election denial playbook, nationalist leaders in Serbia and Hungary opted for an orderly retreat.`\
+https://www.nytimes.com/2026/11/02/world/europe/serbia-hungary-elections-trump.html
+
+**Trump’s Tariffs Are On the Ballot in Michigan**\
+`The levies as well as trade fighting with Canada are facing a test in the state, where voters appear skeptical of free trade but also of the president’s erratic approach.`\
+https://www.nytimes.com/2026/11/02/business/economy/trump-tariffs-midterms-michigan.html
+
+**What Gen Z Is Looking For in Politics**\
+`Gen Z embraces dark, nihilistic humor online, but is sincere about politics and wanting people to go to the polls.`\
+https://www.nytimes.com/2026/11/02/style/gen-z-politics-2026-sincerity.html
+
 **Trump Returns to Reflecting Pool, Now Refilled After Botched Renovation**\
 `The president will make his closing arguments before the midterm elections at a landmark that came to symbolize his administration’s dysfunction.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-botched-repairs.html
