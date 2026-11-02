@@ -1,3 +1,7 @@
+**Former Head of Chicago F.B.I. Sues Justice Department Over Resignation**\
+`Douglas DePodesta says he was forced out of his job after U.S. Attorney Andrew S. Boutros’s prosecutions of protesters known as the Broadview Six fell apart.`\
+https://www.nytimes.com/2026/11/02/us/chicago-fbi-broadview-six-lawsuit.html
+
 **The ’90s Cartoon That Taught Millennials How to Swing**\
 `The collaborators behind the “Hey Arnold!” score are performing the soundtrack on tour and connecting with a generation reared on the show’s big feelings.`\
 https://www.nytimes.com/2026/11/02/arts/music/hey-arnold-jazz-score-tour.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
 https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
 
 **Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
-`Iranian officials spoke of some progress in negotiating to reopen the strait, a vital oil and gas shipping lane, even as they prepare for all-out war.`\
+`Iranian officials spoke of some progress in negotiating to reopen the strait even as they prepared for all-out war. A Qatari delegation arrived in Tehran on Monday to meet with the foreign minister to continue talks.`\
 https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
 
 **Martha Stewart Apologizes for Homeless Halloween Costume**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html
 **Our Final Polls**\
 `We look at our final polls before the midterms.`\
 https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
-
-**Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
-`A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
-https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
 

@@ -1,3 +1,11 @@
+**Former Head of Chicago F.B.I. Sues Justice Department Over Resignation**\
+`Douglas DePodesta says he was forced out of his job after U.S. Attorney Andrew S. Boutros’s prosecutions of protesters known as the Broadview Six fell apart.`\
+https://www.nytimes.com/2026/11/02/us/chicago-fbi-broadview-six-lawsuit.html
+
+**Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
+`Iranian officials spoke of some progress in negotiating to reopen the strait even as they prepared for all-out war. A Qatari delegation arrived in Tehran on Monday to meet with the foreign minister to continue talks.`\
+https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
+
 **Trump Is Playing Up Voter Fraud Prosecutions. Meet Some of the Accused.**\
 `The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
 https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
