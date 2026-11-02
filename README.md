@@ -1,3 +1,19 @@
+**No Corrections: Nov. 2, 2026**\
+`No corrections appeared in print on Monday, Nov. 2, 2026.`\
+https://www.nytimes.com/2026/11/02/pageoneplus/no-corrections-nov-2-2026.html
+
+**Quote of the Day: Around the World, on Just His Feet, in 28 Years**\
+`Quotation of the Day for Monday, November 2, 2026.`\
+https://www.nytimes.com/2026/11/02/pageoneplus/quote-of-the-day-around-the-world-on-just-his-feet-in-28-years.html
+
+**FIFA Quietly Paid Millions in Gianni Infantino’s Taxes**\
+`FIFA promises to disclose its executives’ compensation. But its under-fire president received tax benefits that were never made public, according to documents and interviews.`\
+https://www.nytimes.com/2026/11/02/business/fifa-infantino-taxes.html
+
+**‘This Hour Has 22 Minutes,’ a Canadian Sketch Show, Beats American Late Night to the Punchline**\
+`The long-running comedy show “This Hour Has 22 Minutes” is having a heyday playing with the fraught relationship between President Trump and Canada.`\
+https://www.nytimes.com/2026/11/02/world/canada/this-hour-has-22-minutes-trump-carney.html
+
 **China’s Message to Its Rivals: You Need What We Make**\
 `It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
 https://www.nytimes.com/2026/11/02/world/asia/chinas-message-to-its-rivals-you-need-what-we-make.html
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
 **Flooding in Parts of Arizona and Colorado Prompts Evacuation Orders**\
 `A potent storm system was bringing heavy rains to areas of Arizona, Colorado, New Mexico and Utah that were still recovering from recent devastating floods.`\
 https://www.nytimes.com/2026/11/01/weather/flooding-arizona-colorado-evacuations.html
-
-**Judge Rejects Trump Officials’ Move to Challenge Alaska Senate Election**\
-`In the latest defeat for the Trump administration, the ruling dismisses a lawsuit that pre-emptively contested the results of a race that includes two candidates named Daniel Sullivan.`\
-https://www.nytimes.com/2026/11/01/us/alaska-senate-election-lawsuit.html
-
-**Binance Reports $3.64 Billion in Outflows as It Resumes Normal Transactions**\
-`The cryptocurrency exchange saw an immediate uptick in customer withdrawals, following the theft of $6.3 billion in tokens that has been linked to North Korea.`\
-https://www.nytimes.com/2026/11/01/business/binance-hack-crypto-north-korea.html
-
-**Why The Times Doesn’t Rely on Exit Polls**\
-`Instead of relying on exit polls, we have created Times Voter Trends, a project that will break down estimates for the results of U.S. House and Senate elections by age, race, education and gender.`\
-https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates-trends.html
-
-**Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
-`The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
-https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
 
 **Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
