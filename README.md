@@ -190,10 +190,6 @@ https://www.nytimes.com/video/world/middleeast/iran-strait-of-hormuz-us-deal.htm
 `Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
 https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-the-world.html
 
-**The Trump Factor in the Midterm Elections**\
-`Readers offer some final thoughts before Election Day. Also: Hard times, or not; Halloween candy bliss.`\
-https://www.nytimes.com/2026/11/02/opinion/trump-midterm-elections.html
-
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
