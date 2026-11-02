@@ -1,3 +1,15 @@
+**How a Reporter Interviews People About the Midterms, Even Those Who ‘Don’t Talk Politics’**\
+`In purple states like Michigan, sharing political views — especially with reporters — has become a socially risky thing to do.`\
+https://www.nytimes.com/2026/11/02/insider/midterm-election-reporting-michigan-politics.html
+
+**John Thorne, the Writer Who Celebrated Humble Food**\
+`John Thorne, who died last week at 83, was interested in making humble things sing.`\
+https://www.nytimes.com/2026/11/02/books/review/john-thorne-appraisal.html
+
+**Are Freezers Being Hacked? Europe and the U.S. Military Are Investigating.**\
+`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
+https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
+
 **Odyssey ‘Endless Cruise’ Ship Stranded in Cambodia May Be Headed for Auction Block**\
 `Efforts to pull together more funding for the ship, stuck in Cambodia, appear to have faltered, leaving its passengers unsure about what to do next.`\
 https://www.nytimes.com/2026/11/02/travel/odyssey-cruise-ship-cambodia-auction.html

@@ -1,3 +1,11 @@
+**How a Reporter Interviews People About the Midterms, Even Those Who ‘Don’t Talk Politics’**\
+`In purple states like Michigan, sharing political views — especially with reporters — has become a socially risky thing to do.`\
+https://www.nytimes.com/2026/11/02/insider/midterm-election-reporting-michigan-politics.html
+
+**John Thorne, the Writer Who Celebrated Humble Food**\
+`John Thorne, who died last week at 83, was interested in making humble things sing.`\
+https://www.nytimes.com/2026/11/02/books/review/john-thorne-appraisal.html
+
 **Odyssey ‘Endless Cruise’ Ship Stranded in Cambodia May Be Headed for Auction Block**\
 `Efforts to pull together more funding for the ship, stuck in Cambodia, appear to have faltered, leaving its passengers unsure about what to do next.`\
 https://www.nytimes.com/2026/11/02/travel/odyssey-cruise-ship-cambodia-auction.html
@@ -43,7 +51,7 @@ https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-engl
 https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
 
 **Are Freezers Being Hacked? Europe and the U.S. Military Are Investigating.**\
-`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlight the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
+`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
 https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
 
 **He Pioneered a Groundbreaking Idea and Was Met With Corporate Wrath**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pi
 **How Many of These Movies Adapted From Books Do You Know?**\
 `These novels have been adapted into popular films, sometimes more than once. Try this quiz and see how many books and movies you remember.`\
 https://www.nytimes.com/quiz/2026/11/02/bookreview/animal-book-movies.html
-
-**How A.I. Is Making It Easier Than Ever to Microtarget Voters**\
-`Hyper-personalized messages, delivered with A.I.-enabled precision, herald a new frontier for voter outreach (and potential disinformation).`\
-https://www.nytimes.com/2026/11/02/business/media/ai-microtargeting-midterm-elections.html
-
-**How Much Do You Pay for TV Streaming Services? We Want to Know.**\
-`Let us know your thoughts about the costs of streaming television.`\
-https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
