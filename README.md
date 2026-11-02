@@ -131,7 +131,7 @@ https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispan
 https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
-`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
+`The figures tell an incomplete story but carry some warnings for Republicans on the eve of Election Day. President Trump is set to speak in Washington, just hours after his administration asked the Supreme Court to intervene in a California election case.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
