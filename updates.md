@@ -1,3 +1,31 @@
+**Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
+`A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
+https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
+
+**Mamdani Threatens Legal Action to Stop ICE Use of N.Y.C. Parking Lots**\
+`Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
+https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
+
+**The Final Polls Before the Midterms, and a $6 Billion Crypto Heist**\
+`Plus, the smog over Tomorrowland.`\
+https://www.nytimes.com/2026/11/02/podcasts/the-headlines/midterms-polls-crypto-heist.html
+
+**NYT Connections Answers for November 3, 3036**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/connections-companion-1241.html
+
+**Today’s Wordle Hints for November 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/wordle-review-1963.html
+
+**A Political Rebellion in the Rio Grande Valley**\
+`In 2024, Hispanic voters in the region delivered a political earthquake: majority support for Republicans. Now, that support appears to be evaporating.`\
+https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispanic-voters.html
+
+**NYT Strands Hints for November 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
+
 **Midterm Elections Live Updates: Rivals Race to Finish After Weekend of Twists**\
 `Surprises and distractions rocked battleground races as Democrats and Republicans made their closing arguments before Tuesday’s midterms.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump

@@ -1,3 +1,31 @@
+**Why Do Pilots Say ‘Mayday’? The Story Behind the Distress Call**\
+`A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
+https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
+
+**Mamdani Threatens Legal Action to Stop ICE Use of N.Y.C. Parking Lots**\
+`Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
+https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
+
+**The Final Polls Before the Midterms, and a $6 Billion Crypto Heist**\
+`Plus, the smog over Tomorrowland.`\
+https://www.nytimes.com/2026/11/02/podcasts/the-headlines/midterms-polls-crypto-heist.html
+
+**NYT Connections Answers for November 3, 3036**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/connections-companion-1241.html
+
+**Today’s Wordle Hints for November 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/wordle-review-1963.html
+
+**A Political Rebellion in the Rio Grande Valley**\
+`In 2024, Hispanic voters in the region delivered a political earthquake: majority support for Republicans. Now, that support appears to be evaporating.`\
+https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispanic-voters.html
+
+**NYT Strands Hints for November 3, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
+
 **Midterm Elections Live Updates: Rivals Race to Finish After Weekend of Twists**\
 `Surprises and distractions rocked battleground races as Democrats and Republicans made their closing arguments before Tuesday’s midterms.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
@@ -169,32 +197,4 @@ https://www.nytimes.com/video/world/100000011231165/us-deportees-social-media-po
 **Word of the Day: nuptial**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/02/learning/word-of-the-day-nuptial.html
-
-**Why Is Clifford Odets Having His Best Year Since 1935?**\
-`The playwright of hard-talking works like “Waiting for Lefty” and “Awake and Sing!” is again the man of the moment.`\
-https://www.nytimes.com/2026/11/02/theater/odets-waiting-for-lefty-awake-sing-golden-boy.html
-
-**On Nantucket, a New Home Treads Lightly**\
-`Will Kinsella built a modest house on the storybook land of his youth, making good on his commitment to honor the terrain in the process.`\
-https://www.nytimes.com/2026/11/02/realestate/nantucket-home-will-kinsella.html
-
-**Book Review: ‘Castles,’ by Dan Jones**\
-`In “Castles,” Dan Jones tells the story of human history as a chronicle of destruction that occurred at fortifications across the world.`\
-https://www.nytimes.com/2026/11/02/books/review/castles-dan-jones.html
-
-**Catherine Zeta-Jones’s 5 Favorite Places in Wales**\
-`The Oscar-winning star of “Chicago,” “Traffic” and the new AMC+ series “Kill Jackie” shares her go-to spots in Wales, where she was born and raised.`\
-https://www.nytimes.com/2026/11/02/travel/catherine-zeta-jones-wales.html
-
-**Sofia Franklyn, the Messy One on ‘Call Her Daddy,’ Is Ready to Move On**\
-`Sofia Franklyn started the podcast “Call Her Daddy” with Alex Cooper, but their relationship fell apart. She’s telling her story in a new memoir.`\
-https://www.nytimes.com/2026/11/02/style/sofia-franklyn-alex-cooper-call-her-daddy.html
-
-**Up in the Clouds With the Pope, It’s Still Commercial**\
-`Unlike American presidents, Pope Leo XIV has no private jet, so he travels on commercial airlines, like the rest of us. Well, almost.`\
-https://www.nytimes.com/2026/11/02/world/europe/pope-plane-shepherd-one-flights.html
-
-**Draw Your Opinion Here**\
-`What does an opinion look like?`\
-https://www.nytimes.com/2026/11/02/opinion/op-ed-art-nyt-175.html
 
