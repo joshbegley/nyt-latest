@@ -1,3 +1,7 @@
+**Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
+`Party leaders will make competing cases to the Israeli president for either Benjamin Netanyahu or Gadi Eisenkot to get the first chance to build a governing coalition.`\
+https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html
+
 **King Charles Meets Both Joy and Criticism on Caribbean Tour**\
 `During the king’s visits to three former colonies, many people came out for celebratory parades and events. Others said the British state needed to atone for slavery’s toll.`\
 https://www.nytimes.com/2026/11/02/world/europe/king-charles-caribbean-slavery-commonwealth.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/opinion/op-ed-art-nyt-175.html
 **A French Style in South Korean Makeup**\
 `The beauty brand Monclos markets itself as made from natural ingredients grown in France and other countries.`\
 https://www.nytimes.com/2026/11/02/fashion/beauty-monclos-south-korea.html
-
-**A L’Oreal Executive on Robots and Makeup**\
-`Guive Balooch, a global vice president at L’Oréal, says the idea is not all that far fetched.`\
-https://www.nytimes.com/2026/11/02/fashion/loreal-makeup-technology.html
 
