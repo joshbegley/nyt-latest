@@ -1,3 +1,7 @@
+**Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
+`Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
+https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
+
 **Jury Selection Begins in First Death-Penalty Case at Guantánamo Bay**\
 `A Saudi man is charged with the bombing of the U.S.S. Cole, which killed 17 American sailors in 2000.`\
 https://www.nytimes.com/2026/11/02/us/politics/jury-selection-death-penalty-cole-bombing.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.htm
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
 https://www.nytimes.com/interactive/2026/11/02/us/elections/polls-closing-time-midterm-elections.html
-
-**Clancy Hearing Focuses on Holdout Juror’s Inclusion on Jury**\
-`Lawyers debated whether the lone juror who voted for Lindsay Clancy’s conviction had been honest during jury selection for her trial.`\
-https://www.nytimes.com/2026/11/02/us/lindsay-clancy-trial-hearing.html
 
