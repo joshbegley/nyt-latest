@@ -1,3 +1,11 @@
+**U.S.-China Relations Will Never Be the Same in the Age of A.I.**\
+`China and the U.S. need mutually assured collaboration to quash the threat of A.I.-empowered bad actors, even while their economic differences sharpen.`\
+https://www.nytimes.com/2026/11/02/opinion/us-china-ai-manufacturing-exports-weapons.html
+
+**‘North of North,’ and 8 More Shows to Watch on TV This Week**\
+`The sitcom, set in a small Arctic community, returns for a second season. And news networks air coverage of the midterm elections.`\
+https://www.nytimes.com/2026/11/02/arts/television/north-of-north-tv-this-week.html
+
 **Newsom and Harris Appear Together, With Little Hint of What’s to Come**\
 `The two possible presidential candidates showed up in Los Angeles to support Xavier Becerra, the Democratic candidate for California governor.`\
 https://www.nytimes.com/2026/11/02/us/elections/newsom-harris-becerra-rally.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/01/obituaries/jerry-koosman-dead.html
 **Learjet Plummets to Ground in Florida, Killing 9**\
 `Photos and video posted online showed the plane diving nose first to the ground and exploding. In a radio call, the pilot said the plane was descending at a speed of 20,000 feet per minute.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
-
-**For Harry Styles and His Fans, a ‘Harryween’ Farewell to New York**\
-`It was not by accident that the final concert of the British pop star’s 30-show New York residency fell on a holiday that invites exuberance.`\
-https://www.nytimes.com/2026/11/01/arts/music/harry-styles-msg-residency-harryween.html
-
-**Inspired by the Marathon? Here’s How to Qualify to Run.**\
-`There are several pathways to gain entry to the field, but most come with rules or obligations.`\
-https://www.nytimes.com/2026/11/01/nyregion/nyc-marathon-qualify-runners.html
 
 **Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
