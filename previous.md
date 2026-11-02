@@ -74,8 +74,8 @@ https://www.nytimes.com/interactive/2026/11/01/polls/times-siena-poll-toplines.h
 `Democrats are up in Michigan, Texas, Kansas, Maine and Ohio, have an edge in Alaska and are effectively tied with Republicans in Iowa, new New York Times/Siena polls found.`\
 https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-senate.html
 
-**Editors’ Note**\
-`, new New York Times/Siena University polls found.`\
+**Democrats Are Leading or Tied in Seven Battleground Governor’s Races, Polls Find**\
+`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
 https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
 
 **The New York City Marathon in Photos and Videos**\

@@ -1,3 +1,7 @@
+**Democrats Are Leading or Tied in Seven Battleground Governor’s Races, Polls Find**\
+`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
+
 **10-Minute Challenge: “Above the Clouds I,” by Georgia O’Keeffe**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
