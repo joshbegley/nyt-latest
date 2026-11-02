@@ -1,3 +1,7 @@
+**20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
+`Nathalia Filgueiras earned a pilot’s license at 17, had logged more than 1,300 hours of flight time and was the co-pilot on Sunday, her mother said in an interview.`\
+https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
+
 **The Pilates Bros Have Arrived**\
 `Long seen as a women’s workout, the exercise method is winning over men — one trembling leg at a time.`\
 https://www.nytimes.com/2026/11/02/well/pilates-men.html
