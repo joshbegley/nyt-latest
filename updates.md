@@ -1,3 +1,7 @@
+**He Was the Lone Boy in Ballet Class. Now He Teaches 40.**\
+`Adrian Blake Mitchell’s career took him to Russia. But he has returned to Los Angeles to shepherd young dancers at his alma mater. “I’m teaching a lot of things I wish most adult men had.”`\
+https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
+
 **Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
 `Iranian officials spoke of some progress in negotiating to reopen the strait, a vital oil and gas shipping lane, even as they prepare for all-out war.`\
 https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
