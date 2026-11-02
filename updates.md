@@ -1,3 +1,7 @@
+**How the Valkyries Defeated Atlanta to Win Their First WNBA Championship**\
+`The Golden State Valkyries beat the Atlanta Dream to clinch their first championship in just their second season.`\
+https://www.nytimes.com/2026/11/02/podcasts/golden-state-valkyries-defeat-atlanta-dream-wnba-championship.html
+
 **15-Minute Lesson Plan: ‘Mrs. Dalloway’ Today**\
 `What does a 100 year-old novel reveal to us about our present day?`\
 https://www.nytimes.com/2026/11/02/learning/15-minute-lesson-plan-mrs-dalloway-today.html
