@@ -1,3 +1,7 @@
+**Cracks in the A.I. Borrowing Binge**\
+`Investors are growing increasingly concerned about the debt-fueled spending spree at the heart of the artificial intelligence buildout.`\
+https://www.nytimes.com/2026/11/02/business/dealbook/ai-borrowing-binge.html
+
 **Our Final Polls**\
 `We look at our final polls before the midterms.`\
 https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
