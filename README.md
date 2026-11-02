@@ -1,5 +1,25 @@
+**Midterms Vibe Check**\
+`We look at how college papers are covering the midterms.`\
+https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
+
+**Easy-Peasy Peanut Noodles With Spicy Tofu**\
+`A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
+https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
+
+**Justice Kagan Confronts a Broken Court**\
+`Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
+https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
+
+**Accused of Voter Fraud, They Ended Up in Shackles**\
+`The Trump administration’s campaign to identify and charge immigrants in connection with voting violations has led to fears of being jailed, or deported.`\
+https://www.nytimes.com/2026/11/02/us/politics/noncitizen-voters-green-cards.html
+
+**Early Voting Turnout Offers Promising Signs for Democrats**\
+`Early voting figures tell an incomplete story, but strong turnout among key demographics stood out in critical Senate battlegrounds.`\
+https://www.nytimes.com/2026/11/02/us/politics/early-vote-turnout-senate-battlegrounds.html
+
 **Judge Throws Out Charges Against Former F.B.I. Officials**\
-`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the upcoming midterm elections.`\
+`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
 
 **Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
@@ -78,8 +98,8 @@ https://www.nytimes.com/2026/11/02/podcasts/the-daily/rio-grande-midterms-hispan
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 3, 2026.`\
 https://www.nytimes.com/2026/11/02/crosswords/strands-sidekick-975.html
 
-**Midterm Elections Live Updates: Rivals Race to Finish as Parties Make Final Pitches**\
-`President Trump was scheduled to deliver remarks in Washington on the eve of Tuesday’s midterms. Over the weekend, surprises and distractions rocked battleground contests.`\
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`The figures tell an incomplete story but offer some warnings for Republicans on the eve of Election Day. Both parties are making their final pitches.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
 **Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
 **Two New Housing Projects That People Really Want to Live in**\
 `In East New York, Brooklyn, and Rockaway Village, Queens, new developments feel like neighborhoods.`\
 https://www.nytimes.com/2026/11/02/nyregion/housing-projects-brooklyn-queens-kimmelman.html
-
-**Identity Politics Have Entered a New Phase**\
-`Since Trump’s return, discussions of diversity have gone quiet. This year’s midterms have shown that Americans could be ready for something new.`\
-https://www.nytimes.com/2026/11/02/magazine/identity-politics-economy-class.html
-
-**Is It Rude to Play Music or Videos Without Headphones in Public?**\
-`Britain has started a campaign to stop the behavior on trains and buses. Is this an issue in the places where you spend time?`\
-https://www.nytimes.com/2026/11/02/learning/is-it-rude-to-play-music-or-videos-without-headphones-in-public.html
-
-**What a Blue Wave Could Look Like**\
-`Polls show some kind of “wave” seems likely for the Democrats in this midterm election. But will it translate into Democrats flipping the House and Senate? Nate Cohn, our chief political analyst, outlines four possible scenarios.`\
-https://www.nytimes.com/video/us/elections/100000011228691/what-a-blue-wave-could-look-like.html
-
-**Living in a Glass House Changed Her Life**\
-`After the interior designer Carol Egan took over a Modernist home on Long Island, she discovered that it offered bountiful light and gave her a new affinity for the passing of the seasons.`\
-https://www.nytimes.com/2026/11/02/t-magazine/carol-egan-long-island-home.html
-
-**Ken Paxton Leans on Trump in Tight Texas Senate Race**\
-`Facing an energized Democratic opponent, the Texas attorney general is testing whether party loyalty can overcome voters’ reservations about him.`\
-https://www.nytimes.com/2026/11/02/us/paxton-bus-tour.html
 

@@ -1,3 +1,7 @@
+**Judge Throws Out Charges Against Former F.B.I. Officials**\
+`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the upcoming midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
+
 **How a Tax Cut Could Threaten a Florida Necessity: Mosquito Control**\
 `As Florida fights a dengue outbreak, a ballot proposal to cut property taxes has raised concerns about local governments’ ability to pay for sufficient mosquito control.`\
 https://www.nytimes.com/2026/11/02/us/florida-mosquitoes-dengue-fever-taxes.html
