@@ -1,3 +1,7 @@
+**Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil**\
+`The Kennedy Center Honors, the venue’s marquee event, will also recognize the veteran actor Andy Garcia, the country singer Barbara Mandrell and the music producer David Foster.`\
+https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html
+
 **Trump Administration Asks Supreme Court to Intervene in California Ballot Case**\
 `In an emergency application, administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011242571/trump-your-tax-dollars-and
 **Book Review: ‘Annie Proulx Stories'**\
 `A new career-spanning collection of short fiction highlights Annie Proulx’s dense and thorny writing style.`\
 https://www.nytimes.com/2026/11/02/books/review/annie-proulx-stories-new-and-selected.html
-
-**Can a Former Senator Come Back?**\
-`In Ohio, Sherrod Brown, a Democrat, is running for Senate just two years after he lost re-election. Our national political correspondent Shane Goldmacher describes how Democrats hope that a favorable political environment can propel him to victory.`\
-https://www.nytimes.com/video/us/politics/100000011237906/can-a-former-senator-come-back.html
 
