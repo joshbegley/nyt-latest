@@ -1,3 +1,7 @@
+**The Final Polls Show a Blue Surge. Can We Trust Them?**\
+`Democrats lead in all the key states that will decide Senate control, according to new Times/Siena surveys.`\
+https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
+
 **Learjet Plummets to Ground in Florida, Killing 9**\
 `Photos and video posted online showed the plane diving nose first to the ground and exploding. In a radio call, the pilot said the plane was descending at a speed of 20,000 feet per minute.`\
 https://www.nytimes.com/2026/11/01/us/florida-plane-crash-palm-beach-county.html
