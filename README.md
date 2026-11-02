@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/01/business/after-tech-sell-off-investors-brace-
 https://www.nytimes.com/interactive/2026/11/01/upshot/above-the-clouds-okeeffe.html
 
 **The Final Polls Show a Blue Surge. Can We Trust Them?**\
-`New Times/Siena surveys show Democrats leading in all the key battlegrounds that will decide Senate control.`\
+`Democrats lead in all the key states that will decide Senate control, according to new Times/Siena surveys.`\
 https://www.nytimes.com/2026/11/01/upshot/poll-times-siena-senate-midterms.html
 
 **Cross-Tabs: October 2026 Times/Siena Poll of the Likely Electorate in Iowa**\
