@@ -1,3 +1,7 @@
+**Woman Is on Life Support After She Being Stabbed While Jogging in Brooklyn**\
+`Katie Suarez, 28, was running along the Brooklyn waterfront on Friday evening when she was attacked. The police were still searching for the assailant.`\
+https://www.nytimes.com/2026/11/01/nyregion/katie-suarez-jogger-stabbing.html
+
 **In the Final Stretch, Hochul and Blakeman Try to Motivate Their Voters**\
 `The governor campaigned in the city with Mayor Zohran Mamdani and Representative Alexandria Ocasio-Cortez. Her opponent, Bruce Blakeman, focused on Long Island and upstate.`\
 https://www.nytimes.com/2026/11/01/nyregion/hochul-blakeman-ny-governor-election.html
