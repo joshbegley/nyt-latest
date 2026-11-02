@@ -1,3 +1,7 @@
+**Hosting a Funeral at a Restaurant or Bar**\
+`As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
+https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
+
 **Trump Floats Pre-Emptive Pardons for Allies if Democrats Take Congress in Midterms**\
 `“We just have to protect those people,” President Trump said in an interview, when asked about potential investigations of allies and administration officials if Democrats won control of Congress.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-control.html

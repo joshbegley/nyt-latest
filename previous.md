@@ -1,3 +1,7 @@
+**Hosting a Funeral at a Restaurant or Bar**\
+`As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
+https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
+
 **Trump Floats Pre-Emptive Pardons for Allies if Democrats Take Congress in Midterms**\
 `“We just have to protect those people,” President Trump said in an interview, when asked about potential investigations of allies and administration officials if Democrats won control of Congress.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-control.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011250893/can-a-progressive-win-
 **We Called Back Young Men Who Voted for Trump. He’s Losing Them.**\
 `Young men no longer favor Republicans, new Times/Siena data shows. We asked them why.`\
 https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
-
-**Elon Musk Spends $474 Million on the 2026 Midterm Elections**\
-`Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
-https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
