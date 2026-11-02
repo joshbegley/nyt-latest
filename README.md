@@ -1,3 +1,7 @@
+**The Trump Factor in the Midterm Elections**\
+`Readers offer some final thoughts before Election Day. Also: Hard times, or not; Halloween candy bliss.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-midterm-elections.html
+
 **Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil**\
 `The Kennedy Center Honors, the venue’s marquee event, will also recognize the veteran actor Andy Garcia, the country singer Barbara Mandrell and the music producer David Foster.`\
 https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html
@@ -154,13 +158,13 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
-`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
-https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
-
 **A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
 `Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
 https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
+
+**How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
+`Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
+https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
 
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
 **What Gen Z Is Looking For in Politics**\
 `Gen Z embraces dark, nihilistic humor online, but is sincere about politics and wanting people to go to the polls.`\
 https://www.nytimes.com/2026/11/02/style/gen-z-politics-2026-sincerity.html
-
-**Trump, Your Tax Dollars and the Midterms**\
-`$20 million from the Social Security Administration. $8 billion from the Department of Agriculture. Have you received a check from the Trump administration? According to the Opinion contributor Cristian Farias, an “alphabet soup of agencies” have been deputized by President Trump to bribe his way through the midterms and, he argues, to “interfere with the democratic process.”`\
-https://www.nytimes.com/video/opinion/100000011242571/trump-your-tax-dollars-and-the-midterms.html
 
