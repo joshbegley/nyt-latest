@@ -1,3 +1,11 @@
+**A 20-Year-Old Was a Pilot of the Jet That Plunged to Earth in Florida**\
+`Nathalia Filgueiras earned a pilot’s license at 17 and had logged more than 1,300 hours of flight time, her mother said in an interview. She had been passionate about flying since childhood.`\
+https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
+
+**How Many of These Movies Adapted From Books Do You Know?**\
+`These novels have been adapted into popular films, sometimes more than once. Try this quiz and see how many books and movies you remember.`\
+https://www.nytimes.com/quiz/2026/11/02/bookreview/animal-book-movies.html
+
 **How A.I. Is Making It Easier Than Ever to Microtarget Voters**\
 `Hyper-personalized messages, delivered with A.I.-enabled precision, herald a new frontier for voter outreach (and potential disinformation).`\
 https://www.nytimes.com/2026/11/02/business/media/ai-microtargeting-midterm-elections.html
@@ -110,13 +118,13 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
 
-**Parties End the Midterm Election With Their Closing Arguments**\
-`Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
-https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
-
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `We’re one day away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
+
+**Parties End the Midterm Election With Their Closing Arguments**\
+`Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
 
 **What Gen Z Is Looking For in Politics**\
 `Gen Z has turned nihilism into a competitive sport. Some of its members also really, really want you to vote.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/02/crosswords/grief-community-mahjong-ohio.html
 **Disneyland’s Autopia Ride Will Switch to Electric Vehicles**\
 `The gas-powered engines in Disneyland’s Autopia ride weren’t properly certified. The little cars will be replaced by E.V.s.`\
 https://www.nytimes.com/2026/11/02/climate/after-71-years-and-a-lot-of-exhaust-disneylands-autopia-goes-electric.html
-
-**Purple Is Everywhere. Is It a Coincidence or a Conspiracy?**\
-`A reader wants to get to the bottom of seasonal color trends.`\
-https://www.nytimes.com/2026/11/02/style/color-trends.html
-
-**Gulf Economies, Torn by War in Iran, Desperately Need a Return to Normal**\
-`States like Saudi Arabia and the United Arab Emirates that have worked to rebalance from a dependence on energy have seen growth plunge in a year of strife.`\
-https://www.nytimes.com/2026/11/02/business/iran-war-gulf-economies.html
 

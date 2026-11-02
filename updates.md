@@ -1,3 +1,7 @@
+**How A.I. Is Making It Easier Than Ever to Microtarget Voters**\
+`Hyper-personalized messages, delivered with A.I.-enabled precision, herald a new frontier for voter outreach (and potential disinformation).`\
+https://www.nytimes.com/2026/11/02/business/media/ai-microtargeting-midterm-elections.html
+
 **Elon Musk Spends $474 Million on the 2026 Midterm Elections**\
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
