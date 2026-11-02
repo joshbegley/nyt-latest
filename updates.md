@@ -1,3 +1,7 @@
+**Democrats Are Leading or Tied in 7 Battleground Governor’s Races, Polls Find**\
+`Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
+https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html
+
 **What to Know About the Florida Plane Crash That Killed 9**\
 `A midsize jet plummeted to the ground on Sunday, exploding into a fireball and killing all on board.`\
 https://www.nytimes.com/2026/11/01/us/learjet-crash-florida-palm-beach.html
