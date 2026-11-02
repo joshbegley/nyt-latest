@@ -1,3 +1,7 @@
+**How Much Do You Pay for TV Streaming Services? We Want to Know.**\
+`Let us know your thoughts about the costs of streaming television.`\
+https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
+
 **He Was the Lone Boy in Ballet Class. Now He Teaches 40.**\
 `Adrian Blake Mitchell’s career took him to Russia. But he has returned to Los Angeles to shepherd young dancers at his alma mater. “I’m teaching a lot of things I wish most adult men had.”`\
 https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/business/iran-war-gulf-economies.html
 **Trump Skirts Court Commands as Distrust Between Branches Spirals**\
 `Repeated compliance disputes and personal attacks on judges are straining relations between the executive branch and the judiciary.`\
 https://www.nytimes.com/2026/11/02/us/trump-courts-judges-orders.html
-
-**Could My Patients Benefit From Psychedelics?**\
-`Medicine has developed many tools for suppressing suffering, but fewer for cultivating meaning or peace.`\
-https://www.nytimes.com/2026/11/02/opinion/psychedelics-medicine-patients.html
 
