@@ -1,3 +1,7 @@
+**Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
+`The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
+https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
+
 **Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil**\
 `The Kennedy Center Honors, the venue’s marquee event, will also recognize the veteran actor Andy Garcia, the country singer Barbara Mandrell and the music producer David Foster.`\
 https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html

@@ -98,7 +98,7 @@ https://www.nytimes.com/2026/11/02/briefing/our-final-polls.html
 `A pilot’s frantic call came moments before a deadly crash in Florida on Sunday. Here’s how the century-old signal became the international standard.`\
 https://www.nytimes.com/2026/11/02/us/florida-lear-jet-crash-mayday-call-meaning.html
 
-**Mamdani Threatens Legal Action to Stop ICE Use of N.Y.C. Parking Lots**\
+**Mamdani Threatens Trump Administration with Legal Action Over ICE Parking Lot Use in NYC**\
 `Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
 https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
 
@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-
 `President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
 https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
 
-**Parties End the Midterm Election With Their Closing Arguments**\
-`Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
-https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
-
 **Midterm Elections: Who Is Winning the Race for Congress?**\
 `We’re one day away from the midterms. Here’s the state of play.`\
 https://www.nytimes.com/2026/11/02/us/politics/congress-races-midterms.html
+
+**Parties End the Midterm Election With Their Closing Arguments**\
+`Republicans, worried about losing control of Congress, are sending dire warnings about the opposing party. Democrats are trying to keep their focus on affordability, corruption and President Trump.`\
+https://www.nytimes.com/2026/11/02/us/politics/midterm-elections.html
 
 **What Gen Z Is Looking For in Politics**\
 `Gen Z embraces dark, nihilistic humor online, but is sincere about politics and wanting people to go to the polls.`\
