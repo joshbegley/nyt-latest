@@ -1,3 +1,11 @@
+**Student News Quiz: Israeli Elections, Driver’s Licenses, Halloween Candy**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/11/02/learning/02studentnewsquiz-ln.html
+
+**When Trump Says He’s on the Ballot, Believe Him**\
+`History doesn’t give us second chances.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-midterms-history.html
+
 **In Run-Up to Midterms, Legacy of 2020 Looms Large Over Justice Dept.**\
 `The refusal of top department officials to acknowledge Donald J. Trump’s loss that year is the engine driving an intensifying effort to intercede in state administration of elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterms-2020-election-justice-department.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charges-midterms
 **Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
 `President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html
-
-**Inside Anthropic’s Hunt for A.I. Computing Power**\
-`The company went on a deal spree with tech giants, former crypto miners and others to gain computing power to further its artificial intelligence ambitions.`\
-https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
-
-**Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
-`The A.I. company’s quarterly revenue totaled $17 billion, 12 times as high as the same quarter last year, while its net loss totaled $23 billion.`\
-https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\

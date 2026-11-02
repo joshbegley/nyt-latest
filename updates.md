@@ -1,3 +1,11 @@
+**Student News Quiz: Israeli Elections, Driver’s Licenses, Halloween Candy**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/11/02/learning/02studentnewsquiz-ln.html
+
+**When Trump Says He’s on the Ballot, Believe Him**\
+`History doesn’t give us second chances.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-midterms-history.html
+
 **In Run-Up to Midterms, Legacy of 2020 Looms Large Over Justice Dept.**\
 `The refusal of top department officials to acknowledge Donald J. Trump’s loss that year is the engine driving an intensifying effort to intercede in state administration of elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterms-2020-election-justice-department.html
