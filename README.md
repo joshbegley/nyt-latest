@@ -1,3 +1,7 @@
+**DeSantis and Florida Republicans Sound Alarms as Democrats Gain Momentum in Governor’s Race**\
+`Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
+https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
+
 **Hosting a Funeral at a Restaurant or Bar**\
 `As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
 https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
@@ -27,7 +31,7 @@ https://www.nytimes.com/2026/11/02/us/politics/jury-selection-death-penalty-cole
 https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html
 
 **Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
-`Marvell and Lumentum said they were combining, in a major bet on a technology known as optical networking that is increasingly being used in A.I. data centers.`\
+`Marvell and Lumentum said they were combining, in a major bet on a technology, known as optical networking, that is increasingly being used in A.I. data centers.`\
 https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html
 
 **Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/us/politics/election-vote-counts.html
 **Can a Progressive Win a Swing State?**\
 `Dr. Abdul El-Sayed is a progressive Democrat looking to win a Senate race in Michigan. Our national political correspondent Shane Goldmacher explains why a victory for El-Sayed could have broader implications for 2028.`\
 https://www.nytimes.com/video/us/politics/100000011250893/can-a-progressive-win-a-swing-state.html
-
-**We Called Back Young Men Who Voted for Trump. He’s Losing Them.**\
-`Young men no longer favor Republicans, new Times/Siena data shows. We asked them why.`\
-https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 
