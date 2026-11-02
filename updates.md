@@ -1,3 +1,7 @@
+**Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil**\
+`The Kennedy Center Honors, the venue’s marquee event, will also recognize the veteran actor Andy Garcia, the country singer Barbara Mandrell and the music producer David Foster.`\
+https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html
+
 **Trump Administration Asks Supreme Court to Intervene in California Ballot Case**\
 `In an emergency application, administration lawyers asked the justices to immediately order California to set aside 20,000 mail-in ballots.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-supreme-court-california-ballots.html
