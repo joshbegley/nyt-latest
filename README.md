@@ -1,3 +1,7 @@
+**Rome Greenlights New Investigation of Pier Paolo Pasolini Murder 51 Years Ago**\
+`Pier Paolo Pasolini was found bludgeoned to death in 1975. A young escort confessed to the crime but changed his story over the years, creating uncertainty.`\
+https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html
+
 **Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
 `Marvell and Lumentum said they were combining, in a major bet on a technology known as optical networking that is increasingly being used in A.I. data centers.`\
 https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html
@@ -170,13 +174,13 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
-`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
-https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
-
 **How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
 `Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
 https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
+
+**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
+`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
+https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
 
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/us/lindsay-clancy-trial-hearing.html
 **Senate Control After the Midterms: Party Switches, Ties and Wild Cards**\
 `The likelihood of a slim majority leaves room for several hard-to-predict scenarios that could affect the balance of power.`\
 https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-wild-cards.html
-
-**7 Ways Trump Skirts the Courts**\
-`President Trump and his administration have repeatedly sidestepped court limits in his second term. Here’s how they do it.`\
-https://www.nytimes.com/interactive/2026/11/02/us/trump-administration-court-orders-deflect.html
 
