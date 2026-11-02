@@ -1,3 +1,15 @@
+**Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
+`Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
+https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
+
+**Jury Selection Begins in First Death-Penalty Case at Guantánamo Bay**\
+`A Saudi man is charged with the bombing of the U.S.S. Cole, which killed 17 American sailors in 2000.`\
+https://www.nytimes.com/2026/11/02/us/politics/jury-selection-death-penalty-cole-bombing.html
+
+**Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
+`Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
+https://www.nytimes.com/video/world/middleeast/iran-strait-of-hormuz-us-deal.html
+
 **Rome Greenlights New Investigation of Pier Paolo Pasolini Murder 51 Years Ago**\
 `Pier Paolo Pasolini was found bludgeoned to death in 1975. A young escort confessed to the crime but changed his story over the years, creating uncertainty.`\
 https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html

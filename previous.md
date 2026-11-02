@@ -1,3 +1,11 @@
+**Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
+`Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
+https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
+
+**Jury Selection Begins in First Death-Penalty Case at Guantánamo Bay**\
+`A Saudi man is charged with the bombing of the U.S.S. Cole, which killed 17 American sailors in 2000.`\
+https://www.nytimes.com/2026/11/02/us/politics/jury-selection-death-penalty-cole-bombing.html
+
 **Rome Greenlights New Investigation of Pier Paolo Pasolini Murder 51 Years Ago**\
 `Pier Paolo Pasolini was found bludgeoned to death in 1975. A young escort confessed to the crime but changed his story over the years, creating uncertainty.`\
 https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html
@@ -8,7 +16,7 @@ https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merge
 
 **Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
 `Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
-https://www.nytimes.com/video/world/middleeast/100000011254470/iran-strait-of-hormuz-us-deal.html
+https://www.nytimes.com/video/world/middleeast/iran-strait-of-hormuz-us-deal.html
 
 **Adventurer Who Walked Across the Globe for 28 Years Returns Home**\
 `Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
@@ -174,23 +182,15 @@ https://www.nytimes.com/2026/11/02/upshot/poll-young-men-midterms-trump.html
 `Never before has a single ultrawealthy person who was not running for office spent this much during a single election cycle.`\
 https://www.nytimes.com/2026/11/02/us/politics/elon-musk-midterm-spending.html
 
-**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
-`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
-https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
-
 **How a Franciscan Priest Lives on a Vow of Poverty in Midtown Manhattan**\
 `Father Brian Jordan, who ministers to workers in the city, does not own any property, personal bank accounts or individual goods.`\
 https://www.nytimes.com/interactive/2026/11/02/nyregion/nyc-budgeting-affordability-jordan.html
 
+**A ‘Pugnacious’ Vance Leans Into Personal Attacks on the Campaign Trail**\
+`Vice President JD Vance’s sharp-edged rhetoric shows his instincts as a politician as attention is about to shift to the 2028 presidential race.`\
+https://www.nytimes.com/2026/11/02/us/politics/vance-campaign-trail-personas.html
+
 **What Time Do Polls Close? Midterm Elections 2026**\
 `A state-by-state breakdown of when the polls in each state close on Election Day and when to watch for results.`\
 https://www.nytimes.com/interactive/2026/11/02/us/elections/polls-closing-time-midterm-elections.html
-
-**Clancy Hearing Focuses on Holdout Juror’s Inclusion on Jury**\
-`Lawyers debated whether the lone juror who voted for Lindsay Clancy’s conviction had been honest during jury selection for her trial.`\
-https://www.nytimes.com/2026/11/02/us/lindsay-clancy-trial-hearing.html
-
-**Senate Control After the Midterms: Party Switches, Ties and Wild Cards**\
-`The likelihood of a slim majority leaves room for several hard-to-predict scenarios that could affect the balance of power.`\
-https://www.nytimes.com/2026/11/02/us/politics/senate-midterms-tie-independents-wild-cards.html
 
