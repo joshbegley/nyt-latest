@@ -1,3 +1,7 @@
+**In the Final Stretch, Hochul and Blakeman Try to Motivate Their Voters**\
+`The governor campaigned in the city with Mayor Zohran Mamdani and Representative Alexandria Ocasio-Cortez. Her opponent, Bruce Blakeman, focused on Long Island and upstate.`\
+https://www.nytimes.com/2026/11/01/nyregion/hochul-blakeman-ny-governor-election.html
+
 **Haley Stevens Endorses Republican Mike Rogers for Senate**\
 `Representative Haley Stevens, a Democrat from Michigan, endorsed Mike Rogers, the Republican Senate nominee for her state. The late endorsement comes after a feud between Stevens and Dr. Abdul El-Sayed, the Democratic Senate nominee, spilled into the public in recent days.`\
 https://www.nytimes.com/video/us/politics/100000011253329/stevens-rogers-el-sayed-michigan-senate.html

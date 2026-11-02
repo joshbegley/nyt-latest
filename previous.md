@@ -1,3 +1,7 @@
+**In the Final Stretch, Hochul and Blakeman Try to Motivate Their Voters**\
+`The governor campaigned in the city with Mayor Zohran Mamdani and Representative Alexandria Ocasio-Cortez. Her opponent, Bruce Blakeman, focused on Long Island and upstate.`\
+https://www.nytimes.com/2026/11/01/nyregion/hochul-blakeman-ny-governor-election.html
+
 **Haley Stevens Endorses Republican Mike Rogers for Senate**\
 `Representative Haley Stevens, a Democrat from Michigan, endorsed Mike Rogers, the Republican Senate nominee for her state. The late endorsement comes after a feud between Stevens and Dr. Abdul El-Sayed, the Democratic Senate nominee, spilled into the public in recent days.`\
 https://www.nytimes.com/video/us/politics/100000011253329/stevens-rogers-el-sayed-michigan-senate.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
 **Ask a Journalist: How Images Help Tell the Story**\
 `Fernanda Didini, an art director for The New York Times, joins us in November to chat with teenagers about art and design. Post your comments and questions for her by Nov. 16.`\
 https://www.nytimes.com/2026/11/01/learning/lesson-plans/ask-a-journalist-how-images-help-tell-the-story.html
-
-**How Marathons Changed**\
-`The New York City Marathon is happening this morning.`\
-https://www.nytimes.com/2026/11/01/briefing/how-marathons-changed.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
