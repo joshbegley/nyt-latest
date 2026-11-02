@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
 `Adrian Blake Mitchell’s career took him to Russia. But he has returned to Los Angeles to shepherd young dancers at his alma mater. “I’m teaching a lot of things I wish most adult men had.”`\
 https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
 
-**Iran Says It Would Reopen Strait of Hormuz in 2 Days as Part of U.S. Deal**\
-`Iranian officials spoke of some progress in negotiating to reopen the strait even as they prepared for all-out war. A Qatari delegation arrived in Tehran on Monday to meet with the foreign minister to continue talks.`\
-https://www.nytimes.com/2026/11/02/world/middleeast/iran-deal-strait-of-hormuz.html
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 

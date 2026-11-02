@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
+`Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **America Votes**\
 `We answer your questions about the midterm elections and what they will mean for the world.`\
 https://www.nytimes.com/2026/11/02/world/midterm-elections-questions-trump-fifa.html
