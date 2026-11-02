@@ -1,3 +1,11 @@
+**China’s Message to Its Rivals: You Need What We Make**\
+`It’s not just rare earths. China is making it harder for other countries to shed their dependence on its solar, drone and drugmaking technology.`\
+https://www.nytimes.com/2026/11/02/world/asia/chinas-message-to-its-rivals-you-need-what-we-make.html
+
+**From the Front Page: The Cubs End 108-Year World Series Drought on Nov. 2, 2016**\
+`The Chicago Cubs defeated Cleveland in a 10-inning Game 7 that ended after midnight, winning their first championship title since 1908.`\
+https://www.nytimes.com/2026/11/02/learning/from-the-front-page-the-cubs-end-108-year-world-series-drought-on-nov-2-2016.html
+
 **Campuses Join Take Back the Night Gathering to Protest Sexual Violence**\
 `Similar protests date to the 1970s, but their focus has evolved over time. Sunday’s event was prompted by a former Cornell University student’s lawsuit alleging she was raped.`\
 https://www.nytimes.com/2026/11/01/us/take-back-the-night-protests-sexual-violence.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/01/us/elections/exit-polls-times-voter-estimates
 **Senator Chris Murphy Is ‘Awake and Alert’ After Suffering a Stroke**\
 `The Connecticut senator, who has been campaigning for fellow Democrats, has been viewed as a potential candidate for president in 2028.`\
 https://www.nytimes.com/2026/11/01/us/politics/chris-murphy-stroke.html
-
-**Some Americans Are Fearful of Federal Interference on Election Day**\
-`Most voters say they trust that the results of the election will be accurate. But some worry that President Trump will try to sow doubt.`\
-https://www.nytimes.com/2026/11/01/us/politics/election-fears.html
-
-**Stylish Looks From the New York City Marathon**\
-`Newlyweds and a woman celebrating a birthday were among the marathoners, some of whom were extending their Halloween festivities into race day.`\
-https://www.nytimes.com/2026/11/01/style/nyc-marathon-fashion-outfits.html
 
 **Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
