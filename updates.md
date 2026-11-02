@@ -1,3 +1,7 @@
+**Odyssey ‘Endless Cruise’ Ship Stranded in Cambodia May Be Headed for Auction Block**\
+`Efforts to pull together more funding for the ship, stuck in Cambodia, appear to have faltered, leaving its passengers unsure about what to do next.`\
+https://www.nytimes.com/2026/11/02/travel/odyssey-cruise-ship-cambodia-auction.html
+
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump

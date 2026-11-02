@@ -1,3 +1,7 @@
+**Odyssey ‘Endless Cruise’ Ship Stranded in Cambodia May Be Headed for Auction Block**\
+`Efforts to pull together more funding for the ship, stuck in Cambodia, appear to have faltered, leaving its passengers unsure about what to do next.`\
+https://www.nytimes.com/2026/11/02/travel/odyssey-cruise-ship-cambodia-auction.html
+
 **America Votes**\
 `We answer your questions about the midterm elections and what they will mean for the world.`\
 https://www.nytimes.com/2026/11/02/world/midterm-elections-questions-trump-fifa.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/business/media/ai-microtargeting-midterm-elec
 **How Much Do You Pay for TV Streaming Services? We Want to Know.**\
 `Let us know your thoughts about the costs of streaming television.`\
 https://www.nytimes.com/2026/11/02/arts/television/streaming-costs-readers.html
-
-**He Was the Lone Boy in Ballet Class. Now He Teaches 40.**\
-`Adrian Blake Mitchell’s career took him to Russia. But he has returned to Los Angeles to shepherd young dancers at his alma mater. “I’m teaching a lot of things I wish most adult men had.”`\
-https://www.nytimes.com/2026/11/02/arts/dance/adrian-blake-mitchell-ballet.html
 
 **Midterm Elections Live Updates: Early Voting Turnout Surges, Offering Promising Signs for Democrats**\
 `Interviews with voters revealed they were focused on consistent themes: economic anxiety, President Trump’s unpopularity and a preference for individual candidates over party affiliation.`\
