@@ -1,3 +1,7 @@
+**Apple’s Profit Grows 12% Despite Component Price Worries**\
+`The company said iPhone sales remained strong, but warned that the cost of memory chips for its devices was going up.`\
+https://www.nytimes.com/2026/11/02/technology/apple-earnings.html
+
 **Trump Delivers a Closing Midterm Message. Mostly About Landscaping.**\
 `On the eve of the election, the president held forth in great detail on columns, drain pipes and granite at the newly refilled Reflecting Pool.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-midterms.html

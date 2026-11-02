@@ -1,3 +1,7 @@
+**‘Devastating’ Damage as Hard Rains and Flash Floods Batter the Southwest**\
+`Some towns received more rain in a single day than they typically get during all of November, forcing evacuations across the Four Corners region.`\
+https://www.nytimes.com/2026/11/02/weather/southwest-flooding-four-corners.html
+
 **Trump Delivers a Closing Midterm Message. Mostly About Landscaping.**\
 `On the eve of the election, the president held forth in great detail on columns, drain pipes and granite at the newly refilled Reflecting Pool.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-midterms.html
