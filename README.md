@@ -1,3 +1,7 @@
+**Trump’s Tariffs Are On the Ballot in Michigan**\
+`The levies as well as trade fighting with Canada are facing a test in the state, where voters appear skeptical of free trade but also of the president’s erratic approach.`\
+https://www.nytimes.com/2026/11/02/business/economy/trump-tariffs-midterms-michigan.html
+
 **Trump Returns to Reflecting Pool, Now Refilled After Botched Renovation**\
 `The president will make his closing arguments before the midterm elections at a landmark that came to symbolize his administration’s dysfunction.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-botched-repairs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011237962/can-democrats-flip-tex
 **Can a Republican Win in a Democratic State?**\
 `Senator Susan Collins, a Republican, is running for re-election in Maine, a state that has voted against President Trump three times. Our national political correspondent Shane Goldmacher explains how Republicans hope that she can distance herself enough from Mr. Trump to win.`\
 https://www.nytimes.com/video/us/politics/100000011237418/can-a-republican-win-in-a-democratic-state.html
-
-**The Streaming Era Has Given Us Great TV, but It Comes at a Price**\
-`The streaming era has provided viewers a lot of great things to watch. But it comes at a price.`\
-https://www.nytimes.com/2026/11/02/arts/television/streaming-tv-era-cost.html
 

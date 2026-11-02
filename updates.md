@@ -1,3 +1,7 @@
+**Trump Returns to Reflecting Pool, Now Refilled After Botched Renovation**\
+`The president will make his closing arguments before the midterm elections at a landmark that came to symbolize his administration’s dysfunction.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-reflecting-pool-refilled-botched-repairs.html
+
 **20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
 `Nathalia Filgueiras earned a pilot’s license at 17, had logged more than 1,300 hours of flight time and was the co-pilot on Sunday, her mother said in an interview.`\
 https://www.nytimes.com/2026/11/02/us/nathalia-filgueiras-florida-plane-crash-pilot.html
