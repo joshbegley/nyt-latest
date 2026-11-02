@@ -1,3 +1,11 @@
+**DeSantis and Florida Republicans Sound Alarms as Democrats Gain Momentum in Governor’s Race**\
+`Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
+https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
+
+**Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
+`Marvell and Lumentum said they were combining, in a major bet on a technology, known as optical networking, that is increasingly being used in A.I. data centers.`\
+https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html
+
 **Hosting a Funeral at a Restaurant or Bar**\
 `As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
 https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html

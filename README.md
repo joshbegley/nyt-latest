@@ -1,4 +1,8 @@
-**DeSantis and Florida Republicans Sound Alarms as Democrats Gain Momentum in Governor’s Race**\
+**Trial Begins for M.L.B. Players Accused of Tipping Pitches to Gamblers**\
+`The trial will mark one of the first tests of the Justice Department’s ambitious efforts to crack down on manipulation in sports betting and prediction markets.`\
+https://www.nytimes.com/2026/11/02/nyregion/cleveland-guardians-gambling-trial.html
+
+**Democrats Gain Momentum in Florida Governor’s Race, Worrying DeSantis and Republicans**\
 `Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
 https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
 
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/11/02/briefing/midterms-vibe-check.html
 `A no-cook peanut sauce coats seared crumbled tofu and whichever noodles you’ve got.`\
 https://www.nytimes.com/2026/11/02/dining/easy-peasy-peanut-noodles-with-spicy-tofu.html
 
-**Justice Kagan Confronts a Broken Court**\
+**Justice Kagan Sounds an Alarm about the Court**\
 `Of all the Democratic appointees, if not all nine justices, Justice Kagan has a reputation as the most restrained and institutionalist. Until now.`\
 https://www.nytimes.com/2026/11/02/opinion/justice-kagan-speak-truth.html
 
@@ -103,7 +107,7 @@ https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backl
 https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
 
 **Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
-`The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
+`The A.I. company’s quarterly revenue totaled $17 billion, 12 times as high as the same quarter last year, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
 
 **20-Year-Old Nathalia Filgueiras Was a Pilot on Learjet That Crashed in Florida**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/opinion/midterms-food-talarico.html
 **When Will We Know Election Outcomes? Don’t Hold Your Breath.**\
 `Experts say it could take days and even weeks before winners are known in key states including Maine, Alaska, Arizona and California that could determine who controls Congress.`\
 https://www.nytimes.com/2026/11/02/us/politics/election-vote-counts.html
-
-**Can a Progressive Win a Swing State?**\
-`Dr. Abdul El-Sayed is a progressive Democrat looking to win a Senate race in Michigan. Our national political correspondent Shane Goldmacher explains why a victory for El-Sayed could have broader implications for 2028.`\
-https://www.nytimes.com/video/us/politics/100000011250893/can-a-progressive-win-a-swing-state.html
 
