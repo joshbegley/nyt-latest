@@ -1,3 +1,7 @@
+**Woman Is on Life Support After She Being Stabbed While Jogging in Brooklyn**\
+`Katie Suarez, 28, was running along the Brooklyn waterfront on Friday evening when she was attacked. The police were still searching for the assailant.`\
+https://www.nytimes.com/2026/11/01/nyregion/katie-suarez-jogger-stabbing.html
+
 **In the Final Stretch, Hochul and Blakeman Try to Motivate Their Voters**\
 `The governor campaigned in the city with Mayor Zohran Mamdani and Representative Alexandria Ocasio-Cortez. Her opponent, Bruce Blakeman, focused on Long Island and upstate.`\
 https://www.nytimes.com/2026/11/01/nyregion/hochul-blakeman-ny-governor-election.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/01/us/elections/social-security-email-trump-hatc
 **Midterm Elections Live Updates: Democratic Senate Primary Loser Endorses Republican in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf two days before the midterms. The president was campaigning in Iowa before heading to Kansas.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
-
-**Ask a Journalist: How Images Help Tell the Story**\
-`Fernanda Didini, an art director for The New York Times, joins us in November to chat with teenagers about art and design. Post your comments and questions for her by Nov. 16.`\
-https://www.nytimes.com/2026/11/01/learning/lesson-plans/ask-a-journalist-how-images-help-tell-the-story.html
 
 **New York City Marathon Updates: Close Finishes and Packed Streets Highlight a Five-Borough Street Party**\
 `Andreas Almgren of Sweden won the men’s division in his first marathon, and Sheila Chepkirui prevailed in a sprint to the finish in the women’s race. Tens of thousands of competitors are still on the course, with fans cheering every step of the way.`\
