@@ -1,3 +1,7 @@
+**Inside Anthropic’s Hunt for A.I. Computing Power**\
+`The company went on a deal spree with tech giants, former crypto miners and others to obtain one of the artificial intelligence boom’s scarcest resources.`\
+https://www.nytimes.com/2026/11/02/technology/anthropic-ai-computing-power.html
+
 **Anthropic Reveals Surging Revenue in Third Quarter as I.P.O. Approaches**\
 `The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
