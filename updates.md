@@ -1,3 +1,7 @@
+**Mamdani Threatens Trump Administration with Legal Action Over ICE Parking Lot Use in NYC**\
+`Earlier this year, Mayor Zohran Mamdani had issued an order barring Immigration and Customs Enforcement from using city property as staging areas.`\
+https://www.nytimes.com/2026/11/02/nyregion/mamdani-ice-parking-lots.html
+
 **Anthropic Reveals $17 Billion in Revenue as I.P.O. Approaches**\
 `The A.I. company’s quarterly revenue totaled $17 billion, 12 times higher than the same quarter a year ago, while its net loss totaled $23 billion.`\
 https://www.nytimes.com/2026/11/02/business/anthropic-earnings-ai.html
