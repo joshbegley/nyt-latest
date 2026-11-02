@@ -1,3 +1,7 @@
+**Will Trump’s Comments About Jon Husted’s Physique Help Him Win the Ohio Senate Race?**\
+`The president has repeatedly complimented Senator Jon Husted’s body. For better or worse, it has caught the attention of voters and raised Mr. Husted’s profile in a key midterm race.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-husted-body-comments.html
+
 **Trump Removes South Africa From the African Growth and Opportunity Act Trade Program**\
 `The decision is the latest measure taken against the country, which the administration has accused of discriminating against white people.`\
 https://www.nytimes.com/2026/11/02/world/africa/trump-south-africa-trade-program-agoa.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minist
 **King Charles Meets Both Joy and Criticism on Caribbean Tour**\
 `During the king’s visits to three former colonies, many people came out for celebratory parades and events. Others said the British state needed to atone for slavery’s toll.`\
 https://www.nytimes.com/2026/11/02/world/europe/king-charles-caribbean-slavery-commonwealth.html
-
-**‘Tofu Talarico,’ the Cheesecake Factory and My Beef With the Midterms**\
-`Seldom have political food fights been this ridiculous.`\
-https://www.nytimes.com/2026/11/02/opinion/midterms-food-talarico.html
 
