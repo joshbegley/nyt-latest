@@ -1,3 +1,7 @@
+**Who’s Winning the Race for the Senate?**\
+`Democrats have the lead in most of the seven tossup Senate races, according to the latest Times/Siena poll, though some contests remain close. Our polling reporter Ruth Igielnik breaks down what the numbers show.`\
+https://www.nytimes.com/video/us/elections/100000011241496/whos-winning-the-race-for-the-senate.html
+
 **Democrats Are Leading or Tied in 7 Battleground Governor’s Races, Polls Find**\
 `Strong performances underscore how a favorable political environment may be lifting up Democrats, new New York Times/Siena polls found.`\
 https://www.nytimes.com/2026/11/01/us/politics/times-siena-poll-governor.html

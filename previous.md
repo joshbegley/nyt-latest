@@ -1,3 +1,7 @@
+**Who’s Winning the Race for the Senate?**\
+`Democrats have the lead in most of the seven tossup Senate races, according to the latest Times/Siena poll, though some contests remain close. Our polling reporter Ruth Igielnik breaks down what the numbers show.`\
+https://www.nytimes.com/video/us/elections/100000011241496/whos-winning-the-race-for-the-senate.html
+
 **What to Know About the Florida Plane Crash That Killed 9**\
 `A midsize jet plummeted to the ground on Sunday, exploding into a fireball and killing all on board.`\
 https://www.nytimes.com/2026/11/01/us/learjet-crash-florida-palm-beach.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/01/nyregion/new-york-city-marathon-hardest-miles
 **Midterm Elections Live Updates: Democrats Fume After Defeated Senate Candidate Backs G.O.P. Rival in Michigan**\
 `The rift between Dr. Abdul El-Sayed, the Democratic nominee for Senate, and Representative Haley Stevens widened to a gulf just before the midterms. A new New York Times/Siena poll found Dr. El-Sayed holding a sizable lead over Mike Rogers.`\
 https://www.nytimes.com/live/2026/11/01/us/midterms-elections-trump
-
-**What You Need to Know About The Times’s 2026 Election Results and the Needle**\
-`Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
-https://www.nytimes.com/live/2026/us/times-election-results-explained
 
