@@ -1,3 +1,7 @@
+**Judge Throws Out Charges Against Former F.B.I. Officials**\
+`The magistrate judge, Zia M. Faruqui, said the case was a rushed, political prosecution ordered by the White House intended to affect the upcoming midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/judge-fbi-agents-charged-midterms.html
+
 **Trump’s Immigration Crackdown Backlash Poses Challenge for Republicans in the Midterms**\
 `President Trump promised to end the chaos at the southern border. But deadly ICE shootings and high-profile raids have shaken many voters.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-immigration-crackdown-backlash-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/02/t-magazine/carol-egan-long-island-home.html
 **Ken Paxton Leans on Trump in Tight Texas Senate Race**\
 `Facing an energized Democratic opponent, the Texas attorney general is testing whether party loyalty can overcome voters’ reservations about him.`\
 https://www.nytimes.com/2026/11/02/us/paxton-bus-tour.html
-
-**How The New York Times Is Covering the Midterm Elections**\
-`More than 400 journalists across at least 30 states will interview voters, break down results and identify trends.`\
-https://www.nytimes.com/2026/11/02/insider/new-york-times-midterm-elections.html
 
