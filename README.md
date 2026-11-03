@@ -58,7 +58,7 @@ https://www.nytimes.com/interactive/2026/11/03/upshot/obamacare-premiums-going-u
 `A series of storms has added to reservoirs in the Colorado River basin, but the long-term water outlook remains bleak.`\
 https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.html
 
-**What’s at Stake in Michigan’s Senate Race**\
+**What a Vote for Abdul El-Sayed Means**\
 `Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
 https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
 
