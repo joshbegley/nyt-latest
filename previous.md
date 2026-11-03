@@ -1,3 +1,7 @@
+**The Only Photographer Who Covered the Sharpeville Massacre Has Died**\
+`Ian Berry was there when the police opened fire on peaceful protesters in the South African township. He died at 92.`\
+https://www.nytimes.com/2026/11/03/obituaries/ian-berry-dead.html
+
 **In a Rare Evening of Rachmaninoff Operas, Megalomania and Madness**\
 `A trilogy of the composer’s short works becomes an unsparing portrait of unhinged delusion in a new staging by Dmitri Tcherniakov.`\
 https://www.nytimes.com/2026/11/03/arts/music/rachmaninoff-zurich-opera-house-dmitri-tcherniakov.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.htm
 **Alaska 2026: Live Election Results**\
 `Get live results and maps from the 2026 Alaska general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
-
-**Arizona 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
 
