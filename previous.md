@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/11/03/briefing/off-to-the-polls.html
 `It’s a spicy, multitextured meal that comes together in 20 minutes.`\
 https://www.nytimes.com/2026/11/03/dining/got-frozen-edamame-make-this-chile-crisp-fried-rice.html
 
-**How to Embody a Third Sex?A Classical Indian Dancer Finds a Way.**\
+**How to Embody a Third Sex? The Indian Dancer Bijayini Satpathy Finds a Way.**\
 `In Bijayini Satpathy’s new solo program, she depicts a warrior, a nymph and a character with no gender. After a career “dancing within the codes,” she had to explore.`\
 https://www.nytimes.com/2026/11/03/arts/dance/bijayini-satpathy-third-gender-mahabharata.html
 
