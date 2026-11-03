@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owner
 `A crypto-crash docudrama and a supernatural teen horror series are among this month’s highlights.`\
 https://www.nytimes.com/2026/11/03/arts/television/netflix-new-november.html
 
-**An 80-Cent Plastic Pouch Is Saving Thousands of Women From Dying in Childbirth**\
-`The maternal drape, as it is called, is helping to solve one of the world’s most intractable health problems.`\
-https://www.nytimes.com/2026/11/03/health/maternal-drapes-nigeria-childbirth.html
-
 **Midterm Elections Live Updates: Voting Enters Final Hours in Fight for Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
