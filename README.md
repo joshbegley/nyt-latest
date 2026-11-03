@@ -1,3 +1,7 @@
+**Gaming Out the Prospect of a Blue Wave**\
+`Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
+https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
+
 **What You Can and Can’t Do at Polling Places**\
 `Election laws are largely determined by the states, making it important to check local rules.`\
 https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/realestate/garden-greenhouse-guide.html
 **Welcome to Educational Choice. Why Aren’t You Smiling?**\
 `Hey, no one said having all this freedom was going to be easy. Or survivable.`\
 https://www.nytimes.com/2026/11/03/opinion/school-choice-education.html
-
-**What Causes Dandruff?**\
-`Experts are still working to understand it. Here’s what they want you to know.`\
-https://www.nytimes.com/2026/11/03/well/health-dandruff-skin-diseases.html
 
