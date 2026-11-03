@@ -170,10 +170,6 @@ https://www.nytimes.com/2026/11/03/us/voting-machine-issues-midterm-elections.ht
 `And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
 https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
 
-**The Only Photographer Who Covered the Sharpeville Massacre Has Died**\
-`Ian Berry was there when the police opened fire on peaceful protesters in the South African township. He died at 92.`\
-https://www.nytimes.com/2026/11/03/obituaries/ian-berry-dead.html
-
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
