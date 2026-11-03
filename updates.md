@@ -1,3 +1,15 @@
+**Restaurant Review: Zig Zag Oyster Bar in New York**\
+`From the team behind Hart’s, Cervo’s and Eel Bar, the new Zig Zag Oyster Bar is a warm and welcome presence in Prospect Heights.`\
+https://www.nytimes.com/2026/11/03/dining/restaurant-review-zig-zag-oyster-bar-nyc.html
+
+**West Bank Property Sales Tactics Face a Challenge in Canada**\
+`The marketing practices of some firms promoting property in the Israeli-occupied territory to foreign purchasers are deceptive, a recent filing claims.`\
+https://www.nytimes.com/2026/11/03/world/canada/canada-west-bank-lawsuit.html
+
+**Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
+`Officials said problems in New York, Georgia, Florida and other places were unfortunate but not unusual. Conspiracists seized on them anyway.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+
 **Midterm Suspense**\
 `Voters in the U.S. are deciding who will control Congress. The election is also seen as a referendum on Trump’s presidency.`\
 https://www.nytimes.com/2026/11/03/world/us-midterms-trump-iran-ukraine.html
