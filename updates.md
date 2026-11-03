@@ -1,3 +1,7 @@
+**Everest Helicopter Crash Kills One and Injures Three Others**\
+`Two helicopters collided near a Mount Everest base camp on Tuesday while trying to land, killing one tourist and injuring another, along with two pilots.`\
+https://www.nytimes.com/video/world/asia/100000011258330/mount-everest-helicopter-crash.html
+
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump

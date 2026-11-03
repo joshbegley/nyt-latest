@@ -1,3 +1,7 @@
+**Helicopters Collide Over Everest Trail, Killing 1 and Injuring 3 Others**\
+`The crash, in a popular tourist area during the autumn climbing season, highlighted the safety challenges posed by growing numbers of aircraft in the Himalayas.`\
+https://www.nytimes.com/2026/11/03/world/asia/helicopter-crash-everest-nepal.html
+
 **Everest Helicopter Crash Kills One and Injures Three Others**\
 `Two helicopters collided near a Mount Everest base camp on Tuesday while trying to land, killing one tourist and injuring another, along with two pilots.`\
 https://www.nytimes.com/video/world/asia/100000011258330/mount-everest-helicopter-crash.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-
 **Poland Beefs Up Security at Border With Russia**\
 `Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
 https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
-
-**Maine U.S. Senate 2026: Live Midterm Election Results, Collins vs. Jackson**\
-`Get live results and maps from the 2026 Maine general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
 
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\

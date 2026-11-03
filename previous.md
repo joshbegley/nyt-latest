@@ -1,3 +1,7 @@
+**Everest Helicopter Crash Kills One and Injures Three Others**\
+`Two helicopters collided near a Mount Everest base camp on Tuesday while trying to land, killing one tourist and injuring another, along with two pilots.`\
+https://www.nytimes.com/video/world/asia/100000011258330/mount-everest-helicopter-crash.html
+
 **America Votes**\
 `Your guide to election night, and more big stories at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
 **Maine U.S. Senate 2026: Live Midterm Election Results, Collins vs. Jackson**\
 `Get live results and maps from the 2026 Maine general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
-
-**Is Sysco Making Every Restaurant the Same, or Saving Small Business Owners?**\
-`Depending on whom you ask, the giant food distributor is flattening the way we eat, or helping small business owners survive. Maybe both are true?`\
-https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owners.html
 
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\
