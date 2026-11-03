@@ -1,3 +1,11 @@
+**Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
+`Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html
+
+**Paris Jackson Asks Father’s Estate to Fund $600M to Family Trust**\
+`A representative for Michael Jackson’s daughter accused the executors of her father’s estate of incompetence, financial mismanagement and delays in distributing his wealth to his children.`\
+https://www.nytimes.com/2026/11/03/arts/paris-jackson-michael-jackson-estate.html
+
 **‘Waiting for Lefty’ Review: Protest Songs in the Key of Life**\
 `The music of the folk duo Yeller Tooth gives Classic Stage Company’s revival of this dated Clifford Odets play a refreshing heart.`\
 https://www.nytimes.com/2026/11/03/theater/waiting-for-lefty-review-odets-pasquale.html

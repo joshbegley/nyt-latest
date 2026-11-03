@@ -1,3 +1,7 @@
+**More Iranians Call for Nuclear Weapons After War With U.S.**\
+`Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
+https://www.nytimes.com/2026/11/03/world/europe/on-cusp-of-renewed-war-more-iranians-are-calling-for-nuclear-weapons.html
+
 **Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
 `Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/03/world/europe/komyshuvakha-zaporizhzhia-attack
 **Trump Says U.S. to End $4 Billion in Aid to Israel at End of Year**\
 `The president’s announcement on Election Day, which he said was part of an agreement reached months ago, was a sign of how quickly the politics surrounding Israel have shifted.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
-
-**Eric Dane of ‘Grey’s Anatomy’ Highlights His Struggle With A.L.S. in Memoir**\
-`The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
-https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
