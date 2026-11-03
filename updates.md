@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+`The elections, which cap a contentious campaign season, will offer the first nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
 `The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
 https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
