@@ -1,3 +1,7 @@
+**Jimmy Kimmel Mocks the President’s ‘Pettysburg Address’**\
+`“And where better to reassure the public that they are in good hands than in front of a pool you’ve repeatedly botched to the tune of $16 million?” Kimmel said of Trump’s speech before the midterms.`\
+https://www.nytimes.com/2026/11/03/arts/television/jimmy-kimmel-trump-midterms.html
+
 **Are Freezers Being Hacked? Europe and the U.S. Military Investigate.**\
 `A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
 https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
