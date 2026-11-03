@@ -1,3 +1,19 @@
+**The On Politics Guide to Election Night**\
+`How to watch tonight’s results, according to our reporters and editors.`\
+https://www.nytimes.com/2026/11/03/us/politics/the-on-politics-guide-to-election-night.html
+
+**Drone Boat Maker Saildrone Wins Protest Over Navy Contract**\
+`A federal judge’s ruling on the side of the small defense contractor was a rarity, as most company protests against government bidding decisions do not prevail.`\
+https://www.nytimes.com/2026/11/03/us/politics/drone-boat-maker-navy-protest.html
+
+**Authorities Capture Convicted Murderer After Weeklong Escape**\
+`Jacob Allen Morley, who was serving a life sentence for murder, was captured on Tuesday in Missouri, according to the authorities. He escaped from a Tennessee prison on Oct. 26.`\
+https://www.nytimes.com/video/us/100000011259078/tennessee-convicted-murder-escape-capture.html
+
+**Georgia G.O.P. Chair Predicts a ‘Fair’ Election in the State**\
+`Josh McKoon, a Trump ally who helped advance Republican efforts to change election rules after a bitter 2020 count, said, “I think everybody’s going to respect the outcome.”`\
+https://www.nytimes.com/2026/11/03/us/georgia-republican-chair-fair-election.html
+
 **‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
 `Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
 https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
