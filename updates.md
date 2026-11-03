@@ -1,3 +1,15 @@
+**What Judges Have Said About the Trump Administration’s Election-Related Lawsuits**\
+`The administration has ramped up its efforts in the courts to push claims of voter fraud but has been rejected by judges at all levels.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-administration-midterm-election-lawsuits.html
+
+**The Sublime Songs of Jimmy Webb**\
+`Hear “Wichita Lineman,” “MacArthur Park,” “P.F. Sloan” and more of the songwriter’s greatest works.`\
+https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-songs.html
+
+**Maine U.S. Senate 2026: Live Midterm Election Results, Collins vs. Jackson**\
+`Get live results and maps from the 2026 Maine general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
+
 **Here Are the 11 Senate races to Watch on Election Day**\
 `Control of the chamber is on the ballot on Election Day.`\
 https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html

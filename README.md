@@ -1,3 +1,7 @@
+**The Election Day Edition**\
+`In the 2022 midterms, Democrats made global warming an issue. Things have changed.`\
+https://www.nytimes.com/2026/11/03/climate/climate-midterm-elections.html
+
 **What Judges Have Said About the Trump Administration’s Election-Related Lawsuits**\
 `The administration has ramped up its efforts in the courts to push claims of voter fraud but has been rejected by judges at all levels.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-administration-midterm-election-lawsuits.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee.ht
 **South Carolina 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Carolina general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina.html
-
-**Texas 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
