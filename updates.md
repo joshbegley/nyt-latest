@@ -1,3 +1,7 @@
+**Midterm Suspense**\
+`Voters in the U.S. are deciding who will control Congress. The election is also seen as a referendum on Trump’s presidency.`\
+https://www.nytimes.com/2026/11/03/world/us-midterms-trump-iran-ukraine.html
+
 **Chris Murphy, Recovering From a Stroke, Remains Hospitalized on Election Day**\
 `The Democratic senator from Connecticut, who is 53, began experiencing symptoms while attending his son’s hockey game on Saturday, his office said.`\
 https://www.nytimes.com/2026/11/03/us/chris-murphy-stroke-hospitalization.html
