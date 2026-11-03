@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/11/03/us/politics/supreme-court-colorado-catholic-s
 `There used to be an honorable way to try to profit from online infamy: selling nearly worthless memecoins. The machines could take it over.`\
 https://www.nytimes.com/2026/11/03/magazine/memecoins-micropayments-ai.html
 
-**When to Expect Results on Election Day**\
-`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
-https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
-
 **Restaurant Review: Graciela in New York**\
 `Graciela channels that country’s distinctive style, steeped in a deep appreciation of beef and skilled in the art of the grill.`\
 https://www.nytimes.com/2026/11/03/dining/restaurant-review-graciela-steakhouse-nyc.html
+
+**When to Expect Results on Election Day**\
+`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
+https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
 
 **His Business Was Tough. Diesel Prices Made It Impossible.**\
 `For small trucking firms operating with little margin for error, high fuel costs can make the difference between survival and bankruptcy.`\
