@@ -1,3 +1,7 @@
+**King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
+`King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
+https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth.html
+
 **Voting Problems Cause a Surge in Misleading Fraud Claims Online**\
 `Mentions of “cheat,” “steal,” “rig” and similar terms spiked on X this morning as voting began.`\
 https://www.nytimes.com/2026/11/03/technology/midterm-elections-voter-fraud-claims.html
