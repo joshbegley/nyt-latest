@@ -1,3 +1,7 @@
+**Australian Court Hears Challenge to Social Media Ban**\
+`Reddit and an Australian digital advocacy group are claiming a law that restricts children younger than 16 from popular platforms infringes on their constitutional rights.`\
+https://www.nytimes.com/2026/11/03/world/asia/australia-social-media-ban-high-court.html
+
 **15-Minute Lesson Plan: Secret Schools for Afghan Girls**\
 `What is it like to risk your freedom to go to school?`\
 https://www.nytimes.com/2026/11/03/learning/15-minute-lesson-plan-secret-schools-for-afghan-girls.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/cisa-election-security-midterms.h
 **Mystery Group Spends Millions to Boost Third-Party Candidates at Republicans’ Expense**\
 `A super PAC called Our Heritage Matters, which was registered less than a month ago, has spent $6.5 million in the last days of campaigning to promote obscure candidates over Republicans it portrays as liberals.`\
 https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.html
-
-**A 31,000-Mile Walk Ends in England, at Mom’s House**\
-`Karl Bushby arrived in Hull, England, on Monday after spending 28 years crossing four continents on foot.`\
-https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-england.html
 
 **Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\

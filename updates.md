@@ -1,3 +1,7 @@
+**Australian Court Hears Challenge to Social Media Ban**\
+`Reddit and an Australian digital advocacy group are claiming a law that restricts children younger than 16 from popular platforms infringes on their constitutional rights.`\
+https://www.nytimes.com/2026/11/03/world/asia/australia-social-media-ban-high-court.html
+
 **15-Minute Lesson Plan: Secret Schools for Afghan Girls**\
 `What is it like to risk your freedom to go to school?`\
 https://www.nytimes.com/2026/11/03/learning/15-minute-lesson-plan-secret-schools-for-afghan-girls.html
