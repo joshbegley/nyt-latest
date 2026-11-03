@@ -1,3 +1,7 @@
+**Israeli Claims of Iranian Chemical Weapons Divide U.S. Officials**\
+`Some administration officials suggested Prime Minister Benjamin Netanyahu is trying to draw President Trump back into military action.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-united-states-trump.html
+
 **King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
 `King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth-apology.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-missouri.htm
 **New York 2026: Live Election Results**\
 `Get live results and maps from the 2026 New York general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-york.html
-
-**New Jersey 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Jersey general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-jersey.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
