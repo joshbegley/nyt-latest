@@ -1,3 +1,7 @@
+**Chris Murphy, Recovering From a Stroke, Remains Hospitalized on Election Day**\
+`The Democratic senator from Connecticut, who is 53, began experiencing symptoms while attending his son’s hockey game on Saturday, his office said.`\
+https://www.nytimes.com/2026/11/03/us/chris-murphy-stroke-hospitalization.html
+
 **The New York Times Needle 2026: Senate and House Live Forecast**\
 `Follow real-time estimates of the outcome of the 2026 midterm elections from The New York Times.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-needle-senate-house-forecast.html
@@ -173,14 +177,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-utah.html
 **Washington, D.C. 2026: Live Election Results**\
 `Get live results and maps from the 2026 Washington, D.C. general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-washington-dc.html
-
-**Washington 2026: Live Election Results**\
-`Get live results and maps from the 2026 Washington elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-washington.html
-
-**Wisconsin 2026: Live Election Results**\
-`Get live results and maps from the 2026 Wisconsin general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wisconsin.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
