@@ -1,3 +1,11 @@
+**Trump Makes Last Pitch to Voters on Election Day**\
+`As Americans went to the polls for an election widely seen as a referendum on his second term, President Trump again downplayed concerns over the cost of living and addressed unpopular foreign policy matters.`\
+https://www.nytimes.com/2026/11/03/us/trump-midterms-voters-election-day.html
+
+**Trump Says U.S. to End $4 Billion in Aid to Israel at End of Year**\
+`The president’s announcement on Election Day, which he said was part of an agreement reached months ago, was a sign of how quickly the politics surrounding Israel have shifted.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
+
 **Bomb Threats Disrupt Several Flights Across Europe**\
 `Officials are investigating threats against at least seven planes. The aircraft landed safely and no explosives were found, the authorities said.`\
 https://www.nytimes.com/2026/11/03/world/europe/bomb-threats-europe-flights-planes.html
