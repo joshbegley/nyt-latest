@@ -1,3 +1,7 @@
+**Willie Nelson’s Wife, Annie D’Angelo, on Their Life Together**\
+`For almost 40 years, Annie D’Angelo has kept Nelson, her husband, going. She is ready to step into the spotlight herself.`\
+https://www.nytimes.com/2026/11/03/style/willie-nelson-annie-dangelo-wife-last-leaf.html
+
 **Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
 `The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-caroli
 **North Dakota 2026: Live Election Results**\
 `Get live results and maps from the 2026 North Dakota elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-dakota.html
-
-**New Hampshire 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Hampshire general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-hampshire.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\

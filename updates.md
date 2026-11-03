@@ -1,3 +1,15 @@
+**Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
+`The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
+
+**She Wrote the Book on Prada**\
+`How the 1990s turned a little family label into a megabrand.`\
+https://www.nytimes.com/2026/11/03/style/prada-in-the-nineties-book.html
+
+**Israeli Claims of Iranian Chemical Weapons Divide U.S. Officials**\
+`Some administration officials suggested Prime Minister Benjamin Netanyahu is trying to draw President Trump back into military action.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-trump.html
+
 **OpenAI and Anthropic Set Up ‘War Rooms’ to Fight Disinfo About Midterm Elections**\
 `OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
 https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html

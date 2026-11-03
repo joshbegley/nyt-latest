@@ -1,3 +1,11 @@
+**Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
+`The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
+
+**She Wrote the Book on Prada**\
+`How the 1990s turned a little family label into a megabrand.`\
+https://www.nytimes.com/2026/11/03/style/prada-in-the-nineties-book.html
+
 **OpenAI and Anthropic Set Up ‘War Rooms’ to Fight Disinfo About Midterm Elections**\
 `OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
 https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
@@ -8,7 +16,7 @@ https://www.nytimes.com/2026/11/03/opinion/criminal-charges-children.html
 
 **Israeli Claims of Iranian Chemical Weapons Divide U.S. Officials**\
 `Some administration officials suggested Prime Minister Benjamin Netanyahu is trying to draw President Trump back into military action.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-united-states-trump.html
+https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-trump.html
 
 **King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
 `King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-dakota
 **New Hampshire 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-hampshire.html
-
-**Montana 2026: Live Election Results**\
-`Get live results and maps from the 2026 Montana general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-montana.html
-
-**New Mexico 2026: Live Election Results**\
-`Get live results and maps from the 2026 New Mexico elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-mexico.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
