@@ -1,3 +1,7 @@
+**What You Can and Can’t Do at Polling Places**\
+`Election laws are largely determined by the states, making it important to check local rules.`\
+https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
+
 **Election Day Could Be a Rainy One in Some Areas**\
 `Researchers have found that bad weather can deter certain voters.`\
 https://www.nytimes.com/2026/11/03/us/politics/election-day-weather-storms.html
@@ -74,13 +78,13 @@ https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.h
 `Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
 https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
 
-**How We Model Election Results With the Needle**\
-`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
-https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
-
 **A Guide to What We’ll Know on Election Night, Hour by Hour**\
 `“Mirages,” midnight swings and long counts: The Needle can cut through the noise.`\
 https://www.nytimes.com/2026/11/03/upshot/poll-closing-times-midterm-elections.html
+
+**How We Model Election Results With the Needle**\
+`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
+https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
 
 **In Niagara, Even Grass May Be Radioactive**\
 `A reporter who visited at least six “red hot” radiation zones discusses where the contamination came from.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/opinion/school-choice-education.html
 **What Causes Dandruff?**\
 `Experts are still working to understand it. Here’s what they want you to know.`\
 https://www.nytimes.com/2026/11/03/well/health-dandruff-skin-diseases.html
-
-**Book Review: ‘Sweet Pea,’ by Kit de Waal**\
-`The heroine of Kit de Waal’s “Sweet Pea” can’t quite pull her new life together.`\
-https://www.nytimes.com/2026/11/03/books/review/kit-de-waal-sweet-pea.html
 

@@ -1,3 +1,7 @@
+**What You Can and Can’t Do at Polling Places**\
+`Election laws are largely determined by the states, making it important to check local rules.`\
+https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
+
 **Election Day Could Be a Rainy One in Some Areas**\
 `Researchers have found that bad weather can deter certain voters.`\
 https://www.nytimes.com/2026/11/03/us/politics/election-day-weather-storms.html
