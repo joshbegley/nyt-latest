@@ -1,3 +1,11 @@
+**It’s Election Day in New York. Here’s What to Know.**\
+`Statewide races for governor, attorney general and comptroller occupy the top of the ticket, but Democratic leaders are focused on two House seats they hope to flip.`\
+https://www.nytimes.com/2026/11/03/nyregion/election-day-guide-ny.html
+
+**NYT Spelling Bee Answers for November 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/03/crosswords/spelling-bee-forum.html
+
 **Saudi Aramco Profit Jumps Despite Damaging Attacks on Pipelines and Refineries**\
 `Saudi Arabia’s state-owned oil company posted a 9 percent increase in third-quarter profit on Tuesday.`\
 https://www.nytimes.com/2026/11/03/business/saudi-aramco-q3-earnings.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukra
 **Are Freezers Being Hacked? Europe and the U.S. Military Investigate.**\
 `A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
 https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
-
-**William Nordhaus Pioneered Putting a Price on Pollution**\
-`Economist William Nordhaus said putting a price on pollution was the best way to reduce climate change. Then came the fossil fuel lobby and the anti-tax movement.`\
-https://www.nytimes.com/2026/11/02/climate/william-nordhaus-carbon-tax-american-business.html
-
-**The Local: Minnesota election watch**\
-`Also, takeout to nervously nosh on while you wait.`\
-https://www.nytimes.com/2026/11/02/briefing/minnesota-election-watch.html
 
 **Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
