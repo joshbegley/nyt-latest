@@ -1,3 +1,7 @@
+**Trump Says U.S. to End $4 Billion in Aid to Israel in Favor of New Deal**\
+`The president’s announcement on Election Day, which he said was part of an agreement reached months ago, was a sign of how quickly the politics surrounding Israel have shifted.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
+
 **Eric Dane of ‘Grey’s Anatomy’ Highlights His Struggle With A.L.S. in Memoir**\
 `The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
 https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-connecticut.
 **Colorado 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
-
-**Florida 2026: Live Election Results**\
-`Get live results and maps from the 2026 Florida elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-florida.html
 
