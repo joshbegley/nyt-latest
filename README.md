@@ -1,3 +1,7 @@
+**Supermarkets Across Europe Possibly Targeted in Cyberattack**\
+`Freezers at grocery stores in at least seven European countries have malfunctioned, blowing hot air and spoiling refrigerated products.`\
+https://www.nytimes.com/video/world/europe/100000011256693/supermarket-europe-freezer-cyber-attack.html
+
 **It’s Election Day in New York. Here’s What to Know.**\
 `Statewide races for governor, attorney general and comptroller occupy the top of the ticket, but Democratic leaders are focused on two House seats they hope to flip.`\
 https://www.nytimes.com/2026/11/03/nyregion/election-day-guide-ny.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-engl
 **Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
 `The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
 https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
-
-**Are Freezers Being Hacked? Europe and the U.S. Military Investigate.**\
-`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
-https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
 
 **Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
