@@ -1,3 +1,7 @@
+**From the Front Page: Panama Declares Independence on Nov. 3, 1903**\
+`Panama separated from Colombia, setting the stage for a treaty that gave the United States rights to build the Panama Canal.`\
+https://www.nytimes.com/2026/11/03/learning/from-the-front-page-panama-declares-independence-on-nov-3-1903.html
+
 **U.S. Military Strikes Iran’s Qeshm Island in What U.S. Officials Call a Defensive Measure**\
 `The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/world/africa/trump-south-africa-trade-program
 **Trial Begins for M.L.B. Players Accused of Tipping Pitches to Gamblers**\
 `The trial will mark one of the first tests of the Justice Department’s ambitious efforts to crack down on manipulation in sports betting and prediction markets.`\
 https://www.nytimes.com/2026/11/02/nyregion/cleveland-guardians-gambling-trial.html
-
-**Democrats Gain Momentum in Florida Governor’s Race, Worrying DeSantis and Republicans**\
-`Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
-https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
