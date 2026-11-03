@@ -1,3 +1,11 @@
+**Maine U.S. Senate 2026: Live Election Results, Collins vs. Jackson**\
+`Get live results and maps from the 2026 Maine general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
+
+**Is Sysco Making Every Restaurant the Same, or Saving Small Business Owners?**\
+`Depending on whom you ask, the giant food distributor is flattening the way we eat, or helping small business owners survive. Maybe both are true?`\
+https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owners.html
+
 **The Best Movies and TV Shows Coming to Netflix in November**\
 `A crypto-crash docudrama and a supernatural teen horror series are among this month’s highlights.`\
 https://www.nytimes.com/2026/11/03/arts/television/netflix-new-november.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.htm
 **Nevada 2026: Live Election Results**\
 `Get live results and maps from the 2026 Nevada elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nevada.html
-
-**Mississippi 2026: Live Election Results**\
-`Get live results and maps from the 2026 Mississippi elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-mississippi.html
-
-**Louisiana 2026: Live Election Results**\
-`Get live results and maps from the 2026 Louisiana elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-louisiana.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
