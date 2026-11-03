@@ -1,3 +1,7 @@
+**Election Day Could Be a Rainy One in Some Areas**\
+`Researchers have found that bad weather can deter certain voters.`\
+https://www.nytimes.com/2026/11/03/us/politics/election-day-weather-storms.html
+
 **How to Follow The New York Times’s 2026 Midterm Election Results and Coverage**\
 `Here’s how to follow our news coverage, with real-time results, visuals and analysis from more than 400 journalists.`\
 https://www.nytimes.com/2026/11/03/us/politics/how-to-watch-midterm-election-results.html
