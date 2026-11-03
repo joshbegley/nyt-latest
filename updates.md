@@ -1,3 +1,11 @@
+**It’s Election Day in New York. Here’s What to Know.**\
+`Statewide races for governor, attorney general and comptroller occupy the top of the ticket, but Democratic leaders are focused on two House seats they hope to flip.`\
+https://www.nytimes.com/2026/11/03/nyregion/election-day-guide-ny.html
+
+**NYT Spelling Bee Answers for November 3, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/03/crosswords/spelling-bee-forum.html
+
 **Saudi Aramco Profit Jumps Despite Damaging Attacks on Pipelines and Refineries**\
 `Saudi Arabia’s state-owned oil company posted a 9 percent increase in third-quarter profit on Tuesday.`\
 https://www.nytimes.com/2026/11/03/business/saudi-aramco-q3-earnings.html
