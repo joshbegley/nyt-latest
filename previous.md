@@ -40,7 +40,7 @@ https://www.nytimes.com/2026/11/03/books/ryu-murakami-dead.html
 
 **More Iranians Call for Nuclear Weapons After War With U.S.**\
 `Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
-https://www.nytimes.com/2026/11/03/world/europe/on-cusp-of-renewed-war-more-iranians-are-calling-for-nuclear-weapons.html
+https://www.nytimes.com/2026/11/03/world/europe/iran-nuclear-weapons-war.html
 
 **Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
 `Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\

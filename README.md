@@ -1,3 +1,15 @@
+**America Votes**\
+`Your guide to election night, and more big stories at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.html
+
+**A Return to Atlanta Trap Literalism**\
+`Rapper Belly Gang Kushington is reviving the Atlanta trap literalism of two decades ago on “WTF GOIN” featuring 21 Savage, an update of the mid-2000s Shawty Lo and DG Yola song “Let’s Get It.” Our critic Jon Caramanica breaks down how the track broke onto the charts in an era dominated by psychedelic rap.`\
+https://www.nytimes.com/video/podcasts/100000011259458/a-return-to-atlanta-trap-literalism.html
+
+**What Went Wrong With Ballot Scanners In a Crucial Westchester District?**\
+`In Westchester County, north of New York City, the scanners were not working, creating a delay in counting election results.`\
+https://www.nytimes.com/2026/11/03/nyregion/midterms-westchester-voting-issues.html
+
 **In San Francisco, Voters Cast Ballots at Hair Salons and Among the Dead**\
 `The city prides itself on offering hundreds of polling places, and that means voting in eclectic locations.`\
 https://www.nytimes.com/2026/11/03/us/san-francisco-polling-places-midterms-election.html
@@ -157,10 +169,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-sen
 **Is Sysco Making Every Restaurant the Same, or Saving Small Business Owners?**\
 `Depending on whom you ask, the giant food distributor is flattening the way we eat, or helping small business owners survive. Maybe both are true?`\
 https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owners.html
-
-**The Best Movies and TV Shows Coming to Netflix in November**\
-`A crypto-crash docudrama and a supernatural teen horror series are among this month’s highlights.`\
-https://www.nytimes.com/2026/11/03/arts/television/netflix-new-november.html
 
 **Midterm Elections Live Updates: Voting Enters Final Hours in Fight for Control of Congress**\
 `(No description)`\

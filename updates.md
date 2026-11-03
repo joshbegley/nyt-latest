@@ -1,3 +1,7 @@
+**More Iranians Call for Nuclear Weapons After War With U.S.**\
+`Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
+https://www.nytimes.com/2026/11/03/world/europe/iran-nuclear-weapons-war.html
+
 **In San Francisco, Voters Cast Ballots at Hair Salons and Among the Dead**\
 `The city prides itself on offering hundreds of polling places, and that means voting in eclectic locations.`\
 https://www.nytimes.com/2026/11/03/us/san-francisco-polling-places-midterms-election.html
