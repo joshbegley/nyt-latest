@@ -1,3 +1,7 @@
+**Lawyers Spar Over Trump’s Executive Privilege in Kennedy Center Case**\
+`The administration is withholding communications sought by a Democratic lawmaker who is suing over the president’s management of the arts venue.`\
+https://www.nytimes.com/2026/11/03/arts/trump-kennedy-center-executive-privilege.html
+
 **Afghan Woman Is Among Dozens to Be Deported to Afghanistan**\
 `The Trump administration has arranged a flight to send dozens of Afghan immigrants back to Afghanistan, despite the risk of persecution by the Taliban.`\
 https://www.nytimes.com/2026/11/03/world/asia/afghan-deportation-flight.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-virginia.htm
 **West Virginia 2026: Live Election Results**\
 `Get live results and maps from the 2026 West Virginia elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-west-virginia.html
-
-**South Dakota 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Dakota general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-dakota.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
