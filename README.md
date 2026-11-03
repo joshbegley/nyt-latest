@@ -1,3 +1,7 @@
+**What Judges Have Said About the Trump Administration’s Election-Related Lawsuits**\
+`The administration has ramped up its efforts in the courts to push claims of voter fraud but has been rejected by judges at all levels.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-administration-midterm-election-lawsuits.html
+
 **The Sublime Songs of Jimmy Webb**\
 `Hear “Wichita Lineman,” “MacArthur Park,” “P.F. Sloan” and more of the songwriter’s greatest works.`\
 https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-songs.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-caroli
 **Texas 2026: Live Election Results**\
 `Get live results and maps from the 2026 Texas elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas.html
-
-**Oregon 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oregon general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oregon.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
