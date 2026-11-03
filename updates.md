@@ -1,3 +1,15 @@
+**Election Day Turnout Is High Across Battleground States**\
+`A midterm campaign marked by high engagement showed no signs of slowing on Election Day, though it was unclear whether either party had an advantage.`\
+https://www.nytimes.com/2026/11/03/us/election-day-turnout-battleground-states.html
+
+**Ryū Murakami, Writer Who Explored Japan’s Dark Side, Dies at 74**\
+`His books about sex, drugs and social misfits amid the country’s economic boom — and subsequent bust — sold millions of copies.`\
+https://www.nytimes.com/2026/11/03/books/ryu-murakami-dead.html
+
+**More Iranians Call for Nuclear Weapons After War With U.S.**\
+`Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
+https://www.nytimes.com/2026/11/03/world/europe/on-cusp-of-renewed-war-more-iranians-are-calling-for-nuclear-weapons.html
+
 **Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
 `Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html

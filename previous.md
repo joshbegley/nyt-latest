@@ -1,3 +1,15 @@
+**Election Day Turnout Is High Across Battleground States**\
+`A midterm campaign marked by high engagement showed no signs of slowing on Election Day, though it was unclear whether either party had an advantage.`\
+https://www.nytimes.com/2026/11/03/us/election-day-turnout-battleground-states.html
+
+**Ryū Murakami, Writer Who Explored Japan’s Dark Side, Dies at 74**\
+`His books about sex, drugs and social misfits amid the country’s economic boom — and subsequent bust — sold millions of copies.`\
+https://www.nytimes.com/2026/11/03/books/ryu-murakami-dead.html
+
+**More Iranians Call for Nuclear Weapons After War With U.S.**\
+`Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
+https://www.nytimes.com/2026/11/03/world/europe/on-cusp-of-renewed-war-more-iranians-are-calling-for-nuclear-weapons.html
+
 **Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
 `Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
 https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html
@@ -153,22 +165,6 @@ https://www.nytimes.com/2026/11/03/arts/dance/bijayini-satpathy-third-gender-mah
 **‘Something Is Changing With Trump’**\
 `An already dangerously erratic president is veering deeper and deeper into what amounts to hallucination.`\
 https://www.nytimes.com/2026/11/03/opinion/trump-backsides-language-rallies.html
-
-**Binance Says Hackers Plotted $6.3 Billion Crypto Heist for Months**\
-`A report from the cryptocurrency exchange described a monthslong campaign involving fake job interviews that exploited an engineer’s work computer and an internal A.I. tool.`\
-https://www.nytimes.com/2026/11/03/technology/binance-hack-report.html
-
-**Strike on Ukraine Humanitarian Hub Is Feared to Be Among War’s Deadliest**\
-`Hours after the Russian attack, which killed at least 31 and left dozens missing, the United States said that peace talks with the two countries would resume after nine months.`\
-https://www.nytimes.com/2026/11/03/world/europe/komyshuvakha-zaporizhzhia-attack-ukraine.html
-
-**Trump Says U.S. to End $4 Billion in Aid to Israel at End of Year**\
-`The president’s announcement on Election Day, which he said was part of an agreement reached months ago, was a sign of how quickly the politics surrounding Israel have shifted.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
-
-**Eric Dane of ‘Grey’s Anatomy’ Highlights His Struggle With A.L.S. in Memoir**\
-`The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
-https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
