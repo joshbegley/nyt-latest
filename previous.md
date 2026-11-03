@@ -195,6 +195,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-massachusett
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-minnesota.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
-`(No description)`\
+`The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

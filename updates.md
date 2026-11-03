@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+`The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **The Best Movies and TV Shows Coming to Netflix in November**\
 `A crypto-crash docudrama and a supernatural teen horror series are among this month’s highlights.`\
 https://www.nytimes.com/2026/11/03/arts/television/netflix-new-november.html
