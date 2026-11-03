@@ -1,3 +1,7 @@
+**Why Trump’s Taiwan Arms Delay Is Dangerous**\
+`China may see Trump’s decision to hold up arms sales to Taiwan as a lasting concession, raising the stakes in a future confrontation over the island.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-taiwan-china.html
+
 **‘Devastating’ Damage as Hard Rains and Flash Floods Batter the Southwest**\
 `Some towns received more rain in a single day than they typically get during all of November, forcing evacuations across the Four Corners region.`\
 https://www.nytimes.com/2026/11/02/weather/southwest-flooding-four-corners.html

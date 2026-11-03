@@ -1,3 +1,7 @@
+**Why Trump’s Taiwan Arms Delay Is Dangerous**\
+`China may see Trump’s decision to hold up arms sales to Taiwan as a lasting concession, raising the stakes in a future confrontation over the island.`\
+https://www.nytimes.com/2026/11/02/opinion/trump-taiwan-china.html
+
 **‘Devastating’ Damage as Hard Rains and Flash Floods Batter the Southwest**\
 `Some towns received more rain in a single day than they typically get during all of November, forcing evacuations across the Four Corners region.`\
 https://www.nytimes.com/2026/11/02/weather/southwest-flooding-four-corners.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merge
 **Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
 `Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
 https://www.nytimes.com/video/world/middleeast/iran-strait-of-hormuz-us-deal.html
-
-**Adventurer Who Walked Across the Globe for 28 Years Returns Home**\
-`Karl Bushby, 57, has returned home to Hull, England, after completing a journey on foot that started in the late 1990s and took him across four continents.`\
-https://www.nytimes.com/video/travel/100000011254461/karl-bushby-walking-around-the-world.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
