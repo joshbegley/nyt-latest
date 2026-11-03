@@ -1,3 +1,7 @@
+**In a Rare Evening of Rachmaninoff Operas, Megalomania and Madness**\
+`A trilogy of the composer’s short works becomes an unsparing portrait of unhinged delusion in a new staging by Dmitri Tcherniakov.`\
+https://www.nytimes.com/2026/11/03/arts/music/rachmaninoff-zurich-opera-house-dmitri-tcherniakov.html
+
 **Wyoming 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wyoming elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wyoming.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
 **Arizona 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arizona elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
-
-**California 2026: Live Election Results**\
-`Get live results and maps from the 2026 California elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california.html
 

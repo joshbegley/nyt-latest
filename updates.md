@@ -1,3 +1,19 @@
+**Arkansas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
+
+**Alaska 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alaska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
+
+**Arizona 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
+
+**California 2026: Live Election Results**\
+`Get live results and maps from the 2026 California elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california.html
+
 **What to Watch in California on Election Day**\
 `Voters are deciding on whether to pass a wealth tax, who will be the state’s next governor and more. Here are five things we’re watching.`\
 https://www.nytimes.com/2026/11/03/us/california-election-governor-la-mayor.html
