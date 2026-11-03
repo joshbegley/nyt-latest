@@ -1,3 +1,7 @@
+**Eric Dane of ‘Grey’s Anatomy’ Highlights His Struggle With A.L.S. in Memoir**\
+`The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
+https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
+
 **Voting Machine Snags Reported at Polling Sites in New York Suburbs**\
 `Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
 https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
