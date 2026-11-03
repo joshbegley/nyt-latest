@@ -1,3 +1,7 @@
+**As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
+`The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U. S. and Iran, as many fear that the fighting will be worse this time around.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
+
 **The Case for a Baseball Salary Cap**\
 `Inside the negotiations for Major League Baseball’s inevitable lockout.`\
 https://www.nytimes.com/2026/11/03/podcasts/the-case-for-a-baseball-salary-cap.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/03/fashion/gifts-embroidery-needlepoint.html
 **Marbled Paper: Gift Wrap With a Distinctive Flair**\
 `In London, Lucy McGrath uses a traditional process to make stationery, ornaments and other items for her Marmor Paperie brand.`\
 https://www.nytimes.com/2026/11/03/fashion/marbled-paper-gift-wrap.html
-
-**Thai Influencers Suggest Men’s Skin Care Gifts**\
-`A good sunscreen and moisturizer are their core recommendations.`\
-https://www.nytimes.com/2026/11/03/fashion/gifts-male-skin-care-thailand.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `The elections, which cap a contentious campaign season, will offer the first nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\

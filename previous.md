@@ -1,3 +1,11 @@
+**The Case for a Baseball Salary Cap**\
+`Inside the negotiations for Major League Baseball’s inevitable lockout.`\
+https://www.nytimes.com/2026/11/03/podcasts/the-case-for-a-baseball-salary-cap.html
+
+**For Midterms Night, a TV Schedule Overflowing With Options**\
+`Viewers will be flooded with options, including 13 straight hours of NBC footage and a continuous livestream of Steve Kornacki and his big board.`\
+https://www.nytimes.com/2026/11/03/business/media/midterm-elections-networks-cable.html
+
 **A Test for Israeli Democracy: Should Jews Ask Arabs to Join the Government?**\
 `Arab lawmakers give opponents of Benjamin Netanyahu a clear majority in the Parliament. But many Jewish lawmakers are trying to avoid relying on them.`\
 https://www.nytimes.com/2026/11/03/world/middleeast/israel-coalition-arab-lawmakers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/03/fashion/gifts-male-skin-care-thailand.html
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `The elections, which cap a contentious campaign season, will offer the first nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
-
-**Pet Portraits, From Embroidery to Artwork**\
-`Want to score points this holiday season? Give someone an image of their favorite companion.`\
-https://www.nytimes.com/2026/11/03/fashion/gifts-pet-portraits-embroidery-art.html
-
-**Playing the Gift-Giving Game**\
-`Board and card games provide myriad options for your holiday lists.`\
-https://www.nytimes.com/2026/11/03/fashion/gifts-games-backgammon-monopoly-mahjong.html
 
