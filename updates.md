@@ -1,3 +1,11 @@
+**Voting Machine Snags Reported at Polling Sites in New York Suburbs**\
+`Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+
+**Ralph Lauren Makes History at the Oscars of American Fashion**\
+`And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
+https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
+
 **The Only Photographer Who Covered the Sharpeville Massacre Has Died**\
 `Ian Berry was there when the police opened fire on peaceful protesters in the South African township. He died at 92.`\
 https://www.nytimes.com/2026/11/03/obituaries/ian-berry-dead.html
