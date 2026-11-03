@@ -1,3 +1,7 @@
+**Saudi Aramco Profit Jumps Despite Damaging Attacks on Pipelines and Refineries**\
+`Saudi Arabia’s state-owned oil company posted a 9 percent increase in third-quarter profit on Tuesday.`\
+https://www.nytimes.com/2026/11/03/business/saudi-aramco-q3-earnings.html
+
 **Jimmy Kimmel Mocks the President’s ‘Pettysburg Address’**\
 `“And where better to reassure the public that they are in good hands than in front of a pool you’ve repeatedly botched to the tune of $16 million?” Kimmel said of Trump’s speech before the midterms.`\
 https://www.nytimes.com/2026/11/03/arts/television/jimmy-kimmel-trump-midterms.html
