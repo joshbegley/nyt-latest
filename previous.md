@@ -1,3 +1,7 @@
+**Voting Machine Snags Reported at Polling Sites in New York Suburbs**\
+`Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+
 **Ralph Lauren Makes History at the Oscars of American Fashion**\
 `And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
 https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-florida.html
 **Delaware 2026: Live Election Results**\
 `Get live results and maps from the 2026 Delaware general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-delaware.html
-
-**Arkansas 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arkansas elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
 

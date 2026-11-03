@@ -1,3 +1,7 @@
+**Voting Machine Snags Reported at Polling Sites in New York Suburbs**\
+`Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+
 **Arkansas 2026: Live Election Results**\
 `Get live results and maps from the 2026 Arkansas elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
