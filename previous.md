@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Secret Schools for Afghan Girls**\
+`What is it like to risk your freedom to go to school?`\
+https://www.nytimes.com/2026/11/03/learning/15-minute-lesson-plan-secret-schools-for-afghan-girls.html
+
 **Supermarkets Across Europe Possibly Targeted in Cyberattack**\
 `Freezers at grocery stores in at least seven European countries have malfunctioned, blowing hot air and spoiling refrigerated products.`\
 https://www.nytimes.com/video/world/europe/100000011256693/supermarket-europe-freezer-cyber-attack.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/midterms-third-party-candidates-super-pac.
 **A 31,000-Mile Walk Ends in England, at Mom’s House**\
 `Karl Bushby arrived in Hull, England, on Monday after spending 28 years crossing four continents on foot.`\
 https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-england.html
-
-**Russian Strike on Ukraine Humanitarian Hub Kills Dozens**\
-`The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
-https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
 
 **Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\

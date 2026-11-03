@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Secret Schools for Afghan Girls**\
+`What is it like to risk your freedom to go to school?`\
+https://www.nytimes.com/2026/11/03/learning/15-minute-lesson-plan-secret-schools-for-afghan-girls.html
+
 **Supermarkets Across Europe Possibly Targeted in Cyberattack**\
 `Freezers at grocery stores in at least seven European countries have malfunctioned, blowing hot air and spoiling refrigerated products.`\
 https://www.nytimes.com/video/world/europe/100000011256693/supermarket-europe-freezer-cyber-attack.html
