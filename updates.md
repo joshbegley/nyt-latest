@@ -1,3 +1,11 @@
+**Google Will Turn Off Search for Schools That Reject A.I.**\
+`Google is making it easier to restrict its A.I. tools for students. But schools that block A.I. entirely will lose student access to Google’s search engine.`\
+https://www.nytimes.com/2026/11/03/us/google-search-schools-restrict-ai.html
+
+**Street Style Look of the Week: Color Blocking in a London Park**\
+`A young artist stacked layer upon layer of color for a recent outing in London, but she still wished she were wearing more.`\
+https://www.nytimes.com/2026/11/03/style/street-style-look-color-blocking.html
+
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump

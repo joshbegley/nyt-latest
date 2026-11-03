@@ -1,3 +1,11 @@
+**Google Will Turn Off Search for Schools That Reject A.I.**\
+`Google is making it easier to restrict its A.I. tools for students. But schools that block A.I. entirely will lose student access to Google’s search engine.`\
+https://www.nytimes.com/2026/11/03/us/google-search-schools-restrict-ai.html
+
+**Street Style Look of the Week: Color Blocking in a London Park**\
+`A young artist stacked layer upon layer of color for a recent outing in London, but she still wished she were wearing more.`\
+https://www.nytimes.com/2026/11/03/style/street-style-look-color-blocking.html
+
 **King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
 `The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
 https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/03/learning/do-young-people-give-up-too-easily-o
 **Health Care Premiums Are Going Up, Again. Here’s What We Can Do Now.**\
 `Reforms that save 1 percent or 2 percent of health care costs quickly add up.`\
 https://www.nytimes.com/2026/11/03/opinion/health/health-care-costs.html
-
-**What to Watch in Michigan**\
-`Republicans see Michigan as a key Senate seat to flip. Our reporter Christine Zhang breaks down the race between Abdul El-Sayed and Mike Rogers.`\
-https://www.nytimes.com/video/us/elections/100000011224064/what-to-watch-in-michigan.html
-
-**What to Watch in Texas**\
-`Could Texas elect its first Democratic Senator in decades? Our election data reporter Christine Zhang tells us what counties to watch in the competitive Texas Senate race.`\
-https://www.nytimes.com/video/us/elections/100000011224046/what-to-watch-in-texas.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `(No description)`\
