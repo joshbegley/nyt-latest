@@ -1,3 +1,27 @@
+**A Guide to Election Night 2026**\
+`Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
+https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
+
+**What to Expect on Election Night, and Trump’s $1 Million Voter Fraud Reward**\
+`Plus, “who’s going to believe me if I’m addicted to a wellness tonic?”`\
+https://www.nytimes.com/2026/11/03/podcasts/the-headlines/midterm-election-trump-voter-fraud-reward.html
+
+**NYT Connections Answers for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/connections-companion-1242.html
+
+**Today’s Wordle Hints for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/wordle-review-1964.html
+
+**NYT Strands Hints for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/strands-sidekick-976.html
+
+**Smarter Ways to Cook Easy One-Pot Dinners**\
+`Our best advice on how to make the most of Dutch ovens, slow cookers and pressure cookers.`\
+https://www.nytimes.com/2026/11/03/podcasts/smarter-ways-to-cook-easy-one-pot-dinners.html
+
 **Why Trump Often Mentioned Iran in the Midterm Campaign**\
 `President Trump has repeatedly reminded Americans of a losing campaign issue just as voters head to the polls. Why?`\
 https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-election-strategy.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/03/us/insuers-nonpayment-arbitration.html
 **Four Bridge Walks Across the Hudson River**\
 `Seeking renewal, a writer took to walking across bridges that span the river, coming away with a new perspective.`\
 https://www.nytimes.com/2026/11/03/travel/hudson-river-bridges-walks.html
-
-**Book Review: ‘West of Loveland,’ by Tom Drury**\
-`Tom Drury’s “West of Loveland” follows the dramas, mysteries and modest routines of a fictional Midwestern county.`\
-https://www.nytimes.com/2026/11/03/books/review/tom-drury-west-of-loveland.html
-
-**In Ireland, Traditional Pottery Persists**\
-`From spongeware-decorated mugs to casserole dishes, Nicholas Mosse Pottery offers gift-giving ideas.`\
-https://www.nytimes.com/2026/11/03/fashion/nicholas-mosse-pottery-ireland.html
-
-**A Sterling Silver Pen With a License to Thrill**\
-`Yard-O-Led, the historic British writing instrument maker, has introduced the first in a series of limited edition tributes to Ian Fleming’s work.`\
-https://www.nytimes.com/2026/11/03/fashion/holiday-gifts-pen-yard-o-led.html
-
-**Give Someone a Gorilla This Holiday Season**\
-`The disruptive watch brand MB&F has created a tabletop gorilla pencil sharpener.`\
-https://www.nytimes.com/2026/11/03/fashion/gift-gorilla-pencil-sharpener-mbf-switzerland.html
-
-**Stitch Up a Present This Holiday Season**\
-`Needlework fans say the popularity of embroidery and needlepoint kits has been growing.`\
-https://www.nytimes.com/2026/11/03/fashion/gifts-embroidery-needlepoint.html
-
-**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
-`The elections, which cap a contentious campaign season, will offer the first nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
