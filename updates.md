@@ -1,3 +1,7 @@
+**Gaming Out the Prospect of a Blue Wave**\
+`Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
+https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
+
 **Five Telltale Signs of a Democratic Blowout**\
 `The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
 https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
