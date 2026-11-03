@@ -1,3 +1,7 @@
+**Runner, 24, Dies During Her First Marathon**\
+`Rachel Apa collapsed in Central Park. The cause was rhabdomyolysis, a rare muscle condition that can be brought on by exertion, her father said.`\
+https://www.nytimes.com/2026/11/02/nyregion/marathon-runner-dies-rachel-apa.html
+
 **NYT Crossword Answers for Nov. 3, 2026**\
 `Victor Schmitt has the last laugh.`\
 https://www.nytimes.com/2026/11/02/crosswords/daily-puzzle-2026-11-03.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
 **Trump Floats Pre-Emptive Pardons for Allies if Democrats Take Congress in Midterms**\
 `“We just have to protect those people,” President Trump said in an interview, when asked about potential investigations of allies and administration officials if Democrats won control of Congress.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-control.html
-
-**Russia Senses Opportunity in Polish Political Turmoil**\
-`After its sometime allies were ousted in elections in Hungary and Serbia, Moscow has seized on Poland’s constitutional standoff in its effort to weaken Europe’s support for Ukraine.`\
-https://www.nytimes.com/2026/11/02/world/europe/russia-polish-political-turmoil.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
