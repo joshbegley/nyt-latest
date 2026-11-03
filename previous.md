@@ -1,3 +1,7 @@
+**Poland Beefs Up Security at Border With Russia**\
+`Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
+https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
+
 **Maine U.S. Senate 2026: Live Election Results, Collins vs. Jackson**\
 `Get live results and maps from the 2026 Maine general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
@@ -182,11 +186,7 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-jersey.h
 `Get live results and maps from the 2026 Nebraska elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.html
 
-**Nevada 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nevada elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nevada.html
-
-**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+**Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

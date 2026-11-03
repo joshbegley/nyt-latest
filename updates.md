@@ -1,3 +1,11 @@
+**Poland Beefs Up Security at Border With Russia**\
+`Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
+https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
+
+**Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
