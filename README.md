@@ -1,3 +1,7 @@
+**Spain’s Transport Minister Resigns After Deadly High-Speed Rail Crash**\
+`Nearly 70 people died in the crash, the second high-speed rail accident in less than a year.`\
+https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-minister-resigns-oscar-puente.html
+
 **How Will the Midterms Play Out? These Races May Provide Early Clues.**\
 `Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
 https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/03/world/europe/bomb-threats-europe-flights-plan
 **U.S. Military Strikes Iran’s Qeshm Island**\
 `Footage from an island in the Strait of Hormuz showed several explosions on Monday. U.S. officials said they conducted small-scale defensive strikes to prevent Iranian attacks. It was the first U.S. attack inside Iran since early September.`\
 https://www.nytimes.com/video/world/middleeast/100000011257374/us-strikes-iran-qeshm-island-trump.html
-
-**House Republicans Accuse Top Psychology Group of Antisemitism**\
-`A monthslong G.O.P. effort culminated in a scathing report about emails and other exchanges within the American Psychological Association.`\
-https://www.nytimes.com/2026/11/03/well/mind/american-psychological-association-antisemitism-congress-house-report.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\

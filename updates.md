@@ -1,3 +1,11 @@
+**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
+`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
+https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
+
+**Fugitive Murder Convict Caught in Missouri After Escape From Tennessee Prison**\
+`Jacob Allen Morley, 28, was found hundreds of miles away, near Kansas City, Mo., after breaching a fence last week at a correctional facility where he was serving a life sentence.`\
+https://www.nytimes.com/2026/11/03/us/tennessee-escaped-jacob-morley-captured.html
+
 **U.S. Assisted Venezuela in Deadly Drone Strike, Officials Say**\
 `The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
 https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
