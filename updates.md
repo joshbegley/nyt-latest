@@ -1,3 +1,7 @@
+**From the Front Page: Panama Declares Independence on Nov. 3, 1903**\
+`Panama separated from Colombia, setting the stage for a treaty that gave the United States rights to build the Panama Canal.`\
+https://www.nytimes.com/2026/11/03/learning/from-the-front-page-panama-declares-independence-on-nov-3-1903.html
+
 **U.S. Military Strikes Iran’s Qeshm Island in What U.S. Officials Call a Defensive Measure**\
 `The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
