@@ -1,3 +1,7 @@
+**It’s Election Day**\
+`And we’re looking at the fight for the Senate.`\
+https://www.nytimes.com/2026/11/03/briefing/its-election-day.html
+
 **A Guide to Election Night 2026**\
 `Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
 https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
