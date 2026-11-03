@@ -1,200 +1,200 @@
-**Google Will Turn Off Search for Schools That Reject A.I.**\
-`Google is making it easier to restrict its A.I. tools for students. But schools that block A.I. entirely will lose student access to Google’s search engine.`\
-https://www.nytimes.com/2026/11/03/us/google-search-schools-restrict-ai.html
+**Colorado 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
 
-**Street Style Look of the Week: Color Blocking in a London Park**\
-`A young artist stacked layer upon layer of color for a recent outing in London, but she still wished she were wearing more.`\
-https://www.nytimes.com/2026/11/03/style/street-style-look-color-blocking.html
+**California 2026: Live Election Results**\
+`Get live results and maps from the 2026 California elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california.html
 
-**King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
-`The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
-https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
+**Arkansas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
 
-**Book Review: ‘Boiling Point,’ by Stephen Kinzer**\
-`In “Boiling Point,” the journalist Stephen Kinzer argues that decades of U.S. intervention brought Moscow and Kyiv into inevitable conflict.`\
-https://www.nytimes.com/2026/11/03/books/review/boiling-point-stephen-kinzer.html
+**Alaska 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alaska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
 
-**Gaming Out the Prospect of a Blue Wave**\
-`Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
-https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
+**Arizona 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
 
-**What You Can and Can’t Do at Polling Places**\
-`Election laws are largely determined by the states, making it important to check local rules.`\
-https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
+**Alabama 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alabama.html
 
-**Election Day Could Be a Rainy One in Some Areas**\
-`Researchers have found that bad weather can deter certain voters.`\
-https://www.nytimes.com/2026/11/03/us/politics/election-day-weather-storms.html
+**Corrections: Oct. 3, 2026**\
+`Corrections that appeared in print on Tuesday, Nov. 3, 2026.`\
+https://www.nytimes.com/2026/11/03/pageoneplus/corrections-oct-3-2026.html
 
-**How to Follow The New York Times’s 2026 Midterm Election Results and Coverage**\
-`Here’s how to follow our news coverage, with real-time results, visuals and analysis from more than 400 journalists.`\
-https://www.nytimes.com/2026/11/03/us/politics/how-to-watch-midterm-election-results.html
+**Colorado Proposition 134 Election Results 2026: Trans Athletes’ Participation in School Sports**\
+`Get live results and maps from the 2026 Colorado general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado-proposition-134-trans-athletes-participation-in-school-sports.html
 
-**It’s Election Day**\
-`And we’re looking at the fight for the Senate.`\
-https://www.nytimes.com/2026/11/03/briefing/its-election-day.html
+**Chicago Question 3 Election Results 2026: Compensation for ICE Operations**\
+`Get live results and maps from the 2026 Illinois general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-3-compensation-for-ice-operations.html
 
-**A Guide to Election Night 2026**\
-`Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
-https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
+**Chicago Question 2 Election Results 2026: Festival and Outdoor Event Space**\
+`Get live results and maps from the 2026 Illinois general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-2-festival-and-outdoor-event-space.html
 
-**What to Expect on Election Night, and Trump’s $1 Million Voter Fraud Reward**\
-`Plus, “who’s going to believe me if I’m addicted to a wellness tonic?”`\
-https://www.nytimes.com/2026/11/03/podcasts/the-headlines/midterm-election-trump-voter-fraud-reward.html
+**California 52nd Congressional District 2026: Live Election Results, Vargas vs. Belle**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-52.html
 
-**NYT Connections Answers for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/connections-companion-1242.html
+**Chicago Question 1 Election Results 2026: Gunshot Detection Technology**\
+`Get live results and maps from the 2026 Illinois general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-1-gunshot-detection-technology.html
 
-**Today’s Wordle Hints for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/wordle-review-1964.html
+**California Eighth Congressional District 2026: Live Election Results, Garamendi vs. Recile**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-8.html
 
-**NYT Strands Hints for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/strands-sidekick-976.html
+**California 51st Congressional District 2026: Live Election Results, Jacobs vs. Cabrera**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-51.html
 
-**Smarter Ways to Cook Easy One-Pot Dinners**\
-`Our best advice on how to make the most of Dutch ovens, slow cookers and pressure cookers.`\
-https://www.nytimes.com/2026/11/03/podcasts/smarter-ways-to-cook-easy-one-pot-dinners.html
+**California Ninth Congressional District 2026: Live Election Results, Harder vs. McBride**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-9.html
 
-**Why Trump Often Mentioned Iran in the Midterm Campaign**\
-`President Trump has repeatedly reminded Americans of a losing campaign issue just as voters head to the polls. Why?`\
-https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-election-strategy.html
+**California 49th Congressional District 2026: Live Election Results, Levin vs. Kurdian**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-49.html
 
-**As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
-`The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U.S. and Iran, as many fear that the fighting will be worse this time around.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
+**California Seventh Congressional District 2026: Live Election Results, Matsui vs. Vang**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-7.html
 
-**The Case for a Baseball Salary Cap**\
-`Inside the negotiations for Major League Baseball’s inevitable lockout.`\
-https://www.nytimes.com/2026/11/03/podcasts/the-case-for-a-baseball-salary-cap.html
+**California Fifth Congressional District 2026: Live Election Results, McClintock vs. Masuda**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-5.html
 
-**For Midterms Night, a TV Schedule Overflowing With Options**\
-`Viewers will be flooded with options, including 13 straight hours of NBC footage and a continuous livestream of Steve Kornacki and his big board.`\
-https://www.nytimes.com/2026/11/03/business/media/midterm-elections-networks-cable.html
+**California 46th Congressional District 2026: Live Election Results, Correa vs. Pan**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-46.html
 
-**A Test for Israeli Democracy: Should Jews Ask Arabs to Join the Government?**\
-`Arab lawmakers give opponents of Benjamin Netanyahu a clear majority in the Parliament. But many Jewish lawmakers are trying to avoid relying on them.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/israel-coalition-arab-lawmakers.html
+**California 42nd Congressional District 2026: Live Election Results, Garcia vs. Burley**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-42.html
 
-**Solve a Special Mahjong Themed Crossword Puzzle**\
-`This puzzle, constructed by Sala Wanetick, puts the game center stage.`\
-https://www.nytimes.com/2026/11/03/crosswords/special-mahjong-crossword.html
+**California 41st Congressional District 2026: Live Election Results, Sanchez vs. Clemmons**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-41.html
 
-**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
-`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
-https://www.nytimes.com/2026/11/03/us/midterm-election-key-house-senate-races.html
+**California 48th Congressional District 2026: Live Election Results, von Wilpert vs. Desmond**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-48.html
 
-**How Obamacare Premiums Changed for 2027**\
-`The monthly price of the lowest-cost bronze plan rose 13 percent for 2027 for people who buy coverage without a subsidy. The increase is largest for older adults.`\
-https://www.nytimes.com/interactive/2026/11/03/upshot/obamacare-premiums-going-up.html
+**California 40th Congressional District 2026: Live Election Results, Calvert vs. Kim**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-40.html
 
-**Why Southwestern Floods Won’t Solve A Water Crisis**\
-`A series of storms has added to reservoirs in the Colorado River basin, but the long-term water outlook remains bleak.`\
-https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.html
+**California Fourth Congressional District 2026: Live Election Results, Thompson vs. Jones**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-4.html
 
-**What a Vote for Abdul El-Sayed Means**\
-`Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
-https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
+**California 43rd Congressional District 2026: Live Election Results, Waters vs. Morales**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-43.html
 
-**A Guide to What We’ll Know on Election Night, Hour by Hour**\
-`“Mirages,” midnight swings and long counts: The Needle can cut through the noise.`\
-https://www.nytimes.com/2026/11/03/upshot/poll-closing-times-midterm-elections.html
+**California First Congressional District 2026: Live Election Results, Gallagher vs. McGuire**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-1.html
 
-**How We Model Election Results With the Needle**\
-`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
-https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
+**California 44th Congressional District 2026: Live Election Results, Barragan vs. Angel**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-44.html
 
-**In Niagara, Even Grass May Be Radioactive**\
-`A reporter who visited at least six “red hot” radiation zones discusses where the contamination came from.`\
-https://www.nytimes.com/2026/11/03/nyregion/in-niagara-even-grass-may-be-radioactive.html
+**California 47th Congressional District 2026: Live Election Results, Min vs. Le Roux**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-47.html
 
-**Celebrating Day of the Dead, High in Mexico’s Mountains**\
-`Over the course of 10 days in a remote Mexican town, dances and processions summon souls in the belief that the dead are never truly gone.`\
-https://www.nytimes.com/2026/11/03/world/americas/mexico-day-of-the-dead-metlatonoc.html
+**California 36th Congressional District 2026: Live Election Results, Lieu vs. Brignano**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-36.html
 
-**Five Telltale Signs of a Democratic Blowout**\
-`The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
-https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
+**California 33rd Congressional District 2026: Live Election Results, Aguilar vs. Vargas**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-33.html
 
-**Drones Emerge as the Top Killer of Civilians in Sudan’s War**\
-`The weapons have become the No. 1 killer of civilians this year, according to the United Nations, devastating a population already overwhelmed by famine and drought.`\
-https://www.nytimes.com/2026/11/03/world/africa/sudan-drone-civilians-nyala.html
+**California 32nd Congressional District 2026: Live Election Results, Sherman vs. Thompson**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-32.html
 
-**Ken Burns: Why I’m Optimistic About the Midterms**\
-`There’s something fundamental at stake in the midterms this year, beyond policy differences.`\
-https://www.nytimes.com/2026/11/03/opinion/midterm-elections-politics-ken-burns.html
+**California 35th Congressional District 2026: Live Election Results, Torres vs. Cargile**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-35.html
 
-**Trump Effort to Prove Rampant Noncitizen Voting Leads to Few Charges So Far**\
-`Just 236 people have been charged with voting-fraud-related offenses by the Trump administration, despite its unsubstantiated claims that fraud is widespread.`\
-https://www.nytimes.com/2026/11/03/us/politics/dhs-noncitizen-voting-midterms.html
+**California 34th Congressional District 2026: Live Election Results, Gomez vs. Gonzales-Torres**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-34.html
 
-**Are the Polls Right About Democrats?**\
-`Nate Cohn, our chief political analyst, explains how polling has fared in the Trump era and whether we should trust this year’s midterm polls that are favorable to Democrats.`\
-https://www.nytimes.com/video/us/elections/100000011242167/are-the-polls-right-about-democrats.html
+**California 31st Congressional District 2026: Live Election Results, Cisneros vs. Ching**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-31.html
 
-**Supreme Court to Hear Catholic Schools’ Challenge to Colorado Aid Rules**\
-`The Supreme Court considers whether Catholic preschools in Colorado that decline to enroll families with gay and transgender parents can participate in a state program.`\
-https://www.nytimes.com/2026/11/03/us/politics/supreme-court-colorado-catholic-schools-discrimination.html
+**California 30th Congressional District 2026: Live Election Results, Friedman vs. Meyers**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-30.html
 
-**Even the Worst Job on the Internet Isn’t Safe From A.I.**\
-`There used to be an honorable way to try to profit from online infamy: selling nearly worthless memecoins. The machines could take it over.`\
-https://www.nytimes.com/2026/11/03/magazine/memecoins-micropayments-ai.html
+**California 39th Congressional District 2026: Live Election Results, Takano vs. Manos**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-39.html
 
-**Restaurant Review: Graciela in New York**\
-`Graciela channels that country’s distinctive style, steeped in a deep appreciation of beef and skilled in the art of the grill.`\
-https://www.nytimes.com/2026/11/03/dining/restaurant-review-graciela-steakhouse-nyc.html
+**California 37th Congressional District 2026: Live Election Results, Kamlager-Dove vs. Mota**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-37.html
 
-**When to Expect Results on Election Day**\
-`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
-https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
+**California 38th Congressional District 2026: Live Election Results, Solis vs. Casas**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-38.html
 
-**His Business Was Tough. Diesel Prices Made It Impossible.**\
-`For small trucking firms operating with little margin for error, high fuel costs can make the difference between survival and bankruptcy.`\
-https://www.nytimes.com/2026/11/03/business/trucking-diesel-prices.html
+**California 25th Congressional District 2026: Live Election Results, Ruiz vs. Males**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-25.html
 
-**6 Themes to Watch for in the Midterms Elections Results**\
-`Republicans are bracing for losses amid a backlash to the president’s economic leadership and the Iran war. Whether that means giving up control of the Senate is Tuesday’s biggest question.`\
-https://www.nytimes.com/2026/11/03/us/midterm-elections-trump-democrats-republicans-key-themes.html
+**California 26th Congressional District 2026: Live Election Results, Irwin vs. Gallucci**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-26.html
 
-**Neanderthals Used Wood for Tools, Housing — and Murder?**\
-`In one case, 75,000-year-old bones reveal what may be the earliest identifiable victim of death by wooden spear.`\
-https://www.nytimes.com/2026/11/03/science/neanderthals-wood-tools.html
+**California 24th Congressional District 2026: Live Election Results, Carbajal vs. Smith**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-24.html
 
-**For Iowa Journalist Laura Belin, Covering Politics Is a Constant Battle**\
-`Laura Belin is an openly liberal journalist in Iowa who has long been shut out by state Republican officials. Now she’s being bypassed by Democrats who favor friendly internet influencers.`\
-https://www.nytimes.com/2026/11/03/business/media/laura-belin-iowa-political-reporter.html
+**California Third Congressional District 2026: Live Election Results, Bera vs. Tucker**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-3.html
 
-**Near Munich, a Simple Space to Live Separately While Staying Connected**\
-`An architect put a contemporary spin on the German tradition of ‘Austragshaus,’ and gave two empty nesters a place to live without leaving their family.`\
-https://www.nytimes.com/2026/11/03/realestate/munich-living-small.html
+**California 27th Congressional District 2026: Live Election Results, Whitesides vs. Gibbs**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-27.html
 
-**What’s at Stake in Today’s Elections**\
-`Though President Trump’s name is not on the ballot, voters are weighing the effects of his agenda in Tuesday’s midterm elections. Lisa Lerer, a national political reporter for The New York Times, describes how three crucial issues are affecting their decisions.`\
-https://www.nytimes.com/video/us/politics/100000011228221/whats-at-stake-in-todays-elections.html
+**California 29th Congressional District 2026: Live Election Results, Rivas vs. Duenas**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-29.html
 
-**Almond-Toed Kitten Heels to Carry You Through Fall**\
-`These wearable low-heeled pumps are sure to add elegance to any outfit.`\
-https://www.nytimes.com/2026/11/03/t-magazine/kitten-heel-shoes.html
+**California 28th Congressional District 2026: Live Election Results, Chu vs. Verlato**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-28.html
 
-**A Conceptual Artist Entwines Her Work With the State**\
-`How Jill Magid made the government her publisher and her artistic collaborator.`\
-https://www.nytimes.com/2026/11/03/arts/design/jill-magid-artist-federal-register-book.html
+**California 22nd Congressional District 2026: Live Election Results, Valadao vs. Villegas**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-22.html
 
-**A Deluge of (Loud, Twangy) Music Puts Twisted Teens on the Map**\
-`Applying lessons from their past as buskers, the duo are releasing their third album of 2026 and winning over influential fans.`\
-https://www.nytimes.com/2026/11/03/arts/music/twisted-teens-band-holy-cross-tigers.html
+**California 21st Congressional District 2026: Live Election Results, Costa vs. Kirkland**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-21.html
 
-**Do Young People Give Up Too Easily? Or Do Older People Valorize Struggle?**\
-`Some college freshmen have left campus just weeks into their first semester, The Times reported. Is this a sign young people are too unwilling to face discomfort?`\
-https://www.nytimes.com/2026/11/03/learning/do-young-people-give-up-too-easily-or-do-older-people-valorize-struggle.html
+**California 19th Congressional District 2026: Live Election Results, Panetta vs. Verbica**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-19.html
 
-**Health Care Premiums Are Going Up, Again. Here’s What We Can Do Now.**\
-`Reforms that save 1 percent or 2 percent of health care costs quickly add up.`\
-https://www.nytimes.com/2026/11/03/opinion/health/health-care-costs.html
+**California 20th Congressional District 2026: Live Election Results, Fong vs. Van Scotter**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-20.html
 
-**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
-`(No description)`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+**California 12th Congressional District 2026: Live Election Results, Simon vs. Joyce**\
+`Get live results and maps from the 2026 California general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-12.html
 
