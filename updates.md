@@ -1,3 +1,31 @@
+**A Guide to Election Night 2026**\
+`Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
+https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
+
+**What to Expect on Election Night, and Trump’s $1 Million Voter Fraud Reward**\
+`Plus, “who’s going to believe me if I’m addicted to a wellness tonic?”`\
+https://www.nytimes.com/2026/11/03/podcasts/the-headlines/midterm-election-trump-voter-fraud-reward.html
+
+**NYT Connections Answers for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/connections-companion-1242.html
+
+**Today’s Wordle Hints for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/wordle-review-1964.html
+
+**NYT Strands Hints for November 4, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/03/crosswords/strands-sidekick-976.html
+
+**Smarter Ways to Cook Easy One-Pot Dinners**\
+`Our best advice on how to make the most of Dutch ovens, slow cookers and pressure cookers.`\
+https://www.nytimes.com/2026/11/03/podcasts/smarter-ways-to-cook-easy-one-pot-dinners.html
+
+**What a Vote for Abdul El-Sayed Means**\
+`Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
+https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
+
 **As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
 `The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U.S. and Iran, as many fear that the fighting will be worse this time around.`\
 https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
