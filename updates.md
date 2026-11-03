@@ -1,3 +1,11 @@
+**U.S. Assisted Venezuela in Deadly Drone Strike, Officials Say**\
+`The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
+https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
+
+**Trump Says He’ll End $4 Billion in Aid to Israel**\
+`President Trump said on Tuesday that the bulk of American aid to Israel would be cut off by the end of year. He said the Election Day announcement was part of a deal reached months ago.`\
+https://www.nytimes.com/video/us/politics/100000011258397/trump-israel-aid-4-billion.html
+
 **Election Day Turnout Is High Across Battleground States**\
 `A midterm campaign marked by high engagement showed no signs of slowing on Election Day, though it was unclear whether either party had an advantage.`\
 https://www.nytimes.com/2026/11/03/us/election-day-turnout-battleground-states.html

@@ -1,3 +1,11 @@
+**U.S. Assisted Venezuela in Deadly Drone Strike, Officials Say**\
+`The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
+https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
+
+**Trump Says He’ll End $4 Billion in Aid to Israel**\
+`President Trump said on Tuesday that the bulk of American aid to Israel would be cut off by the end of year. He said the Election Day announcement was part of a deal reached months ago.`\
+https://www.nytimes.com/video/us/politics/100000011258397/trump-israel-aid-4-billion.html
+
 **Election Day Turnout Is High Across Battleground States**\
 `A midterm campaign marked by high engagement showed no signs of slowing on Election Day, though it was unclear whether either party had an advantage.`\
 https://www.nytimes.com/2026/11/03/us/election-day-turnout-battleground-states.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/11/03/briefing/off-to-the-polls.html
 **Got Frozen Edamame? Make This Chile Crisp Fried Rice.**\
 `It’s a spicy, multitextured meal that comes together in 20 minutes.`\
 https://www.nytimes.com/2026/11/03/dining/got-frozen-edamame-make-this-chile-crisp-fried-rice.html
-
-**How to Embody a Third Sex? The Indian Dancer Bijayini Satpathy Finds a Way.**\
-`In Bijayini Satpathy’s new solo program, she depicts a warrior, a nymph and a character with no gender. After a career “dancing within the codes,” she had to explore.`\
-https://www.nytimes.com/2026/11/03/arts/dance/bijayini-satpathy-third-gender-mahabharata.html
-
-**‘Something Is Changing With Trump’**\
-`An already dangerously erratic president is veering deeper and deeper into what amounts to hallucination.`\
-https://www.nytimes.com/2026/11/03/opinion/trump-backsides-language-rallies.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
