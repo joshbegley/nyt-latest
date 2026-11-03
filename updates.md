@@ -1,3 +1,23 @@
+**Got Frozen Edamame? Make This Chile Crisp Fried Rice.**\
+`It’s a spicy, multitextured meal that comes together in 20 minutes.`\
+https://www.nytimes.com/2026/11/03/dining/got-frozen-edamame-make-this-chile-crisp-fried-rice.html
+
+**How to Embody a Third Sex?A Classical Indian Dancer Finds a Way.**\
+`In Bijayini Satpathy’s new solo program, she depicts a warrior, a nymph and a character with no gender. After a career “dancing within the codes,” she had to explore.`\
+https://www.nytimes.com/2026/11/03/arts/dance/bijayini-satpathy-third-gender-mahabharata.html
+
+**Can Trump Get Any Weirder? He Already Has.**\
+`An already dangerously erratic president is veering deeper and deeper into what amounts to hallucination.`\
+https://www.nytimes.com/2026/11/03/opinion/trump-backsides-language-rallies.html
+
+**Binance Says Hackers Plotted $6.3 Billion Heist for Months**\
+`A report from the cryptocurrency exchange described a monthslong campaign involving fake job interviews that exploited an engineer’s work computer and an internal A.I. tool.`\
+https://www.nytimes.com/2026/11/03/technology/binance-report.html
+
+**Strike on Ukraine Humanitarian Hub Is Feared to Be Among War’s Deadliest**\
+`Hours after the Russian attack, which killed at least 31 and left dozens missing, the United States said that peace talks with the two countries would resume after nine months.`\
+https://www.nytimes.com/2026/11/03/world/europe/komyshuvakha-zaporizhzhia-attack-ukraine.html
+
 **Trump Says U.S. to End $4 Billion in Aid to Israel in Favor of New Deal**\
 `The president’s announcement on Election Day, which he said was part of an agreement reached months ago, was a sign of how quickly the politics surrounding Israel have shifted.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html

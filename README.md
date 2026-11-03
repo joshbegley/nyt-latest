@@ -1,3 +1,11 @@
+**House Republicans Accuse Top Psychology Group of Antisemitism**\
+`A monthslong G.O.P. effort culminated in a scathing report about emails and other exchanges within the American Psychological Association.`\
+https://www.nytimes.com/2026/11/03/well/mind/american-psychological-association-antisemitism-congress-house-report.html
+
+**Off to the Polls**\
+`We look at the latest from Election Day.`\
+https://www.nytimes.com/2026/11/03/briefing/off-to-the-polls.html
+
 **Got Frozen Edamame? Make This Chile Crisp Fried Rice.**\
 `It’s a spicy, multitextured meal that comes together in 20 minutes.`\
 https://www.nytimes.com/2026/11/03/dining/got-frozen-edamame-make-this-chile-crisp-fried-rice.html
@@ -30,7 +38,7 @@ https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-hi
 `Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
 https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
 
-**Ralph Lauren Makes History at the Oscars of American Fashion**\
+**At the CFDA Awards, Ralph Lauren Makes History and More Moments**\
 `And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
 https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kentucky.htm
 **Illinois 2026: Live Election Results**\
 `Get live results and maps from the 2026 Illinois general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-illinois.html
-
-**Kansas 2026: Live Election Results**\
-`Get live results and maps from the 2026 Kansas elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kansas.html
-
-**Idaho 2026: Live Election Results**\
-`Get live results and maps from the 2026 Idaho general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-idaho.html
 
