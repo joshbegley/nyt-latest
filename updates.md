@@ -1,3 +1,7 @@
+**Runner, 24, Dies During Her First Marathon**\
+`Rachel Apa collapsed in Central Park. The cause was rhabdomyolysis, a rare muscle condition that can be brought on by exertion, her father said.`\
+https://www.nytimes.com/2026/11/02/nyregion/marathon-runner-dies-rachel-apa.html
+
 **NYT Crossword Answers for Nov. 3, 2026**\
 `Victor Schmitt has the last laugh.`\
 https://www.nytimes.com/2026/11/02/crosswords/daily-puzzle-2026-11-03.html
