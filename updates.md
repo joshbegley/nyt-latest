@@ -1,3 +1,7 @@
+**Latin America’s Swing to the Right Was Never About Trump**\
+`The Trump administration has profoundly misread Latin America’s political winds.`\
+https://www.nytimes.com/2026/11/03/opinion/lula-brazil-latin-america-trump.html
+
 **Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
