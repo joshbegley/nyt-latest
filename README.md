@@ -186,14 +186,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-mississippi.
 `Get live results and maps from the 2026 Louisiana elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-louisiana.html
 
-**Massachusetts 2026: Live Election Results**\
-`Get live results and maps from the 2026 Massachusetts general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-massachusetts.html
-
-**Minnesota 2026: Live Election Results**\
-`Get live results and maps from the 2026 Minnesota general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-minnesota.html
-
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump

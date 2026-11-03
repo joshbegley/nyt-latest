@@ -1,3 +1,7 @@
+**Binance Says Hackers Plotted $6.3 Billion Crypto Heist for Months**\
+`A report from the cryptocurrency exchange described a monthslong campaign involving fake job interviews that exploited an engineer’s work computer and an internal A.I. tool.`\
+https://www.nytimes.com/2026/11/03/technology/binance-hack-report.html
+
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
