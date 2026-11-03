@@ -1,3 +1,7 @@
+**Five Telltale Signs of a Democratic Blowout**\
+`The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
+https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
+
 **What You Can and Can’t Do at Polling Places**\
 `Election laws are largely determined by the states, making it important to check local rules.`\
 https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
