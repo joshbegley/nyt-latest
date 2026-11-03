@@ -1,3 +1,7 @@
+**How to Follow The New York Times’s 2026 Midterm Election Results and Coverage**\
+`Here’s how to follow our news coverage, with real-time results, visuals and analysis from more than 400 journalists.`\
+https://www.nytimes.com/2026/11/03/us/politics/how-to-watch-midterm-election-results.html
+
 **It’s Election Day**\
 `And we’re looking at the fight for the Senate.`\
 https://www.nytimes.com/2026/11/03/briefing/its-election-day.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/books/review/kit-de-waal-sweet-pea.html
 **Word of the Day: festoon**\
 `This word has appeared in 94 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/03/learning/word-of-the-day-festoon.html
-
-**Flouting Consumer Law, Insurers Refuse to Pay Medical Bills for Emergency Care**\
-`A law to end surprise medical bills has generated millions of high-dollar payouts for doctors. Health plans are now fighting back by frequently withholding money.`\
-https://www.nytimes.com/2026/11/03/us/insuers-nonpayment-arbitration.html
 
