@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/02/world/africa/trump-south-africa-trade-program
 `The trial will mark one of the first tests of the Justice Department’s ambitious efforts to crack down on manipulation in sports betting and prediction markets.`\
 https://www.nytimes.com/2026/11/02/nyregion/cleveland-guardians-gambling-trial.html
 
-**Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
+**Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
 https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
 
