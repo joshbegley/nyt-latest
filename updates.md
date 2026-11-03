@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 3, 2026**\
+`Victor Schmitt has the last laugh.`\
+https://www.nytimes.com/2026/11/02/crosswords/daily-puzzle-2026-11-03.html
+
 **Democratic Divisions on Israel Come Thundering Back, in Preview of Fights to Come**\
 `A shattered alliance in Michigan between Dr. Abdul El-Sayed and his former primary rival, Representative Haley Stevens, underscored broader tensions in the party.`\
 https://www.nytimes.com/2026/11/02/us/politics/democrats-split-israel-michigan.html

@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 3, 2026**\
+`Victor Schmitt has the last laugh.`\
+https://www.nytimes.com/2026/11/02/crosswords/daily-puzzle-2026-11-03.html
+
 **Democratic Divisions on Israel Come Thundering Back, in Preview of Fights to Come**\
 `A shattered alliance in Michigan between Dr. Abdul El-Sayed and his former primary rival, Representative Haley Stevens, underscored broader tensions in the party.`\
 https://www.nytimes.com/2026/11/02/us/politics/democrats-split-israel-michigan.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-
 **Russia Senses Opportunity in Polish Political Turmoil**\
 `After its sometime allies were ousted in elections in Hungary and Serbia, Moscow has seized on Poland’s constitutional standoff in its effort to weaken Europe’s support for Ukraine.`\
 https://www.nytimes.com/2026/11/02/world/europe/russia-polish-political-turmoil.html
-
-**What Are Voters’ Top Concerns? Midterm Election Polls Point to the Economy.**\
-`Our polls suggest the economy is biggest motivator of voters’ choices in these midterm elections and that Democrats are more trusted to fix things.`\
-https://www.nytimes.com/2026/11/02/us/politics/midterm-election-polls-trump-economy-immigration.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
