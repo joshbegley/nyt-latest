@@ -1,3 +1,11 @@
+**Justice Dept. Sends Target Letters to Democrats in Escalation of Alaska Inquiry**\
+`The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
+https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
+
+**Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
+`Officials said problems in New York, Georgia and Florida were unfortunate but not unusual. Conspiracists seized on them anyway.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+
 **The Tartine Family Goes Bicoastal With Altbau**\
 `Rosette brings more bistro offerings, Giuk riffs on Korean specialties and more restaurant news.`\
 https://www.nytimes.com/2026/11/03/dining/nyc-restaurant-news.html
