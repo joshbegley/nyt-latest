@@ -1,3 +1,7 @@
+**The New York Times Needle 2026: Senate and House Live Forecast**\
+`Follow real-time estimates of the outcome of the 2026 midterm elections from The New York Times.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-needle-senate-house-forecast.html
+
 **Pardoned Jan. 6 Defendant Is Accused of Threatening Federal Judges**\
 `Cleveland Meredith, who pleaded guilty to a charge connected to a threat to kill Nancy Pelosi, was arrested on Monday, accused of threatening federal judges, prosecutors said.`\
 https://www.nytimes.com/2026/11/03/us/meredith-jan-6-pardon-judge-threats.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-washington.h
 **Wisconsin 2026: Live Election Results**\
 `Get live results and maps from the 2026 Wisconsin general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wisconsin.html
-
-**Virginia 2026: Live Election Results**\
-`Get live results and maps from the 2026 Virginia elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-virginia.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
