@@ -1,3 +1,7 @@
+**Here Are the 11 Senate races to Watch on Election Day**\
+`Control of the chamber is on the ballot on Election Day.`\
+https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
+
 **Justice Dept. Sends Target Letters to Democrats in Escalation of Alaska Inquiry**\
 `The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
 https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio.html
 **Oklahoma 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oklahoma elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma.html
-
-**Pennsylvania 2026: Live Election Results**\
-`Get live results and maps from the 2026 Pennsylvania general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-pennsylvania.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\

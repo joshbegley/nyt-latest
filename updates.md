@@ -1,3 +1,7 @@
+**Here Are the 11 Senate races to Watch on Election Day**\
+`Control of the chamber is on the ballot on Election Day.`\
+https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
+
 **Justice Dept. Sends Target Letters to Democrats in Escalation of Alaska Inquiry**\
 `The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
 https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
