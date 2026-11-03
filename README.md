@@ -170,7 +170,7 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-sen
 `Depending on whom you ask, the giant food distributor is flattening the way we eat, or helping small business owners survive. Maybe both are true?`\
 https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owners.html
 
-**Midterm Elections Live Updates: Voting Enters Final Hours in Fight for Control of Congress**\
+**Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
