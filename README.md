@@ -194,7 +194,7 @@ https://www.nytimes.com/video/us/elections/100000011224064/what-to-watch-in-mich
 `Could Texas elect its first Democratic Senator in decades? Our election data reporter Christine Zhang tells us what counties to watch in the competitive Texas Senate race.`\
 https://www.nytimes.com/video/us/elections/100000011224046/what-to-watch-in-texas.html
 
-**What to Watch in Georgia and North Carolina**\
-`Our election data reporter Evan Reynolds looks at counties that could decide the Senate race in the diverse and rapidly growing southern states of Georgia and North Carolina.`\
-https://www.nytimes.com/video/us/elections/100000011223991/what-to-watch-in-georgia-and-north-carolina.html
+**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+`The elections, which cap a contentious campaign season, will offer the first nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

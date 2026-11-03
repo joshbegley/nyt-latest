@@ -1,3 +1,11 @@
+**King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
+`The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
+https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
+
+**Book Review: ‘Boiling Point,’ by Stephen Kinzer**\
+`In “Boiling Point,” the journalist Stephen Kinzer argues that decades of U.S. intervention brought Moscow and Kyiv into inevitable conflict.`\
+https://www.nytimes.com/2026/11/03/books/review/boiling-point-stephen-kinzer.html
+
 **Gaming Out the Prospect of a Blue Wave**\
 `Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
 https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
