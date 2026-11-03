@@ -1,3 +1,11 @@
+**King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
+`The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
+https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
+
+**Book Review: ‘Boiling Point,’ by Stephen Kinzer**\
+`In “Boiling Point,” the journalist Stephen Kinzer argues that decades of U.S. intervention brought Moscow and Kyiv into inevitable conflict.`\
+https://www.nytimes.com/2026/11/03/books/review/boiling-point-stephen-kinzer.html
+
 **Gaming Out the Prospect of a Blue Wave**\
 `Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
 https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011224046/what-to-watch-in-texa
 **What to Watch in Georgia and North Carolina**\
 `Our election data reporter Evan Reynolds looks at counties that could decide the Senate race in the diverse and rapidly growing southern states of Georgia and North Carolina.`\
 https://www.nytimes.com/video/us/elections/100000011223991/what-to-watch-in-georgia-and-north-carolina.html
-
-**What You Need to Know About Greenhouses Before You Buy One**\
-`A new book explains what it takes to grow a long list of plants year-round — from orchids to kiwi — and the structures that will help them thrive.`\
-https://www.nytimes.com/2026/11/03/realestate/garden-greenhouse-guide.html
-
-**Welcome to Educational Choice. Why Aren’t You Smiling?**\
-`Hey, no one said having all this freedom was going to be easy. Or survivable.`\
-https://www.nytimes.com/2026/11/03/opinion/school-choice-education.html
 
