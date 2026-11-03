@@ -1,3 +1,7 @@
+**Are Freezers Being Hacked? Europe and the U.S. Military Investigate.**\
+`A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
+https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
+
 **Latin America’s Swing to the Right Was Never About Trump**\
 `The Trump administration has profoundly misread Latin America’s political winds.`\
 https://www.nytimes.com/2026/11/03/opinion/lula-brazil-latin-america-trump.html

@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/11/02/world/europe/karl-bushby-world-walk-hull-engl
 `The strike in the Zaporizhzhia region came a day after a brief humanitarian truce ended in neighboring Kherson.`\
 https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html
 
-**Are Freezers Being Hacked? Europe and the U.S. Military Are Investigating.**\
+**Are Freezers Being Hacked? Europe and the U.S. Military Investigate.**\
 `A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
 https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
 
