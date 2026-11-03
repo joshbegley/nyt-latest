@@ -1,3 +1,7 @@
+**King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
+`King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
+https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth-apology.html
+
 **Poland Beefs Up Security at Border With Russia**\
 `Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
 https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-york.htm
 **New Jersey 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Jersey general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-jersey.html
-
-**Nebraska 2026: Live Election Results**\
-`Get live results and maps from the 2026 Nebraska elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
