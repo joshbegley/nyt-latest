@@ -1,3 +1,15 @@
+**Bomb Threats Disrupt Several Flights Across Europe**\
+`Officials are investigating threats against at least seven planes. The aircraft landed safely and no explosives were found, the authorities said.`\
+https://www.nytimes.com/2026/11/03/world/europe/bomb-threats-europe-flights-planes.html
+
+**U.S. Military Strikes Iran’s Qeshm Island**\
+`Footage from an island in the Strait of Hormuz showed several explosions on Monday. U.S. officials said they conducted small-scale defensive strikes to prevent Iranian attacks. It was the first U.S. attack inside Iran since early September.`\
+https://www.nytimes.com/video/world/middleeast/100000011257374/us-strikes-iran-qeshm-island-trump.html
+
+**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **House Republicans Accuse Top Psychology Group of Antisemitism**\
 `A monthslong G.O.P. effort culminated in a scathing report about emails and other exchanges within the American Psychological Association.`\
 https://www.nytimes.com/2026/11/03/well/mind/american-psychological-association-antisemitism-congress-house-report.html
