@@ -38,9 +38,9 @@ https://www.nytimes.com/2026/11/03/arts/dance/bijayini-satpathy-third-gender-mah
 `An already dangerously erratic president is veering deeper and deeper into what amounts to hallucination.`\
 https://www.nytimes.com/2026/11/03/opinion/trump-backsides-language-rallies.html
 
-**Binance Says Hackers Plotted $6.3 Billion Heist for Months**\
+**Binance Says Hackers Plotted $6.3 Billion Crypto Heist for Months**\
 `A report from the cryptocurrency exchange described a monthslong campaign involving fake job interviews that exploited an engineer’s work computer and an internal A.I. tool.`\
-https://www.nytimes.com/2026/11/03/technology/binance-report.html
+https://www.nytimes.com/2026/11/03/technology/binance-hack-report.html
 
 **Strike on Ukraine Humanitarian Hub Is Feared to Be Among War’s Deadliest**\
 `Hours after the Russian attack, which killed at least 31 and left dozens missing, the United States said that peace talks with the two countries would resume after nine months.`\
