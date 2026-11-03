@@ -1,3 +1,7 @@
+**Democratic Divisions on Israel Come Thundering Back, in Preview of Fights to Come**\
+`A shattered alliance in Michigan between Dr. Abdul El-Sayed and his former primary rival, Representative Haley Stevens, underscored broader tensions in the party.`\
+https://www.nytimes.com/2026/11/02/us/politics/democrats-split-israel-michigan.html
+
 **The Brain Injury That Made Edward Freytag a Musical Genius**\
 `When Ed Freytag suffered a brain injury in a motorcycle accident, it unlocked a rare musical talent.`\
 https://www.nytimes.com/interactive/2026/11/02/magazine/brain-injury-music-perfect-pitch-edward-freytag.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/2026/11/02/briefing/early-voting-turnout-surges.html
 `The rejection demonstrates the department’s harried push to prove President Trump’s unsubstantiated claims of rampant voter fraud.`\
 https://www.nytimes.com/2026/11/02/us/politics/grand-jury-justice-dept-voter-fraud.html
 
-**Investigators Looking for Cause of Florida Crash Say Ice Was ‘Certainly a Factor’**\
+**Investigators Looking for Cause of Learjet Crash Say Ice Was ‘Certainly a Factor’**\
 `Ice, experts said, can change the shape of a plane’s wing, disrupting its aerodynamics.`\
 https://www.nytimes.com/2026/11/02/science/florida-learjet-crash-causes.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/world/europe/russia-polish-political-turmoil.
 **What Are Voters’ Top Concerns? Midterm Election Polls Point to the Economy.**\
 `Our polls suggest the economy is biggest motivator of voters’ choices in these midterm elections and that Democrats are more trusted to fix things.`\
 https://www.nytimes.com/2026/11/02/us/politics/midterm-election-polls-trump-economy-immigration.html
-
-**Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
-`Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
-https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
