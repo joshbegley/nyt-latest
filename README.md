@@ -1,3 +1,7 @@
+**Governor Warns New Jersey Ports to Turn Away Russian Fuel**\
+`Gov. Mikie Sherrill sent a letter to 12 port and terminal operators in the state, warning them they “could be subject to millions of dollars in penalties” long after President Trump leaves office.`\
+https://www.nytimes.com/2026/11/02/nyregion/new-jersey-russian-fuel-sherrill-ports.html
+
 **Why Trump’s Taiwan Arms Delay Is Dangerous**\
 `China may see Trump’s decision to hold up arms sales to Taiwan as a lasting concession, raising the stakes in a future confrontation over the island.`\
 https://www.nytimes.com/2026/11/02/opinion/trump-taiwan-china.html
@@ -130,7 +134,7 @@ https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukra
 `A wave of disruptions at grocery stores, which some officials blame on cyberattacks, highlights the vulnerability of supply chains. Shops across Europe were affected again on Monday.`\
 https://www.nytimes.com/2026/11/02/business/cyberattack-freezers-europe-us-army.html
 
-**He Pioneered a Groundbreaking Idea and Was Met With Corporate Wrath**\
+**William Nordhaus Pioneered Putting a Price on Pollution**\
 `Economist William Nordhaus said putting a price on pollution was the best way to reduce climate change. Then came the fossil fuel lobby and the anti-tax movement.`\
 https://www.nytimes.com/2026/11/02/climate/william-nordhaus-carbon-tax-american-business.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.htm
 **Driven by A.I. Boom, Marvell and Lumentum Announce $115 Billion Merger**\
 `Marvell and Lumentum said they were combining, in a major bet on a technology, known as optical networking, that is increasingly being used in A.I. data centers.`\
 https://www.nytimes.com/2026/11/02/technology/marvell-lumentum-115-billion-merger-ai.html
-
-**Iran Says Strait of Hormuz Could Reopen in 2 Days if Demands Met**\
-`Citing progress in Qatari-mediated talks with Washington, Iran’s foreign ministry spokesman said the Strait of Hormuz could reopen in as little as two days.`\
-https://www.nytimes.com/video/world/middleeast/iran-strait-of-hormuz-us-deal.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
