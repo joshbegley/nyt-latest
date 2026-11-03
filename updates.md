@@ -1,3 +1,7 @@
+**As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
+`The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U.S. and Iran, as many fear that the fighting will be worse this time around.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
+
 **Why Trump Often Mentioned Iran in the Midterm Campaign**\
 `President Trump has repeatedly reminded Americans of a losing campaign issue just as voters head to the polls. Why?`\
 https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-election-strategy.html
