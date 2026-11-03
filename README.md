@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/11/03/nyregion/in-niagara-even-grass-may-be-radioac
 `Over the course of 10 days in a remote Mexican town, dances and processions summon souls in the belief that the dead are never truly gone.`\
 https://www.nytimes.com/2026/11/03/world/americas/mexico-day-of-the-dead-metlatonoc.html
 
-**Five Things I’m Watching for in Tuesday’s Midterms**\
+**Five Telltale Signs of a Democratic Blowout**\
 `The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
 https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
 
