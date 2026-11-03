@@ -1,3 +1,7 @@
+**It’s Election Day**\
+`And we’re looking at the fight for the Senate.`\
+https://www.nytimes.com/2026/11/03/briefing/its-election-day.html
+
 **A Guide to Election Night 2026**\
 `Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
 https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/learning/word-of-the-day-festoon.html
 **Flouting Consumer Law, Insurers Refuse to Pay Medical Bills for Emergency Care**\
 `A law to end surprise medical bills has generated millions of high-dollar payouts for doctors. Health plans are now fighting back by frequently withholding money.`\
 https://www.nytimes.com/2026/11/03/us/insuers-nonpayment-arbitration.html
-
-**Four Bridge Walks Across the Hudson River**\
-`Seeking renewal, a writer took to walking across bridges that span the river, coming away with a new perspective.`\
-https://www.nytimes.com/2026/11/03/travel/hudson-river-bridges-walks.html
 
