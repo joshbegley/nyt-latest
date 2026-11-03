@@ -1,3 +1,7 @@
+**‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
+`Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
+https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
+
 **Helicopters Collide Over Everest Trail, Killing 1 and Injuring 3 Others**\
 `The crash, in a popular tourist area during the autumn climbing season, highlighted the safety challenges posed by growing numbers of aircraft in the Himalayas.`\
 https://www.nytimes.com/2026/11/03/world/asia/helicopter-crash-everest-nepal.html

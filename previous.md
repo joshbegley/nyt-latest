@@ -1,3 +1,7 @@
+**‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
+`Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
+https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
+
 **Helicopters Collide Over Everest Trail, Killing 1 and Injuring 3 Others**\
 `The crash, in a popular tourist area during the autumn climbing season, highlighted the safety challenges posed by growing numbers of aircraft in the Himalayas.`\
 https://www.nytimes.com/2026/11/03/world/asia/helicopter-crash-everest-nepal.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel
 **King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
 `King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth.html
-
-**Poland Beefs Up Security at Border With Russia**\
-`Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
-https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
 
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\

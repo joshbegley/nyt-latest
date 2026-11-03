@@ -1,3 +1,19 @@
+**The On Politics Guide to Election Night**\
+`How to watch tonight’s results, according to our reporters and editors.`\
+https://www.nytimes.com/2026/11/03/us/politics/the-on-politics-guide-to-election-night.html
+
+**Drone Boat Maker Saildrone Wins Protest Over Navy Contract**\
+`A federal judge’s ruling on the side of the small defense contractor was a rarity, as most company protests against government bidding decisions do not prevail.`\
+https://www.nytimes.com/2026/11/03/us/politics/drone-boat-maker-navy-protest.html
+
+**Authorities Capture Convicted Murderer After Weeklong Escape**\
+`Jacob Allen Morley, who was serving a life sentence for murder, was captured on Tuesday in Missouri, according to the authorities. He escaped from a Tennessee prison on Oct. 26.`\
+https://www.nytimes.com/video/us/100000011259078/tennessee-convicted-murder-escape-capture.html
+
+**Georgia G.O.P. Chair Predicts a ‘Fair’ Election in the State**\
+`Josh McKoon, a Trump ally who helped advance Republican efforts to change election rules after a bitter 2020 count, said, “I think everybody’s going to respect the outcome.”`\
+https://www.nytimes.com/2026/11/03/us/georgia-republican-chair-fair-election.html
+
 **‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
 `Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
 https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
@@ -153,22 +169,6 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.h
 **She Wrote the Book on Prada**\
 `How the 1990s turned a little family label into a megabrand.`\
 https://www.nytimes.com/2026/11/03/style/prada-in-the-nineties-book.html
-
-**OpenAI and Anthropic Set Up ‘War Rooms’ to Fight Disinfo About Midterm Elections**\
-`OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
-https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
-
-**When Children Are Charged With Crimes**\
-`Readers respond to a news article, “In Texas, Minor Misdeeds Can Get a Young Student Arrested.” Also: The elusive truth.`\
-https://www.nytimes.com/2026/11/03/opinion/criminal-charges-children.html
-
-**Israeli Claims of Iranian Chemical Weapons Divide U.S. Officials**\
-`Some administration officials suggested Prime Minister Benjamin Netanyahu is trying to draw President Trump back into military action.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-trump.html
-
-**King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
-`King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
-https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth.html
 
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\
