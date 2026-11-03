@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Maine U.S. Senate 2026: Live Election Results, Collins vs. Jackson**\
 `Get live results and maps from the 2026 Maine general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html

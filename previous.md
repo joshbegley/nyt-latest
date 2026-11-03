@@ -187,6 +187,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.htm
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nevada.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
-`The elections, which cap a contentious campaign season, will offer a nationwide verdict on President Trump’s second term. It could take days or weeks before the full results are known.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
