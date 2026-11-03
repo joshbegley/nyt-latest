@@ -1,3 +1,11 @@
+**The Brain Injury That Made Edward Freytag a Musical Genius**\
+`When Ed Freytag suffered a brain injury in a motorcycle accident, it unlocked a rare musical talent.`\
+https://www.nytimes.com/interactive/2026/11/02/magazine/brain-injury-music-perfect-pitch-edward-freytag.html
+
+**Child Dies From Measles in New York State’s First Fatal Case in 30 Years**\
+`Gov. Kathy Hochul said that the death in Lewis County reflects eroding vaccination levels. The state is experiencing a significant outbreak of the viral illness.`\
+https://www.nytimes.com/2026/11/02/nyregion/measles-death-child-new-york-lewis-county.html
+
 **Democrats Head Into Election Day Feeling Hopeful About the Midterms**\
 `Chuck Schumer thinks his party has expanded the map.`\
 https://www.nytimes.com/2026/11/02/us/politics/democrats-election-day-midterms.html
