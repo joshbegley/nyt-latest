@@ -1,3 +1,11 @@
+**The Brain Injury That Made Edward Freytag a Musical Genius**\
+`When Ed Freytag suffered a brain injury in a motorcycle accident, it unlocked a rare musical talent.`\
+https://www.nytimes.com/interactive/2026/11/02/magazine/brain-injury-music-perfect-pitch-edward-freytag.html
+
+**Child Dies From Measles in New York State’s First Fatal Case in 30 Years**\
+`Gov. Kathy Hochul said that the death in Lewis County reflects eroding vaccination levels. The state is experiencing a significant outbreak of the viral illness.`\
+https://www.nytimes.com/2026/11/02/nyregion/measles-death-child-new-york-lewis-county.html
+
 **Democrats Head Into Election Day Feeling Hopeful About the Midterms**\
 `Chuck Schumer thinks his party has expanded the map.`\
 https://www.nytimes.com/2026/11/02/us/politics/democrats-election-day-midterms.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/02/us/politics/midterm-election-polls-trump-econ
 **Who Is Jason Turkish, Haley Stevens’s Fiancé?**\
 `Mr. Turkish, 39, is a longtime Democratic donor and disability rights lawyer. He endorsed Republican Mike Rogers for U.S. Senate on Wednesday.`\
 https://www.nytimes.com/2026/11/02/us/politics/jason-turkish-haley-stevens-fiance.html
-
-**Jury Selection Begins in First Death-Penalty Case at Guantánamo Bay**\
-`A Saudi man is charged with the bombing of the U.S.S. Cole, which killed 17 American sailors in 2000.`\
-https://www.nytimes.com/2026/11/02/us/politics/jury-selection-death-penalty-cole-bombing.html
-
-**Rome Greenlights New Investigation of Pier Paolo Pasolini Murder 51 Years Ago**\
-`Pier Paolo Pasolini was found bludgeoned to death in 1975. A young escort confessed to the crime but changed his story over the years, creating uncertainty.`\
-https://www.nytimes.com/2026/11/02/movies/pasolini-murder-investigation-rome.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
