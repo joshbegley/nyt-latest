@@ -1,3 +1,11 @@
+**Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
+`Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
+https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html
+
+**Paris Jackson Asks Father’s Estate to Fund $600M to Family Trust**\
+`A representative for Michael Jackson’s daughter accused the executors of her father’s estate of incompetence, financial mismanagement and delays in distributing his wealth to his children.`\
+https://www.nytimes.com/2026/11/03/arts/paris-jackson-michael-jackson-estate.html
+
 **‘Waiting for Lefty’ Review: Protest Songs in the Key of Life**\
 `The music of the folk duo Yeller Tooth gives Classic Stage Company’s revival of this dated Clifford Odets play a refreshing heart.`\
 https://www.nytimes.com/2026/11/03/theater/waiting-for-lefty-review-odets-pasquale.html
@@ -161,14 +169,6 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
 **Eric Dane of ‘Grey’s Anatomy’ Highlights His Struggle With A.L.S. in Memoir**\
 `The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
 https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
-
-**Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
-`Officials said problems in New York, Georgia, Florida and other places were unfortunate but not unusual. Conspiracists seized on them anyway.`\
-https://www.nytimes.com/2026/11/03/us/voting-machine-issues-midterm-elections.html
-
-**At the CFDA Awards, Ralph Lauren Makes History and More Moments**\
-`And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
-https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
