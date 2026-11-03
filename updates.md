@@ -1,3 +1,11 @@
+**Governor Warns New Jersey Ports to Turn Away Russian Fuel**\
+`Gov. Mikie Sherrill sent a letter to 12 port and terminal operators in the state, warning them they “could be subject to millions of dollars in penalties” long after President Trump leaves office.`\
+https://www.nytimes.com/2026/11/02/nyregion/new-jersey-russian-fuel-sherrill-ports.html
+
+**William Nordhaus Pioneered Putting a Price on Pollution**\
+`Economist William Nordhaus said putting a price on pollution was the best way to reduce climate change. Then came the fossil fuel lobby and the anti-tax movement.`\
+https://www.nytimes.com/2026/11/02/climate/william-nordhaus-carbon-tax-american-business.html
+
 **Why Trump’s Taiwan Arms Delay Is Dangerous**\
 `China may see Trump’s decision to hold up arms sales to Taiwan as a lasting concession, raising the stakes in a future confrontation over the island.`\
 https://www.nytimes.com/2026/11/02/opinion/trump-taiwan-china.html
