@@ -1,3 +1,7 @@
+**The Tartine Family Goes Bicoastal With Altbau**\
+`Rosette brings more bistro offerings, Giuk riffs on Korean specialties and more restaurant news.`\
+https://www.nytimes.com/2026/11/03/dining/nyc-restaurant-news.html
+
 **Willie Nelson’s Wife, Annie D’Angelo, on Their Life Together**\
 `For almost 40 years, Annie D’Angelo has kept Nelson, her husband, going. She is ready to step into the spotlight herself.`\
 https://www.nytimes.com/2026/11/03/style/willie-nelson-annie-dangelo-wife-last-leaf.html

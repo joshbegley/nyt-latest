@@ -1,3 +1,7 @@
+**Justice Dept. Sends Target Letters to Democrats in Escalation of Alaska Inquiry**\
+`The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
+https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
+
 **The Tartine Family Goes Bicoastal With Altbau**\
 `Rosette brings more bistro offerings, Giuk riffs on Korean specialties and more restaurant news.`\
 https://www.nytimes.com/2026/11/03/dining/nyc-restaurant-news.html
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-israel-aid-netanyahu.html
 `The actor, who played the handsome Dr. Mark Sloan on the ABC medical drama, worked on the book up until his death in February from A.L.S.`\
 https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-highlights.html
 
-**Voting Machine Snags Reported at Polling Sites in New York Suburbs**\
-`Voting was underway across Westchester County, despite an issue with ballot scanners at many polling sites, officials said.`\
+**Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
+`Officials said problems in New York, Georgia and Florida were unfortunate but not unusual. Conspiracists seized on them anyway.`\
 https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
 
 **At the CFDA Awards, Ralph Lauren Makes History and More Moments**\
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma.htm
 **Pennsylvania 2026: Live Election Results**\
 `Get live results and maps from the 2026 Pennsylvania general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-pennsylvania.html
-
-**North Carolina 2026: Live Election Results**\
-`Get live results and maps from the 2026 North Carolina general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-carolina.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
