@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **America Votes**\
 `Your guide to election night, and more big stories at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.html
