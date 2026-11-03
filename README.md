@@ -1,3 +1,7 @@
+**Judge Declines to Halt D.H.S. Demands for States to Screen Ballots**\
+`Judge James E. Boasberg ruled that states had largely succeeded in rebuffing the Trump administration’s efforts to disqualify voters, and that Democratic plaintiffs hadn’t suffered direct impacts.`\
+https://www.nytimes.com/2026/11/02/us/politics/trump-elections-ballots-states-dhs.html
+
 **Runner, 24, Dies During Her First Marathon**\
 `Rachel Apa collapsed in Central Park. The cause was rhabdomyolysis, a rare muscle condition that can be brought on by exertion, her father said.`\
 https://www.nytimes.com/2026/11/02/nyregion/marathon-runner-dies-rachel-apa.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florid
 **Hosting a Funeral at a Restaurant or Bar**\
 `As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
 https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
-
-**Trump Floats Pre-Emptive Pardons for Allies if Democrats Take Congress in Midterms**\
-`“We just have to protect those people,” President Trump said in an interview, when asked about potential investigations of allies and administration officials if Democrats won control of Congress.`\
-https://www.nytimes.com/2026/11/02/us/politics/trump-pardons-democrats-congress-control.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
