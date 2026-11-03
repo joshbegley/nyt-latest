@@ -1,3 +1,15 @@
+**With Redistricting on the Ballot, a Longtime Missouri Democrat Persists**\
+`Missouri Republicans tried to end the congressional career of Emanuel Cleaver. Even with an old map back in place on Election Day, his political future remained unclear.`\
+https://www.nytimes.com/2026/11/03/us/elections/emanuel-cleaver-missouri-redistricting.html
+
+**Spain’s Transport Minister Resigns After Deadly High-Speed Rail Crash**\
+`Nearly 70 people died in the crash, the second high-speed rail accident in less than a year.`\
+https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-minister-resigns-oscar-puente.html
+
+**Midterm Elections Live Updates: Voting Enters Final Hours in Fight for Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **How Will the Midterms Play Out? These Races May Provide Early Clues.**\
 `Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
 https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html

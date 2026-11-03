@@ -1,3 +1,7 @@
+**Voting in Westchester County Continues Despite Technical Glitches**\
+`Ballots from Westchester County, N.Y., polling places will be escorted by the police to election headquarters and counted under the observation of lawyers from both parties after technical glitches prevented scanning machines from accepting them on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000011259071/westchester-voting-midterms-scanning-machines.html
+
 **With Redistricting on the Ballot, a Longtime Missouri Democrat Persists**\
 `Missouri Republicans tried to end the congressional career of Emanuel Cleaver. Even with an old map back in place on Election Day, his political future remained unclear.`\
 https://www.nytimes.com/2026/11/03/us/elections/emanuel-cleaver-missouri-redistricting.html
