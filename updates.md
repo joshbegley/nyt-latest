@@ -1,3 +1,15 @@
+**When Children Are Charged With Crimes**\
+`Readers respond to a news article, “In Texas, Minor Misdeeds Can Get a Young Student Arrested.” Also: The elusive truth.`\
+https://www.nytimes.com/2026/11/03/opinion/criminal-charges-children.html
+
+**Israeli Claims of Iranian Chemical Weapons Divide U.S. Officials**\
+`Some administration officials suggested Prime Minister Benjamin Netanyahu is trying to draw President Trump back into military action.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/iran-chemical-weapons-israel-united-states-trump.html
+
+**‘Something Is Changing With Trump’**\
+`An already dangerously erratic president is veering deeper and deeper into what amounts to hallucination.`\
+https://www.nytimes.com/2026/11/03/opinion/trump-backsides-language-rallies.html
+
 **King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
 `King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth-apology.html
