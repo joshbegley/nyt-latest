@@ -1,200 +1,200 @@
-**Google Will Turn Off Search for Schools That Reject A.I.**\
-`Google is making it easier to restrict its A.I. tools for students. But schools that block A.I. entirely will lose student access to Google’s search engine.`\
-https://www.nytimes.com/2026/11/03/us/google-search-schools-restrict-ai.html
+**New Hampshire 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-hampshire.html
 
-**Street Style Look of the Week: Color Blocking in a London Park**\
-`A young artist stacked layer upon layer of color for a recent outing in London, but she still wished she were wearing more.`\
-https://www.nytimes.com/2026/11/03/style/street-style-look-color-blocking.html
+**Nevada 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nevada.html
 
-**King Charles to Give ‘Unflinching’ Speech on UK’s Role in Slave Trade**\
-`The British monarch and Prime Minister Andy Burnham are set to speak at the Commonwealth heads of government meeting in Antigua.`\
-https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html
+**Mississippi 2026: Live Election Results**\
+`Get live results and maps from the 2026 Mississippi elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-mississippi.html
 
-**Book Review: ‘Boiling Point,’ by Stephen Kinzer**\
-`In “Boiling Point,” the journalist Stephen Kinzer argues that decades of U.S. intervention brought Moscow and Kyiv into inevitable conflict.`\
-https://www.nytimes.com/2026/11/03/books/review/boiling-point-stephen-kinzer.html
+**Nebraska 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nebraska elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.html
 
-**Gaming Out the Prospect of a Blue Wave**\
-`Business executives and investors are preparing for a Democratic sweep and the ramifications for policy on data centers, cryptocurrency and more.`\
-https://www.nytimes.com/2026/11/03/business/dealbook/blue-wave-business-market-ramifications.html
+**Montana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Montana general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-montana.html
 
-**What You Can and Can’t Do at Polling Places**\
-`Election laws are largely determined by the states, making it important to check local rules.`\
-https://www.nytimes.com/2026/11/03/us/voting-election-day-polling-site-rules.html
+**North Dakota 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-dakota.html
 
-**Election Day Could Be a Rainy One in Some Areas**\
-`Researchers have found that bad weather can deter certain voters.`\
-https://www.nytimes.com/2026/11/03/us/politics/election-day-weather-storms.html
+**North Carolina 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-carolina.html
 
-**How to Follow The New York Times’s 2026 Midterm Election Results and Coverage**\
-`Here’s how to follow our news coverage, with real-time results, visuals and analysis from more than 400 journalists.`\
-https://www.nytimes.com/2026/11/03/us/politics/how-to-watch-midterm-election-results.html
+**New York 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-york.html
 
-**It’s Election Day**\
-`And we’re looking at the fight for the Senate.`\
-https://www.nytimes.com/2026/11/03/briefing/its-election-day.html
+**New Mexico 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Mexico elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-mexico.html
 
-**A Guide to Election Night 2026**\
-`Strategists in both parties say Democrats are likely to wrest back control of the House, but the battle for the Senate is more complicated.`\
-https://www.nytimes.com/2026/11/03/podcasts/the-daily/midterm-election-2026.html
+**New Jersey 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Jersey general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-jersey.html
 
-**What to Expect on Election Night, and Trump’s $1 Million Voter Fraud Reward**\
-`Plus, “who’s going to believe me if I’m addicted to a wellness tonic?”`\
-https://www.nytimes.com/2026/11/03/podcasts/the-headlines/midterm-election-trump-voter-fraud-reward.html
+**Missouri 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-missouri.html
 
-**NYT Connections Answers for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/connections-companion-1242.html
+**Minnesota 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-minnesota.html
 
-**Today’s Wordle Hints for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/wordle-review-1964.html
+**Michigan 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-michigan.html
 
-**NYT Strands Hints for November 4, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 4, 2026.`\
-https://www.nytimes.com/2026/11/03/crosswords/strands-sidekick-976.html
+**Maryland 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maryland.html
 
-**Smarter Ways to Cook Easy One-Pot Dinners**\
-`Our best advice on how to make the most of Dutch ovens, slow cookers and pressure cookers.`\
-https://www.nytimes.com/2026/11/03/podcasts/smarter-ways-to-cook-easy-one-pot-dinners.html
+**Massachusetts 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-massachusetts.html
 
-**Why Trump Often Mentioned Iran in the Midterm Campaign**\
-`President Trump has repeatedly reminded Americans of a losing campaign issue just as voters head to the polls. Why?`\
-https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-election-strategy.html
+**Maine 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine.html
 
-**As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
-`The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U.S. and Iran, as many fear that the fighting will be worse this time around.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
+**Illinois 2026: Live Election Results**\
+`Get live results and maps from the 2026 Illinois general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-illinois.html
 
-**The Case for a Baseball Salary Cap**\
-`Inside the negotiations for Major League Baseball’s inevitable lockout.`\
-https://www.nytimes.com/2026/11/03/podcasts/the-case-for-a-baseball-salary-cap.html
+**Louisiana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Louisiana elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-louisiana.html
 
-**For Midterms Night, a TV Schedule Overflowing With Options**\
-`Viewers will be flooded with options, including 13 straight hours of NBC footage and a continuous livestream of Steve Kornacki and his big board.`\
-https://www.nytimes.com/2026/11/03/business/media/midterm-elections-networks-cable.html
+**Kentucky 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kentucky elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kentucky.html
 
-**A Test for Israeli Democracy: Should Jews Ask Arabs to Join the Government?**\
-`Arab lawmakers give opponents of Benjamin Netanyahu a clear majority in the Parliament. But many Jewish lawmakers are trying to avoid relying on them.`\
-https://www.nytimes.com/2026/11/03/world/middleeast/israel-coalition-arab-lawmakers.html
+**Kansas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kansas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kansas.html
 
-**Solve a Special Mahjong Themed Crossword Puzzle**\
-`This puzzle, constructed by Sala Wanetick, puts the game center stage.`\
-https://www.nytimes.com/2026/11/03/crosswords/special-mahjong-crossword.html
+**Iowa 2026: Live Election Results**\
+`Get live results and maps from the 2026 Iowa general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-iowa.html
 
-**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
-`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
-https://www.nytimes.com/2026/11/03/us/midterm-election-key-house-senate-races.html
+**Indiana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Indiana general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-indiana.html
 
-**How Obamacare Premiums Changed for 2027**\
-`The monthly price of the lowest-cost bronze plan rose 13 percent for 2027 for people who buy coverage without a subsidy. The increase is largest for older adults.`\
-https://www.nytimes.com/interactive/2026/11/03/upshot/obamacare-premiums-going-up.html
+**Idaho 2026: Live Election Results**\
+`Get live results and maps from the 2026 Idaho general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-idaho.html
 
-**Why Southwestern Floods Won’t Solve A Water Crisis**\
-`A series of storms has added to reservoirs in the Colorado River basin, but the long-term water outlook remains bleak.`\
-https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.html
+**Hawaii 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-hawaii.html
 
-**What a Vote for Abdul El-Sayed Means**\
-`Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
-https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
+**Georgia 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-georgia.html
 
-**A Guide to What We’ll Know on Election Night, Hour by Hour**\
-`“Mirages,” midnight swings and long counts: The Needle can cut through the noise.`\
-https://www.nytimes.com/2026/11/03/upshot/poll-closing-times-midterm-elections.html
+**Delaware 2026: Live Election Results**\
+`Get live results and maps from the 2026 Delaware general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-delaware.html
 
-**How We Model Election Results With the Needle**\
-`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
-https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
+**Florida 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-florida.html
 
-**In Niagara, Even Grass May Be Radioactive**\
-`A reporter who visited at least six “red hot” radiation zones discusses where the contamination came from.`\
-https://www.nytimes.com/2026/11/03/nyregion/in-niagara-even-grass-may-be-radioactive.html
+**Connecticut 2026: Live Election Results**\
+`Get live results and maps from the 2026 Connecticut general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-connecticut.html
 
-**Celebrating Day of the Dead, High in Mexico’s Mountains**\
-`Over the course of 10 days in a remote Mexican town, dances and processions summon souls in the belief that the dead are never truly gone.`\
-https://www.nytimes.com/2026/11/03/world/americas/mexico-day-of-the-dead-metlatonoc.html
+**Colorado 2026: Live Election Results**\
+`Get live results and maps from the 2026 Colorado elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
 
-**Five Telltale Signs of a Democratic Blowout**\
-`The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
-https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
+**California 2026: Live Election Results**\
+`Get live results and maps from the 2026 California elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california.html
 
-**Drones Emerge as the Top Killer of Civilians in Sudan’s War**\
-`The weapons have become the No. 1 killer of civilians this year, according to the United Nations, devastating a population already overwhelmed by famine and drought.`\
-https://www.nytimes.com/2026/11/03/world/africa/sudan-drone-civilians-nyala.html
+**Arkansas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arkansas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
 
-**Ken Burns: Why I’m Optimistic About the Midterms**\
-`There’s something fundamental at stake in the midterms this year, beyond policy differences.`\
-https://www.nytimes.com/2026/11/03/opinion/midterm-elections-politics-ken-burns.html
+**Alaska 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alaska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
 
-**Trump Effort to Prove Rampant Noncitizen Voting Leads to Few Charges So Far**\
-`Just 236 people have been charged with voting-fraud-related offenses by the Trump administration, despite its unsubstantiated claims that fraud is widespread.`\
-https://www.nytimes.com/2026/11/03/us/politics/dhs-noncitizen-voting-midterms.html
+**Arizona 2026: Live Election Results**\
+`Get live results and maps from the 2026 Arizona elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
 
-**Are the Polls Right About Democrats?**\
-`Nate Cohn, our chief political analyst, explains how polling has fared in the Trump era and whether we should trust this year’s midterm polls that are favorable to Democrats.`\
-https://www.nytimes.com/video/us/elections/100000011242167/are-the-polls-right-about-democrats.html
+**Alabama 2026: Live Election Results**\
+`Get live results and maps from the 2026 Alabama general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alabama.html
 
-**Supreme Court to Hear Catholic Schools’ Challenge to Colorado Aid Rules**\
-`The Supreme Court considers whether Catholic preschools in Colorado that decline to enroll families with gay and transgender parents can participate in a state program.`\
-https://www.nytimes.com/2026/11/03/us/politics/supreme-court-colorado-catholic-schools-discrimination.html
+**South Carolina Attorney General 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-attorney-general.html
 
-**Even the Worst Job on the Internet Isn’t Safe From A.I.**\
-`There used to be an honorable way to try to profit from online infamy: selling nearly worthless memecoins. The machines could take it over.`\
-https://www.nytimes.com/2026/11/03/magazine/memecoins-micropayments-ai.html
+**Texas 19th Congressional District 2026: Live Election Results, Rable vs. Sell**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-19.html
 
-**Restaurant Review: Graciela in New York**\
-`Graciela channels that country’s distinctive style, steeped in a deep appreciation of beef and skilled in the art of the grill.`\
-https://www.nytimes.com/2026/11/03/dining/restaurant-review-graciela-steakhouse-nyc.html
+**Texas First Congressional District 2026: Live Election Results, Moran vs. Prince**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-1.html
 
-**When to Expect Results on Election Day**\
-`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
-https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
+**South Carolina U.S. Senate 2026: Live Election Results, Graham vs. Andrews**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-senate.html
 
-**His Business Was Tough. Diesel Prices Made It Impossible.**\
-`For small trucking firms operating with little margin for error, high fuel costs can make the difference between survival and bankruptcy.`\
-https://www.nytimes.com/2026/11/03/business/trucking-diesel-prices.html
+**Nebraska Governor 2026: Live Election Results, Pillen vs. Walz**\
+`Get live results and maps from the 2026 Nebraska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-governor.html
 
-**6 Themes to Watch for in the Midterms Elections Results**\
-`Republicans are bracing for losses amid a backlash to the president’s economic leadership and the Iran war. Whether that means giving up control of the Senate is Tuesday’s biggest question.`\
-https://www.nytimes.com/2026/11/03/us/midterm-elections-trump-democrats-republicans-key-themes.html
+**Utah First Congressional District 2026: Live Election Results, McAdams vs. Owen**\
+`Get live results and maps from the 2026 Utah general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-utah-us-house-1.html
 
-**Neanderthals Used Wood for Tools, Housing — and Murder?**\
-`In one case, 75,000-year-old bones reveal what may be the earliest identifiable victim of death by wooden spear.`\
-https://www.nytimes.com/2026/11/03/science/neanderthals-wood-tools.html
+**Texas Supreme Court Place 8 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-supreme-court-place-8.html
 
-**For Iowa Journalist Laura Belin, Covering Politics Is a Constant Battle**\
-`Laura Belin is an openly liberal journalist in Iowa who has long been shut out by state Republican officials. Now she’s being bypassed by Democrats who favor friendly internet influencers.`\
-https://www.nytimes.com/2026/11/03/business/media/laura-belin-iowa-political-reporter.html
+**Ohio 13th Congressional District 2026: Live Election Results, Sykes vs. Coleman**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-13.html
 
-**Near Munich, a Simple Space to Live Separately While Staying Connected**\
-`An architect put a contemporary spin on the German tradition of ‘Austragshaus,’ and gave two empty nesters a place to live without leaving their family.`\
-https://www.nytimes.com/2026/11/03/realestate/munich-living-small.html
+**Oklahoma First Congressional District 2026: Live Election Results, Croisant vs. Tedford**\
+`Get live results and maps from the 2026 Oklahoma general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma-us-house-1.html
 
-**What’s at Stake in Today’s Elections**\
-`Though President Trump’s name is not on the ballot, voters are weighing the effects of his agenda in Tuesday’s midterm elections. Lisa Lerer, a national political reporter for The New York Times, describes how three crucial issues are affecting their decisions.`\
-https://www.nytimes.com/video/us/politics/100000011228221/whats-at-stake-in-todays-elections.html
+**Ohio Sixth Congressional District 2026: Live Election Results, Rulli vs. Kirtley**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-6.html
 
-**Almond-Toed Kitten Heels to Carry You Through Fall**\
-`These wearable low-heeled pumps are sure to add elegance to any outfit.`\
-https://www.nytimes.com/2026/11/03/t-magazine/kitten-heel-shoes.html
+**Portland, Ore., Local Measure 26-267 Election Results 2026: Participatory Budgeting**\
+`Get live results and maps from the 2026 Oregon general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-portland-ore-local-measure-26-267-participatory-budgeting.html
 
-**A Conceptual Artist Entwines Her Work With the State**\
-`How Jill Magid made the government her publisher and her artistic collaborator.`\
-https://www.nytimes.com/2026/11/03/arts/design/jill-magid-artist-federal-register-book.html
+**Ohio First Congressional District 2026: Live Election Results, Landsman vs. Conroy**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-1.html
 
-**A Deluge of (Loud, Twangy) Music Puts Twisted Teens on the Map**\
-`Applying lessons from their past as buskers, the duo are releasing their third album of 2026 and winning over influential fans.`\
-https://www.nytimes.com/2026/11/03/arts/music/twisted-teens-band-holy-cross-tigers.html
+**South Carolina Treasurer 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-treasurer.html
 
-**Do Young People Give Up Too Easily? Or Do Older People Valorize Struggle?**\
-`Some college freshmen have left campus just weeks into their first semester, The Times reported. Is this a sign young people are too unwilling to face discomfort?`\
-https://www.nytimes.com/2026/11/03/learning/do-young-people-give-up-too-easily-or-do-older-people-valorize-struggle.html
+**South Carolina Fourth Congressional District 2026: Live Election Results, Timmons vs. McClain**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-house-4.html
 
-**Health Care Premiums Are Going Up, Again. Here’s What We Can Do Now.**\
-`Reforms that save 1 percent or 2 percent of health care costs quickly add up.`\
-https://www.nytimes.com/2026/11/03/opinion/health/health-care-costs.html
+**Tennessee Fourth Congressional District 2026: Live Election Results, DesJarlais vs. Broderick**\
+`Get live results and maps from the 2026 Tennessee general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee-us-house-4.html
 
-**Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
-`(No description)`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+**Nebraska Second Congressional District 2026: Live Election Results, Powell vs. Harding**\
+`Get live results and maps from the 2026 Nebraska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-us-house-2.html
 
