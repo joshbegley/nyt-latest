@@ -1,3 +1,11 @@
+**‘Waiting for Lefty’ Review: Protest Songs in the Key of Life**\
+`The music of the folk duo Yeller Tooth gives Classic Stage Company’s revival of this dated Clifford Odets play a refreshing heart.`\
+https://www.nytimes.com/2026/11/03/theater/waiting-for-lefty-review-odets-pasquale.html
+
+**Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
+`Officials said problems in New York, Georgia, Florida and other places were unfortunate but not unusual. Conspiracists seized on them anyway.`\
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-midterm-elections.html
+
 **Wyoming 2026: Live Midterm Election Results**\
 `Get live results and maps from the 2026 Wyoming elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wyoming.html

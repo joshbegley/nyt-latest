@@ -174,10 +174,6 @@ https://www.nytimes.com/2026/11/03/style/ralph-lauren-keke-palmer-cfdas.html
 `Ian Berry was there when the police opened fire on peaceful protesters in the South African township. He died at 92.`\
 https://www.nytimes.com/2026/11/03/obituaries/ian-berry-dead.html
 
-**In a Rare Evening of Rachmaninoff Operas, Megalomania and Madness**\
-`A trilogy of the composer’s short works becomes an unsparing portrait of unhinged delusion in a new staging by Dmitri Tcherniakov.`\
-https://www.nytimes.com/2026/11/03/arts/music/rachmaninoff-zurich-opera-house-dmitri-tcherniakov.html
-
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump

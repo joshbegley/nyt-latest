@@ -1,3 +1,7 @@
+**‘Waiting for Lefty’ Review: Protest Songs in the Key of Life**\
+`The music of the folk duo Yeller Tooth gives Classic Stage Company’s revival of this dated Clifford Odets play a refreshing heart.`\
+https://www.nytimes.com/2026/11/03/theater/waiting-for-lefty-review-odets-pasquale.html
+
 **Restaurant Review: Zig Zag Oyster Bar in New York**\
 `From the team behind Hart’s, Cervo’s and Eel Bar, the new Zig Zag Oyster Bar is a warm and welcome presence in Prospect Heights.`\
 https://www.nytimes.com/2026/11/03/dining/restaurant-review-zig-zag-oyster-bar-nyc.html
@@ -160,7 +164,7 @@ https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-hi
 
 **Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
 `Officials said problems in New York, Georgia, Florida and other places were unfortunate but not unusual. Conspiracists seized on them anyway.`\
-https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-midterm-elections.html
 
 **At the CFDA Awards, Ralph Lauren Makes History and More Moments**\
 `And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/03/obituaries/ian-berry-dead.html
 **In a Rare Evening of Rachmaninoff Operas, Megalomania and Madness**\
 `A trilogy of the composer’s short works becomes an unsparing portrait of unhinged delusion in a new staging by Dmitri Tcherniakov.`\
 https://www.nytimes.com/2026/11/03/arts/music/rachmaninoff-zurich-opera-house-dmitri-tcherniakov.html
-
-**Wyoming 2026: Live Midterm Election Results**\
-`Get live results and maps from the 2026 Wyoming elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wyoming.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
