@@ -1,3 +1,87 @@
+**What to Watch in California on Election Day**\
+`Voters are deciding on whether to pass a wealth tax, who will be the state’s next governor and more. Here are five things we’re watching.`\
+https://www.nytimes.com/2026/11/03/us/california-election-governor-la-mayor.html
+
+**U.S. Senate Election Results 2026: Live Results**\
+`Follow the latest results from the 2026 midterm elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate.html
+
+**Governor Election Results 2026: Live Results**\
+`Governor Election Results`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-governor.html
+
+**U.S. House Election Results 2026: Live Results**\
+`Follow the latest results from the 2026 midterm elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-house.html
+
+**Wyoming 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wyoming elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wyoming.html
+
+**West Virginia 2026: Live Election Results**\
+`Get live results and maps from the 2026 West Virginia elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-west-virginia.html
+
+**Washington, D.C. 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington, D.C. general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-washington-dc.html
+
+**Washington 2026: Live Election Results**\
+`Get live results and maps from the 2026 Washington elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-washington.html
+
+**Virginia 2026: Live Election Results**\
+`Get live results and maps from the 2026 Virginia elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-virginia.html
+
+**Utah 2026: Live Election Results**\
+`Get live results and maps from the 2026 Utah elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-utah.html
+
+**Texas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas.html
+
+**Tennessee 2026: Live Election Results**\
+`Get live results and maps from the 2026 Tennessee general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee.html
+
+**South Dakota 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Dakota general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-dakota.html
+
+**South Carolina 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina.html
+
+**Pennsylvania 2026: Live Election Results**\
+`Get live results and maps from the 2026 Pennsylvania general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-pennsylvania.html
+
+**Oklahoma 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oklahoma elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma.html
+
+**Vermont 2026: Live Election Results**\
+`Get live results and maps from the 2026 Vermont general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-vermont.html
+
+**Rhode Island 2026: Live Election Results**\
+`Get live results and maps from the 2026 Rhode Island general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-rhode-island.html
+
+**Ohio 2026: Live Election Results**\
+`Get live results and maps from the 2026 Ohio elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio.html
+
+**Wisconsin 2026: Live Election Results**\
+`Get live results and maps from the 2026 Wisconsin general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wisconsin.html
+
+**Oregon 2026: Live Election Results**\
+`Get live results and maps from the 2026 Oregon general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oregon.html
+
 **New Hampshire 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Hampshire general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-hampshire.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-connecticut.
 **Colorado 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
-
-**California 2026: Live Election Results**\
-`Get live results and maps from the 2026 California elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california.html
-
-**Arkansas 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arkansas elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arkansas.html
-
-**Alaska 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alaska general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alaska.html
-
-**Arizona 2026: Live Election Results**\
-`Get live results and maps from the 2026 Arizona elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
-
-**Alabama 2026: Live Election Results**\
-`Get live results and maps from the 2026 Alabama general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alabama.html
-
-**South Carolina Attorney General 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-attorney-general.html
-
-**Texas 19th Congressional District 2026: Live Election Results, Rable vs. Sell**\
-`Get live results and maps from the 2026 Texas general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-19.html
-
-**Texas First Congressional District 2026: Live Election Results, Moran vs. Prince**\
-`Get live results and maps from the 2026 Texas general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-1.html
-
-**South Carolina U.S. Senate 2026: Live Election Results, Graham vs. Andrews**\
-`Get live results and maps from the 2026 South Carolina general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-senate.html
-
-**Nebraska Governor 2026: Live Election Results, Pillen vs. Walz**\
-`Get live results and maps from the 2026 Nebraska general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-governor.html
-
-**Utah First Congressional District 2026: Live Election Results, McAdams vs. Owen**\
-`Get live results and maps from the 2026 Utah general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-utah-us-house-1.html
-
-**Texas Supreme Court Place 8 2026: Live Election Results**\
-`Get live results and maps from the 2026 Texas general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-supreme-court-place-8.html
-
-**Ohio 13th Congressional District 2026: Live Election Results, Sykes vs. Coleman**\
-`Get live results and maps from the 2026 Ohio general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-13.html
-
-**Oklahoma First Congressional District 2026: Live Election Results, Croisant vs. Tedford**\
-`Get live results and maps from the 2026 Oklahoma general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma-us-house-1.html
-
-**Ohio Sixth Congressional District 2026: Live Election Results, Rulli vs. Kirtley**\
-`Get live results and maps from the 2026 Ohio general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-6.html
-
-**Portland, Ore., Local Measure 26-267 Election Results 2026: Participatory Budgeting**\
-`Get live results and maps from the 2026 Oregon general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-portland-ore-local-measure-26-267-participatory-budgeting.html
-
-**Ohio First Congressional District 2026: Live Election Results, Landsman vs. Conroy**\
-`Get live results and maps from the 2026 Ohio general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-1.html
-
-**South Carolina Treasurer 2026: Live Election Results**\
-`Get live results and maps from the 2026 South Carolina general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-treasurer.html
-
-**South Carolina Fourth Congressional District 2026: Live Election Results, Timmons vs. McClain**\
-`Get live results and maps from the 2026 South Carolina general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-house-4.html
-
-**Tennessee Fourth Congressional District 2026: Live Election Results, DesJarlais vs. Broderick**\
-`Get live results and maps from the 2026 Tennessee general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee-us-house-4.html
-
-**Nebraska Second Congressional District 2026: Live Election Results, Powell vs. Harding**\
-`Get live results and maps from the 2026 Nebraska general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-us-house-2.html
 

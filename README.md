@@ -1,3 +1,7 @@
+**Alabama First Congressional District 2026: Live Election Results, Jones vs. Carl**\
+`Get live results and maps from the 2026 Alabama general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alabama-us-house-1.html
+
 **What to Watch in California on Election Day**\
 `Voters are deciding on whether to pass a wealth tax, who will be the state’s next governor and more. Here are five things we’re watching.`\
 https://www.nytimes.com/2026/11/03/us/california-election-governor-la-mayor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-florida.html
 **Connecticut 2026: Live Election Results**\
 `Get live results and maps from the 2026 Connecticut general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-connecticut.html
-
-**Colorado 2026: Live Election Results**\
-`Get live results and maps from the 2026 Colorado elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
 
