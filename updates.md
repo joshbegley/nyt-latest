@@ -1,3 +1,7 @@
+**As Trump’s Midterm Deadline Looms, Gulf Countries Brace for Possible Renewal of Iran War**\
+`The energy-rich Gulf Arab countries are engaged in a flurry of mediation efforts to avert war between the U. S. and Iran, as many fear that the fighting will be worse this time around.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-midterms-election.html
+
 **The Case for a Baseball Salary Cap**\
 `Inside the negotiations for Major League Baseball’s inevitable lockout.`\
 https://www.nytimes.com/2026/11/03/podcasts/the-case-for-a-baseball-salary-cap.html
