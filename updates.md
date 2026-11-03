@@ -1,3 +1,7 @@
+**Democrats Head Into Election Day Feeling Hopeful About the Midterms**\
+`Chuck Schumer thinks his party has expanded the map.`\
+https://www.nytimes.com/2026/11/02/us/politics/democrats-election-day-midterms.html
+
 **Governor Warns New Jersey Ports to Turn Away Russian Fuel**\
 `Gov. Mikie Sherrill sent a letter to 12 port and terminal operators in the state, warning them they “could be subject to millions of dollars in penalties” long after President Trump leaves office.`\
 https://www.nytimes.com/2026/11/02/nyregion/new-jersey-russian-fuel-sherrill-ports.html
