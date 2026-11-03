@@ -1,3 +1,7 @@
+**Candidates Sprint to Finish in Campaign’s Final Hours**\
+`President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\
+https://www.nytimes.com/live/2026/11/02/us/midterms-elections-trump
+
 **From the Front Page: Panama Declares Independence on Nov. 3, 1903**\
 `Panama separated from Colombia, setting the stage for a treaty that gave the United States rights to build the Panama Canal.`\
 https://www.nytimes.com/2026/11/03/learning/from-the-front-page-panama-declares-independence-on-nov-3-1903.html
