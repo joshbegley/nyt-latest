@@ -1,3 +1,7 @@
+**U.S. Military Strikes Iran’s Qeshm Island In What U.S. Officials Call A Defensive Measure**\
+`The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
+
 **Judge Declines to Halt D.H.S. Demands for States to Screen Ballots**\
 `Judge James E. Boasberg ruled that states had largely succeeded in rebuffing the Trump administration’s efforts to disqualify voters, and that Democratic plaintiffs hadn’t suffered direct impacts.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-elections-ballots-states-dhs.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/11/02/us/politics/democrats-split-israel-michigan.h
 https://www.nytimes.com/interactive/2026/11/02/magazine/brain-injury-music-perfect-pitch-edward-freytag.html
 
 **Child Dies From Measles in New York State’s First Fatal Case in 30 Years**\
-`Gov. Kathy Hochul said that the death in Lewis County reflects eroding vaccination levels. The state is experiencing a significant outbreak of the viral illness.`\
+`Gov. Kathy Hochul said that the death in Lewis County reflected eroding vaccination levels. The state is experiencing a significant outbreak of the viral illness.`\
 https://www.nytimes.com/2026/11/02/nyregion/measles-death-child-new-york-lewis-county.html
 
 **Democrats Head Into Election Day Feeling Hopeful About the Midterms**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/02/nyregion/cleveland-guardians-gambling-trial.h
 **Democrats Gain Momentum in Florida Governor’s Race, Worrying DeSantis and Republicans**\
 `Some Florida Republicans, including Gov. Ron DeSantis, have started to sound alarms about sluggish turnout among their voters.`\
 https://www.nytimes.com/2026/11/02/us/elections/david-jolly-byron-donalds-florida-governor.html
-
-**Hosting a Funeral at a Restaurant or Bar**\
-`As more Americans sidestep tradition (and burial), their families are choosing more casual environments to celebrate their lives.`\
-https://www.nytimes.com/2026/11/02/dining/funeral-venue-restaurants-bars.html
 
 **Midterm Elections Live Updates: Candidates Sprint to Finish in Campaign’s Final Hours**\
 `President Trump, who has urged his supporters to pretend he is on the ballot, appeared to brace for the possibility of losses as Democrats expressed optimism they could flip control of Congress.`\

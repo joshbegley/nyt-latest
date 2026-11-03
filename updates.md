@@ -1,3 +1,11 @@
+**U.S. Military Strikes Iran’s Qeshm Island In What U.S. Officials Call A Defensive Measure**\
+`The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
+
+**Child Dies From Measles in New York State’s First Fatal Case in 30 Years**\
+`Gov. Kathy Hochul said that the death in Lewis County reflected eroding vaccination levels. The state is experiencing a significant outbreak of the viral illness.`\
+https://www.nytimes.com/2026/11/02/nyregion/measles-death-child-new-york-lewis-county.html
+
 **Judge Declines to Halt D.H.S. Demands for States to Screen Ballots**\
 `Judge James E. Boasberg ruled that states had largely succeeded in rebuffing the Trump administration’s efforts to disqualify voters, and that Democratic plaintiffs hadn’t suffered direct impacts.`\
 https://www.nytimes.com/2026/11/02/us/politics/trump-elections-ballots-states-dhs.html
