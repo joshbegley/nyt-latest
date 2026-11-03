@@ -1,3 +1,7 @@
+**Afghan Woman Is Among Dozens to Be Deported to Afghanistan**\
+`The Trump administration has arranged a flight to send dozens of Afghan immigrants back to Afghanistan, despite the risk of persecution by the Taliban.`\
+https://www.nytimes.com/2026/11/03/world/asia/afghan-deportation-flight.html
+
 **Voting Problems Cause a Surge in Misleading Fraud Claims Online**\
 `Mentions of “cheat,” “steal,” “rig” and similar terms spiked on X this morning as voting began.`\
 https://www.nytimes.com/2026/11/03/technology/midterm-elections-voter-fraud-claims.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-west-virgini
 **South Dakota 2026: Live Election Results**\
 `Get live results and maps from the 2026 South Dakota general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-dakota.html
-
-**Rhode Island 2026: Live Election Results**\
-`Get live results and maps from the 2026 Rhode Island general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-rhode-island.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\

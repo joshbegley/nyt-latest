@@ -1,3 +1,7 @@
+**Afghan Woman Is Among Dozens to Be Deported to Afghanistan**\
+`The Trump administration has arranged a flight to send dozens of Afghan immigrants back to Afghanistan, despite the risk of persecution by the Taliban.`\
+https://www.nytimes.com/2026/11/03/world/asia/afghan-deportation-flight.html
+
 **King Charles Expresses Horror and Sorrow Over Britain’s Role in Slave Trade**\
 `King Charles III of Britain did not offer a formal apology for Britain’s trans-Atlantic slave trade during his address at the Commonwealth meeting in Antigua on Tuesday.`\
 https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-antigua-commonwealth.html
