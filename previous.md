@@ -1,3 +1,7 @@
+**Voting Problems Cause a Surge in Misleading Fraud Claims Online**\
+`Mentions of “cheat,” “steal,” “rig” and similar terms spiked on X this morning as voting began.`\
+https://www.nytimes.com/2026/11/03/technology/midterm-elections-voter-fraud-claims.html
+
 **A NASA Telescope Is Predicted to Crash Back to Earth Within Hours**\
 `The space agency estimates that there is a one-in-2,100 chance that debris from the Neil Gehrels Swift Observatory could injure someone on the ground.`\
 https://www.nytimes.com/2026/11/03/science/nasa-swift-reentry-crash.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-administration-midterm-elec
 `Hear “Wichita Lineman,” “MacArthur Park,” “P.F. Sloan” and more of the songwriter’s greatest works.`\
 https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-songs.html
 
-**Here Are the 11 Senate races to Watch on Election Day**\
+**Here Are the 11 Senate Races to Watch on Election Day**\
 `Control of the chamber is on the ballot on Election Day.`\
 https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
 
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-dakota
 **Rhode Island 2026: Live Election Results**\
 `Get live results and maps from the 2026 Rhode Island general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-rhode-island.html
-
-**Tennessee 2026: Live Election Results**\
-`Get live results and maps from the 2026 Tennessee general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
