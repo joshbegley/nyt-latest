@@ -1,3 +1,87 @@
+**A Test for Israeli Democracy: Should Jews Ask Arabs to Join the Government?**\
+`Arab lawmakers give opponents of Benjamin Netanyahu a clear majority in the Parliament. But many Jewish lawmakers are trying to avoid relying on them.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/israel-coalition-arab-lawmakers.html
+
+**Solve a Special Mahjong Themed Crossword Puzzle**\
+`This puzzle, constructed by Sala Wanetick, puts the game center stage.`\
+https://www.nytimes.com/2026/11/03/crosswords/special-mahjong-crossword.html
+
+**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
+`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
+https://www.nytimes.com/2026/11/03/us/midterm-election-key-house-senate-races.html
+
+**How Obamacare Premiums Changed for 2027**\
+`The monthly price of the lowest-cost bronze plan rose 13 percent for 2027 for people who buy coverage without a subsidy. The increase is largest for older adults.`\
+https://www.nytimes.com/interactive/2026/11/03/upshot/obamacare-premiums-going-up.html
+
+**Why Southwestern Floods Won’t Solve A Water Crisis**\
+`A series of storms has added to reservoirs in the Colorado River basin, but the long-term water outlook remains bleak.`\
+https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.html
+
+**What’s at Stake in Michigan’s Senate Race**\
+`Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
+https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
+
+**How We Model Election Results With the Needle**\
+`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
+https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
+
+**A Guide to What We’ll Know on Election Night, Hour by Hour**\
+`“Mirages,” midnight swings and long counts: The Needle can cut through the noise.`\
+https://www.nytimes.com/2026/11/03/upshot/poll-closing-times-midterm-elections.html
+
+**In Niagara, Even Grass May Be Radioactive**\
+`A reporter who visited at least six “red hot” radiation zones discusses where the contamination came from.`\
+https://www.nytimes.com/2026/11/03/nyregion/in-niagara-even-grass-may-be-radioactive.html
+
+**Celebrating Day of the Dead, High in Mexico’s Mountains**\
+`Over the course of 10 days in a remote Mexican town, dances and processions summon souls in the belief that the dead are never truly gone.`\
+https://www.nytimes.com/2026/11/03/world/americas/mexico-day-of-the-dead-metlatonoc.html
+
+**Five Things I’m Watching for in Tuesday’s Midterms**\
+`The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
+https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
+
+**Drones Emerge as the Top Killer of Civilians in Sudan’s War**\
+`The weapons have become the No. 1 killer of civilians this year, according to the United Nations, devastating a population already overwhelmed by famine and drought.`\
+https://www.nytimes.com/2026/11/03/world/africa/sudan-drone-civilians-nyala.html
+
+**Ken Burns: Why I’m Optimistic About the Midterms**\
+`There’s something fundamental at stake in the midterms this year, beyond policy differences.`\
+https://www.nytimes.com/2026/11/03/opinion/midterm-elections-politics-ken-burns.html
+
+**Trump Effort to Prove Rampant Noncitizen Voting Leads to Few Charges So Far**\
+`Just 236 people have been charged with voting-fraud-related offenses by the Trump administration, despite its unsubstantiated claims that fraud is widespread.`\
+https://www.nytimes.com/2026/11/03/us/politics/dhs-noncitizen-voting-midterms.html
+
+**Are the Polls Right About Democrats?**\
+`Nate Cohn, our chief political analyst, explains how polling has fared in the Trump era and whether we should trust this year’s midterm polls that are favorable to Democrats.`\
+https://www.nytimes.com/video/us/elections/100000011242167/are-the-polls-right-about-democrats.html
+
+**Supreme Court to Hear Catholic Schools’ Challenge to Colorado Aid Rules**\
+`The Supreme Court considers whether Catholic preschools in Colorado that decline to enroll families with gay and transgender parents can participate in a state program.`\
+https://www.nytimes.com/2026/11/03/us/politics/supreme-court-colorado-catholic-schools-discrimination.html
+
+**Even the Worst Job on the Internet Isn’t Safe From A.I.**\
+`There used to be an honorable way to try to profit from online infamy: selling nearly worthless memecoins. The machines could take it over.`\
+https://www.nytimes.com/2026/11/03/magazine/memecoins-micropayments-ai.html
+
+**When to Expect Results on Election Day**\
+`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
+https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
+
+**Restaurant Review: Graciela in New York**\
+`Graciela channels that country’s distinctive style, steeped in a deep appreciation of beef and skilled in the art of the grill.`\
+https://www.nytimes.com/2026/11/03/dining/restaurant-review-graciela-steakhouse-nyc.html
+
+**His Business Was Tough. Diesel Prices Made It Impossible.**\
+`For small trucking firms operating with little margin for error, high fuel costs can make the difference between survival and bankruptcy.`\
+https://www.nytimes.com/2026/11/03/business/trucking-diesel-prices.html
+
+**6 Themes to Watch for in the Midterms Elections Results**\
+`Republicans are bracing for losses amid a backlash to the president’s economic leadership and the Iran war. Whether that means giving up control of the Senate is Tuesday’s biggest question.`\
+https://www.nytimes.com/2026/11/03/us/midterm-elections-trump-democrats-republicans-key-themes.html
+
 **Neanderthals Used Wood for Tools, Housing — and Murder?**\
 `In one case, 75,000-year-old bones reveal what may be the earliest identifiable victim of death by wooden spear.`\
 https://www.nytimes.com/2026/11/03/science/neanderthals-wood-tools.html

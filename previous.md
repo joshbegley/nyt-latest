@@ -1,3 +1,87 @@
+**A Test for Israeli Democracy: Should Jews Ask Arabs to Join the Government?**\
+`Arab lawmakers give opponents of Benjamin Netanyahu a clear majority in the Parliament. But many Jewish lawmakers are trying to avoid relying on them.`\
+https://www.nytimes.com/2026/11/03/world/middleeast/israel-coalition-arab-lawmakers.html
+
+**Solve a Special Mahjong Themed Crossword Puzzle**\
+`This puzzle, constructed by Sala Wanetick, puts the game center stage.`\
+https://www.nytimes.com/2026/11/03/crosswords/special-mahjong-crossword.html
+
+**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
+`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
+https://www.nytimes.com/2026/11/03/us/midterm-election-key-house-senate-races.html
+
+**How Obamacare Premiums Changed for 2027**\
+`The monthly price of the lowest-cost bronze plan rose 13 percent for 2027 for people who buy coverage without a subsidy. The increase is largest for older adults.`\
+https://www.nytimes.com/interactive/2026/11/03/upshot/obamacare-premiums-going-up.html
+
+**Why Southwestern Floods Won’t Solve A Water Crisis**\
+`A series of storms has added to reservoirs in the Colorado River basin, but the long-term water outlook remains bleak.`\
+https://www.nytimes.com/2026/11/03/climate/floods-arizona-colorado-river-water.html
+
+**What’s at Stake in Michigan’s Senate Race**\
+`Electing Abdul El-Sayed would contribute to the normalization of the antisemitism that his candidacy has helped to produce.`\
+https://www.nytimes.com/2026/11/03/opinion/el-sayed-rogers-michigan-senate.html
+
+**How We Model Election Results With the Needle**\
+`Our live election night forecast is known as “the Needle.” Nate Cohn, chief political analyst for The New York Times, explains how it works.`\
+https://www.nytimes.com/video/us/elections/100000011253864/how-we-model-election-results-with-the-needle.html
+
+**A Guide to What We’ll Know on Election Night, Hour by Hour**\
+`“Mirages,” midnight swings and long counts: The Needle can cut through the noise.`\
+https://www.nytimes.com/2026/11/03/upshot/poll-closing-times-midterm-elections.html
+
+**In Niagara, Even Grass May Be Radioactive**\
+`A reporter who visited at least six “red hot” radiation zones discusses where the contamination came from.`\
+https://www.nytimes.com/2026/11/03/nyregion/in-niagara-even-grass-may-be-radioactive.html
+
+**Celebrating Day of the Dead, High in Mexico’s Mountains**\
+`Over the course of 10 days in a remote Mexican town, dances and processions summon souls in the belief that the dead are never truly gone.`\
+https://www.nytimes.com/2026/11/03/world/americas/mexico-day-of-the-dead-metlatonoc.html
+
+**Five Things I’m Watching for in Tuesday’s Midterms**\
+`The political winds are blowing in Democrats’ direction. The question is: How strong are they?`\
+https://www.nytimes.com/2026/11/03/opinion/midterms-democrats-republicans-senate.html
+
+**Drones Emerge as the Top Killer of Civilians in Sudan’s War**\
+`The weapons have become the No. 1 killer of civilians this year, according to the United Nations, devastating a population already overwhelmed by famine and drought.`\
+https://www.nytimes.com/2026/11/03/world/africa/sudan-drone-civilians-nyala.html
+
+**Ken Burns: Why I’m Optimistic About the Midterms**\
+`There’s something fundamental at stake in the midterms this year, beyond policy differences.`\
+https://www.nytimes.com/2026/11/03/opinion/midterm-elections-politics-ken-burns.html
+
+**Trump Effort to Prove Rampant Noncitizen Voting Leads to Few Charges So Far**\
+`Just 236 people have been charged with voting-fraud-related offenses by the Trump administration, despite its unsubstantiated claims that fraud is widespread.`\
+https://www.nytimes.com/2026/11/03/us/politics/dhs-noncitizen-voting-midterms.html
+
+**Are the Polls Right About Democrats?**\
+`Nate Cohn, our chief political analyst, explains how polling has fared in the Trump era and whether we should trust this year’s midterm polls that are favorable to Democrats.`\
+https://www.nytimes.com/video/us/elections/100000011242167/are-the-polls-right-about-democrats.html
+
+**Supreme Court to Hear Catholic Schools’ Challenge to Colorado Aid Rules**\
+`The Supreme Court considers whether Catholic preschools in Colorado that decline to enroll families with gay and transgender parents can participate in a state program.`\
+https://www.nytimes.com/2026/11/03/us/politics/supreme-court-colorado-catholic-schools-discrimination.html
+
+**Even the Worst Job on the Internet Isn’t Safe From A.I.**\
+`There used to be an honorable way to try to profit from online infamy: selling nearly worthless memecoins. The machines could take it over.`\
+https://www.nytimes.com/2026/11/03/magazine/memecoins-micropayments-ai.html
+
+**When to Expect Results on Election Day**\
+`On Election Day, information flows into our newsroom from across the country. Throughout the day and night, there will be some key races to watch. Carolyn Ryan, managing editor of The New York Times, walks through a timeline of events on one of the biggest political nights of the year.`\
+https://www.nytimes.com/video/insider/100000011237011/when-to-expect-results-on-election-day.html
+
+**Restaurant Review: Graciela in New York**\
+`Graciela channels that country’s distinctive style, steeped in a deep appreciation of beef and skilled in the art of the grill.`\
+https://www.nytimes.com/2026/11/03/dining/restaurant-review-graciela-steakhouse-nyc.html
+
+**His Business Was Tough. Diesel Prices Made It Impossible.**\
+`For small trucking firms operating with little margin for error, high fuel costs can make the difference between survival and bankruptcy.`\
+https://www.nytimes.com/2026/11/03/business/trucking-diesel-prices.html
+
+**6 Themes to Watch for in the Midterms Elections Results**\
+`Republicans are bracing for losses amid a backlash to the president’s economic leadership and the Iran war. Whether that means giving up control of the Senate is Tuesday’s biggest question.`\
+https://www.nytimes.com/2026/11/03/us/midterm-elections-trump-democrats-republicans-key-themes.html
+
 **Neanderthals Used Wood for Tools, Housing — and Murder?**\
 `In one case, 75,000-year-old bones reveal what may be the earliest identifiable victim of death by wooden spear.`\
 https://www.nytimes.com/2026/11/03/science/neanderthals-wood-tools.html
@@ -113,88 +197,4 @@ https://www.nytimes.com/2026/11/03/fashion/gifts-pet-portraits-embroidery-art.ht
 **Playing the Gift-Giving Game**\
 `Board and card games provide myriad options for your holiday lists.`\
 https://www.nytimes.com/2026/11/03/fashion/gifts-games-backgammon-monopoly-mahjong.html
-
-**Let the N.F.L. Fashion Editor Build Your Gift List**\
-`Kyle Smith suggests everything from a super-long phone cord to a cozy winter blanket.`\
-https://www.nytimes.com/2026/11/03/fashion/holiday-shopping-nfl-kyle-smith.html
-
-**Maxx the Whimsy in Your Holiday Gifts**\
-`Seven experts suggest fanciful items for seasonal giving.`\
-https://www.nytimes.com/2026/11/03/fashion/maxx-the-whimsy-in-your-holiday-gifts.html
-
-**The Cost of Gold Has Designers Looking for Alternatives**\
-`In 2025 you gave someone a 14 karat gold chain. Designers say you would be surprised to know its cost this year, but they are looking for alternatives.`\
-https://www.nytimes.com/2026/11/03/fashion/gold-jewelry-holiday-shopping.html
-
-**Many Cultures Have Ways of Preparing Food at the Table**\
-`For a gastronomical gift: Many cultures have ways of preparing food right in front of your family or guests.`\
-https://www.nytimes.com/2026/11/03/fashion/cooking-at-the-table.html
-
-**Britain Already Is Anticipating the Holiday Ads**\
-`As the year winds down, speculation increases about which story-led advertisements will be most popular this year.`\
-https://www.nytimes.com/2026/11/03/fashion/holiday-advertisements-britain-waitrose.html
-
-**Trump’s Immigration Dragnet Sweeps Up Ukrainian Truckers Who Fled War**\
-`At least a dozen Ukrainian truck drivers were arrested this summer, according to a representative for Ukraine. Several remain in detention.`\
-https://www.nytimes.com/2026/11/03/us/ukraine-immigrant-trucker-cdl-weigh-stations-ice.html
-
-**Old, Polluting Jet Engines Are Being Scavenged to Power Data Centers**\
-`(No description)`\
-https://www.nytimes.com/2026/11/03/climate/jet-engines-ai-data-center-generators-boneyard.html
-
-**Colleges Are Tempting Other Schools’ Donors to Give to Them Instead**\
-`New campuses and “we’re not Harvard” signals have drawn some wealthy donors to give to universities where they hadn’t sent checks before.`\
-https://www.nytimes.com/2026/11/03/us/colleges-unaffiliated-donors.html
-
-**Australian Court Hears Challenge to Social Media Ban**\
-`Reddit and an Australian digital advocacy group are claiming a law that restricts children younger than 16 from popular platforms infringes on their constitutional rights.`\
-https://www.nytimes.com/2026/11/03/world/asia/australia-social-media-ban-high-court.html
-
-**15-Minute Lesson Plan: Secret Schools for Afghan Girls**\
-`What is it like to risk your freedom to go to school?`\
-https://www.nytimes.com/2026/11/03/learning/15-minute-lesson-plan-secret-schools-for-afghan-girls.html
-
-**Supermarkets Across Europe Possibly Targeted in Cyberattack**\
-`Freezers at grocery stores in at least seven European countries have malfunctioned, blowing hot air and spoiling refrigerated products.`\
-https://www.nytimes.com/video/world/europe/100000011256693/supermarket-europe-freezer-cyber-attack.html
-
-**It’s Election Day in New York. Here’s What to Know.**\
-`Statewide races for governor, attorney general and comptroller occupy the top of the ticket, but Democratic leaders are focused on two House seats they hope to flip.`\
-https://www.nytimes.com/2026/11/03/nyregion/election-day-guide-ny.html
-
-**NYT Spelling Bee Answers for November 3, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/03/crosswords/spelling-bee-forum.html
-
-**Saudi Aramco Profit Jumps Despite Damaging Attacks on Pipelines and Refineries**\
-`Saudi Arabia’s state-owned oil company posted a 9 percent increase in third-quarter profit on Tuesday.`\
-https://www.nytimes.com/2026/11/03/business/saudi-aramco-q3-earnings.html
-
-**Jimmy Kimmel Mocks the President’s ‘Pettysburg Address’**\
-`“And where better to reassure the public that they are in good hands than in front of a pool you’ve repeatedly botched to the tune of $16 million?” Kimmel said of Trump’s speech before the midterms.`\
-https://www.nytimes.com/2026/11/03/arts/television/jimmy-kimmel-trump-midterms.html
-
-**Latin America’s Swing to the Right Was Never About Trump**\
-`The Trump administration has profoundly misread Latin America’s political winds.`\
-https://www.nytimes.com/2026/11/03/opinion/lula-brazil-latin-america-trump.html
-
-**From the Front Page: Panama Declares Independence on Nov. 3, 1903**\
-`Panama separated from Colombia, setting the stage for a treaty that gave the United States rights to build the Panama Canal.`\
-https://www.nytimes.com/2026/11/03/learning/from-the-front-page-panama-declares-independence-on-nov-3-1903.html
-
-**U.S. Military Strikes Iran’s Qeshm Island in What U.S. Officials Call a Defensive Measure**\
-`The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
-https://www.nytimes.com/2026/11/02/us/politics/us-military-strikes-iran-qeshm-island.html
-
-**Judge Declines to Halt D.H.S. Demands for States to Screen Ballots**\
-`Judge James E. Boasberg ruled that states had largely succeeded in rebuffing the Trump administration’s efforts to disqualify voters, and that Democratic plaintiffs hadn’t suffered direct impacts.`\
-https://www.nytimes.com/2026/11/02/us/politics/trump-elections-ballots-states-dhs.html
-
-**Runner, 24, Dies During Her First Marathon**\
-`Rachel Apa collapsed in Central Park. The cause was rhabdomyolysis, a rare muscle condition that can be brought on by exertion, her father said.`\
-https://www.nytimes.com/2026/11/02/nyregion/marathon-runner-dies-rachel-apa.html
-
-**NYT Crossword Answers for Nov. 3, 2026**\
-`Victor Schmitt has the last laugh.`\
-https://www.nytimes.com/2026/11/02/crosswords/daily-puzzle-2026-11-03.html
 
