@@ -160,7 +160,7 @@ https://www.nytimes.com/2026/11/03/arts/television/eric-dane-memoir-book-days-hi
 
 **Voting Machine Snags Reported at Polling Sites Lead to Election Conspiracy Theories**\
 `Officials said problems in New York, Georgia, Florida and other places were unfortunate but not unusual. Conspiracists seized on them anyway.`\
-https://www.nytimes.com/2026/11/03/us/voting-machine-issues-westchester-new-york.html
+https://www.nytimes.com/2026/11/03/us/voting-machine-issues-midterm-elections.html
 
 **At the CFDA Awards, Ralph Lauren Makes History and More Moments**\
 `And Anna Wintour reveals her pick for the midterm elections. Here’s what else happened at the CFDAs.`\
