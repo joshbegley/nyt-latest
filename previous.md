@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Netflix in November**\
+`A crypto-crash docudrama and a supernatural teen horror series are among this month’s highlights.`\
+https://www.nytimes.com/2026/11/03/arts/television/netflix-new-november.html
+
+**An 80-Cent Plastic Pouch Is Saving Thousands of Women From Dying in Childbirth**\
+`The maternal drape, as it is called, is helping to solve one of the world’s most intractable health problems.`\
+https://www.nytimes.com/2026/11/03/health/maternal-drapes-nigeria-childbirth.html
+
 **Trump Makes Last Pitch to Voters on Election Day**\
 `As Americans went to the polls for an election widely seen as a referendum on his second term, President Trump again downplayed concerns over the cost of living and addressed unpopular foreign policy matters.`\
 https://www.nytimes.com/2026/11/03/us/trump-midterms-voters-election-day.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-massachusett
 **Minnesota 2026: Live Election Results**\
 `Get live results and maps from the 2026 Minnesota general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-minnesota.html
-
-**Maine 2026: Live Election Results**\
-`Get live results and maps from the 2026 Maine general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine.html
-
-**Michigan 2026: Live Election Results**\
-`Get live results and maps from the 2026 Michigan general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-michigan.html
 
 **Midterm Elections Live Updates: A Divided Nation Votes to Decide Control of Congress**\
 `(No description)`\
