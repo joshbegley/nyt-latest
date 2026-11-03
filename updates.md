@@ -1,3 +1,7 @@
+**OpenAI and Anthropic Set Up ‘War Rooms’ to Fight Disinfo About Midterm Elections**\
+`OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
+https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
+
 **Tech Giants Try to Curb A.I.-Generated Misinformation About the Midterm Elections**\
 `OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
 https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
