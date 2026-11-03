@@ -1,3 +1,7 @@
+**Willie Nelson’s Wife, Annie D’Angelo, on Their Life Together**\
+`For almost 40 years, Annie D’Angelo has kept Nelson, her husband, going. She is ready to step into the spotlight herself.`\
+https://www.nytimes.com/2026/11/03/style/willie-nelson-annie-dangelo-wife-last-leaf.html
+
 **Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
 `The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
