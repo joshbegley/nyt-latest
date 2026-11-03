@@ -1,3 +1,7 @@
+**Tech Giants Try to Curb A.I.-Generated Misinformation About the Midterm Elections**\
+`OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
+https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
+
 **When Children Are Charged With Crimes**\
 `Readers respond to a news article, “In Texas, Minor Misdeeds Can Get a Young Student Arrested.” Also: The elusive truth.`\
 https://www.nytimes.com/2026/11/03/opinion/criminal-charges-children.html

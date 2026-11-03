@@ -1,3 +1,7 @@
+**Tech Giants Try to Curb A.I.-Generated Misinformation About the Midterm Elections**\
+`OpenAI, Anthropic and other tech companies have vowed to protect Tuesday’s elections from efforts to undermine democracy.`\
+https://www.nytimes.com/2026/11/03/business/ai-midterm-election-misinformation.html
+
 **When Children Are Charged With Crimes**\
 `Readers respond to a news article, “In Texas, Minor Misdeeds Can Get a Young Student Arrested.” Also: The elusive truth.`\
 https://www.nytimes.com/2026/11/03/opinion/criminal-charges-children.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-montana.html
 **New Mexico 2026: Live Election Results**\
 `Get live results and maps from the 2026 New Mexico elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-mexico.html
-
-**Missouri 2026: Live Election Results**\
-`Get live results and maps from the 2026 Missouri general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-missouri.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
