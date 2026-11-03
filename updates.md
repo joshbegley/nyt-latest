@@ -1,3 +1,11 @@
+**Maine U.S. Senate 2026: Live Election Results, Collins vs. Jackson**\
+`Get live results and maps from the 2026 Maine general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
+
+**Is Sysco Making Every Restaurant the Same, or Saving Small Business Owners?**\
+`Depending on whom you ask, the giant food distributor is flattening the way we eat, or helping small business owners survive. Maybe both are true?`\
+https://www.nytimes.com/2026/11/03/dining/sysco-restaurants-small-business-owners.html
+
 **Binance Says Hackers Plotted $6.3 Billion Crypto Heist for Months**\
 `A report from the cryptocurrency exchange described a monthslong campaign involving fake job interviews that exploited an engineer’s work computer and an internal A.I. tool.`\
 https://www.nytimes.com/2026/11/03/technology/binance-hack-report.html
