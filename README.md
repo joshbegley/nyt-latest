@@ -1,3 +1,115 @@
+**New Hampshire 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Hampshire general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-hampshire.html
+
+**Nevada 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nevada elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nevada.html
+
+**Mississippi 2026: Live Election Results**\
+`Get live results and maps from the 2026 Mississippi elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-mississippi.html
+
+**Nebraska 2026: Live Election Results**\
+`Get live results and maps from the 2026 Nebraska elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska.html
+
+**Montana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Montana general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-montana.html
+
+**North Dakota 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Dakota elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-dakota.html
+
+**North Carolina 2026: Live Election Results**\
+`Get live results and maps from the 2026 North Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-north-carolina.html
+
+**New York 2026: Live Election Results**\
+`Get live results and maps from the 2026 New York general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-york.html
+
+**New Mexico 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Mexico elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-mexico.html
+
+**New Jersey 2026: Live Election Results**\
+`Get live results and maps from the 2026 New Jersey general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-new-jersey.html
+
+**Missouri 2026: Live Election Results**\
+`Get live results and maps from the 2026 Missouri general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-missouri.html
+
+**Minnesota 2026: Live Election Results**\
+`Get live results and maps from the 2026 Minnesota general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-minnesota.html
+
+**Michigan 2026: Live Election Results**\
+`Get live results and maps from the 2026 Michigan general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-michigan.html
+
+**Maryland 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maryland general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maryland.html
+
+**Massachusetts 2026: Live Election Results**\
+`Get live results and maps from the 2026 Massachusetts general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-massachusetts.html
+
+**Maine 2026: Live Election Results**\
+`Get live results and maps from the 2026 Maine general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine.html
+
+**Illinois 2026: Live Election Results**\
+`Get live results and maps from the 2026 Illinois general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-illinois.html
+
+**Louisiana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Louisiana elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-louisiana.html
+
+**Kentucky 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kentucky elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kentucky.html
+
+**Kansas 2026: Live Election Results**\
+`Get live results and maps from the 2026 Kansas elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-kansas.html
+
+**Iowa 2026: Live Election Results**\
+`Get live results and maps from the 2026 Iowa general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-iowa.html
+
+**Indiana 2026: Live Election Results**\
+`Get live results and maps from the 2026 Indiana general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-indiana.html
+
+**Idaho 2026: Live Election Results**\
+`Get live results and maps from the 2026 Idaho general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-idaho.html
+
+**Hawaii 2026: Live Election Results**\
+`Get live results and maps from the 2026 Hawaii elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-hawaii.html
+
+**Georgia 2026: Live Election Results**\
+`Get live results and maps from the 2026 Georgia general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-georgia.html
+
+**Delaware 2026: Live Election Results**\
+`Get live results and maps from the 2026 Delaware general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-delaware.html
+
+**Florida 2026: Live Election Results**\
+`Get live results and maps from the 2026 Florida elections.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-florida.html
+
+**Connecticut 2026: Live Election Results**\
+`Get live results and maps from the 2026 Connecticut general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-connecticut.html
+
 **Colorado 2026: Live Election Results**\
 `Get live results and maps from the 2026 Colorado elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado.html
@@ -22,179 +134,67 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-arizona.html
 `Get live results and maps from the 2026 Alabama general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-alabama.html
 
-**Corrections: Oct. 3, 2026**\
-`Corrections that appeared in print on Tuesday, Nov. 3, 2026.`\
-https://www.nytimes.com/2026/11/03/pageoneplus/corrections-oct-3-2026.html
+**South Carolina Attorney General 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-attorney-general.html
 
-**Colorado Proposition 134 Election Results 2026: Trans Athletes’ Participation in School Sports**\
-`Get live results and maps from the 2026 Colorado general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-colorado-proposition-134-trans-athletes-participation-in-school-sports.html
+**Texas 19th Congressional District 2026: Live Election Results, Rable vs. Sell**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-19.html
 
-**Chicago Question 3 Election Results 2026: Compensation for ICE Operations**\
-`Get live results and maps from the 2026 Illinois general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-3-compensation-for-ice-operations.html
+**Texas First Congressional District 2026: Live Election Results, Moran vs. Prince**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-us-house-1.html
 
-**Chicago Question 2 Election Results 2026: Festival and Outdoor Event Space**\
-`Get live results and maps from the 2026 Illinois general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-2-festival-and-outdoor-event-space.html
+**South Carolina U.S. Senate 2026: Live Election Results, Graham vs. Andrews**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-senate.html
 
-**California 52nd Congressional District 2026: Live Election Results, Vargas vs. Belle**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-52.html
+**Nebraska Governor 2026: Live Election Results, Pillen vs. Walz**\
+`Get live results and maps from the 2026 Nebraska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-governor.html
 
-**Chicago Question 1 Election Results 2026: Gunshot Detection Technology**\
-`Get live results and maps from the 2026 Illinois general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-chicago-question-1-gunshot-detection-technology.html
+**Utah First Congressional District 2026: Live Election Results, McAdams vs. Owen**\
+`Get live results and maps from the 2026 Utah general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-utah-us-house-1.html
 
-**California Eighth Congressional District 2026: Live Election Results, Garamendi vs. Recile**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-8.html
+**Texas Supreme Court Place 8 2026: Live Election Results**\
+`Get live results and maps from the 2026 Texas general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas-supreme-court-place-8.html
 
-**California 51st Congressional District 2026: Live Election Results, Jacobs vs. Cabrera**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-51.html
+**Ohio 13th Congressional District 2026: Live Election Results, Sykes vs. Coleman**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-13.html
 
-**California Ninth Congressional District 2026: Live Election Results, Harder vs. McBride**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-9.html
+**Oklahoma First Congressional District 2026: Live Election Results, Croisant vs. Tedford**\
+`Get live results and maps from the 2026 Oklahoma general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma-us-house-1.html
 
-**California 49th Congressional District 2026: Live Election Results, Levin vs. Kurdian**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-49.html
+**Ohio Sixth Congressional District 2026: Live Election Results, Rulli vs. Kirtley**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-6.html
 
-**California Seventh Congressional District 2026: Live Election Results, Matsui vs. Vang**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-7.html
+**Portland, Ore., Local Measure 26-267 Election Results 2026: Participatory Budgeting**\
+`Get live results and maps from the 2026 Oregon general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-portland-ore-local-measure-26-267-participatory-budgeting.html
 
-**California Fifth Congressional District 2026: Live Election Results, McClintock vs. Masuda**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-5.html
+**Ohio First Congressional District 2026: Live Election Results, Landsman vs. Conroy**\
+`Get live results and maps from the 2026 Ohio general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio-us-house-1.html
 
-**California 46th Congressional District 2026: Live Election Results, Correa vs. Pan**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-46.html
+**South Carolina Treasurer 2026: Live Election Results**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-treasurer.html
 
-**California 42nd Congressional District 2026: Live Election Results, Garcia vs. Burley**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-42.html
+**South Carolina Fourth Congressional District 2026: Live Election Results, Timmons vs. McClain**\
+`Get live results and maps from the 2026 South Carolina general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-south-carolina-us-house-4.html
 
-**California 41st Congressional District 2026: Live Election Results, Sanchez vs. Clemmons**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-41.html
+**Tennessee Fourth Congressional District 2026: Live Election Results, DesJarlais vs. Broderick**\
+`Get live results and maps from the 2026 Tennessee general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-tennessee-us-house-4.html
 
-**California 48th Congressional District 2026: Live Election Results, von Wilpert vs. Desmond**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-48.html
-
-**California 40th Congressional District 2026: Live Election Results, Calvert vs. Kim**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-40.html
-
-**California Fourth Congressional District 2026: Live Election Results, Thompson vs. Jones**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-4.html
-
-**California 43rd Congressional District 2026: Live Election Results, Waters vs. Morales**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-43.html
-
-**California First Congressional District 2026: Live Election Results, Gallagher vs. McGuire**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-1.html
-
-**California 44th Congressional District 2026: Live Election Results, Barragan vs. Angel**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-44.html
-
-**California 47th Congressional District 2026: Live Election Results, Min vs. Le Roux**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-47.html
-
-**California 36th Congressional District 2026: Live Election Results, Lieu vs. Brignano**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-36.html
-
-**California 33rd Congressional District 2026: Live Election Results, Aguilar vs. Vargas**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-33.html
-
-**California 32nd Congressional District 2026: Live Election Results, Sherman vs. Thompson**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-32.html
-
-**California 35th Congressional District 2026: Live Election Results, Torres vs. Cargile**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-35.html
-
-**California 34th Congressional District 2026: Live Election Results, Gomez vs. Gonzales-Torres**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-34.html
-
-**California 31st Congressional District 2026: Live Election Results, Cisneros vs. Ching**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-31.html
-
-**California 30th Congressional District 2026: Live Election Results, Friedman vs. Meyers**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-30.html
-
-**California 39th Congressional District 2026: Live Election Results, Takano vs. Manos**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-39.html
-
-**California 37th Congressional District 2026: Live Election Results, Kamlager-Dove vs. Mota**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-37.html
-
-**California 38th Congressional District 2026: Live Election Results, Solis vs. Casas**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-38.html
-
-**California 25th Congressional District 2026: Live Election Results, Ruiz vs. Males**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-25.html
-
-**California 26th Congressional District 2026: Live Election Results, Irwin vs. Gallucci**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-26.html
-
-**California 24th Congressional District 2026: Live Election Results, Carbajal vs. Smith**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-24.html
-
-**California Third Congressional District 2026: Live Election Results, Bera vs. Tucker**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-3.html
-
-**California 27th Congressional District 2026: Live Election Results, Whitesides vs. Gibbs**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-27.html
-
-**California 29th Congressional District 2026: Live Election Results, Rivas vs. Duenas**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-29.html
-
-**California 28th Congressional District 2026: Live Election Results, Chu vs. Verlato**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-28.html
-
-**California 22nd Congressional District 2026: Live Election Results, Valadao vs. Villegas**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-22.html
-
-**California 21st Congressional District 2026: Live Election Results, Costa vs. Kirkland**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-21.html
-
-**California 19th Congressional District 2026: Live Election Results, Panetta vs. Verbica**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-19.html
-
-**California 20th Congressional District 2026: Live Election Results, Fong vs. Van Scotter**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-20.html
-
-**California 12th Congressional District 2026: Live Election Results, Simon vs. Joyce**\
-`Get live results and maps from the 2026 California general election.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-california-us-house-12.html
+**Nebraska Second Congressional District 2026: Live Election Results, Powell vs. Harding**\
+`Get live results and maps from the 2026 Nebraska general election.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-nebraska-us-house-2.html
 
