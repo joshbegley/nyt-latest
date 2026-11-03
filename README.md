@@ -1,3 +1,7 @@
+**The Sublime Songs of Jimmy Webb**\
+`Hear “Wichita Lineman,” “MacArthur Park,” “P.F. Sloan” and more of the songwriter’s greatest works.`\
+https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-songs.html
+
 **Here Are the 11 Senate races to Watch on Election Day**\
 `Control of the chamber is on the ballot on Election Day.`\
 https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
@@ -42,7 +46,7 @@ https://www.nytimes.com/video/world/europe/100000011257235/king-charles-slavery-
 `Prime Minister Donald Tusk said there had been “disturbing movement” in Kaliningrad, a Russian region just north of Poland.`\
 https://www.nytimes.com/2026/11/03/world/europe/poland-russia-kaliningrad.html
 
-**Maine U.S. Senate 2026: Live Election Results, Collins vs. Jackson**\
+**Maine U.S. Senate 2026: Live Midterm Election Results, Collins vs. Jackson**\
 `Get live results and maps from the 2026 Maine general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-maine-us-senate.html
 
@@ -177,14 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-texas.html
 **Oregon 2026: Live Election Results**\
 `Get live results and maps from the 2026 Oregon general election.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oregon.html
-
-**Ohio 2026: Live Election Results**\
-`Get live results and maps from the 2026 Ohio elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-ohio.html
-
-**Oklahoma 2026: Live Election Results**\
-`Get live results and maps from the 2026 Oklahoma elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-oklahoma.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
