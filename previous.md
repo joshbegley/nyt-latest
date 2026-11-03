@@ -1,3 +1,7 @@
+**Pardoned Jan. 6 Defendant Is Accused of Threatening Federal Judges**\
+`Cleveland Meredith, who pleaded guilty to a charge connected to a threat to kill Nancy Pelosi, was arrested on Monday, accused of threatening federal judges, prosecutors said.`\
+https://www.nytimes.com/2026/11/03/us/meredith-jan-6-pardon-judge-threats.html
+
 **Lawyers Spar Over Trump’s Executive Privilege in Kennedy Center Case**\
 `The administration is withholding communications sought by a Democratic lawmaker who is suing over the president’s management of the arts venue.`\
 https://www.nytimes.com/2026/11/03/arts/trump-kennedy-center-executive-privilege.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-wisconsin.ht
 **Virginia 2026: Live Election Results**\
 `Get live results and maps from the 2026 Virginia elections.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-virginia.html
-
-**West Virginia 2026: Live Election Results**\
-`Get live results and maps from the 2026 West Virginia elections.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-west-virginia.html
 
 **Midterm Elections Live Updates: Control of Congress on the Line as a Divided Nation Votes**\
 `(No description)`\
