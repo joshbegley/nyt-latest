@@ -1,3 +1,7 @@
+**Key Part of Jet in Deadly Florida Crash Found Far From Impact Site**\
+`The mechanism that controls the vertical angle of the plane was found in three pieces, including one nearly four miles away. All nine people aboard were killed.`\
+https://www.nytimes.com/2026/11/03/us/florida-plane-crash-wreckage-recovered.html
+
 **The On Politics Guide to Election Night**\
 `How to watch tonight’s results, according to our reporters and editors.`\
 https://www.nytimes.com/2026/11/03/us/politics/the-on-politics-guide-to-election-night.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/03/style/willie-nelson-annie-dangelo-wife-last-l
 **Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
 `The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
-
-**She Wrote the Book on Prada**\
-`How the 1990s turned a little family label into a megabrand.`\
-https://www.nytimes.com/2026/11/03/style/prada-in-the-nineties-book.html
 
 **Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
 `(No description)`\
