@@ -1,3 +1,7 @@
+**U.S. Military Strikes Iran’s Qeshm Island in What U.S. Officials Call a Defensive Measure**\
+`The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
+https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
+
 **U.S. Military Strikes Iran’s Qeshm Island In What U.S. Officials Call A Defensive Measure**\
 `The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
 https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
