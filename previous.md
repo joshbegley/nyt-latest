@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/11/03/learning/from-the-front-page-panama-declares-
 
 **U.S. Military Strikes Iran’s Qeshm Island in What U.S. Officials Call a Defensive Measure**\
 `The action was limited, the officials said, with no immediate plans to escalate. The strikes come on the eve of the midterm elections.`\
-https://www.nytimes.com/2026/11/02/us/politics/us-military-strike-defensive-iran.html
+https://www.nytimes.com/2026/11/02/us/politics/us-military-strikes-iran-qeshm-island.html
 
 **Judge Declines to Halt D.H.S. Demands for States to Screen Ballots**\
 `Judge James E. Boasberg ruled that states had largely succeeded in rebuffing the Trump administration’s efforts to disqualify voters, and that Democratic plaintiffs hadn’t suffered direct impacts.`\
