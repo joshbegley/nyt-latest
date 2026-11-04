@@ -1,3 +1,11 @@
+**The Blame Game Begins**\
+`Also, Democrats will have a huge majority in the House. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-power.html
+
+**G.O.P. Group Says Party Faces a ‘Crisis-Level’ Loss of Elected Women**\
+`Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
+https://www.nytimes.com/2026/11/04/us/gop-group-says-party-faces-a-crisis-level-loss-of-elected-women.html
+
 **Whose Idea Was the Billy Evans Shower Scene in ‘You Can See Everything’?**\
 `Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
 https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
