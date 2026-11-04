@@ -166,7 +166,7 @@ https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-so
 `Control of the chamber is on the ballot on Election Day.`\
 https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
 
-**Midterm Elections Live Updates: Polls Close in South Carolina and Georgia With Senate Majority at Stake**\
+**Midterm Elections Live Updates: Polls Close in Several Battlegrounds in Fight to Control Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
