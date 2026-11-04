@@ -1,3 +1,7 @@
+**How New Hampshire Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-new-hampshire.html
+
 **Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
 `Aaron Spencer, who admitted to fatally shooting a man charged with sexual assaulting Mr. Spencer’s daughter, had won the Republican nomination.`\
 https://www.nytimes.com/2026/11/04/us/aaron-spencer-lonoke-county-sheriff-arkansas.html
