@@ -1,3 +1,15 @@
+**‘We Will Find You’: Trump Officials Pledge to Arrest Noncitizen Voters**\
+`Immigration agents did not show up in large numbers at polling places. But Trump administration officials repeatedly warned on Election Day that noncitizen voters would face consequences.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-mullin-noncitizen-voting-arrests.html
+
+**NASA Astronaut Votes From Space**\
+`The NASA astronaut Dr. Anil Menon explained how he cast his ballot for the Texas midterm election from the International Space Station.`\
+https://www.nytimes.com/video/us/elections/100000011259692/nasa-astronaut-votes-from-space.html
+
+**Representative Chris Pappas Will Become the Senate’s First Openly Gay Male Senator**\
+`Representative Chris Pappas, Democrat of New Hampshire, will move to the upper chamber as L.G.B.T.Q. rights have faced pushback in some states.`\
+https://www.nytimes.com/2026/11/03/us/politics/chris-pappas-first-openly-gay-male-senator.html
+
 **Republican Ashley Moody Holds On to Florida Senate Seat, Defeating Angie Nixon**\
 `Ms. Moody, who had been appointed to the position to replace Marco Rubio, won a special election to finish his term, defeating a strong, grass-roots challenge from Angie Nixon, a state lawmaker.`\
 https://www.nytimes.com/2026/11/03/us/mood-nixon-florida-senate-election.html
