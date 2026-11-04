@@ -1,3 +1,15 @@
+**Keisha Lance Bottoms Wins in Georgia to Become First Black Woman Elected U.S. Governor**\
+`Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
+https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
+
+**Jon Ossoff Suddenly Looks Even More Presidential**\
+`Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
+https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
+
+**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
+`Kristen Soltis Anderson and Jamelle Bouie focus on the early results from Georgia, North Carolina and across the country.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
 `Kristen Soltis Anderson, Jamelle Bouie and Carlos Lozada talk about`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html

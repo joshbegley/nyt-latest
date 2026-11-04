@@ -1,4 +1,4 @@
-**Democrat Wins Georgia Governor’s Race, a Breakthrough for Black Women**\
+**Keisha Lance Bottoms Wins in Georgia to Become First Black Woman Elected U.S. Governor**\
 `Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
 https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
 
@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
 `Representative Chris Pappas beat a former Republican senator, John E. Sununu. He will succeed the Democratic incumbent, Jeanne Shaheen, who did not run for re-election.`\
 https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
 
-**Jon Ossoff Looks Pretty Presidential**\
+**Jon Ossoff Suddenly Looks Even More Presidential**\
 `Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
 https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
 
@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Kristen Soltis Anderson, Jamelle Bouie and Carlos Lozada talk about`\
+`Kristen Soltis Anderson and Jamelle Bouie focus on the early results from Georgia, North Carolina and across the country.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
