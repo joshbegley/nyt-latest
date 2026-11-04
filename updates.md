@@ -1,3 +1,15 @@
+**The 7 Senate Flips That Ended Decades of Republican Control**\
+`Democrats flipped several Senate seats, most of which had been held by Republicans since former President Obama was elected in 2008.`\
+https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-senate-states.html
+
+**A Blue Wave**\
+`In a rebuke to President Trump, the Democrats flipped both the Senate and the House.`\
+https://www.nytimes.com/2026/11/04/briefing/a-blue-wave.html
+
+**How Arizona Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-arizona.html
+
 **Musk Faces Setback as SpaceX and Tesla Stocks Tumble on Midterm Election Results**\
 `The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
 https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
