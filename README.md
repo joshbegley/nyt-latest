@@ -1,3 +1,7 @@
+**Sherrod Brown Regains an Ohio Senate Seat in Crucial Win for Democrats**\
+`Ousted two years ago by a Republican challenger, Mr. Brown returns to Washington in the seat once held by Vice President JD Vance.`\
+https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
+
 **Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
 `If Democrats want to take back the White House, they should follow the Ohio senator’s playbook of focusing on economic issues while sidestepping cultural ones.`\
 https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 **Why Some States Take Longer to Count and Report Election Results**\
 `Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
-
-**‘The Choice to Elevate Darline Graham Was Just a Huge, Needless Error’: Opinion Writers Break Down the Midterms**\
-`Michelle Goldberg and Matthew Yglesias talk about what the Democrats will do next year and how the results might shape 2028. They are joined by Michelle Cottle and David French.`\
-https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
 `(No description)`\
