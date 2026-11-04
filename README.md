@@ -1,3 +1,7 @@
+**The Republican Party’s Financial Advantage Wasn’t Enough in the 2026 Midterm Elections**\
+`With the economy and national political climate of 2026: “You’re not going to advertise your way out of that,” said one expert.`\
+https://www.nytimes.com/2026/11/04/us/republican-party-fundraising-midterms.html
+
 **What Makes These Election Results So Historic**\
 `Democrats celebrated a seismic triumph in the midterm elections, winning control of the Senate and the House as voters delivered a blistering rebuke to President Trump. Peter Baker, The New York Times’s Chief White House correspondent explains what this historic reset of the balance of power in Washington means.`\
 https://www.nytimes.com/video/us/elections/100000011261200/what-makes-these-election-results-so-historic.html
@@ -154,6 +158,10 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-oregon.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-nebraska.html
 
+**How Montana Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-montana.html
+
 **How Mississippi Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-mississippi.html
@@ -174,10 +182,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-nevada.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-minnesota.html
 
-**How Montana Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-montana.html
-
 **How Michigan Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-michigan.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-massachusetts.ht
 **How Missouri Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-missouri.html
-
-**How Indiana Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-indiana.html
 
 **How Idaho Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
