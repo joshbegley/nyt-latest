@@ -1,3 +1,7 @@
+**For the First Time, Seneca Nation Elects a Woman as Its President**\
+`Tina Abrams had served on the Senecas’ governing council since 2001.`\
+https://www.nytimes.com/2026/11/03/nyregion/seneca-nation-woman-president-tina-abrams.html
+
 **Voters in Key Battleground States Told Us How They Voted**\
 `The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
 https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html

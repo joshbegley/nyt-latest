@@ -1,3 +1,7 @@
+**Voters in Key Battleground States Told Us How They Voted**\
+`The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
+https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
+
 **Detailed Maps of the 2026 Senate Election Results**\
 `Explore maps of precinct-level results from Senate races across the country.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
