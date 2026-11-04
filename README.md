@@ -142,9 +142,9 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wisconsin.html
 
-**How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
 
 **How Washington Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -154,9 +154,9 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-washington.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-west-virginia.html
 
-**How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
 
 **How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -186,10 +186,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-vermont.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-york.html
 
-**How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
-
 **How South Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.h
 **How Rhode Island Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-rhode-island.html
+
+**How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
 
