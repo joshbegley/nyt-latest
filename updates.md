@@ -1,3 +1,7 @@
+**How Idaho Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-idaho.html
+
 **What Makes These Election Results So Historic**\
 `Democrats celebrated a seismic triumph in the midterm elections, winning control of the Senate and the House as voters delivered a blistering rebuke to President Trump. Peter Baker, The New York Times’s Chief White House correspondent explains what this historic reset of the balance of power in Washington means.`\
 https://www.nytimes.com/video/us/elections/100000011261200/what-makes-these-election-results-so-historic.html
