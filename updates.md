@@ -1,3 +1,7 @@
+**How Troy Jackson Defeated Susan Collins in Maine, Ending Her 30 Year Senate Career**\
+`Troy Jackson, a former Democratic state lawmaker, upset Senator Susan Collins, a Republican who had served the state for 30 years.`\
+https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-collins.html
+
 **Vance, in Break With Trump, Blames Iran War for Republicans’ Rout**\
 `In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to separate himself from the president.`\
 https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
