@@ -1,3 +1,7 @@
+**Texas Democrats Prepare to Relearn a Skill: How to Govern**\
+`Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
+https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
+
 **Helicopter Crash Off Miami Kills One Person and Injures Two**\
 `The helicopter was filming boats in the water when it went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
 https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html

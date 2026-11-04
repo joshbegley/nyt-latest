@@ -1,3 +1,7 @@
+**Texas Democrats Prepare to Relearn a Skill: How to Govern**\
+`Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
+https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
+
 **The Local: The Minnesota midterms, by the numbers**\
 `Democrats’ strong showing included wins in every statewide race.`\
 https://www.nytimes.com/2026/11/04/briefing/minnesota-midterms.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-new
 **Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
 `House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
-
-**Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
-`Aaron Spencer, who admitted to fatally shooting a man charged with sexual assaulting Mr. Spencer’s daughter, had won the Republican nomination.`\
-https://www.nytimes.com/2026/11/04/us/aaron-spencer-lonoke-county-sheriff-arkansas.html
 
 **Midterm Elections Live Updates: Democrats Vow to Use Majority to Check Trump**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after a remarkable power shift in Congress. President Trump, speaking at the White House, focused on his renovation projects, not the midterms.`\

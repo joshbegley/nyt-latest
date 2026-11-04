@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-new
 `House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
 
-**Midterm Elections Live Updates: Democrats Vow to Use Majority to Check Trump**\
-`Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after a remarkable power shift in Congress. President Trump, speaking at the White House, focused on his renovation projects, not the midterms.`\
+**Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
+`Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
 https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
 
