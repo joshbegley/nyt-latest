@@ -1,4 +1,4 @@
-**Endangered Democratic Governor Wins Re-election in Oregon**\
+**Tina Kotek, Endangered Democratic Governor in Oregon, Wins Re-election**\
 `Gov. Tina Kotek was one of the few embattled incumbents in her party, but she prevailed in her Democratic state.`\
 https://www.nytimes.com/2026/11/04/us/oregon-governor-kotek-drazan.html
 
