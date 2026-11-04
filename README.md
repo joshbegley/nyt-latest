@@ -1,3 +1,11 @@
+**7 Writers on How the Blue Tsunami Swept America**\
+`Every Senate win holds important lessons for Democrats.`\
+https://www.nytimes.com/2026/11/04/opinion/7-writers-on-how-the-blue-tsunami-swept-america.html
+
+**How Ken Paxton Went From Republican Survivor to Republican Liability**\
+`For years, Ken Paxton turned scandal into a test of Republican loyalty, but his Senate defeat exposed the limits of a political strategy that helped reshape Texas.`\
+https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
+
 **‘We Hear You,’ Says Jeffries, Who Is Set to Break Barrier in House**\
 `Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
 https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.
 **Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
 `Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
 https://www.nytimes.com/2026/11/03/science/petrova-russian-scientist-charges-frog-embryo.html
-
-**5 Things to Know About South Carolina Democrat Annie Andrews**\
-`Dr. Andrews, who won a major upset in a conservative state, is a pediatrician who distanced herself from her party.`\
-https://www.nytimes.com/2026/11/03/us/annie-andrews-south-carolina-what-to-know.html
-
-**Zach Dembo, a Democrat, Defeats Ralph Alvarado in Republican-Leaning House Seat in Kentucky**\
-`The outcome in the state’s red Sixth District was a sign of Democratic strength in an area that voted heavily for President Trump two years ago.`\
-https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\

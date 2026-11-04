@@ -1,3 +1,7 @@
+**‘We Hear You,’ Says Jeffries, Who Is Set to Break Barrier in House**\
+`Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
+https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
+
 **Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
 `Senator Susan Collins, the sole Republican representing New England in Congress, acknowledged that her seat had been lost on a landslide night for Democrats.`\
 https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
