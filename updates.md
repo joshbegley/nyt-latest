@@ -1,3 +1,31 @@
+**Beverly Whipple Has Died. She Introduced the G-Spot to the Mainstream.**\
+`Dr. Whipple studied the female erogenous zone and, with collaborators, wrote a best seller about women’s sexuality. She was 85.`\
+https://www.nytimes.com/2026/11/04/science/beverly-whipple-g-spot-dead.html
+
+**Trump Confronts a New Role: A Lame Duck Facing a Hostile Congress**\
+`After a decade at the center of American politics, President Trump is politically wounded, with diminished power. Those who know him say the next two years will be unpredictable.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-new-role-lame-duck.html
+
+**Simon Winchester, Author of ‘The Professor and the Madman,’ Has Died**\
+`He was a geologist who switched careers and became a prolific and adventurous journalist. He died at 82.`\
+https://www.nytimes.com/2026/11/04/obituaries/simon-winchester-dead.html
+
+**Japan’s Subtle Fragrances Are a Good Choice for a Gift List**\
+`Experts say the country’s subtle fragrances are good choices for a gift list.`\
+https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
+
+**White House Delays Hearing on Fed Governor**\
+`The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
+https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
+
+**Five Survivors Rescued on Remote Pacific Island After 3 Months Lost at Sea**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
+
+**Bob Dylan Meets With Pope Leo**\
+`Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
+https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
+
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
 https://www.nytimes.com/video/opinion/100000011263481/trump-could-be-the-gift-that-keeps-on-giving.html
