@@ -1,3 +1,7 @@
+**Rebecca Bennett Unseats Tom Kean Jr. in New Jersey House Race**\
+`Rebecca Bennett, a Democrat, unseated Representative Tom Kean Jr. in a New Jersey swing district. Mr. Kean was absent from Congress for nearly four months while he was treated for depression.`\
+https://www.nytimes.com/2026/11/03/nyregion/kean-jr-bennett-nj-house-7.html
+
 **Keisha Lance Bottoms Wins in Georgia to Become First Black Woman Elected U.S. Governor**\
 `Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
 https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Kristen Soltis Anderson and Jamelle Bouie focus on the early results from Georgia, North Carolina and across the country.`\
+`Kristen Soltis Anderson and Jamelle Bouie talk about the South Carolina Senate race and the implications of the Georgia race.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-res
 **Fugitive Murder Convict Caught in Missouri After Escape From Tennessee Prison**\
 `Jacob Allen Morley, 28, was found hundreds of miles away, near Kansas City, Mo., after breaching a fence last week at a correctional facility where he was serving a life sentence.`\
 https://www.nytimes.com/2026/11/03/us/tennessee-escaped-jacob-morley-captured.html
-
-**U.S. Assisted Venezuela in Deadly Drone Strike, Officials Say**\
-`The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
-https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
 
 **Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
 `(No description)`\
