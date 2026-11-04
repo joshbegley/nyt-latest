@@ -1,3 +1,11 @@
+**Being a Sex Worker Made Me Trust Men More**\
+`Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
+https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
+
+**Democrats Win South Carolina Senate Seat**\
+`Our election data reporter Christine Zhang explains how double-digit swings in several counties helped Dr. Annie Andrews, a Democrat, defeat Senator Darline Graham, a Republican, flipping South Carolina in the U.S. Senate race.`\
+https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.html
+
 **Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
 `Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
 https://www.nytimes.com/2026/11/03/science/pretrova-russian-scientist-charges-frog-embryo.html
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.
 **A Return to Atlanta Trap Literalism**\
 `Rapper Belly Gang Kushington is reviving the Atlanta trap literalism of two decades ago on “WTF GOIN” featuring 21 Savage, an update of the mid-2000s Shawty Lo and DG Yola song “Let’s Get It.” Our critic Jon Caramanica breaks down how the track broke onto the charts in an era dominated by psychedelic rap.`\
 https://www.nytimes.com/video/podcasts/100000011259458/a-return-to-atlanta-trap-literalism.html
-
-**What Went Wrong With Ballot Scanners In a Crucial Westchester District?**\
-`In Westchester County, north of New York City, the scanners were not working, creating a delay in counting election results.`\
-https://www.nytimes.com/2026/11/03/nyregion/midterms-westchester-voting-issues.html
 
 **Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\

@@ -1,3 +1,11 @@
+**Being a Sex Worker Made Me Trust Men More**\
+`Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
+https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
+
+**Democrats Win South Carolina Senate Seat**\
+`Our election data reporter Christine Zhang explains how double-digit swings in several counties helped Dr. Annie Andrews, a Democrat, defeat Senator Darline Graham, a Republican, flipping South Carolina in the U.S. Senate race.`\
+https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.html
+
 **Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
 `Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
 https://www.nytimes.com/2026/11/03/science/pretrova-russian-scientist-charges-frog-embryo.html

@@ -1,3 +1,7 @@
+**Deb Haaland Is Elected New Mexico’s Governor, a Historic Victory**\
+`The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
+https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
+
 **Being a Sex Worker Made Me Trust Men More**\
 `Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
 https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.
 
 **Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
 `Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
-https://www.nytimes.com/2026/11/03/science/pretrova-russian-scientist-charges-frog-embryo.html
+https://www.nytimes.com/2026/11/03/science/petrova-russian-scientist-charges-frog-embryo.html
 
 **5 Things to Know About South Carolina Democrat Annie Andrews**\
 `Dr. Andrews, who won a major upset in a conservative state, is a pediatrician who distanced herself from her party.`\
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/world/asia/100000011258330/mount-everest-helicopte
 **America Votes**\
 `Your guide to election night, and more big stories at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.html
-
-**A Return to Atlanta Trap Literalism**\
-`Rapper Belly Gang Kushington is reviving the Atlanta trap literalism of two decades ago on “WTF GOIN” featuring 21 Savage, an update of the mid-2000s Shawty Lo and DG Yola song “Let’s Get It.” Our critic Jon Caramanica breaks down how the track broke onto the charts in an era dominated by psychedelic rap.`\
-https://www.nytimes.com/video/podcasts/100000011259458/a-return-to-atlanta-trap-literalism.html
 
 **Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\
