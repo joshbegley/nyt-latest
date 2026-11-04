@@ -1,3 +1,11 @@
+**The New York Times Adds 420,000 Digital Subscribers**\
+`The additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year, after a slower second quarter.`\
+https://www.nytimes.com/2026/11/04/business/media/new-york-times-earnings.html
+
+**CVS to Split off Pharmacy Business, Ending the Healthcare Conglomerate Era**\
+`In a breakup planned for 2028, CVS Health intends to split off its pharmacies into a new company, while keeping together its businesses in insurance and pharmacy benefits.`\
+https://www.nytimes.com/2026/11/04/business/cvs-health-split.html
+
 **How Alabama Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-alabama.html
