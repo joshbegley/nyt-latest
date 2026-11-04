@@ -1,3 +1,7 @@
+**How Democrats Swept Texas in the 2026 Elections: See Which G.O.P. Counties Flipped From 2024**\
+`Every county in Texas shifted left, voting more Democratic than two years ago when President Trump was on the ballot.`\
+https://www.nytimes.com/interactive/2026/11/04/us/elections/texas-midterm-shift-democrats.html
+
 **Hochul Leads a Democratic Surge in New York: 5 Takeaways**\
 `Gov. Kathy Hochul erased doubts over her performance in the 2022 midterms, scoring a crushing 20-point win over Bruce Blakeman that set the tone for her party.`\
 https://www.nytimes.com/2026/11/04/nyregion/democrats-hochul-ny-takeaways.html
