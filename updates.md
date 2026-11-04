@@ -1,3 +1,31 @@
+**Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
+`Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
+https://www.nytimes.com/2026/11/03/science/pretrova-russian-scientist-charges-frog-embryo.html
+
+**5 Things to Know About South Carolina Democrat Annie Andrews**\
+`Dr. Andrews, who won a major upset in a conservative state, is a pediatrician who distanced herself from her party.`\
+https://www.nytimes.com/2026/11/03/us/annie-andrews-south-carolina-what-to-know.html
+
+**Zach Dembo, a Democrat, Defeats Ralph Alvarado in Republican-Leaning House Seat in Kentucky**\
+`The outcome in the state’s red Sixth District was a sign of Democratic strength in an area that voted heavily for President Trump two years ago.`\
+https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
+
+**Democrats Flip South Carolina Senate Seat**\
+`In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
+https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
+
+**Annie Andrews Defeats Darline Graham in South Carolina Senate Race**\
+`Dr. Annie Andrews, a Democrat, was projected to defeat Senator Darline Graham, who succeeded her brother after his death, flipping a key Senate seat.`\
+https://www.nytimes.com/2026/11/03/us/andrews-graham-south-carolina-senate.html
+
+**What Are Your Reactions to the Results of the 2026 Midterm Elections?**\
+`As the votes are counted, we invite teenagers to post reactions and have conversations here. What do the results mean for you, your community and our nation?`\
+https://www.nytimes.com/2026/11/03/learning/what-are-your-reactions-to-the-results-of-the-2026-midterm-elections.html
+
+**Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Roy Cooper Bored His Way Into the Senate**\
 `In North Carolina, Roy Cooper affirmed the power of the right person waging the right campaign in the right place.`\
 https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
