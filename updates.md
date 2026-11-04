@@ -1,3 +1,7 @@
+**Jon Ossoff Looks Pretty Presidential**\
+`Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
+https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
+
 **Jon Ossoff Wins Georgia Senate Race Against Mike Collins**\
 `Mr. Ossoff, the Democratic incumbent, was an aggressive anti-Trump campaigner. He beat Representative Mike Collins, a Republican.`\
 https://www.nytimes.com/2026/11/03/us/ossoff-georgia-senate-race.html
