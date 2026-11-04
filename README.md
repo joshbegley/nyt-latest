@@ -1,3 +1,55 @@
+**After Midterm Drubbing, Trump and Republicans Start Pointing Fingers**\
+`While the president attributed sweeping losses to the fact that he was not on the ballot, others in his party dismissed his explanation and pinned blame squarely on him.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-republicans-blame-midterms.html
+
+**Corrections: Nov. 4, 2026**\
+`Corrections that appeared in print on Wednesday, Nov. 4, 2026.`\
+https://www.nytimes.com/2026/11/04/pageoneplus/corrections-nov-4-2026.html
+
+**‘The Beginning of the End of Trumpism’**\
+`“People hate the way that Trump is running this country,” the columnist Michelle Goldberg argues. Her fellow columnists and the American electorate agree. Democrats had a great night, but what now? Eight Opinion columnists offer their views on what Democrats need to do next, and what Trump’s final two years in office might hold.`\
+https://www.nytimes.com/video/opinion/100000011257707/the-beginning-of-the-end-of-trumpism.html
+
+**Helen Zille Is Running for Mayor of Johannesburg and Needling the ANC**\
+`As South Africans head to the polls on Wednesday, Helen Zille, 75, is betting voters care less about race and more about public services in her bid to become mayor of Johannesburg.`\
+https://www.nytimes.com/2026/11/04/world/africa/johannesburg-mayor-elections.html
+
+**‘Raise the Red Lantern’: The Perfect Setting for a Scintillating Star**\
+`Opening at Film Forum, Zhang Yimou’s newly restored feature stars the lovely Gong Li as the fourth wife of a capricious plutocrat more than twice her age.`\
+https://www.nytimes.com/2026/11/04/movies/raise-the-red-lantern-film-forum.html
+
+**New Yorkers Vote for Democrats and Against the White House**\
+`Gov. Kathy Hochul won re-election to a second full term, and Representative Alexandria Ocasio-Cortez secured a fifth term in Congress.`\
+https://www.nytimes.com/2026/11/04/nyregion/new-yorkers-vote-for-democrats-and-against-the-white-house.html
+
+**These Midterms Show That Trump Blew It.**\
+`There was nothing inevitable about this comeuppance.`\
+https://www.nytimes.com/2026/11/04/opinion/trump-midterms-republicans.html
+
+**Being a Sex Worker Made Me Trust Men More**\
+`Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
+https://www.nytimes.com/2026/11/04/podcasts/sex-worker-trust-men-vulnerability.html
+
+**Which $525,000 Home Would You Choose?**\
+`Up for grabs: A Mediterranean-inspired house in Minneapolis, a bungalow in Fort Worth and a Craftsman in Atlanta.`\
+https://www.nytimes.com/2026/11/04/realestate/homes-for-sale-atlanta-minneapolis-fort-worth.html
+
+**Is It Rude to Ask Friends to Stay With Them? TikTok Sparks a Debate.**\
+`When a TikTok user posted a video criticizing couch surfers, it set off a debate about what friends owe one another.`\
+https://www.nytimes.com/2026/11/04/style/nyc-apartment-friendship-etiquette.html
+
+**‘The Last Temptation of Becky’ Review: ‘You Had Me at Nazi’**\
+`In the third installment of this revenge fantasy, Becky (Lulu Wilson) travels to Poland to confront an innkeeper with fascist plans (Neil Patrick Harris).`\
+https://www.nytimes.com/2026/11/04/movies/the-last-temptation-of-becky-review.html
+
+**The Rocky Rise of Max Levai, Art World Nepo Baby**\
+`The gallerist fits the stereotype of the art world scion. But in reality he had to start (almost) from scratch.`\
+https://www.nytimes.com/2026/11/04/arts/design/max-levai-art-world-nepo-baby-gallery-chelsea-the-ranch.html
+
+**Why Doctors in Thailand Fear KFC**\
+`In a country where superstitions are as imaginative as they are many, physicians have come to fear a jinx involving Kentucky Fried Chicken.`\
+https://www.nytimes.com/2026/11/04/world/asia/thailand-kfc-curse-doctors.html
+
 **Portraits Filled With Mystery and Wonder**\
 `The painter Jem Perucchini draws on Italian Renaissance art and Ethiopia’s Catholic iconography.`\
 https://www.nytimes.com/2026/11/04/t-magazine/jem-perucchini-art-david-zwirner.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate
 **Five Things to Know About Hakeem Jeffries**\
 `The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
 https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
-
-**Angry Voters Usher in Beginning of the End to the Trump Era**\
-`The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
-https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
-
-**With 2 Big Wins, Democrats May Have Put Ohio Back in Play**\
-`Once seen as a bellwether of the nation’s political mood, Ohio has been solidly red since President Trump first won office. Tuesday’s results could change that.`\
-https://www.nytimes.com/2026/11/04/us/elections/ohio-democrats-win-brown-acton.html
-
-**Max Miller Loses in Ohio After Ex-Wife’s Abuse Allegations**\
-`The defeat of the two-term Republican by Brian Poindexter, a union ironworker, handed Democrats a seat that had appeared out of reach before the family clash became public.`\
-https://www.nytimes.com/2026/11/04/us/ohio-house-7-miller-poindexter.html
-
-**Jocelyn Benson Holds Michigan Governor’s Office for Democrats**\
-`Ms. Benson, the secretary of state, defeated Representative John James in a swing state that often plays a critical role in presidential elections.`\
-https://www.nytimes.com/2026/11/04/us/michigan-governor-benson-james.html
-
-**Democrats Seize Control of Congress, Ending a G.O.P. Trifecta**\
-`The party’s victory in the House cemented an era of divided government and a freshly assertive Congress after two years in which Republicans ceded power to President Trump.`\
-https://www.nytimes.com/2026/11/04/us/elections/house-of-representatives-midterms-democrats-republicans.html
-
-**How Gina Hinojosa Captured Texas**\
-`The woman who took down Greg Abbott concentrated on pocketbook issues, but voters’ opposition to Republican immigration policies was a tailwind.`\
-https://www.nytimes.com/2026/11/04/us/gina-hinojosa-texas-governor.html
-
-**My Call With President Trump**\
-`Our White House correspondents Tyler Pager and Erica L. Green called President Trump to ask whether he would accept the results of the election.`\
-https://www.nytimes.com/video/us/politics/100000011260461/my-call-with-president-trump.html
-
-**Jimmy Kimmel Rides Election Day’s ‘Blue Tsunami’**\
-`“Man, oh man, would I hate to be the DoorDash driver who delivers Trump his Papa Johns tonight,” Kimmel said.`\
-https://www.nytimes.com/2026/11/04/arts/television/jimmy-kimmel-midterm-election-blue-wave.html
-
-**Americans on Why They Rejected Trump’s Republican Party**\
-`A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
-https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
-
-**Across the Country, Voters Give Direct Orders to State Governments**\
-`Many of the more than 140 ballot questions on voting rights, redistricting and voter identification laws. Others set rules for taxes and transgender people in sports.`\
-https://www.nytimes.com/2026/11/04/us/elections/statewide-ballot-questions-voting-redistricting.html
-
-**Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
-`On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
-https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
-
-**8 Writers on How the Blue Tsunami Swept America**\
-`Every Senate win holds important lessons for Democrats.`\
-https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-wave.html
-
-**How Ken Paxton Went From Republican Survivor to Republican Liability**\
-`For years, Ken Paxton turned scandal into a test of Republican loyalty, but his Senate defeat exposed the limits of a political strategy that helped reshape Texas.`\
-https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
 
