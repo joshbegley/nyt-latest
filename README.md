@@ -1,3 +1,7 @@
+**Democrats Retake Governor’s Office in Nevada, a Critical Swing State**\
+`Aaron Ford, the state’s attorney general, will be Nevada’s first Black governor.`\
+https://www.nytimes.com/2026/11/04/us/nevada-governor-lombardo-ford.html
+
 **Could a Viral Video Save Her Mom’s Chinese Restaurant?**\
 `Millions viewed Lisa He’s post about her mother’s struggling business in Edinburgh. But internet fame created its own complications — and obscured bigger questions.`\
 https://www.nytimes.com/2026/11/04/world/europe/chinese-restaurant-edinburgh-viral-social-media.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
 **A Democratic Senator for Kansas**\
 `Democrats won a Senate seat in Kansas for the first time in nearly 100 years. Our election data reporter Christine Zhang talks about the growing Democratic footprint in the state.`\
 https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-for-kansas.html
-
-**Haaland and Flanagan, Two Native American Women, Break Political Barriers**\
-`Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
-https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
 
