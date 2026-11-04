@@ -1,3 +1,11 @@
+**How Alabama Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-alabama.html
+
+**How Connecticut Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-connecticut.html
+
 **The 7 Senate Flips That Ended Decades of Republican Control**\
 `Democrats flipped several Senate seats, most of which had been held by Republicans since former President Obama was elected in 2008.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-senate-states.html
