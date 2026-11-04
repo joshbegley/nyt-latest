@@ -1,3 +1,15 @@
+**How Astronauts Voted From Space in the Midterm Elections**\
+`Americans voted absentee from the International Space Station, Antarctica and remote Alaskan villages.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-remote-voting-astronauts-space-antarctica.html
+
+**How Colorado Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
+
+**How Alabama Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-alabama.html
+
 **How Colorado Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/colorado-estimates-2026.html
