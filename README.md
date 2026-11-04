@@ -1,3 +1,7 @@
+**A Seismic Shift in Texas**\
+`The Democratic victories in the Senate and governor’s races are a historic change for Texas. Our national political correspondent Shane Goldmacher explains why.`\
+https://www.nytimes.com/video/us/politics/100000011238052/a-seismic-shift-in-texas.html
+
 **‘An Earthquake’: A Democratic Rout Stuns Texas**\
 `In a seismic shift that was once unthinkable, victories by James Talarico and Gina Hinojosa upended decades of statewide dominance in what had been the nation’s most populous conservative state.`\
 https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/03/us/donalds-florida-governor-race.html
 **AOC Is Elected to Fifth Term in New York House District**\
 `Alexandria Ocasio-Cortez defeated her opponent, Diamant Hysenaj, despite having spent much of this election cycle campaigning for other Democrats across the country.`\
 https://www.nytimes.com/2026/11/03/nyregion/new-york-house-14-aoc-hysenaj.html
-
-**Democrats Flip North Carolina Senate Seat**\
-`The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
-https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\

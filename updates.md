@@ -1,3 +1,27 @@
+**‘An Earthquake’: A Democratic Rout Stuns Texas**\
+`In a seismic shift that was once unthinkable, victories by James Talarico and Gina Hinojosa upended decades of statewide dominance in what had been the nation’s most populous conservative state.`\
+https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
+
+**A Democratic Senator for Kansas**\
+`Democrats won a Senate seat in Kansas for the first time in nearly 100 years. Our election data reporter Christine Zhang talks about the growing Democratic footprint in the state.`\
+https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-for-kansas.html
+
+**Two Native American Women Break Political Barriers This Election**\
+`Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
+https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
+
+**Democrat Unseats House Republican in Iowa, Flipping an Important Seat**\
+`Discontent about the war with Iran and tariffs helped create a tough environment for Representative Mariannette Miller-Meeks, the defeated Republican.`\
+https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meeks.html
+
+**Democrats Win South Carolina Senate Seat**\
+`In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
+https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
+
+**Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
+`Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
 `Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
 https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
