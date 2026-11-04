@@ -1,3 +1,15 @@
+**Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
+`Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
+https://www.nytimes.com/2026/11/03/science/pretrova-russian-scientist-charges-frog-embryo.html
+
+**5 Things to Know About South Carolina Democrat Annie Andrews**\
+`Dr. Andrews, who won a major upset in a conservative state, is a pediatrician who distanced herself from her party.`\
+https://www.nytimes.com/2026/11/03/us/annie-andrews-south-carolina-what-to-know.html
+
+**Zach Dembo, a Democrat, Defeats Ralph Alvarado in Republican-Leaning House Seat in Kentucky**\
+`The outcome in the state’s red Sixth District was a sign of Democratic strength in an area that voted heavily for President Trump two years ago.`\
+https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
+
 **Democrats Flip South Carolina Senate Seat**\
 `In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
 https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
@@ -170,15 +182,7 @@ https://www.nytimes.com/video/podcasts/100000011259458/a-return-to-atlanta-trap-
 `In Westchester County, north of New York City, the scanners were not working, creating a delay in counting election results.`\
 https://www.nytimes.com/2026/11/03/nyregion/midterms-westchester-voting-issues.html
 
-**In San Francisco, Voters Cast Ballots at Hair Salons and Among the Dead**\
-`The city prides itself on offering hundreds of polling places, and that means voting in eclectic locations.`\
-https://www.nytimes.com/2026/11/03/us/san-francisco-polling-places-midterms-election.html
-
-**Voting in Westchester County Continues Despite Technical Glitches**\
-`Ballots from Westchester County, N.Y., polling places will be escorted by the police to election headquarters and counted under the observation of lawyers from both parties after technical glitches prevented scanning machines from accepting them on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000011259071/westchester-voting-midterms-scanning-machines.html
-
-**Midterm Elections Live Updates: South Carolina Elects First Democratic Senator in Decades**\
+**Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
