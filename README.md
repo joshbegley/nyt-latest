@@ -1,3 +1,11 @@
+**Schumer, Jeffries Celebrate Sweeping Midterms Victories**\
+`Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
+https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html
+
+**The Democratic Wave Swept State Houses Across the Country**\
+`Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
+https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
+
 **Helicopter Crash Off Miami Kills One Person and Injures Two**\
 `The helicopter went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
 https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/04/opinion/democrat-wins-midterms-house-senate-c
 **Democrats Flip Texas With Stunning Midterm Election Victories**\
 `James Talarico and Gina Hinojosa, two Democratic state representatives, won their midterm races for senator and governor in Texas. Their victories ended decades of Republican dominance in the state.`\
 https://www.nytimes.com/video/us/politics/100000011261627/texas-democrats-talarico-hinojosa.html
-
-**Attorney General Appoints Outside Counsel to Lead Cornell Rape Case**\
-`Jacqueline Kelly will oversee a criminal investigation into a former student’s allegations that she was raped in 2024.`\
-https://www.nytimes.com/2026/11/04/nyregion/cornell-jane-doe-sexual-assault-investigation.html
-
-**The Republican Party’s Financial Advantage Wasn’t Enough in the 2026 Midterm Elections**\
-`With the economy and national political climate of 2026: “You’re not going to advertise your way out of that,” said one expert.`\
-https://www.nytimes.com/2026/11/04/us/republican-party-fundraising-midterms.html
 

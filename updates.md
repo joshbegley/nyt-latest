@@ -1,3 +1,19 @@
+**Helicopter Crash Off Miami Kills One Person and Injures Two**\
+`The helicopter went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
+https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
+
+**Trump Wanted Democrats to Win**\
+`The president loves combat and chaos. He’s about to get more of it.`\
+https://www.nytimes.com/2026/11/04/opinion/trump-democrats-midterms.html
+
+**We Banned Bots From Our Dating Apps. This Is Why.**\
+`A.I. agents can make things easier. That’s not always a good thing.`\
+https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
+
+**How Talarico Plans to Tackle Gas Prices and the Iran War**\
+`In an Oct. 19 interview with “The Daily,” James Talarico, who has just won the U.S. Senate seat in Texas, said that the legislative branch “has to reassert” its authority regarding the war in Iran, and shared what he would do to end the conflict and lower gas prices.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011262704/how-talarico-plans-to-tackle-gas-prices-and-the-iran-war.html
+
 **Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
 `The race for U.S. Senate is incredibly close in Mississippi, which does not allow for vote recounts in statewide elections.`\
 https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
