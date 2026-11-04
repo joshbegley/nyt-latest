@@ -1,3 +1,11 @@
+**Alexander Brothers’ Team Paid Influencers to Discredit Women in Case, Documents Show**\
+`The online articles, some of which were deeply critical of the accusers, were widely shared during the brothers’ trial in which they were found guilty of sex trafficking.`\
+https://www.nytimes.com/2026/11/04/nyregion/alexander-brothers-sex-trafficking-paid-writers.html
+
+**Sherrod Brown’s Win in Ohio Is a Rare Loss for Crypto Under Trump**\
+`Fairshake, the major industry super PAC, spent $46 million on ads against the Democrat, Sherrod Brown, who won.`\
+https://www.nytimes.com/2026/11/04/technology/sherrod-brown-ohio-crypto-trump.html
+
 **How 2026 Midterm Voters Swung Back to Democrats Amid Trump Backlash**\
 `Democrats reversed many of the gains Republicans made in 2024.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voters-democrats.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-south-dakota.htm
 **How Vermont Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-vermont.html
-
-**How New York Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-new-york.html
-
-**How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
 
