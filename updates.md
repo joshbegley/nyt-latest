@@ -1,3 +1,15 @@
+**Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
+`Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
+
+**Jon Ossoff Describes a Future He Wants His Daughters to Inherit**\
+`In his victory speech, Senator Jon Ossoff, Democrat of Georgia, said he hoped his daughters would inherit a better future.`\
+https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate-speech-daughters.html
+
+**Five Things to Know About Hakeem Jeffries**\
+`The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
+https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
+
 **Historic Midterm Rout Serves as a Sweeping Rebuke of Trump Era**\
 `The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
 https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html

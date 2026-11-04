@@ -1,3 +1,15 @@
+**Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
+`Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
+
+**Jon Ossoff Describes a Future He Wants His Daughters to Inherit**\
+`In his victory speech, Senator Jon Ossoff, Democrat of Georgia, said he hoped his daughters would inherit a better future.`\
+https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate-speech-daughters.html
+
+**Five Things to Know About Hakeem Jeffries**\
+`The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
+https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
+
 **Historic Midterm Rout Serves as a Sweeping Rebuke of Trump Era**\
 `The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
 https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
 **Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
 `If Democrats want to take back the White House, they should follow the Ohio senator-elect’s playbook of focusing on economic issues while sidestepping cultural ones.`\
 https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
-
-**Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
-`Nancy Pelosi’s husband was charged with a misdemeanor after he hit a parked car and drove away. He will not be allowed to drive for six months.`\
-https://www.nytimes.com/2026/11/03/us/paul-pelosi-crash-napa-valley-prohibited-driving.html
-
-**Missouri Voters Reject Congressional Map Redrawn to Boost Republicans**\
-`The map, redrawn at President Trump’s behest, would have positioned Republicans to flip a Democratic-held congressional seat in the Kansas City area.`\
-https://www.nytimes.com/2026/11/03/us/missouri-congressional-redistricting-referendum.html
-
-**Democrats Outperform in Three States**\
-`Democrats have won key Senate races in Georgia, North Carolina and South Carolina. Our election data reporter Evan Reynolds explains how Democrats did well even in some historically Republican counties in these Southern states.`\
-https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-in-three-states.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
