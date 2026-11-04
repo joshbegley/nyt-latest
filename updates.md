@@ -1,3 +1,15 @@
+**Retracing the Night Katie Suarez Was Attacked During Her Jog in Brooklyn**\
+`Katie Suarez was a regular runner on a desolate stretch of the Brooklyn waterfront. On Friday, her parents went looking for her after she stopped returning phone calls.`\
+https://www.nytimes.com/2026/11/04/nyregion/katie-suarez-stabbing-brooklyn-jogger-nyc.html
+
+**Trump Points to War in Iran for Republican Midterm Losses**\
+`President Trump answered questions on Wednesday from reporters about the election results. He also commented on Vice President JD Vance’s lengthy social media post that largely blamed the Republican losses on the war in Iran.`\
+https://www.nytimes.com/video/us/politics/100000011262701/trump-iran-war-midterm-elections-republicans.html
+
+**Medical Professionals Are Among the Winners of the Midterms**\
+`About a half-dozen Democratic doctors and nurses ran for Congress. Some made opposition to Health Secretary Robert F. Kennedy Jr. central to their campaigns.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.html
+
 **The Democratic Wave Swept State Houses Across the Country**\
 `Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html

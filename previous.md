@@ -1,3 +1,15 @@
+**Retracing the Night Katie Suarez Was Attacked During Her Jog in Brooklyn**\
+`Katie Suarez was a regular runner on a desolate stretch of the Brooklyn waterfront. On Friday, her parents went looking for her after she stopped returning phone calls.`\
+https://www.nytimes.com/2026/11/04/nyregion/katie-suarez-stabbing-brooklyn-jogger-nyc.html
+
+**Trump Points to War in Iran for Republican Midterm Losses**\
+`President Trump answered questions on Wednesday from reporters about the election results. He also commented on Vice President JD Vance’s lengthy social media post that largely blamed the Republican losses on the war in Iran.`\
+https://www.nytimes.com/video/us/politics/100000011262701/trump-iran-war-midterm-elections-republicans.html
+
+**Medical Professionals Are Among the Winners of the Midterms**\
+`About a half-dozen Democratic doctors and nurses ran for Congress. Some made opposition to Health Secretary Robert F. Kennedy Jr. central to their campaigns.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.html
+
 **Texas Democrats Prepare to Relearn a Skill: How to Govern**\
 `Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
 https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-colli
 **Democrats Will Control Most Governorships, a Generational Shift**\
 `Democrats took five new seats for a total of 29, giving them a majority for the first time in years. The wins could expand state-level resistance to the Trump administration.`\
 https://www.nytimes.com/2026/11/04/us/democrats-governors.html
-
-**Here are the Midterm Races in the House and Senate That Have Not Been Called**\
-`Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
-https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississippi.html
-
-**On TV, the Midterms Offered Drama and a Casting Change**\
-`For once, the numbers provided a quick, decisive verdict. But from Fox News to the Kornacki Cam, the voices and faces told the story.`\
-https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
