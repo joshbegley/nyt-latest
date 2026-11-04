@@ -22,7 +22,7 @@ https://www.nytimes.com/video/opinion/100000011262109/three-opinion-writers-on-t
 `Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
 https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html
 
-**The Democratic Wave Swept Statehouses Across the Country**\
+**The Democratic Wave Swept State Houses Across the Country**\
 `Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
 
@@ -185,10 +185,6 @@ https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississ
 **On TV, the Midterms Offered Drama and a Casting Change**\
 `For once, the numbers provided a quick, decisive verdict. But from Fox News to the Kornacki Cam, the voices and faces told the story.`\
 https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
-
-**Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
-`House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
-https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

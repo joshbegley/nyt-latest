@@ -1,3 +1,7 @@
+**Medical Professionals Are Among the Winners of the Midterms**\
+`About a half-dozen Democratic doctors and nurses ran for Congress. Some made opposition to Health Secretary Robert F. Kennedy Jr. central to their campaigns.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.html
+
 **Texas Democrats Prepare to Relearn a Skill: How to Govern**\
 `Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
 https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html

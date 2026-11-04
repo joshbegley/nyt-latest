@@ -1,3 +1,7 @@
+**The Democratic Wave Swept State Houses Across the Country**\
+`Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
+https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
+
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
 https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
