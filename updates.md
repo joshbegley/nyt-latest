@@ -1,3 +1,11 @@
+**Marjorie Taylor Greene: Midterm Loss “100 Percent” on Trump**\
+`In this episode of “The Call,” former Representative Marjorie Taylor Greene, Republican of Georgia, joins our host Natalie Kitroeff on election night to break down the blue wave and explain why she puts the blame entirely on President Trump.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor-greene-midterm-loss-100-percent-on-trump.html
+
+**NYT Spelling Bee Answers for November 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/04/crosswords/spelling-bee-forum.html
+
 **Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
 `Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
 https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
