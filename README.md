@@ -1,8 +1,20 @@
+**Helicopter Crash Off Miami Kills One Person and Injures Two**\
+`The helicopter went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
+https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
+
+**Trump Wanted Democrats to Win**\
+`The president loves combat and chaos. He’s about to get more of it.`\
+https://www.nytimes.com/2026/11/04/opinion/trump-democrats-midterms.html
+
+**We Banned Bots From Our Dating Apps. This Is Why.**\
+`A.I. agents can make things easier. That’s not always a good thing.`\
+https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
+
 **Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
 `The race for U.S. Senate is incredibly close in Mississippi, which does not allow for vote recounts in statewide elections.`\
 https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
 
-**How Talarico Plans to Tackle Gas Prices and The Iran War**\
+**How Talarico Plans to Tackle Gas Prices and the Iran War**\
 `In an Oct. 19 interview with “The Daily,” James Talarico, who has just won the U.S. Senate seat in Texas, said that the legislative branch “has to reassert” its authority regarding the war in Iran, and shared what he would do to end the conflict and lower gas prices.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011262704/how-talarico-plans-to-tackle-gas-prices-and-the-iran-war.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/04/nyregion/cornell-jane-doe-sexual-assault-inve
 **The Republican Party’s Financial Advantage Wasn’t Enough in the 2026 Midterm Elections**\
 `With the economy and national political climate of 2026: “You’re not going to advertise your way out of that,” said one expert.`\
 https://www.nytimes.com/2026/11/04/us/republican-party-fundraising-midterms.html
-
-**What Makes These Election Results So Historic**\
-`Democrats celebrated a seismic triumph in the midterm elections, winning control of the Senate and the House as voters delivered a blistering rebuke to President Trump. Peter Baker, The New York Times’s Chief White House correspondent explains what this historic reset of the balance of power in Washington means.`\
-https://www.nytimes.com/video/us/elections/100000011261200/what-makes-these-election-results-so-historic.html
-
-**A Night of Firsts in the Midterms**\
-`The midterms were full of firsts, including the first Black woman to be elected governor of a U.S. state and the first openly gay man to serve in the Senate.`\
-https://www.nytimes.com/video/world/americas/100000011261450/midterm-elections-results-firsts.html
-
-**There’s No Modern Precedent for This Democratic Tsunami**\
-`It was hard to imagine that an electoral wave this big was still possible. But there have been extraordinary changes just beneath the surface.`\
-https://www.nytimes.com/2026/11/04/upshot/democrats-midterm-elections-trump-tsunami.html
 
