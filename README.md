@@ -1,3 +1,11 @@
+**John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
+`A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
+https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
+
+**How the Audacious Trump Redistricting Push Backfired for Republicans in the Midterms**\
+`Republicans tried to redraw congressional maps to tilt more seats in their favor. Democrats captured many of the new districts instead.`\
+https://www.nytimes.com/2026/11/04/us/trump-republican-redistricting-backfire.html
+
 **A Democratic Sweep Gives Congress an Opening to Reassert Itself**\
 `President Trump usurped power from the legislative branch with Republican help for two years. Democrats are now positioned to try to claw back some of Congress’s prerogatives.`\
 https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/04/briefing/a-blue-wave.html
 **SpaceX and Tesla Stocks Tumble After Elon Musk-Backed Candidates Lose in Texas**\
 `The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
 https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
-
-**How Astronauts Voted From Space in the Midterm Elections**\
-`Americans voted absentee from the International Space Station, Antarctica and remote Alaskan villages.`\
-https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-remote-voting-astronauts-space-antarctica.html
-
-**How Colorado Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
 
