@@ -1,3 +1,7 @@
+**Justice Alito Will Not Retire Immediately, Despite Election Outcome**\
+`The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
+https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
+
 **How Democrats Swept Texas in the 2026 Elections: See Which G.O.P. Counties Flipped From 2024**\
 `Every county in Texas shifted left, voting more Democratic than two years ago when President Trump was on the ballot.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/texas-midterm-shift-democrats.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/11/04/nyregion/democrats-hochul-ny-takeaways.html
 `Global leaders shared their reactions a day after Democrats routed the Republican Party in the midterm elections and were on track to control both the House and the Senate.`\
 https://www.nytimes.com/video/world/americas/100000011261951/trump-midterms-elections-world-reaction.html
 
-**What We Know (and Don’t Know) in the Alaska and Mississippi Senate Vote Counts**\
+**Alaska and Mississippi Senate Races: What We Know About Vote Counts and Result Timing**\
 `Democrats are clinging to small leads in both states, and it may take quite a while until the winners are known.`\
 https://www.nytimes.com/2026/11/04/us/mississippi-alaska-senate-recount-provisional-ballots.html
 
@@ -52,7 +56,7 @@ https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-po
 
 **G.O.P. Group Says Party Faces a ‘Crisis-Level’ Loss of Elected Women**\
 `Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
-https://www.nytimes.com/2026/11/04/us/gop-group-says-party-faces-a-crisis-level-loss-of-elected-women.html
+https://www.nytimes.com/2026/11/04/us/women-republicans-congress.html
 
 **His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
 `Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-elect
 **Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
 `Last week, Lady Liberty turned 140. Find out the story of her creation.`\
 https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
-
-**John Frieda, Hair-Care Mogul Who Soothed Women’s Curls, Has Died**\
-`He was a celebrity stylist to rock stars and royalty whose blockbuster product, Frizz Ease, changed his fortunes (and women’s hair) forever. He was 75.`\
-https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
