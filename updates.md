@@ -1,3 +1,15 @@
+**Hochul Leads a Democratic Surge in New York: 5 Takeaways**\
+`Gov. Kathy Hochul erased doubts over her performance in the 2022 midterms, scoring a crushing 20-point win over Bruce Blakeman that set the tone for her party.`\
+https://www.nytimes.com/2026/11/04/nyregion/democrats-hochul-ny-takeaways.html
+
+**World Leaders React to Republicans’ Defeat in U.S. Midterm Elections**\
+`Global leaders shared their reactions a day after Democrats routed the Republican Party in the midterm elections and were on track to control both the House and the Senate.`\
+https://www.nytimes.com/video/world/americas/100000011261951/trump-midterms-elections-world-reaction.html
+
+**What We Know (and Don’t Know) in the Alaska and Mississippi Senate Vote Counts**\
+`Democrats are clinging to small leads in both states, and it may take quite a while until the winners are known.`\
+https://www.nytimes.com/2026/11/04/us/mississippi-alaska-senate-recount-provisional-ballots.html
+
 **Beverly Whipple Has Died. She Introduced the G-Spot to the Mainstream.**\
 `Dr. Whipple studied the female erogenous zone and, with collaborators, wrote a best seller about women’s sexuality. She was 85.`\
 https://www.nytimes.com/2026/11/04/science/beverly-whipple-g-spot-dead.html
