@@ -1,3 +1,7 @@
+**Black Candidates for Governor Break Barriers in Four States**\
+`Georgia was the first state to elect a female Black governor with Keisha Lance Bottoms. Three other states elected Black governors for the first time.`\
+https://www.nytimes.com/2026/11/04/us/elections/black-governors-georgia-florida-wisconsin-usvi.html
+
 **How Hawaii Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-hawaii.html
