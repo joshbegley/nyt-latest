@@ -1,3 +1,7 @@
+**What’s Left? Here Are the Midterm Races That Have Not Been Called.**\
+`Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
+https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississippi.html
+
 **Herbert Blomstedt, Low-Key, Long-Performing Maestro, Dies at 99**\
 `He never achieved the celebrity of more glamorous colleagues, but drew acclaim as he remained at the podium until virtually the end of his long life.`\
 https://www.nytimes.com/2026/11/04/arts/music/herbert-blomstedt-dead.html
