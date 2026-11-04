@@ -1,3 +1,11 @@
+**G.O.P. Holds Florida**\
+`Ashley Moody, a Republican, defeated Angie Nixon, a Democrat, in the U.S. Senate race in Florida, but Ms. Nixon did well in some Hispanic-majority counties. Our election data reporter Evan Reynolds explains.`\
+https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.html
+
+**Representative Chris Pappas Will Become the Senate’s First Openly Gay Male Senator**\
+`Chris Pappas, Democrat of New Hampshire and a congressman, will move to the upper chamber at a time when L.G.B.T.Q. rights have faced pushback in some states.`\
+https://www.nytimes.com/2026/11/03/us/politics/chris-pappas-first-openly-gay-male-senator.html
+
 **‘We Will Find You’: Trump Officials Pledge to Arrest Noncitizen Voters**\
 `Immigration agents did not show up in large numbers at polling places. But Trump administration officials repeatedly warned on Election Day that noncitizen voters would face consequences.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-mullin-noncitizen-voting-arrests.html

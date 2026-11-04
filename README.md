@@ -1,3 +1,7 @@
+**Trump Is Watching Fox News, and He Is Not Thrilled**\
+`On a consequential midterm night, the president offered some harsh criticism of the cable news channel on his social media account.`\
+https://www.nytimes.com/2026/11/03/business/media/trump-fox-news-gutfeld-tarlov.html
+
 **G.O.P. Holds Florida**\
 `Ashley Moody, a Republican, defeated Angie Nixon, a Democrat, in the U.S. Senate race in Florida, but Ms. Nixon did well in some Hispanic-majority counties. Our election data reporter Evan Reynolds explains.`\
 https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.html
