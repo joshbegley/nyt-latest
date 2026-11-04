@@ -1,3 +1,15 @@
+**Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
+`Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
+https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
+
+**David Crowley, a Democrat, Will Be Wisconsin’s First Black Governor**\
+`Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
+https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
+
+**Trump Says in Interview That He Will Accept Election Results**\
+`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot, and said he was willing to work with Democrats.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
+
 **Texas’ Hispanic Voters**\
 `In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
 https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html

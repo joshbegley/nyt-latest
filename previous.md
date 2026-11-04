@@ -1,8 +1,12 @@
+**Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
+`Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
+https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
+
 **Texas’ Hispanic Voters**\
 `In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
 https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html
 
-**Wisconsin Elects Its First Black Governor, a Democrat**\
+**David Crowley, a Democrat, Will Be Wisconsin’s First Black Governor**\
 `Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
 https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
 
@@ -75,7 +79,7 @@ https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
 https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-elections.html
 
 **Trump Says in Interview That He Will Accept Election Results**\
-`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
+`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot, and said he was willing to work with Democrats.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
 
 **Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
 **Roy Cooper Flips North Carolina Senate Seat to Democrats by Defeating Michael Whatley**\
 `The popular former governor defeated President Trump’s handpicked choice to replace the retiring Thom Tillis.`\
 https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
-
-**Chris Pappas Defeats John Sununu in New Hampshire Senate Race**\
-`Representative Chris Pappas beat a former Republican senator, John E. Sununu. He will succeed the Democratic incumbent, Jeanne Shaheen, who did not run for re-election.`\
-https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
 
