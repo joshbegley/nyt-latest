@@ -1,3 +1,31 @@
+**Acton Wins Governor’s Race in Ohio**\
+`Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
+https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
+
+**NYC Voters Pass Ballot Measures That Could Boost Zohran Mamdani’s Agenda**\
+`The results could allow Mayor Zohran Mamdani to build housing and bike lanes more quickly.`\
+https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-elections.html
+
+**Trump Says in Interview That He Will Accept Election Results**\
+`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-somber-white-house.html
+
+**Deb Haaland Is Elected New Mexico’s Governor, a Historic Victory**\
+`The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
+https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
+
+**Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
+`Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
+https://www.nytimes.com/2026/11/03/science/petrova-russian-scientist-charges-frog-embryo.html
+
+**Annie Andrews Defeats Darline Graham in South Carolina Senate Race**\
+`Dr. Annie Andrews defeated Darline Graham, who succeeded her brother after his death, to become South Carolina’s first Democratic senator of the 21st century.`\
+https://www.nytimes.com/2026/11/03/us/andrews-graham-south-carolina-senate.html
+
+**‘The Choice to Elevate Darline Graham Was Just a Huge, Needless Error’: Opinion Writers Break Down the Midterms**\
+`Michelle Goldberg and Matthew Yglesias talk about James Talarico, populism and taxes.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
 **Being a Sex Worker Made Me Trust Men More**\
 `Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
 https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
