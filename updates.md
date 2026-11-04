@@ -1,3 +1,7 @@
+**What’s Left? Here Are the Midterm Races That Have Not Been Called.**\
+`Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
+https://www.nytimes.com/2026/11/04/us/midterm-election-races-outstanding.html
+
 **On TV, the Midterms Offered Drama and a Casting Change**\
 `For once, the numbers provided a quick, decisive verdict. But from Fox News to the Kornacki Cam, the voices and faces told the story.`\
 https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
