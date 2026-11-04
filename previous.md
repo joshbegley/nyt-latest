@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/04/style/tiny-modern-love-stories-her-92-year-old-boyfriend.html
+
 **Man Who Threw Snowballs at N.Y.P.D. Officers Receives Community Service**\
 `Gusmane Coulibaly pleaded guilty to harassment in connection with his actions at a large snowball fight this year in Washington Square Park.`\
 https://www.nytimes.com/2026/11/04/nyregion/snowball-thrower-nypd-plea-deal.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/11/04/world/middleeast/israel-trump-midterm-electio
 `From joy to concern, readers react to the Democrats’ “shellacking” of the Republicans in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/opinion/letters/midterm-elections-trump.html
 
-**Georgia Governor Nixes Rushed Redistricting Before G.O.P. Loses Power**\
+**Kemp Nixes Georgia Redistricting Ahead of Keisha Lance Bottoms Term**\
 `Gov. Brian Kemp, a Republican, declined to call a special session to draw new congressional maps or weaken the power of the governor’s office before a Democrat takes office.`\
 https://www.nytimes.com/2026/11/04/us/kemp-georgia-redistricting-keisha-lance-bottoms.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-wisconsin.html
 **How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
-
-**How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
 

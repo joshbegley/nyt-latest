@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/04/style/tiny-modern-love-stories-her-92-year-old-boyfriend.html
+
+**Kemp Nixes Georgia Redistricting Ahead of Keisha Lance Bottoms Term**\
+`Gov. Brian Kemp, a Republican, declined to call a special session to draw new congressional maps or weaken the power of the governor’s office before a Democrat takes office.`\
+https://www.nytimes.com/2026/11/04/us/kemp-georgia-redistricting-keisha-lance-bottoms.html
+
 **Man Who Threw Snowballs at N.Y.P.D. Officers Receives Community Service**\
 `Gusmane Coulibaly pleaded guilty to harassment in connection with his actions at a large snowball fight this year in Washington Square Park.`\
 https://www.nytimes.com/2026/11/04/nyregion/snowball-thrower-nypd-plea-deal.html
