@@ -1,3 +1,15 @@
+**Justice Alito Will Not Retire Immediately, Despite Election Outcome**\
+`The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
+https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
+
+**Alaska and Mississippi Senate Races: What We Know About Vote Counts and Result Timing**\
+`Democrats are clinging to small leads in both states, and it may take quite a while until the winners are known.`\
+https://www.nytimes.com/2026/11/04/us/mississippi-alaska-senate-recount-provisional-ballots.html
+
+**G.O.P. Group Says Party Faces a ‘Crisis-Level’ Loss of Elected Women**\
+`Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
+https://www.nytimes.com/2026/11/04/us/women-republicans-congress.html
+
 **How Democrats Swept Texas in the 2026 Elections: See Which G.O.P. Counties Flipped From 2024**\
 `Every county in Texas shifted left, voting more Democratic than two years ago when President Trump was on the ballot.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/texas-midterm-shift-democrats.html
