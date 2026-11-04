@@ -1,3 +1,7 @@
+**Max Miller Loses in Ohio After Ex-Wife’s Abuse Allegations**\
+`The defeat of the two-term Republican by Brian Poindexter, a union ironworker, handed Democrats a seat that had appeared out of reach before the family clash became public.`\
+https://www.nytimes.com/2026/11/04/us/ohio-house-7-miller-poindexter.html
+
 **Jocelyn Benson Holds Michigan Governor’s Office for Democrats**\
 `Ms. Benson, the secretary of state, defeated Representative John James in a swing state that often plays a critical role in presidential elections.`\
 https://www.nytimes.com/2026/11/04/us/michigan-governor-benson-james.html
