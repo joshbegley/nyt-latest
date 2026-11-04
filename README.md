@@ -1,3 +1,7 @@
+**The Local: The Minnesota midterms, by the numbers**\
+`Democrats’ strong showing included wins in every statewide race.`\
+https://www.nytimes.com/2026/11/04/briefing/minnesota-midterms.html
+
 **A Trump Reckoning**\
 `The results from the U.S. midterm elections could be the beginning of the end of the Trump era.`\
 https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-elect
 `Last week, Lady Liberty turned 140. Find out the story of her creation.`\
 https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
 
-**John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
-`A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
+**John Frieda, Hair-Care Mogul Who Soothed Women’s Curls, Has Died**\
+`He was a celebrity stylist to rock stars and royalty whose blockbuster product, Frizz Ease, changed his fortunes (and women’s hair) forever. He was 75.`\
 https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
 
 **How the Audacious Trump Redistricting Push Backfired for Republicans in the Midterms**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
 **Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
 `Aaron Spencer, who admitted to fatally shooting a man charged with sexual assaulting Mr. Spencer’s daughter, had won the Republican nomination.`\
 https://www.nytimes.com/2026/11/04/us/aaron-spencer-lonoke-county-sheriff-arkansas.html
-
-**The Blue Tsunami**\
-`We look at results from the election.`\
-https://www.nytimes.com/2026/11/04/briefing/the-blue-tsunami.html
 
 **Midterm Elections Live Updates: Democrats Vow to Use Majority to Check Trump**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after a remarkable power shift in Congress. President Trump, speaking at the White House, focused on his renovation projects, not the midterms.`\
