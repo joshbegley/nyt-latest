@@ -1,3 +1,11 @@
+**Whose Idea Was the Shower Scene in ‘You Can See Everything’?**\
+`Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
+https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
+
+**‘Tired of Stupidity and Ballrooms and Wars’**\
+`Americans are ready for a different kind of politics, and that showed up in the election results, the Opinion contributing writer E.J. Dionne Jr. argues. “People are tired of the division. They’re tired of wasting time. They’re tired of stupidity and ballrooms and wars,” he says.`\
+https://www.nytimes.com/video/opinion/100000011263294/tired-of-stupidity-and-ballrooms-and-wars.html
+
 **Susan Collins Finally Falls to an Election Foe: Donald Trump**\
 `The Maine Republican survived tough cycles in the past even as the political ground shifted underneath her. But the anti-Trump fever in her state doomed her this time.`\
 https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/11/04/arts/music/juan-atkins-dead.html
 **Herbert Blomstedt, Low-Key, Long-Performing Maestro, Dies at 99**\
 `He never achieved the celebrity of more glamorous colleagues, but drew acclaim as he remained at the podium until virtually the end of his long life.`\
 https://www.nytimes.com/2026/11/04/arts/music/herbert-blomstedt-dead.html
-
-**At the Folies Bergère, Life Is a Cabaret (With Serious Dance)**\
-`The choreographer Benjamin Millepied is presenting a season at the storied Parisian theater. “It’s so alive and it’s a place to do something for a broader public.”`\
-https://www.nytimes.com/2026/11/04/arts/dance/folies-bergere-benjamin-millepied-modern-dance.html
-
-**Vance, in Break With Trump, Blames Iran War for Republicans’ 2026 Midterm Losses**\
-`In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to distance himself from the president.`\
-https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
