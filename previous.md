@@ -1,3 +1,11 @@
+**Arizona’s Democratic Governor Wins Re-election**\
+`Gov. Katie Hobbs defeated her Republican challenger, Representative Andy Biggs, despite a concerted campaign by Turning Point USA, Charlie Kirk’s organization.`\
+https://www.nytimes.com/2026/11/04/us/arizona-governor-hobbs-biggs.html
+
+**A Night of Seismic Triumph for Democrats**\
+`The Democratic Party wrested control of Congress from Republicans in a wave of midterm victories as voters delivered a scathing rebuke to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-photos.html
+
 **Marjorie Taylor Greene: Midterm Loss “100 Percent” on Trump**\
 `In this episode of “The Call,” former Representative Marjorie Taylor Greene, Republican of Georgia, joins our host Natalie Kitroeff on election night to break down the blue wave and explain why she puts the blame entirely on President Trump.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor-greene-midterm-loss-100-percent-on-trump.html
@@ -90,7 +98,7 @@ https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
 `Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
 https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
 
-**Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
+**Susan Collins Loses to Troy Jackson in Maine, Ending Three Decades in the Senate**\
 `Senator Susan Collins, the sole Republican representing New England in Congress, lost her seat on a landslide night for Democrats.`\
 https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
 
@@ -142,7 +150,7 @@ https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-
 `Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
 https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
 
-**Democrat Unseats House Republican in Iowa, Flipping an Important Seat**\
+**Bohannan Unseats Miller-Meeks in Iowa, Flipping Key House Seat**\
 `Discontent about the war with Iran and tariffs helped create a tough environment for Representative Mariannette Miller-Meeks, the defeated Republican.`\
 https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meeks.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
 **Texas’ Hispanic Voters**\
 `In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
 https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html
-
-**David Crowley, a Democrat, Will Be Wisconsin’s First Black Governor**\
-`Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
-https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
-
-**Adam Hamilton Wins: How Kansas Finally Elected a Democratic Senator**\
-`What’s stunning about his win is that it wasn’t a surprise by Election Day.`\
-https://www.nytimes.com/2026/11/03/opinion/adam-hamilton-kansas-senate.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\

@@ -1,3 +1,19 @@
+**Arizona’s Democratic Governor Wins Re-election**\
+`Gov. Katie Hobbs defeated her Republican challenger, Representative Andy Biggs, despite a concerted campaign by Turning Point USA, Charlie Kirk’s organization.`\
+https://www.nytimes.com/2026/11/04/us/arizona-governor-hobbs-biggs.html
+
+**A Night of Seismic Triumph for Democrats**\
+`The Democratic Party wrested control of Congress from Republicans in a wave of midterm victories as voters delivered a scathing rebuke to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-photos.html
+
+**Susan Collins Loses to Troy Jackson in Maine, Ending Three Decades in the Senate**\
+`Senator Susan Collins, the sole Republican representing New England in Congress, lost her seat on a landslide night for Democrats.`\
+https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
+
+**Bohannan Unseats Miller-Meeks in Iowa, Flipping Key House Seat**\
+`Discontent about the war with Iran and tariffs helped create a tough environment for Representative Mariannette Miller-Meeks, the defeated Republican.`\
+https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meeks.html
+
 **Marjorie Taylor Greene: Midterm Loss “100 Percent” on Trump**\
 `In this episode of “The Call,” former Representative Marjorie Taylor Greene, Republican of Georgia, joins our host Natalie Kitroeff on election night to break down the blue wave and explain why she puts the blame entirely on President Trump.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor-greene-midterm-loss-100-percent-on-trump.html
