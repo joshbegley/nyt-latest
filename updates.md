@@ -1,3 +1,7 @@
+**Why Some States Take Longer to Count and Report Election Results**\
+`Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
+https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
+
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
 `Times Opinion writers break down the results from across the country and what they will mean for American politics in the years ahead.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html

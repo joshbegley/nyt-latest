@@ -1,3 +1,7 @@
+**Why Some States Take Longer to Count and Report Election Results**\
+`Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
+https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
+
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
 `Times Opinion writers break down the results from across the country and what they will mean for American politics in the years ahead.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-so
 **Here Are the 11 Senate Races to Watch on Election Day**\
 `Control of the chamber is on the ballot on Election Day.`\
 https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
-
-**Justice Dept. Sends Target Letters to Democrats in Escalation of Alaska Inquiry**\
-`The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
-https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
 
 **Midterm Elections Live Updates: Polls Close in South Carolina and Georgia With Senate Majority at Stake**\
 `(No description)`\
