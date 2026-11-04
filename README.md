@@ -23,7 +23,7 @@ https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeff
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
 
 **Helicopter Crash Off Miami Kills One Person and Injures Two**\
-`The helicopter went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
+`The helicopter was filming boats in the water when it went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
 https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
 
 **Trump Wanted Democrats to Win**\
