@@ -1,3 +1,7 @@
+**Trump Media’s Shares Fall to Record Low After Midterms**\
+`Trump Media & Technology Group’s stock plunged 24 percent a day after Democrats made huge gains in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-elections.html
+
 **Whose Idea Was the Shower Scene in ‘You Can See Everything’?**\
 `Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
 https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
