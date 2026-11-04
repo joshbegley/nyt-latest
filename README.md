@@ -1,3 +1,15 @@
+**Acton Wins Governor’s Race in Ohio**\
+`Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
+https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
+
+**NYC Voters Pass Ballot Measures That Could Boost Zohran Mamdani’s Agenda**\
+`The results could allow Mayor Zohran Mamdani to build housing and bike lanes more quickly.`\
+https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-elections.html
+
+**Trump Says in Interview That He Will Accept Election Results**\
+`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-somber-white-house.html
+
 **Deb Haaland Is Elected New Mexico’s Governor, a Historic Victory**\
 `The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
 https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
@@ -27,7 +39,7 @@ https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
 https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
 
 **Annie Andrews Defeats Darline Graham in South Carolina Senate Race**\
-`Dr. Annie Andrews, a Democrat, was projected to defeat Senator Darline Graham, who succeeded her brother after his death, flipping a key Senate seat.`\
+`Dr. Annie Andrews defeated Darline Graham, who succeeded her brother after his death, to become South Carolina’s first Democratic senator of the 21st century.`\
 https://www.nytimes.com/2026/11/03/us/andrews-graham-south-carolina-senate.html
 
 **What Are Your Reactions to the Results of the 2026 Midterm Elections?**\
@@ -142,8 +154,8 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 `Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
-**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Kristen Soltis Anderson and Jamelle Bouie talk about the ethical dimension of some of the races this year. They are joined by Matthew Yglesias.`\
+**‘The Choice to Elevate Darline Graham Was Just a Huge, Needless Error’: Opinion Writers Break Down the Midterms**\
+`Michelle Goldberg and Matthew Yglesias talk about James Talarico, populism and taxes.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
@@ -173,18 +185,6 @@ https://www.nytimes.com/2026/11/03/us/georgia-republican-chair-fair-election.htm
 **‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
 `Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
 https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
-
-**Helicopters Collide Over Everest Trail, Killing 1 and Injuring 3 Others**\
-`The crash, in a popular tourist area during the autumn climbing season, highlighted the safety challenges posed by growing numbers of aircraft in the Himalayas.`\
-https://www.nytimes.com/2026/11/03/world/asia/helicopter-crash-everest-nepal.html
-
-**Everest Helicopter Crash Kills One and Injures Three Others**\
-`Two helicopters collided near a Mount Everest base camp on Tuesday while trying to land, killing one tourist and injuring another, along with two pilots.`\
-https://www.nytimes.com/video/world/asia/100000011258330/mount-everest-helicopter-crash.html
-
-**America Votes**\
-`Your guide to election night, and more big stories at the end of Tuesday.`\
-https://www.nytimes.com/2026/11/03/briefing/election-night-house-senate-results.html
 
 **Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\
