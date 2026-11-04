@@ -1,3 +1,7 @@
+**‘Trump Could Be the Gift That Keeps on Giving’**\
+`Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
+https://www.nytimes.com/video/opinion/100000011263481/trump-could-be-the-gift-that-keeps-on-giving.html
+
 **The Blame Game Begins**\
 `Also, Democrats will have a huge majority in the House. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-power.html
