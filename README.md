@@ -1,3 +1,7 @@
+**‘Decency Won’: 9 Writers on the Best and Worst Moments From Trump’s Midterm Rout**\
+`What mattered most in these midterms?`\
+https://www.nytimes.com/2026/11/04/opinion/midterms-democrats-senate-house-results.html
+
 **After Midterm Drubbing, Trump and Republicans Start Pointing Fingers**\
 `While the president attributed sweeping losses to the fact that he was not on the ballot, others in his party dismissed his explanation and pinned blame squarely on him.`\
 https://www.nytimes.com/2026/11/04/us/politics/trump-republicans-blame-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
 **Jon Ossoff Describes a Future He Wants His Daughters to Inherit**\
 `In his victory speech, Senator Jon Ossoff, Democrat of Georgia, said he hoped his daughters would inherit a better future.`\
 https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate-speech-daughters.html
-
-**Five Things to Know About Hakeem Jeffries**\
-`The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
-https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
 
