@@ -1,3 +1,7 @@
+**Justice Alito Will Not Retire From Supreme Court Immediately, Despite Election Outcome**\
+`The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
+https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
+
 **Justice Alito Will Not Retire Immediately, Despite Election Outcome**\
 `The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
 https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
