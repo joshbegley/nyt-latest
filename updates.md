@@ -1,3 +1,7 @@
+**CVS to Split Off Pharmacy Business, Ending the Healthcare Conglomerate Era**\
+`In a breakup planned for 2028, CVS Health intends to split off its pharmacies into a new company, while keeping together its businesses in insurance and pharmacy benefits.`\
+https://www.nytimes.com/2026/11/04/business/cvs-health-split.html
+
 **Israel’s President Will Start Talks on Whether Netanyahu or Eisenkot Can Form a Government**\
 `President Isaac Herzog will meet with party leaders over the next two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
