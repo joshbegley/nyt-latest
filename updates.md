@@ -1,3 +1,19 @@
+**Luria Wins in Virginia, Flipping a Key House Seat for Democrats**\
+`Former Representative Elaine Luria won back her seat in the state’s tidewater region from Representative Jen Kiggans, the Republican who beat her four years ago.`\
+https://www.nytimes.com/2026/11/03/us/politics/virginia-house-2-kiggans-luria.html
+
+**The American People Have Repudiated Trump**\
+`Americans showed that the power to choose their leaders belongs to them. Now they must remain vigilant until officials certify every race and the winners take office.`\
+https://www.nytimes.com/2026/11/03/opinion/democracy-midterms-trump.html
+
+**Winning the Senate, Democrats Secure a Platform to Check Trump**\
+`In a stunning string of victories in Iowa, Texas, and North and South Carolina, Democrats delivered a midterm thrashing repudiating President Trump.`\
+https://www.nytimes.com/2026/11/03/us/politics/senate-election-control.html
+
+**It Only Took Four Months to Destroy Lindsey Graham’s Legacy**\
+`Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
+https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
+
 **Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
 `Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
 https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html

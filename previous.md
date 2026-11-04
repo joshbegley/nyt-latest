@@ -1,3 +1,15 @@
+**Luria Wins in Virginia, Flipping a Key House Seat for Democrats**\
+`Former Representative Elaine Luria won back her seat in the state’s tidewater region from Representative Jen Kiggans, the Republican who beat her four years ago.`\
+https://www.nytimes.com/2026/11/03/us/politics/virginia-house-2-kiggans-luria.html
+
+**The American People Have Repudiated Trump**\
+`Americans showed that the power to choose their leaders belongs to them. Now they must remain vigilant until officials certify every race and the winners take office.`\
+https://www.nytimes.com/2026/11/03/opinion/democracy-midterms-trump.html
+
+**Winning the Senate, Democrats Secure a Platform to Check Trump**\
+`In a stunning string of victories in Iowa, Texas, and North and South Carolina, Democrats delivered a midterm thrashing repudiating President Trump.`\
+https://www.nytimes.com/2026/11/03/us/politics/senate-election-control.html
+
 **Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
 `Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
 https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/11/03/us/kansas-senate-marshall-hamilton.html
 `Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
 https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
 
-**Lindsey Graham’s Legacy Is Done**\
+**It Only Took Four Months to Destroy Lindsey Graham’s Legacy**\
 `Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
 https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/03/nyregion/seneca-nation-woman-president-tina-a
 **Voters in Key Battleground States Told Us How They Voted**\
 `The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
 https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
-
-**Detailed Maps of the 2026 Senate Election Results**\
-`Explore maps of precinct-level results from Senate races across the country.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
-
-**Roy Cooper Bored His Way Into the Senate**\
-`In North Carolina, Roy Cooper affirmed the power of the right person waging the right campaign in the right place.`\
-https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
-
-**Roy Cooper Flips North Carolina Senate Seat to Democrats by Defeating Michael Whatley**\
-`The popular former governor defeated President Trump’s handpicked choice to replace the retiring Thom Tillis.`\
-https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
 
