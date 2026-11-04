@@ -1,3 +1,15 @@
+**Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
+`On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
+https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
+
+**7 Writers on How the Blue Tsunami Swept America**\
+`Every Senate win holds important lessons for Democrats.`\
+https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-wave.html
+
+**Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
+`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **7 Writers on How the Blue Tsunami Swept America**\
 `Every Senate win holds important lessons for Democrats.`\
 https://www.nytimes.com/2026/11/04/opinion/7-writers-on-how-the-blue-tsunami-swept-america.html
