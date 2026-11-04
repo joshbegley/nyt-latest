@@ -1,3 +1,15 @@
+**Susan Collins Finally Falls to an Election Foe: Donald Trump**\
+`The Maine Republican survived tough cycles in the past even as the political ground shifted underneath her. But the anti-Trump fever in her state doomed her this time.`\
+https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
+
+**Trump Emerges After the Midterms: ‘Did You Guys See the Helipad?’**\
+`His party just suffered a drubbing unseen in decades. But the president, leading a tour of his ballroom project, was placid and eager to wax on about construction instead.`\
+https://www.nytimes.com/2026/11/04/us/trump-midterms-ballroom.html
+
+**Trump Administration Moves to Oust Arbitrators as Doctor Payouts Soar**\
+`The two companies settled billing disputes between doctors and insurers, keeping patients out of the middle. One let doctors win 96 percent of the time.`\
+https://www.nytimes.com/2026/11/04/health/arbitrators-medical-bills.html
+
 **Retracing the Night Katie Suarez Was Attacked During Her Jog in Brooklyn**\
 `Katie Suarez was a regular runner on a desolate stretch of the Brooklyn waterfront. On Friday, her parents went looking for her after she stopped returning phone calls.`\
 https://www.nytimes.com/2026/11/04/nyregion/katie-suarez-stabbing-brooklyn-jogger-nyc.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.htm
 **Can I Publish a Memoir About My Brother’s Crime Without Telling Him?**\
 `He will most likely never be aware of the book’s publication if I do not tell him.`\
 https://www.nytimes.com/2026/11/04/magazine/memoir-brother-crime-ethics.html
-
-**A Lawsuit Says the McRib Is Lacking Something You Might Expect It to Have**\
-`A judge in Chicago ruled that the class-action lawsuit could proceed.`\
-https://www.nytimes.com/2026/11/04/business/mcdonalds-mcrib-lawsuit.html
-
-**How Troy Jackson Defeated Susan Collins in Maine, Ending Her 30 Year Senate Career**\
-`Troy Jackson, a former Democratic state lawmaker, upset Senator Susan Collins, a Republican who had served the state for 30 years.`\
-https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-collins.html
-
-**Democrats Will Control Most Governorships, a Generational Shift**\
-`Democrats took five new seats for a total of 29, giving them a majority for the first time in years. The wins could expand state-level resistance to the Trump administration.`\
-https://www.nytimes.com/2026/11/04/us/democrats-governors.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
