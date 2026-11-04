@@ -1,3 +1,7 @@
+**Attorney General Appoints Outside Counsel to Lead Cornell Rape Case**\
+`Jacqueline Kelly will oversee a criminal investigation into a former student’s allegations that she was raped in 2024.`\
+https://www.nytimes.com/2026/11/04/nyregion/cornell-jane-doe-sexual-assault-investigation.html
+
 **Democrats Flip Texas With Stunning Midterm Election Victories**\
 `James Talarico and Gina Hinojosa, two Democratic state representatives, won their midterm races for senator and governor in Texas. Their victories ended decades of Republican dominance in the state.`\
 https://www.nytimes.com/video/us/politics/100000011261627/texas-democrats-talarico-hinojosa.html
