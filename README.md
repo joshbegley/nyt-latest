@@ -1,3 +1,11 @@
+**Vance, in Break With Trump, Blames Iran War for Republicans’ Rout**\
+`In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to separate himself from the president.`\
+https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
+
+**Can I Publish a Memoir About My Brother’s Crime Without Telling Him?**\
+`He will most likely never be aware of the book’s publication if I do not tell him.`\
+https://www.nytimes.com/2026/11/04/magazine/memoir-brother-crime-ethics.html
+
 **A Lawsuit Says the McRib Is Lacking Something You Might Expect It to Have**\
 `A judge in Chicago ruled that the class-action lawsuit could proceed.`\
 https://www.nytimes.com/2026/11/04/business/mcdonalds-mcrib-lawsuit.html
@@ -142,13 +150,13 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-washington.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-west-virginia.html
 
-**How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
-
 **How Texas Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-texas.html
+
+**How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
 
 **How Tennessee Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -182,10 +190,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.h
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-rhode-island.html
 
-**How North Dakota Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-north-dakota.html
-
 **How Oklahoma Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-oklahoma.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-oklahoma.html
 **How Oregon Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-oregon.html
-
-**How Ohio Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-ohio.html
 
