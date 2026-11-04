@@ -1,3 +1,11 @@
+**Senator Pete Ricketts of Nebraska Fends Off an Independent Challenger**\
+`Mr. Ricketts secured Republicans’ grip on the deep-red state by defeating Dan Osborn, a mechanic and military veteran.`\
+https://www.nytimes.com/2026/11/04/us/nebraska-senate-ricketts-osborn.html
+
+**Countries Weigh, and Worry About, What Trump Will Do After Midterm Defeat**\
+`Commentators abroad wondered what the president’s electoral losses might mean for oil prices, the war on Iran and the end of the Trump era.`\
+https://www.nytimes.com/2026/11/04/world/asia/midterms-trump-foreign-policy-world.html
+
 **8 Midterm Election Takeaways: A Democratic Landslide Punishes Trump’s Party**\
 `Democrats won shocking victories all over the map and flipped the Senate and House with ease, leaving the president weakened. “There was a mood in the air, I guess,” he said.`\
 https://www.nytimes.com/2026/11/04/us/politics/election-takeaways-democrats-win.html
@@ -50,7 +58,7 @@ https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate
 `The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
 https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
 
-**Historic Midterm Rout Serves as a Sweeping Rebuke of Trump Era**\
+**Angry Voters Usher in Beginning of the End of the Trump Era**\
 `The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
 https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/politics/virginia-house-2-kiggans-luria.ht
 **The American People Have Repudiated Trump**\
 `Americans showed that the power to choose their leaders belongs to them. Now they must remain vigilant until officials certify every race and the winners take office.`\
 https://www.nytimes.com/2026/11/03/opinion/democracy-midterms-trump.html
-
-**Winning the Senate, Democrats Secure a Platform to Check Trump**\
-`In a stunning string of victories in Iowa, Texas, and North and South Carolina, Democrats delivered a midterm thrashing repudiating President Trump.`\
-https://www.nytimes.com/2026/11/03/us/politics/senate-election-control.html
-
-**Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
-`Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
-https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\

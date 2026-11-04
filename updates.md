@@ -1,3 +1,15 @@
+**Senator Pete Ricketts of Nebraska Fends Off an Independent Challenger**\
+`Mr. Ricketts secured Republicans’ grip on the deep-red state by defeating Dan Osborn, a mechanic and military veteran.`\
+https://www.nytimes.com/2026/11/04/us/nebraska-senate-ricketts-osborn.html
+
+**Countries Weigh, and Worry About, What Trump Will Do After Midterm Defeat**\
+`Commentators abroad wondered what the president’s electoral losses might mean for oil prices, the war on Iran and the end of the Trump era.`\
+https://www.nytimes.com/2026/11/04/world/asia/midterms-trump-foreign-policy-world.html
+
+**Angry Voters Usher in Beginning of the End of the Trump Era**\
+`The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
+
 **8 Midterm Election Takeaways: A Democratic Landslide Punishes Trump’s Party**\
 `Democrats won shocking victories all over the map and flipped the Senate and House with ease, leaving the president weakened. “There was a mood in the air, I guess,” he said.`\
 https://www.nytimes.com/2026/11/04/us/politics/election-takeaways-democrats-win.html

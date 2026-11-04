@@ -1,3 +1,11 @@
+**Endangered Democratic Governor Wins Re-election in Oregon**\
+`Gov. Tina Kotek was one of the few embattled incumbents in her party, but she prevailed in her Democratic state.`\
+https://www.nytimes.com/2026/11/04/us/oregon-governor-kotek-drazan.html
+
+**How a Blue Wave Became a Red Wipeout**\
+`Republicans lost control of the House and Senate as voters offered a stinging rebuke to President Trump’s agenda.`\
+https://www.nytimes.com/2026/11/04/us/politics/democratic-midterms-wipeout.html
+
 **Senator Pete Ricketts of Nebraska Fends Off an Independent Challenger**\
 `Mr. Ricketts secured Republicans’ grip on the deep-red state by defeating Dan Osborn, a mechanic and military veteran.`\
 https://www.nytimes.com/2026/11/04/us/nebraska-senate-ricketts-osborn.html
@@ -182,15 +190,7 @@ https://www.nytimes.com/2026/11/04/pageoneplus/quote-of-the-day-high-in-mexicos-
 `Barack Obama defeated John McCain to become the 44th U.S. president.`\
 https://www.nytimes.com/2026/11/04/learning/from-the-front-page-obama-is-elected-first-black-president-on-nov-4-2008.html
 
-**Luria Wins in Virginia, Flipping a Key House Seat for Democrats**\
-`Former Representative Elaine Luria won back her seat in the state’s tidewater region from Representative Jen Kiggans, the Republican who beat her four years ago.`\
-https://www.nytimes.com/2026/11/03/us/politics/virginia-house-2-kiggans-luria.html
-
-**The American People Have Repudiated Trump**\
-`Americans showed that the power to choose their leaders belongs to them. Now they must remain vigilant until officials certify every race and the winners take office.`\
-https://www.nytimes.com/2026/11/03/opinion/democracy-midterms-trump.html
-
-**Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
+**Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
