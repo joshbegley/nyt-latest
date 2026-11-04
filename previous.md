@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 4, 2026**\
+`Peggy Sue Marlin makes her New York Times Crossword debut.`\
+https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html
+
 **Rebecca Bennett Unseats Tom Kean Jr. in New Jersey House Race**\
 `Rebecca Bennett, a Democrat, unseated Representative Tom Kean Jr. in a New Jersey swing district. Mr. Kean was absent from Congress for nearly four months while he was treated for depression.`\
 https://www.nytimes.com/2026/11/03/nyregion/kean-jr-bennett-nj-house-7.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-mini
 **How Will the Midterms Play Out? These Races May Provide Early Clues.**\
 `Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
 https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
-
-**Fugitive Murder Convict Caught in Missouri After Escape From Tennessee Prison**\
-`Jacob Allen Morley, 28, was found hundreds of miles away, near Kansas City, Mo., after breaching a fence last week at a correctional facility where he was serving a life sentence.`\
-https://www.nytimes.com/2026/11/03/us/tennessee-escaped-jacob-morley-captured.html
 
 **Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
 `(No description)`\

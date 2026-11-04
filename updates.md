@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 4, 2026**\
+`Peggy Sue Marlin makes her New York Times Crossword debut.`\
+https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html
+
 **Rebecca Bennett Unseats Tom Kean Jr. in New Jersey House Race**\
 `Rebecca Bennett, a Democrat, unseated Representative Tom Kean Jr. in a New Jersey swing district. Mr. Kean was absent from Congress for nearly four months while he was treated for depression.`\
 https://www.nytimes.com/2026/11/03/nyregion/kean-jr-bennett-nj-house-7.html
