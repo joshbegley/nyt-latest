@@ -1,4 +1,8 @@
-**Ned Lamont Wins a Third Term as Connecticut Governor**\
+**Democrat Wins Georgia Governor’s Race, a Breakthrough for Black Women**\
+`Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
+https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
+
+**Ned Lamont Wins Rare Third Term Against Ryan Fazio in Connecticut Governor Race**\
 `Democrats have held the top office in the reliably blue state since 2011, but Mr. Lamont is only the second Connecticut governor to be elected to three consecutive terms.`\
 https://www.nytimes.com/2026/11/03/nyregion/connecticut-governor-lamont-fazio.html
 
@@ -95,7 +99,7 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Times Opinion writers break down the results from across the country and what they will mean for American politics in the years ahead.`\
+`Kristen Soltis Anderson and Jamelle Bouie focus on the early results from Georgia, North Carolina and across the country.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/03/us/tennessee-escaped-jacob-morley-captured.ht
 **U.S. Assisted Venezuela in Deadly Drone Strike, Officials Say**\
 `The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
 https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
-
-**Trump Says He’ll End $4 Billion in Aid to Israel**\
-`President Trump said on Tuesday that the bulk of American aid to Israel would be cut off by the end of year. He said the Election Day announcement was part of a deal reached months ago.`\
-https://www.nytimes.com/video/us/politics/100000011258397/trump-israel-aid-4-billion.html
 
 **Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
 `(No description)`\

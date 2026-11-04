@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Kristen Soltis Anderson and Jamelle Bouie focus on the early results from Georgia, North Carolina and across the country.`\
+`Kristen Soltis Anderson, Jamelle Bouie and Carlos Lozada talk about`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
