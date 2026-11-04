@@ -1,3 +1,15 @@
+**Bobby Pulido, a Tejano Music Star, Flips a House Seat in Texas for Democrats**\
+`Mr. Pulido, a Latin Grammy Award-winning singer and conservative Democrat, ousted a Republican incumbent in a district President Trump won by 18 percentage points in 2024.`\
+https://www.nytimes.com/2026/11/04/us/texas-house-15-pulido-de-la-cruz.html
+
+**Mike Lawler Concedes to Challenger Cait Conley in New York House Swing District**\
+`Representative Mike Lawler, a Hudson Valley Republican, chose to concede even with tens of thousands of votes yet to be counted because of balloting issues in Westchester County.`\
+https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-house-17-westchester.html
+
+**Haaland and Flanagan, Two Native American Women, Break Political Barriers**\
+`Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
+https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
+
 **Finally. FINALLY. Texas Is Blue.**\
 `For Republicans, Texas has long been a dependable political anchor. Its loss was a profound psychological blow.`\
 https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html

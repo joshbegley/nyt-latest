@@ -1,3 +1,11 @@
+**Bobby Pulido, a Tejano Music Star, Flips a House Seat in Texas for Democrats**\
+`Mr. Pulido, a Latin Grammy Award-winning singer and conservative Democrat, ousted a Republican incumbent in a district President Trump won by 18 percentage points in 2024.`\
+https://www.nytimes.com/2026/11/04/us/texas-house-15-pulido-de-la-cruz.html
+
+**Mike Lawler Concedes to Challenger Cait Conley in New York House Swing District**\
+`Representative Mike Lawler, a Hudson Valley Republican, chose to concede even with tens of thousands of votes yet to be counted because of balloting issues in Westchester County.`\
+https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-house-17-westchester.html
+
 **Finally. FINALLY. Texas Is Blue.**\
 `For Republicans, Texas has long been a dependable political anchor. Its loss was a profound psychological blow.`\
 https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
 `Democrats won a Senate seat in Kansas for the first time in nearly 100 years. Our election data reporter Christine Zhang talks about the growing Democratic footprint in the state.`\
 https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-for-kansas.html
 
-**Two Native American Women Break Political Barriers This Election**\
+**Haaland and Flanagan, Two Native American Women, Break Political Barriers**\
 `Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
 https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html
 **Rebecca Bennett Unseats Tom Kean Jr. in New Jersey House Race**\
 `Rebecca Bennett, a Democrat, unseated Representative Tom Kean Jr. in a New Jersey swing district. Mr. Kean was absent from Congress for nearly four months while he was treated for depression.`\
 https://www.nytimes.com/2026/11/03/nyregion/kean-jr-bennett-nj-house-7.html
-
-**Keisha Lance Bottoms Wins in Georgia to Become First Black Woman Elected U.S. Governor**\
-`Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
-https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
-
-**Ned Lamont Wins Rare Third Term Against Ryan Fazio in Connecticut Governor Race**\
-`Democrats have held the top office in the reliably blue state since 2011, but Mr. Lamont is only the second Connecticut governor to be elected to three consecutive terms.`\
-https://www.nytimes.com/2026/11/03/nyregion/connecticut-governor-lamont-fazio.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
