@@ -1,3 +1,15 @@
+**Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
+`Senator Susan Collins, the sole Republican representing New England in Congress, acknowledged that her seat had been lost on a landslide night for Democrats.`\
+https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
+
+**Moderate Republican Loses Seat in Pennsylvania Swing District**\
+`Bob Harvie, a Bucks County commissioner, defeated Representative Brian Fitzpatrick, who had survived three previous elections in a district that voted against President Trump each time.`\
+https://www.nytimes.com/2026/11/04/us/pennsylvania-house-1-fitzpatrick.html
+
+**It Was Time for Susan Collins to Go**\
+`One of the greatest survivors in U.S. politics finally falls.`\
+https://www.nytimes.com/2026/11/04/opinion/susan-collins-troy-jackson-senate.html
+
 **Inside Democrats’ Historic Win**\
 `Nate Cohn, chief political analyst for The New York Times, puts the Democrats’ decisive midterm victory in historical context.`\
 https://www.nytimes.com/video/us/elections/100000011260375/inside-democrats-historic-win.html
