@@ -1,3 +1,11 @@
+**Marjorie Taylor Greene: Midterm Loss “100 Percent” on Trump**\
+`In this episode of “The Call,” former Representative Marjorie Taylor Greene, Republican of Georgia, joins our host Natalie Kitroeff on election night to break down the blue wave and explain why she puts the blame entirely on President Trump.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor-greene-midterm-loss-100-percent-on-trump.html
+
+**NYT Spelling Bee Answers for November 4, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/04/crosswords/spelling-bee-forum.html
+
 **Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
 `Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
 https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
 **Adam Hamilton Wins: How Kansas Finally Elected a Democratic Senator**\
 `What’s stunning about his win is that it wasn’t a surprise by Election Day.`\
 https://www.nytimes.com/2026/11/03/opinion/adam-hamilton-kansas-senate.html
-
-**Democrat Wins a Kansas Senate Seat for the First Time Since 1932**\
-`The Rev. Adam Hamilton, a centrist Democrat, ousted Senator Roger Marshall, a Republican who was bogged down by President Trump’s unpopularity.`\
-https://www.nytimes.com/2026/11/03/us/kansas-senate-marshall-hamilton.html
-
-**Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
-`Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
-https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
