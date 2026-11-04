@@ -1,3 +1,11 @@
+**Jocelyn Benson Holds Michigan Governor’s Office for Democrats**\
+`Ms. Benson, the secretary of state, defeated Representative John James in a swing state that often plays a critical role in presidential elections.`\
+https://www.nytimes.com/2026/11/04/us/michigan-governor-benson-james.html
+
+**Democrats Seize Control of Congress, Ending a G.O.P. Trifecta**\
+`The party’s victory in the House cemented an era of divided government and a freshly assertive Congress after two years in which Republicans ceded power to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/elections/house-of-representatives-midterms-democrats-republicans.html
+
 **How Gina Hinojosa Captured Texas**\
 `The woman who took down Greg Abbott concentrated on pocketbook issues, but voters’ opposition to Republican immigration policies was a tailwind.`\
 https://www.nytimes.com/2026/11/04/us/gina-hinojosa-texas-governor.html

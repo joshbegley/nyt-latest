@@ -1,3 +1,7 @@
+**Max Miller Loses in Ohio After Ex-Wife’s Abuse Allegations**\
+`The defeat of the two-term Republican by Brian Poindexter, a union ironworker, handed Democrats a seat that had appeared out of reach before the family clash became public.`\
+https://www.nytimes.com/2026/11/04/us/ohio-house-7-miller-poindexter.html
+
 **Jocelyn Benson Holds Michigan Governor’s Office for Democrats**\
 `Ms. Benson, the secretary of state, defeated Representative John James in a swing state that often plays a critical role in presidential elections.`\
 https://www.nytimes.com/2026/11/04/us/michigan-governor-benson-james.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
 **Talarico Defeats Paxton in Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
 `James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
 https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
-
-**Xavier Becerra Becomes California’s First Latino Elected as Governor, Defeating Steve Hilton**\
-`Xavier Becerra, a Democrat who has served in various roles at the state and federal level, will succeed Gov. Gavin Newsom.`\
-https://www.nytimes.com/2026/11/03/us/california-governor-becerra-hilton.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
