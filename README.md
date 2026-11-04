@@ -1,3 +1,7 @@
+**Israel’s President Could Play Key Role in Breaking Post-Election Deadlock**\
+`President Isaac Herzog has tried to avoid controversy and heal rifts in his largely ceremonial role. But his skills as a savvy mediator could be instrumental after an inconclusive election.`\
+https://www.nytimes.com/2026/11/04/world/middleeast/israel-president-herzog-election-government.html
+
 **Midterm Elections Live Updates: Democrats Win Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the results.`\
 https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
@@ -163,7 +167,7 @@ https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-hous
 https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
 
 **How the Stock Market Is Reacting to the Midterm Elections**\
-`U.S. stock futures fell as the first results came in, but later traded higher as investors assessed the outlook for artificial intelligence and other key sectors.`\
+`U.S. stock futures fell as the first results came in, but later traded higher as investors assessed the outlook for artificial intelligence and other key sectors as the balance of power shifts in Washington.`\
 https://www.nytimes.com/2026/11/04/business/midterm-elections-stock-market.html
 
 **Letitia James Wins Third Consecutive Term in New York Attorney General Race**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meek
 **Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
 `Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
 https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
-
-**Democrats Seize Control of Congress as Voters Rebuke Trump**\
-`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
