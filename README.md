@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-mini
 `Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
 https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
 
-**Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
+**Midterm Elections Live Updates: South Carolina Elects First Democratic Senator in Decades**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
