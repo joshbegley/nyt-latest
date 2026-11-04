@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/11/03/us/tennessee-escaped-jacob-morley-captured.ht
 `The attack on a drug-trafficking group killed about two dozen people, a rights group said. It comes as the United States is militarizing the fight against “narcoterrorism” in Latin America.`\
 https://www.nytimes.com/2026/11/03/world/americas/us-venezuela-strike-eln-drug-trafficking.html
 
-**Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
+**Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

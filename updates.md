@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Keisha Lance Bottoms Wins in Georgia to Become First Black Woman Elected U.S. Governor**\
 `Keisha Lance Bottoms, a former mayor of Atlanta, is the first Black woman elected governor of a U.S. state and the first Democrat to win the office in Georgia in decades.`\
 https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
