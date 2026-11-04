@@ -1,3 +1,7 @@
+**Democrat Pia Dandiya Wins Open Congressional Seat in Florida**\
+`Ms. Dandiya, a former high school principal, is set to become Florida’s first South Asian member of Congress after winning a district Republicans had gerrymandered in their favor.`\
+https://www.nytimes.com/2026/11/03/us/florida-house-22-dandiya-askar.html
+
 **Byron Donalds, Staunch Trump Supporter, Wins Florida Governor’s Race Against David Jolly**\
 `Mr. Donalds will become Florida’s first Black governor, maintaining his party’s hold on a state that has not put a Democrat in the job since the 1990s.`\
 https://www.nytimes.com/2026/11/03/us/donalds-florida-governor-race.html
