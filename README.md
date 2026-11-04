@@ -1,3 +1,7 @@
+**Abdul El-Sayed’s Historic Win in Michigan Answers Several Questions**\
+`Abdul El-Sayed’s victory answers several questions.`\
+https://www.nytimes.com/2026/11/04/opinion/abdul-el-sayed-michigan-senate.html
+
 **El-Sayed Wins Michigan Senate Race in a Victory for Democrats**\
 `Dr. Abdul El-Sayed will become the nation’s first Muslim senator. He triumphed in one of the country’s most bitter and expensive races, keeping his party in control of a crucial seat.`\
 https://www.nytimes.com/2026/11/04/us/michigan-senate-el-sayed-rogers.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
 https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
 
 **Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
-`Senator Susan Collins, the sole Republican representing New England in Congress, acknowledged that her seat had been lost on a landslide night for Democrats.`\
+`Senator Susan Collins, the sole Republican representing New England in Congress, lost her seat on a landslide night for Democrats.`\
 https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
 
 **Moderate Republican Loses Seat in Pennsylvania Swing District**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.h
 **Gina Hinojosa Wins Texas Governor Race in Major Upset, Defeating Greg Abbott**\
 `State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
 https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
-
-**Rob Sand Defeats Zach Lahn in Iowa Governor’s Race, Ending Republicans’ Hold on the Seat**\
-`A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
-https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
