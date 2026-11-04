@@ -1,3 +1,11 @@
+**How 2026 Midterm Voters Swung Back to Democrats Amid Trump Backlash**\
+`Democrats reversed many of the gains Republicans made in 2024.`\
+https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voters-democrats.html
+
+**Juan Atkins Has Died. He Helped Invent Techno Music.**\
+`He combined the futurism of Kraftwerk with the funk of George Clinton to arrive at techno, making Detroit a capital of the genre. He was 64.`\
+https://www.nytimes.com/2026/11/04/arts/music/juan-atkins-dead.html
+
 **CVS to Split Off Drugstore Business, Ending Its Bigger-Is-Better Era**\
 `In a breakup planned for 2028, CVS Health intends to keep together its insurance and pharmacy benefits divisions and create a separate company for its pharmacies.`\
 https://www.nytimes.com/2026/11/04/business/cvs-health-split.html

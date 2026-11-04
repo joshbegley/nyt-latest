@@ -1,3 +1,11 @@
+**How 2026 Midterm Voters Swung Back to Democrats Amid Trump Backlash**\
+`Democrats reversed many of the gains Republicans made in 2024.`\
+https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voters-democrats.html
+
+**Juan Atkins Has Died. He Helped Invent Techno Music.**\
+`He combined the futurism of Kraftwerk with the funk of George Clinton to arrive at techno, making Detroit a capital of the genre. He was 64.`\
+https://www.nytimes.com/2026/11/04/arts/music/juan-atkins-dead.html
+
 **Herbert Blomstedt, Low-Key, Long-Performing Maestro, Dies at 99**\
 `He never achieved the celebrity of more glamorous colleagues, but drew acclaim as he remained at the podium until virtually the end of his long life.`\
 https://www.nytimes.com/2026/11/04/arts/music/herbert-blomstedt-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-new-york.html
 **How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
-
-**How South Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.html
-
-**How Rhode Island Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-rhode-island.html
 
