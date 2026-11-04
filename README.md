@@ -1,3 +1,7 @@
+**How Kansas Democrats Laid the Groundwork for Adam Hamilton’s Senate Upset**\
+`A two-term Democratic governor and a suburban revolt against President Trump laid the groundwork for Adam Hamilton’s victory.`\
+https://www.nytimes.com/2026/11/04/us/kansas-adam-hamilton-democrats.html
+
 **Justice Alito Will Not Retire From Supreme Court Immediately, Despite Election Outcome**\
 `The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
 https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
@@ -143,7 +147,7 @@ https://www.nytimes.com/2026/11/04/opinion/trump-democrats-midterms.html
 https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
 
 **Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
-`The race for U.S. Senate is incredibly close in Mississippi, which does not allow for vote recounts in statewide elections.`\
+`The race for U.S. Senate is close in Mississippi, which does not allow for vote recounts in statewide elections.`\
 https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
 
 **How Talarico Plans to Tackle Gas Prices and the Iran War**\
@@ -167,7 +171,7 @@ https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bak
 https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
 
 **Colom Makes Confident Speech as Vote Count Continues in Mississippi**\
-`The Democratic candidate for Senate, Scott Colom, leads his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
+`The Democratic candidate for Senate, Scott Colom, led his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
 https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
 
 **Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/us/trump-family-investigations-democrats.html
 **How Trump’s Energy Policies Helped Trigger Midterm Rout**\
 `The war in Iran, efforts to promote fossil fuels and attacks on renewable energy contributed to higher prices for gas and electricity that drove voter discontent.`\
 https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-election.html
-
-**Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
-`Last week, Lady Liberty turned 140. Find out the story of her creation.`\
-https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
