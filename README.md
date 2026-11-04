@@ -1,3 +1,11 @@
+**Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
+`Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
+https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
+
+**Lindsey Graham’s Legacy Is Done**\
+`Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
+https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
+
 **Democrat Wins Race for Texas Governor in Tectonic Upset**\
 `State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
 https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/11/03/us/ossoff-georgia-senate-race.html
 **More Federal Election Monitors Than Ever Fanned Out to Polling Places**\
 `The presence caused jitters for some voters and election officials, but no major disruptions were reported.`\
 https://www.nytimes.com/2026/11/03/us/justice-department-monitors-election.html
-
-**Anthrax Outbreak in Africa’s Oldest National Park Is Killing Hippos**\
-`The disease has killed 30 hippopotamuses in Virunga National Park in the Democratic Republic of Congo since September, officials say.`\
-https://www.nytimes.com/2026/11/03/world/africa/congo-anthrax-hippos-virunga-park.html
 
 **Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
 `(No description)`\
