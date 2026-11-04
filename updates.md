@@ -1,3 +1,11 @@
+**El-Sayed Wins Michigan Senate Race**\
+`Dr. Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
+https://www.nytimes.com/video/us/elections/100000011261594/el-sayed-wins-michigan-senate-race.html
+
+**How Illinois Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-illinois.html
+
 **The Business Fallout From a Blue Wave**\
 `Investors are already picking the winners and the losers after Democrats glided to a landslide victory in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/business/dealbook/business-fallout-blue-wave.html
