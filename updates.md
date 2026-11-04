@@ -1,3 +1,15 @@
+**Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
+`Last week, Lady Liberty turned 140. Find out the story of her creation.`\
+https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
+
+**Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
+`House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
+
+**The New York Times Adds 420,000 Digital Subscribers**\
+`After a slower second quarter, the additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year.`\
+https://www.nytimes.com/2026/11/04/business/media/new-york-times-earnings.html
+
 **John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
 `A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
 https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html

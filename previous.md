@@ -1,3 +1,7 @@
+**Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
+`Last week, Lady Liberty turned 140. Find out the story of her creation.`\
+https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
+
 **John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
 `A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
 https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississ
 https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
 
 **Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
-`House Speaker Mike Johnson told Republican aides that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
+`House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
 
 **Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
@@ -175,7 +179,7 @@ https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-blud
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
 
 **The New York Times Adds 420,000 Digital Subscribers**\
-`The additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year, after a slower second quarter.`\
+`After a slower second quarter, the additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year.`\
 https://www.nytimes.com/2026/11/04/business/media/new-york-times-earnings.html
 
 **CVS to Split Off Drugstore Business, Ending Its Bigger-Is-Better Era**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-senate-stat
 **A Blue Wave**\
 `In a rebuke to President Trump, the Democrats flipped both the Senate and the House.`\
 https://www.nytimes.com/2026/11/04/briefing/a-blue-wave.html
-
-**SpaceX and Tesla Stocks Tumble After Elon Musk-Backed Candidates Lose in Texas**\
-`The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
-https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
 
