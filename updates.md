@@ -1,3 +1,7 @@
+**With 2 Big Wins, Democrats May Have Put Ohio Back in Play**\
+`Once seen as a bellwether of the nation’s political mood, Ohio has been solidly red since President Trump first won office. Tuesday’s results could change that.`\
+https://www.nytimes.com/2026/11/04/us/elections/ohio-democrats-win-brown-acton.html
+
 **Max Miller Loses in Ohio After Ex-Wife’s Abuse Allegations**\
 `The defeat of the two-term Republican by Brian Poindexter, a union ironworker, handed Democrats a seat that had appeared out of reach before the family clash became public.`\
 https://www.nytimes.com/2026/11/04/us/ohio-house-7-miller-poindexter.html

@@ -1,3 +1,7 @@
+**With 2 Big Wins, Democrats May Have Put Ohio Back in Play**\
+`Once seen as a bellwether of the nation’s political mood, Ohio has been solidly red since President Trump first won office. Tuesday’s results could change that.`\
+https://www.nytimes.com/2026/11/04/us/elections/ohio-democrats-win-brown-acton.html
+
 **Max Miller Loses in Ohio After Ex-Wife’s Abuse Allegations**\
 `The defeat of the two-term Republican by Brian Poindexter, a union ironworker, handed Democrats a seat that had appeared out of reach before the family clash became public.`\
 https://www.nytimes.com/2026/11/04/us/ohio-house-7-miller-poindexter.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-
 **Shomari Figures Holds Redrawn Alabama House Seat for Democrats**\
 `Representative Shomari Figures won even though a new Republican-drawn map changed his district, a move prompted by the Supreme Court decision weakening the Voting Rights Act.`\
 https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
-
-**Talarico Defeats Paxton in Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
-`James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
-https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
