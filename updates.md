@@ -1,3 +1,7 @@
+**A Seismic Shift in Texas**\
+`The Democratic victories in the Senate and governor’s races are a historic change for Texas. Our national political correspondent Shane Goldmacher explains why.`\
+https://www.nytimes.com/video/us/politics/100000011238052/a-seismic-shift-in-texas.html
+
 **‘An Earthquake’: A Democratic Rout Stuns Texas**\
 `In a seismic shift that was once unthinkable, victories by James Talarico and Gina Hinojosa upended decades of statewide dominance in what had been the nation’s most populous conservative state.`\
 https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
