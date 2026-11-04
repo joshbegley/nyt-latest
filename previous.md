@@ -1,3 +1,11 @@
+**Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
+`Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
+https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
+
+**Three Opinion Writers on the Democrats’ Landslide**\
+`And what the party should do with its new majority in the House and Senate.`\
+https://www.nytimes.com/video/opinion/100000011262109/three-opinion-writers-on-the-democrats-landslide.html
+
 **Schumer, Jeffries Celebrate Sweeping Midterms Victories**\
 `Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
 https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/04/opinion/trump-midterms-democracy-threats.html
 **N.J. Republican Who Pledged ‘Undying Support’ for Trump Concedes Defeat**\
 `“Sometimes life is bumpy and you have to man up,” Representative Jeff Van Drew said as he acknowledged his loss to Zack Mullock, the mayor of Cape May, N.J.`\
 https://www.nytimes.com/2026/11/04/nyregion/zack-mullock-jeff-van-drew-nj-house-2.html
-
-**Live: Three Opinion Writers on the Democrats’ Landslide**\
-`And what the party should do with its new majority in the House and Senate.`\
-https://www.nytimes.com/2026/11/04/opinion/democrat-wins-midterms-house-senate-chat.html
-
-**Democrats Flip Texas With Stunning Midterm Election Victories**\
-`James Talarico and Gina Hinojosa, two Democratic state representatives, won their midterm races for senator and governor in Texas. Their victories ended decades of Republican dominance in the state.`\
-https://www.nytimes.com/video/us/politics/100000011261627/texas-democrats-talarico-hinojosa.html
 

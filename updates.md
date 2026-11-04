@@ -1,3 +1,11 @@
+**Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
+`Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
+https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
+
+**Three Opinion Writers on the Democrats’ Landslide**\
+`And what the party should do with its new majority in the House and Senate.`\
+https://www.nytimes.com/video/opinion/100000011262109/three-opinion-writers-on-the-democrats-landslide.html
+
 **Schumer, Jeffries Celebrate Sweeping Midterms Victories**\
 `Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
 https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html

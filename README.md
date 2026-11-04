@@ -1,3 +1,7 @@
+**A Trump Reckoning**\
+`The results from the U.S. midterm elections could be the beginning of the end of the Trump era.`\
+https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
+
 **Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
 `Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
 https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
@@ -186,11 +190,7 @@ https://www.nytimes.com/2026/11/04/us/aaron-spencer-lonoke-county-sheriff-arkans
 `We look at results from the election.`\
 https://www.nytimes.com/2026/11/04/briefing/the-blue-tsunami.html
 
-**Trump Has Been Thumped. That Doesn’t Make Him Any Less Dangerous.**\
-`Breathe easy. For a minute.`\
-https://www.nytimes.com/2026/11/04/opinion/trump-midterms-democracy-threats.html
-
-**N.J. Republican Who Pledged ‘Undying Support’ for Trump Concedes Defeat**\
-`“Sometimes life is bumpy and you have to man up,” Representative Jeff Van Drew said as he acknowledged his loss to Zack Mullock, the mayor of Cape May, N.J.`\
-https://www.nytimes.com/2026/11/04/nyregion/zack-mullock-jeff-van-drew-nj-house-2.html
+**Midterm Elections Live Updates: Democrats Vow to Use Majority to Check Trump**\
+`Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after a remarkable power shift in Congress. President Trump, speaking at the White House, focused on his renovation projects, not the midterms.`\
+https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
 
