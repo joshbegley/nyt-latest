@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Vance Says Iran War Led to Democrats’ Sweep**\
+`Democrats flipped the House and Senate as part of a remarkable power shift in the midterm elections. Senator Chuck Schumer hailed a “generational remake” of the body’s majority.`\
+https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
+
 **What’s Left? Here Are the Midterm Races That Have Not Been Called.**\
 `Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
 https://www.nytimes.com/2026/11/04/us/midterm-election-races-outstanding.html
