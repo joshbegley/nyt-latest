@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Polls Close in Several Battlegrounds in Fight to Control Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Why Some States Take Longer to Count and Report Election Results**\
 `Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
