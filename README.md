@@ -1,3 +1,11 @@
+**Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
+`Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
+https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
+
+**Chris Pappas to Become First Openly Gay Male Senator**\
+`Representative Chris Pappas of New Hampshire, the first openly gay man to win a Senate seat, spoke about a Democratic victory over the “broken status quo” and gave a shoutout to his husband.`\
+https://www.nytimes.com/video/us/elections/100000011260967/chris-pappas-first-openly-gay-male-senator.html
+
 **Abdul El-Sayed’s Historic Win in Michigan Answers Several Questions**\
 `Abdul El-Sayed’s victory answers several questions.`\
 https://www.nytimes.com/2026/11/04/opinion/abdul-el-sayed-michigan-senate.html
@@ -62,7 +70,7 @@ https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
 `On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
 https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
 
-**7 Writers on How the Blue Tsunami Swept America**\
+**8 Writers on How the Blue Tsunami Swept America**\
 `Every Senate win holds important lessons for Democrats.`\
 https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-wave.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/kansas-senate-marshall-hamilton.html
 **Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
 `Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
 https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
-
-**It Only Took Four Months to Destroy Lindsey Graham’s Legacy**\
-`Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
-https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
-
-**Gina Hinojosa Wins Texas Governor Race in Major Upset, Defeating Greg Abbott**\
-`State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
-https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
