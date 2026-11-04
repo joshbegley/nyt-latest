@@ -23,7 +23,7 @@ https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeff
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
 
 **Helicopter Crash Off Miami Kills One Person and Injures Two**\
-`The helicopter went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
+`The helicopter was filming boats in the water when it went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
 https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
 
 **Trump Wanted Democrats to Win**\
@@ -58,7 +58,7 @@ https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bak
 `This is the stunningly cheesy recipe that made Tini Younger the most popular woman chef on TikTok after she posted it in 2023.`\
 https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
 
-**Colom Makes Confident Speech as Vote Count Continues In Mississippi**\
+**Colom Makes Confident Speech as Vote Count Continues in Mississippi**\
 `The Democratic candidate for Senate, Scott Colom, leads his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
 https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
 
