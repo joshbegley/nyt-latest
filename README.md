@@ -1,3 +1,15 @@
+**‘We Will Find You’: Trump Officials Pledge to Arrest Noncitizen Voters**\
+`Immigration agents did not show up in large numbers at polling places. But Trump administration officials repeatedly warned on Election Day that noncitizen voters would face consequences.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-mullin-noncitizen-voting-arrests.html
+
+**NASA Astronaut Votes From Space**\
+`The NASA astronaut Dr. Anil Menon explained how he cast his ballot for the Texas midterm election from the International Space Station.`\
+https://www.nytimes.com/video/us/elections/100000011259692/nasa-astronaut-votes-from-space.html
+
+**Representative Chris Pappas Will Become the Senate’s First Openly Gay Male Senator**\
+`Representative Chris Pappas, Democrat of New Hampshire, will move to the upper chamber as L.G.B.T.Q. rights have faced pushback in some states.`\
+https://www.nytimes.com/2026/11/03/us/politics/chris-pappas-first-openly-gay-male-senator.html
+
 **Republican Ashley Moody Holds On to Florida Senate Seat, Defeating Angie Nixon**\
 `Ms. Moody, who had been appointed to the position to replace Marco Rubio, won a special election to finish his term, defeating a strong, grass-roots challenge from Angie Nixon, a state lawmaker.`\
 https://www.nytimes.com/2026/11/03/us/mood-nixon-florida-senate-election.html
@@ -153,18 +165,6 @@ https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine
 **Paris Jackson Asks Father’s Estate to Fund $600M to Family Trust**\
 `A representative for Michael Jackson’s daughter accused the executors of her father’s estate of incompetence, financial mismanagement and delays in distributing his wealth to his children.`\
 https://www.nytimes.com/2026/11/03/arts/paris-jackson-michael-jackson-estate.html
-
-**‘Waiting for Lefty’ Review: Protest Songs in the Key of Life**\
-`The music of the folk duo Yeller Tooth gives Classic Stage Company’s revival of this dated Clifford Odets play a refreshing heart.`\
-https://www.nytimes.com/2026/11/03/theater/waiting-for-lefty-review-odets-pasquale.html
-
-**Restaurant Review: Zig Zag Oyster Bar in New York**\
-`From the team behind Hart’s, Cervo’s and Eel Bar, the new Zig Zag Oyster Bar is a warm and welcome presence in Prospect Heights.`\
-https://www.nytimes.com/2026/11/03/dining/restaurant-review-zig-zag-oyster-bar-nyc.html
-
-**West Bank Property Sales Tactics Face a Challenge in Canada**\
-`The marketing practices of some firms promoting property in the Israeli-occupied territory to foreign purchasers are deceptive, a recent filing claims.`\
-https://www.nytimes.com/2026/11/03/world/canada/canada-west-bank-lawsuit.html
 
 **Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
 `(No description)`\
