@@ -1,3 +1,15 @@
+**The Good List: 6 Things to Add Joy to Your Day**\
+`Special cheese, honey hack and going local.`\
+https://www.nytimes.com/2026/11/04/briefing/the-good-list-special-cheese-six-degrees.html
+
+**Senji Kuroi Has Died. He Interpreted ‘the Salaried Soul.’**\
+`In books and essays, he captured the unease beneath Japan’s economic miracle and wrote about everyday people who might never appear in headlines.`\
+https://www.nytimes.com/2026/11/04/world/asia/senji-kuroi-dead.html
+
+**Randy Villegas, a Progressive Democrat, Ousts a G.O.P. Incumbent in California**\
+`Mr. Villegas flipped a district held by Representative David Valadao, a moderate Republican, in the state’s traditionally conservative Central Valley region.`\
+https://www.nytimes.com/2026/11/04/us/california-house-22-villegas-valadao.html
+
 **Alexander Brothers’ Team Paid Influencers to Discredit Women in Case, Documents Show**\
 `The online articles, some of which were deeply critical of the accusers, were widely shared during the brothers’ trial in which they were found guilty of sex trafficking.`\
 https://www.nytimes.com/2026/11/04/nyregion/alexander-brothers-sex-trafficking-paid-writers.html
@@ -174,6 +186,10 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-west-virginia.ht
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
 
+**How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
+
 **How Tennessee Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-tennessee.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-tennessee.html
 **How Americans Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-national.html
-
-**How Texas Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-texas.html
-
-**How South Dakota Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-south-dakota.html
-
-**How Vermont Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-vermont.html
-
-**How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
 
