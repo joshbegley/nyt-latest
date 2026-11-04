@@ -1,3 +1,7 @@
+**How Democrats Swept Texas in the 2026 Elections: See Which G.O.P. Counties Flipped From 2024**\
+`Every county in Texas shifted left, voting more Democratic than two years ago when President Trump was on the ballot.`\
+https://www.nytimes.com/interactive/2026/11/04/us/elections/texas-midterm-shift-democrats.html
+
 **Hochul Leads a Democratic Surge in New York: 5 Takeaways**\
 `Gov. Kathy Hochul erased doubts over her performance in the 2022 midterms, scoring a crushing 20-point win over Bruce Blakeman that set the tone for her party.`\
 https://www.nytimes.com/2026/11/04/nyregion/democrats-hochul-ny-takeaways.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-bu
 **John Frieda, Hair-Care Mogul Who Soothed Women’s Curls, Has Died**\
 `He was a celebrity stylist to rock stars and royalty whose blockbuster product, Frizz Ease, changed his fortunes (and women’s hair) forever. He was 75.`\
 https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
-
-**How the Audacious Trump Redistricting Push Backfired for Republicans in the Midterms**\
-`Republicans tried to redraw congressional maps to tilt more seats in their favor. Democrats captured many of the new districts instead.`\
-https://www.nytimes.com/2026/11/04/us/trump-republican-redistricting-backfire.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
