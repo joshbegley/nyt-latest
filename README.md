@@ -1,3 +1,11 @@
+**Midterm Elections Live Updates: Democrats Win Control of Congress as Voters Rebuke Trump**\
+`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the results.`\
+https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
+
+**Democrats Win Control of Congress**\
+`Democrats won control of both the Senate and the House in a stunning rebuke of President Trump.`\
+https://www.nytimes.com/video/us/politics/100000011260587/midterm-election-results-democrats.html
+
 **15-Minute Lesson Plan: A Teen Tracks Down Over 11,377 Moths**\
 `Violet Clinton is doing award-winning entomological field research. Is there a citizen science project you might want to conduct?`\
 https://www.nytimes.com/2026/11/04/learning/15-minute-lesson-plan-a-teen-tracks-down-over-11377-moths.html
@@ -106,6 +114,10 @@ https://www.nytimes.com/2026/11/04/arts/television/jimmy-kimmel-midterm-election
 `A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
 https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
 
+**Across the Country, Voters Give Direct Orders to State Governments**\
+`Many of the more than 140 ballot questions on voting rights, redistricting and voter identification laws. Others set rules for taxes and transgender people in sports.`\
+https://www.nytimes.com/2026/11/04/us/elections/statewide-ballot-questions-voting-redistricting.html
+
 **Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
 `On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
 https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
@@ -181,14 +193,6 @@ https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meek
 **Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
 `Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
 https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
-
-**U.K. Supreme Court to Hear Challenge to Ban on Palestine Action: What to Know**\
-`The government designated the protest group as a terrorist organization last year, prompting criticism. The country’s Supreme Court is set to begin hearing a challenge to the ban on Wednesday.`\
-https://www.nytimes.com/2026/11/04/world/europe/palestine-action-ban-uk-supreme-court.html
-
-**Quote of the Day: High in Mexico’s Mountains, a Homecoming for the Dead**\
-`Quotation of the Day for Wednesday, November 4, 2026.`\
-https://www.nytimes.com/2026/11/04/pageoneplus/quote-of-the-day-high-in-mexicos-mountains-a-homecoming-for-the-dead.html
 
 **Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
