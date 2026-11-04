@@ -1,3 +1,19 @@
+**Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
+`The race for U.S. Senate is incredibly close in Mississippi, which does not allow for vote recounts in statewide elections.`\
+https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
+
+**How Talarico Plans to Tackle Gas Prices and The Iran War**\
+`In an Oct. 19 interview with “The Daily,” James Talarico, who has just won the U.S. Senate seat in Texas, said that the legislative branch “has to reassert” its authority regarding the war in Iran, and shared what he would do to end the conflict and lower gas prices.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011262704/how-talarico-plans-to-tackle-gas-prices-and-the-iran-war.html
+
+**With Democrats’ Sweep, Congress Is Set to Reassert Power to Check Trump**\
+`President Trump usurped power from the legislative branch with Republican help for two years. Democrats are now positioned to try to claw back some of Congress’s prerogatives.`\
+https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-trump.html
+
+**Vance, in Break With Trump, Blames Iran War for Republicans’ 2026 Midterm Losses**\
+`In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to distance himself from the president.`\
+https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
+
 **Vegan Maple Ginger Pie**\
 `Like a ginger ale at 30,000 feet, this zippy pie might just be the thing to settle your stomach after a Thanksgiving feast.`\
 https://www.nytimes.com/video/dining/100000011223069/vegan-maple-ginger-pie.html
