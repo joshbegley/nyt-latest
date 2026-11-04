@@ -1,3 +1,15 @@
+**U.K. Supreme Court to Hear Challenge to Ban on Palestine Action: What to Know**\
+`The government designated the protest group as a terrorist organization last year, prompting criticism. The country’s Supreme Court is set to begin hearing a challenge to the ban on Wednesday.`\
+https://www.nytimes.com/2026/11/04/world/europe/palestine-action-ban-uk-supreme-court.html
+
+**Quote of the Day: High in Mexico’s Mountains, a Homecoming for the Dead**\
+`Quotation of the Day for Wednesday, November 4, 2026.`\
+https://www.nytimes.com/2026/11/04/pageoneplus/quote-of-the-day-high-in-mexicos-mountains-a-homecoming-for-the-dead.html
+
+**From the Front Page: Obama Is Elected First Black President on Nov. 4, 2008**\
+`Barack Obama defeated John McCain to become the 44th U.S. president.`\
+https://www.nytimes.com/2026/11/04/learning/from-the-front-page-obama-is-elected-first-black-president-on-nov-4-2008.html
+
 **Luria Wins in Virginia, Flipping a Key House Seat for Democrats**\
 `Former Representative Elaine Luria won back her seat in the state’s tidewater region from Representative Jen Kiggans, the Republican who beat her four years ago.`\
 https://www.nytimes.com/2026/11/03/us/politics/virginia-house-2-kiggans-luria.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011259692/nasa-astronaut-votes-
 **Representative Chris Pappas Will Become the Senate’s First Openly Gay Male Senator**\
 `Chris Pappas, Democrat of New Hampshire and a congressman, will move to the upper chamber at a time when L.G.B.T.Q. rights have faced pushback in some states.`\
 https://www.nytimes.com/2026/11/03/us/politics/chris-pappas-first-openly-gay-male-senator.html
-
-**Republican Ashley Moody Holds On to Florida Senate Seat, Defeating Angie Nixon**\
-`Ms. Moody, who had been appointed to the position to replace Marco Rubio, won a special election to finish his term, defeating a strong, grass-roots challenge from Angie Nixon, a state lawmaker.`\
-https://www.nytimes.com/2026/11/03/us/mood-nixon-florida-senate-election.html
-
-**Seneca Nation Elects First Woman President**\
-`Tina Abrams had served on the Senecas’ governing council since 2001.`\
-https://www.nytimes.com/2026/11/03/nyregion/seneca-nation-woman-president-tina-abrams.html
-
-**Voters in Key Battleground States Told Us How They Voted**\
-`The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
-https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
 
