@@ -1,3 +1,7 @@
+**The Business Fallout From a Blue Wave**\
+`Investors are already picking the winners and the losers after Democrats glided to a landslide victory in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/business/dealbook/business-fallout-blue-wave.html
+
 **Black Candidates for Governor Break Barriers in Four States**\
 `Georgia was the first state to elect a female Black governor with Keisha Lance Bottoms. Three other states elected Black governors for the first time.`\
 https://www.nytimes.com/2026/11/04/us/elections/black-governors-georgia-florida-wisconsin-usvi.html
