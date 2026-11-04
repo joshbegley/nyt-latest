@@ -1,3 +1,11 @@
+**7 Writers on How the Blue Tsunami Swept America**\
+`Every Senate win holds important lessons for Democrats.`\
+https://www.nytimes.com/2026/11/04/opinion/7-writers-on-how-the-blue-tsunami-swept-america.html
+
+**How Ken Paxton Went From Republican Survivor to Republican Liability**\
+`For years, Ken Paxton turned scandal into a test of Republican loyalty, but his Senate defeat exposed the limits of a political strategy that helped reshape Texas.`\
+https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
+
 **‘We Hear You,’ Says Jeffries, Who Is Set to Break Barrier in House**\
 `Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
 https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html

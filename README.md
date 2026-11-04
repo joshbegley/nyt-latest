@@ -1,6 +1,10 @@
+**Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
+`On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
+https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
+
 **7 Writers on How the Blue Tsunami Swept America**\
 `Every Senate win holds important lessons for Democrats.`\
-https://www.nytimes.com/2026/11/04/opinion/7-writers-on-how-the-blue-tsunami-swept-america.html
+https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-wave.html
 
 **How Ken Paxton Went From Republican Survivor to Republican Liability**\
 `For years, Ken Paxton turned scandal into a test of Republican loyalty, but his Senate defeat exposed the limits of a political strategy that helped reshape Texas.`\
@@ -190,11 +194,7 @@ https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-m
 `Our election data reporter Christine Zhang explains how double-digit swings in several counties helped Dr. Annie Andrews, a Democrat, defeat Senator Darline Graham, a Republican, flipping South Carolina in the U.S. Senate race.`\
 https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.html
 
-**Prosecutors Seek to Drop Charges Against Russian Scientist Accused of Smuggling Frog Embryos**\
-`Kseniia Petrova, a researcher at Harvard, has argued that she was vindictively prosecuted after her arrest in 2025.`\
-https://www.nytimes.com/2026/11/03/science/petrova-russian-scientist-charges-frog-embryo.html
-
-**Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
-`Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
+**Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
+`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
