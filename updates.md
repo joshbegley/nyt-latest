@@ -1,3 +1,15 @@
+**Americans on Why They Rejected Trump’s Republican Party**\
+`A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
+https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
+
+**Maine Voters Finally Saw Through Susan Collins**\
+`One of the greatest survivors in U.S. politics finally falls.`\
+https://www.nytimes.com/2026/11/04/opinion/susan-collins-troy-jackson-senate.html
+
+**This Is a Huge Psychological Blow to Republicans**\
+`For Republicans, Texas has long been a dependable political anchor. Now, it’s finally blue.`\
+https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
+
 **Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
 `On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
 https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html

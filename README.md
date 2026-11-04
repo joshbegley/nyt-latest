@@ -1,3 +1,11 @@
+**My Call With President Trump**\
+`Our White House correspondents Tyler Pager and Erica L. Green called President Trump to ask whether he would accept the results of the election.`\
+https://www.nytimes.com/video/us/politics/100000011260461/my-call-with-president-trump.html
+
+**Jimmy Kimmel Rides Election Day’s ‘Blue Tsunami’**\
+`“Man, oh man, would I hate to be the DoorDash driver who delivers Trump his Papa Johns tonight,” Kimmel said.`\
+https://www.nytimes.com/2026/11/04/arts/television/jimmy-kimmel-midterm-election-blue-wave.html
+
 **Americans on Why They Rejected Trump’s Republican Party**\
 `A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
 https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
 **NYC Voters Pass Ballot Measures That Could Boost Zohran Mamdani’s Agenda**\
 `The results could allow Mayor Zohran Mamdani to build housing and bike lanes more quickly.`\
 https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-elections.html
-
-**Trump Says in Interview That He Will Accept Election Results**\
-`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot, and said he was willing to work with Democrats.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
-
-**Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
-`The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
-https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
