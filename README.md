@@ -1,4 +1,12 @@
-**Acton Wins Governor’s Race in Ohio**\
+**Becerra Becomes California’s First Latino Elected as Governor**\
+`Xavier Becerra, a Democrat who has served in various roles at the state and federal level, will succeed Gov. Gavin Newsom.`\
+https://www.nytimes.com/2026/11/03/us/california-governor-becerra-hilton.html
+
+**Key Ballot Measures 2026: Live Election Results**\
+`See results for ballot measures around the country related to voting rights, social policy, redistricting and more.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-key-ballot-measures.html
+
+**Amy Acton, a Democrat, Defeats Republican Vivek Ramaswamy in Ohio Governor’s Race**\
 `Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
 https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
 
@@ -8,9 +16,9 @@ https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-electio
 
 **Trump Says in Interview That He Will Accept Election Results**\
 `In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-somber-white-house.html
+https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
 
-**Deb Haaland Is Elected New Mexico’s Governor, a Historic Victory**\
+**Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
 `The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
 https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
 
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/11/03/us/politics/drone-boat-maker-navy-protest.htm
 **Authorities Capture Convicted Murderer After Weeklong Escape**\
 `Jacob Allen Morley, who was serving a life sentence for murder, was captured on Tuesday in Missouri, according to the authorities. He escaped from a Tennessee prison on Oct. 26.`\
 https://www.nytimes.com/video/us/100000011259078/tennessee-convicted-murder-escape-capture.html
-
-**Georgia G.O.P. Chair Predicts a ‘Fair’ Election in the State**\
-`Josh McKoon, a Trump ally who helped advance Republican efforts to change election rules after a bitter 2020 count, said, “I think everybody’s going to respect the outcome.”`\
-https://www.nytimes.com/2026/11/03/us/georgia-republican-chair-fair-election.html
-
-**‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
-`Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
-https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
 
 **Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\
