@@ -1,3 +1,11 @@
+**The Local: The Minnesota midterms, by the numbers**\
+`Democrats’ strong showing included wins in every statewide race.`\
+https://www.nytimes.com/2026/11/04/briefing/minnesota-midterms.html
+
+**John Frieda, Hair-Care Mogul Who Soothed Women’s Curls, Has Died**\
+`He was a celebrity stylist to rock stars and royalty whose blockbuster product, Frizz Ease, changed his fortunes (and women’s hair) forever. He was 75.`\
+https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
+
 **Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
 `The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani a victory over a key piece of his agenda.`\
 https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
