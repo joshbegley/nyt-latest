@@ -1,3 +1,7 @@
+**Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
+`Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
+https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
+
 **U.K. Supreme Court to Hear Challenge to Ban on Palestine Action: What to Know**\
 `The government designated the protest group as a terrorist organization last year, prompting criticism. The country’s Supreme Court is set to begin hearing a challenge to the ban on Wednesday.`\
 https://www.nytimes.com/2026/11/04/world/europe/palestine-action-ban-uk-supreme-court.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.htm
 `Immigration agents did not show up in large numbers at polling places. But Trump administration officials repeatedly warned on Election Day that noncitizen voters would face consequences.`\
 https://www.nytimes.com/2026/11/03/us/politics/trump-mullin-noncitizen-voting-arrests.html
 
-**NASA Astronaut Votes From Space**\
-`The NASA astronaut Dr. Anil Menon explained how he cast his ballot for the Texas midterm election from the International Space Station.`\
-https://www.nytimes.com/video/us/elections/100000011259692/nasa-astronaut-votes-from-space.html
-
-**Representative Chris Pappas Will Become the Senate’s First Openly Gay Male Senator**\
-`Chris Pappas, Democrat of New Hampshire and a congressman, will move to the upper chamber at a time when L.G.B.T.Q. rights have faced pushback in some states.`\
-https://www.nytimes.com/2026/11/03/us/politics/chris-pappas-first-openly-gay-male-senator.html
+**Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
