@@ -1,3 +1,11 @@
+**Republican Ashley Moody Holds On to Florida Senate Seat, Defeating Angie Nixon**\
+`Ms. Moody, who had been appointed to the position to replace Marco Rubio, won a special election to finish his term, defeating a strong, grass-roots challenge from Angie Nixon, a state lawmaker.`\
+https://www.nytimes.com/2026/11/03/us/mood-nixon-florida-senate-election.html
+
+**Seneca Nation Elects First Woman President**\
+`Tina Abrams had served on the Senecas’ governing council since 2001.`\
+https://www.nytimes.com/2026/11/03/nyregion/seneca-nation-woman-president-tina-abrams.html
+
 **Voters in Key Battleground States Told Us How They Voted**\
 `The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
 https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
@@ -158,11 +166,7 @@ https://www.nytimes.com/2026/11/03/dining/restaurant-review-zig-zag-oyster-bar-n
 `The marketing practices of some firms promoting property in the Israeli-occupied territory to foreign purchasers are deceptive, a recent filing claims.`\
 https://www.nytimes.com/2026/11/03/world/canada/canada-west-bank-lawsuit.html
 
-**Midterm Suspense**\
-`Voters in the U.S. are deciding who will control Congress. The election is also seen as a referendum on Trump’s presidency.`\
-https://www.nytimes.com/2026/11/03/world/us-midterms-trump-iran-ukraine.html
-
-**Midterm Elections Live Updates: Early Races Break for Democrats in Quest to Seize Control of Congress**\
+**Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

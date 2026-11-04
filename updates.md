@@ -1,3 +1,15 @@
+**Republican Ashley Moody Holds On to Florida Senate Seat, Defeating Angie Nixon**\
+`Ms. Moody, who had been appointed to the position to replace Marco Rubio, won a special election to finish his term, defeating a strong, grass-roots challenge from Angie Nixon, a state lawmaker.`\
+https://www.nytimes.com/2026/11/03/us/mood-nixon-florida-senate-election.html
+
+**Seneca Nation Elects First Woman President**\
+`Tina Abrams had served on the Senecas’ governing council since 2001.`\
+https://www.nytimes.com/2026/11/03/nyregion/seneca-nation-woman-president-tina-abrams.html
+
+**Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Voters in Key Battleground States Told Us How They Voted**\
 `The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
 https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
