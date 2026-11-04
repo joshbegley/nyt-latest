@@ -1,3 +1,7 @@
+**The Methodology Behind Times Voter Trends**\
+`Read the detailed methodology behind the Times Voter Trends reports for 2026.`\
+https://www.nytimes.com/2026/11/04/us/elections/times-voter-trends-methodology.html
+
 **A Landslide Victory for Democrats**\
 `The party clinched the House and the Senate in the midterm elections, giving Democrats a powerful platform to counter President Trump.`\
 https://www.nytimes.com/2026/11/04/podcasts/the-daily/midterm-results-blue-wave.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor
 **NYT Spelling Bee Answers for November 4, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/04/crosswords/spelling-bee-forum.html
-
-**Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
-`Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
-https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
 
