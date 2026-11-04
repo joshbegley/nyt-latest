@@ -1,3 +1,15 @@
+**Tina Kotek, Endangered Democratic Governor in Oregon, Wins Re-election**\
+`Gov. Tina Kotek was one of the few embattled incumbents in her party, but she prevailed in her Democratic state.`\
+https://www.nytimes.com/2026/11/04/us/oregon-governor-kotek-drazan.html
+
+**How a Blue Wave Became a Red Wipeout**\
+`Republicans lost control of the House and Senate as voters offered a stinging rebuke to President Trump’s agenda.`\
+https://www.nytimes.com/2026/11/04/us/politics/democratic-midterms-wipeout.html
+
+**Democrats Seize Control of Congress as Voters Rebuke Trump**\
+`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Senator Pete Ricketts of Nebraska Fends Off an Independent Challenger**\
 `Mr. Ricketts secured Republicans’ grip on the deep-red state by defeating Dan Osborn, a mechanic and military veteran.`\
 https://www.nytimes.com/2026/11/04/us/nebraska-senate-ricketts-osborn.html
