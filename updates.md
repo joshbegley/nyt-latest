@@ -1,3 +1,7 @@
+**A Night of Firsts in the Midterms**\
+`The midterms were full of firsts, including the first Black woman to be elected governor of a U.S. state and the first openly gay man to serve in the Senate.`\
+https://www.nytimes.com/video/world/americas/100000011261450/midterm-elections-results-firsts.html
+
 **How Indiana Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-indiana.html
