@@ -1,3 +1,23 @@
+**Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
+`Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
+https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
+
+**Chris Pappas to Become First Openly Gay Male Senator**\
+`Representative Chris Pappas of New Hampshire, the first openly gay man to win a Senate seat, spoke about a Democratic victory over the “broken status quo” and gave a shoutout to his husband.`\
+https://www.nytimes.com/video/us/elections/100000011260967/chris-pappas-first-openly-gay-male-senator.html
+
+**Abdul El-Sayed’s Historic Win in Michigan Answers Several Questions**\
+`Abdul El-Sayed’s victory answers several questions.`\
+https://www.nytimes.com/2026/11/04/opinion/abdul-el-sayed-michigan-senate.html
+
+**8 Writers on How the Blue Tsunami Swept America**\
+`Every Senate win holds important lessons for Democrats.`\
+https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-wave.html
+
+**Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
+`Senator Susan Collins, the sole Republican representing New England in Congress, lost her seat on a landslide night for Democrats.`\
+https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
+
 **El-Sayed Wins Michigan Senate Race in a Victory for Democrats**\
 `Dr. Abdul El-Sayed will become the nation’s first Muslim senator. He triumphed in one of the country’s most bitter and expensive races, keeping his party in control of a crucial seat.`\
 https://www.nytimes.com/2026/11/04/us/michigan-senate-el-sayed-rogers.html
