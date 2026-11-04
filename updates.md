@@ -1,3 +1,7 @@
+**His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
+`Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
+https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
+
 **Republicans React After Sweeping Losses in the Midterms**\
 `Several Republican candidates and leaders responded to the party’s sweeping losses on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011262890/republicans-midterms-elections-reaction.html

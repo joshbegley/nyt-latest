@@ -1,3 +1,7 @@
+**His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
+`Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
+https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
+
 **Republicans React After Sweeping Losses in the Midterms**\
 `Several Republican candidates and leaders responded to the party’s sweeping losses on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011262890/republicans-midterms-elections-reaction.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/04/nyregion/alexander-brothers-sex-trafficking-p
 **Sherrod Brown’s Win in Ohio Is a Rare Loss for Crypto Under Trump**\
 `Fairshake, the major industry super PAC, spent $46 million on ads against the Democrat, Sherrod Brown, who won.`\
 https://www.nytimes.com/2026/11/04/technology/sherrod-brown-ohio-crypto-trump.html
-
-**How 2026 Midterm Voters Swung Back to Democrats Amid Trump Backlash**\
-`Democrats reversed many of the gains Republicans made in 2024.`\
-https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voters-democrats.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
