@@ -2,7 +2,7 @@
 `Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
 https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
 
-**South Carolina Flips**\
+**Democrats Win South Carolina Senate Seat**\
 `Our election data reporter Christine Zhang explains how double-digit swings in several counties helped Dr. Annie Andrews, a Democrat, defeat Senator Darline Graham, a Republican, flipping South Carolina in the U.S. Senate race.`\
 https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.html
 
