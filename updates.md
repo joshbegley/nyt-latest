@@ -1,3 +1,7 @@
+**Zack Mullock Unseats Trump Ally in N.J. House Race**\
+`“Sometimes life is bumpy and you have to man up,” Representative Jeff Van Drew said as he acknowledged his loss to Zack Mullock, the mayor of Cape May, N.J.`\
+https://www.nytimes.com/2026/11/04/nyregion/zack-mullock-jeff-van-drew-nj-house-2.html
+
 **How Michigan Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-michigan.html
